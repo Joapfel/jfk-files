@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_30797.png
+
+Convert to Markdown11110763
+
+Cristina Aron, Clearwater, Fla., also had FCC meetings at her home husband Manuel Aron had beer chairman of Tampa FPCC Aug. 19.63 they moved to Tampa
+
+Cristina Aron announced at 12/8/63 meeting that Lopez had arrived safely in Cuba
+
+Carried courtesy Cuban visa at time of issuance of pass. Tourist card Lopez had said his destination was Mexico, valid for 15 days
+
+Louis Frierze, Tampa Art and Music Co.; 205 East Tyler St., Tampa placed ad for FPCC in Tampa Tribune or 5/15/63 Tampa FPCC did not exist at that time
+
+Organized 1/9/61
+
+SECRET
+
+10154

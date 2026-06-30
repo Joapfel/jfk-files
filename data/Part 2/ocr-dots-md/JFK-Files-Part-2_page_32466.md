@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_32466.png
+
+Convert to MarkdownSECRET-NO FOREIGN DISSEM
+
+Panama is relatively quiet. Although Panama has failed to receive any commitment for a long-sought renegotiation of the Canal Zone treaty, continuing talks on areas of disagreement and some concessions have eased tensions and softened violent anti-US propaganda. Public emotion may again be aroused, however, by the recent petition, filed by a Communist lawyer, requesting the Supreme Court to declare the treaty unconstitutional. President Chiari has also indicated he expects to press for increased compensation during the forthcoming talks. On the internal scene, President Chiari has failed to provide a strong administration. Corruption continues; the cabinet is divided by conflicting loyalties and ambitions; badly needed reforms have not yet been adopted; and the chronically depressed economy remains stagnant.
+
+The stability which has marked the 30-year dominance of Mexico's Party of Revolutionary Institutions (PRI) is gradually being eroded. Extreme right and left factions of the PRI are vying for domination. In attempting to placate both, President Lopez Mateos has adopted inconsistent and vacillating policies, pleasing neither group. Forces outside the PRI also pose an increasing threat -- particularly the recently formed Independent Peasant Central (CCI) with which leftist ex-President Cardenas is associated. The CCI, organized to exploit unrest among the landless peasants, may also attempt to challenge the PRI politically. To undercut the CCI, the government plans to complete the land distribution program by the end of Lopez Mateos' term late next year. Although this may alleviate discontent in the agrarian sector, rising population and mounting unemployment will continue to be major problems.
+(SECRET)
+
+28 Jan 63
+
+DIA Intelligence Bulletin
+
+Page (3)
+
+(REVERSE BLANK)
+
+SECRET-NO FOREIGN DISSEM
+
+HW 50955 DocId:32423736 Page 90

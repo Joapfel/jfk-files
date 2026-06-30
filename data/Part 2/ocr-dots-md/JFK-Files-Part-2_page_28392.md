@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_28392.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Chairman Louis Stokes
+FROM: Tom Lambeth, Acting Director
+DATE: May 16, 1977
+RE: Employment of Caryl M. Emanuel
+
+Miss Emanuel has been interviewed by Jim Wolf and Tiny Hutton. She has experience as a legal secretary and Jim tells me that such experience is essential to his work. She has the possibility of employment at several other places and it is very important to let her know as soon as possible if we are hiring her. Her proposed salary is $14,000 which is the amount provided in the budget for this position.
+
+eb
+
+NW 88326
+DocId:32243307 Page 11

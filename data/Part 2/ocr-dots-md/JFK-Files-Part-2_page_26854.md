@@ -1,0 +1,81 @@
+# JFK-Files-Part-2_page_26854.png
+
+Convert to MarkdownSECRET
+
+1980-04-25 13:42:46
+
+A. Yes.
+
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+Q. -- at the moment. Is it possible that he was with
+Domestic Operations Division in the field of proprietaries
+engaged --
+
+A. I guess you are right, yes. I believe he was there.
+
+Q. Did you personally know Howard Hunt?
+
+A. No.
+
+Q. Never met him?
+
+A. I met him. That is all. I can't say I know him.
+
+Q. You would not have known anything about his where-
+abouts on any particular day, then. Is that true?
+
+A. Can we go off the record?
+
+(Off the record discussion.)
+
+THE WITNESS: Let's go back on the record.
+
+BY MR. OLSEN:
+
+Q. I would like to have it on the record.
+
+A. Do you have a particular day?
+
+Q. No. I am just asking you if your acquaintance with
+Hunt was such that you would have known of his whereabouts on
+any particular day.
+
+A. No.
+
+Q. Was it very infrequently that you ever saw him?
+
+A. Oh, I would see him in the halls, this type of thing,
+but -- bump into him perhaps downtown on the street.
+
+Q. But you would have no occasion for knowing from one
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+HW 50955 DocId:32275518 Page 91

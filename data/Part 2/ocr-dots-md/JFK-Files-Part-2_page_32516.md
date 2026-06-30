@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_32516.png
+
+Convert to MarkdownSECRET
+
+-13-
+
+brought to the attention of the QAS, and urged that this action
+be taken as soon as possible.
+
+a. Urged the Government of Guatemala to submit evidence
+of communist activity to the QAS.
+
+7. Surveillance of Cuban Diplomatic, Commercial and Cultural Missions.
+
+**General Intelligence Agency**
+
+(To be filled in by Mr. Wheeler)

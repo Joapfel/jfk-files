@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_30359.png
+
+Convert to MarkdownTOP SECRET
+
+already notified the American embassy that he intended to defect?
+
+Mr. Nosenko. No, no, no, sir.
+
+Mr. Dodd. You were not aware of that.
+
+Mr. Nosenko. No. He wasn't under surveillance. We didn't know. When he was going alone without interpter, we didn't know.
+
+Mr. Dodd. I didn't ask you how you know. I just asked you whether or not -- he didn't tell you that?
+
+Mr. Nosenko. No. Nobody from KGB talked with him.
+
+The Chairman. The time of the gentleman has expired.
+
+Mr. Sawyer?
+
+Mr. Sawyer. When Congressman Devine asked you how you knew your family was okay or that they hadn't invoked any reprisals, I didn't get the answer.
+
+Mr. Nosenko. Sir, I asked Mr. Solie in '69, '70, once I asked, anything about my family?
+
+Mr. Sawyer. Mr. who?
+
+Mr. Nosenko. Mr. Bruce Solie, CIA officer who was in contact with me, '69, '70. He answered me that they are all right, everything okay. But he didn't went in any detail and I never returned more to this question. But there is another point, sir. Besides the father's position, after he died, she was receiving, she received pension, and besides that, for the years --
+
+
+
+124
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 101

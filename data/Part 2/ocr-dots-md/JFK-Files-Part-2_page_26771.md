@@ -1,0 +1,133 @@
+# JFK-Files-Part-2_page_26771.png
+
+Convert to MarkdownSECRET
+
+6
+
+A Well, let's see. I would say that was probably around
+1965 because Fitzgerald then became Chief, W.H., and then
+2
+3 later DDP.
+
+4 Q Now, Mr. Harvey -- do you recall what position Mr.
+5 Harvey held after he left Task Force W?
+6
+7 A Yes. He was Chief of Station, Rome.
+Q And is he still with the Agency?
+
+8 A Oh, no. He retired a long time ago.
+
+9 Q Do you know where he lives at the present time?
+
+10 A Frankly, I don't. I have an idea where he lives.
+11 He went to work for a friend of mine who had a law firm.
+
+12 Harvey is a lawyer.
+
+13 Q Indianapolis area?
+
+14 A Yes, some place around there. It is in the midwest,
+15 Indiana.
+
+16 Q What was the role that was assigned to Task Force
+W?
+17 A It was the overall Cuban operations.
+
+18 Q Did the Miami -- when was the Miami Station estab-
+lished?
+
+20 A Well, I think they had a forward operation base down
+there about 1960 which was small, in Coral Gables.
+
+21
+22 Q This was, then, prior to the Bay of Pigs?
+A Oh, yes.
+
+24
+
+Q Now, in addition to Task Force W, was the Miami
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+NW 50955 DocId:32275518 Page 8
+
+PHILIP MORRIS
+LINDSAY SCHOUlt E.G., Washington, D.C. 20003
+
+JOSEPH F. KIPLING
+THE PRINCE OF WINDSOR
+FRANCIS DRUMMOND LEE
+OLIVER DNAE WOODSON
+JOHN RICHARD BURKE
+MARGARET EDNA HARRIS
+CHARLES MARY DICKINSON
+JAMES NATHANIEL DOANE
+EDWIN SIDNEY DOANE
+JOSEFUS DOUGHERTY
+ROBERT FALKER
+LOUIS FRANK FREY
+RICHARD FRANCIS GILLET
+BERNARD GORDON GILBOURNE
+FREDERICK GEORGE GILMAN
+JOSEPH GILLIAM JONES
+HAROLD HARRIS HARTLEY
+JAMES HENRY HUNT
+JOHN HUGHES HUMPHRIES
+JOSEPH INGRAHENY
+WALTER HOLUMBRE
+WILLIAM HUMPHRIES HUTCHINSON
+JOSEPH INDIANAGUÉ
+JOSE MIGUEL IRIAS
+JAMES ILLINGWORTH JONES
+ROBERT L. JOHNSON
+HENRY H. JOHNSTON
+GEORGE F. JOHNSTON
+ALLEN JOHNSTON
+JOHN J. JOHNSTON
+ROBERT F. JOHNSTON
+ROBERT L. JOHNSTON
+JOSEPH L. JOHNSTON
+JOSEPH M. JOHNSTON
+JOSEPH O. JOHNSTON
+JOSEPH R. JOHNSTON
+JOSEPH S. JOHNSTON
+JOSEPH V. JOHNSTON
+JOSEPH W. JOHNSTON
+JOSEPH Y. JOHNSTON
+JOSEPH Z. JOHNSTON
+JOSEPH L. JOHNSTON
+JOSEPH M. JOHNSTON
+JOSEPH S. JOHNSTON
+JOSEPH V. JOHNSTON
+JOSEPH W. JOHNSTON
+JOSEPH Y. JOHNSTON
+JOSEPH Z. JOHNSTON
+JOSEPH L. JOHNSTON
+JOSEPH M. JOHNSTON
+JOSEPH S. JOHNSTON
+JOSEPH V. JOHNSTON
+JOSEPH W. JOHNSTON
+JOSEPH Y. JOHNSTON
+JOSEPH Z. JOHNSTON
+JOSEPH L. JOHNSTON
+JOSEPH M. JOHNSTON
+JOSEPH S. JOHNSTON
+JOSEPH V. JOHNSTON
+JOSEPH W. JOHNSTON
+JOSEPH Y. JOHNSTON
+JOSEPH Z. JOHNSTON
+JOSEPH L. JOHNSTON
+JOSEPH M. JOHNSTON
+JOSEPH S. JOHNSTON
+JOSEPH V. JOHNSTON
+JOSEPH W. JOHNSTON
+JOSEPH Y. JOHNSTON
+JOSEPH Z. JOHNSTON
+JOSEPH L. JOHNSTON
+JOSEPH M. JOHNSTON
+JOSEPH S. JOHNSTON
+JOSEPH V. JOHNSTON
+JOSEPH W

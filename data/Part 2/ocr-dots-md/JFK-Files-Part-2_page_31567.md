@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_31567.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mb
+
+A review of the Records of the Oakland Police Department, Oakland, revealed the following description for PETPIE, under Oakland Police Department Number 182146:
+
+**Race:** White
+**Sex:** Male
+**Born:** September 30, 1909, Oklahoma
+**Height:** 5'10"
+**Weight:** 160 pounds
+**Hair:** Grey
+**Eyes:** Grey
+**Occupation:** Student at San Jose State College
+**Address:** 70 East Rosemary Lane, Campbell, California
+
+The following information is set forth for BROSKLEY, under Oakland Police Department Number 182155:
+
+**Race:** White
+**Sex:** Male
+**Born:** July 27, 1937, West Virginia
+**Height:** 5'10"
+**Weight:** 150 pounds
+**Eyes:** Blue
+**Hair:** Brown
+**Characteristics:** Years a mustache
+**Occupation:** Heavy equipment operator
+**Residence:** 201 Waverly Street, Palo Alto
+
+The following information was set forth for FOWLER under Oakland Police Department Number 182157:
+
+**Sex:** Male
+**Race:** White
+**Born:** June 27, 1944
+
+898

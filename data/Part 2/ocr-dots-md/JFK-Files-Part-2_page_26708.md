@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_26708.png
+
+Convert to MarkdownSECRET
+
+Photocopy from
+Gerald Ford Library
+
+HW 50955 DocId:32204971 Page 62
+
+1. A. That is right.
+2. Q. And was training provided them by the Agency?
+3. Q. Oh, yes.
+4. A. You said the smaller group of the two groups that made up the AMOTS conducted the interrogations, is that correct?
+5.
+6. A. Right.
+7. Q. When you speak of interrogations, are you referring to debriefings?
+8.
+A. I am referring to debriefings of newly arrived exiles or perhaps exiles that had been in the country whom during their time here had acquired new information.
+9.
+10.
+11.
+Q. How were those -- how and where were those debriefings conducted?
+12.
+13.
+A. Well, normally the debriefings were conducted at Opa Loca.
+14.
+15.
+Q. That is the Air Base?
+16.
+A. That is the old Air Base there but that is where the reception center was for all the Cuban refugees coming in.
+17.
+18.
+Sometimes if there was going to be a lengthy debriefing, we had a residence which we rented and the interior was changed into small rooms like this where you could bring people in, sit them down, under controlled conditions, and debrief them without any interference and this type of thing.
+19.
+20.
+21.
+22.
+23.
+24.
+Q. For how long a period did these debriefings go on?
+
+25.

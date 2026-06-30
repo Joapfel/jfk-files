@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_32492.png
+
+Convert to MarkdownSECRET
+
+Three Cuban nationals have been identified, according to a usually reliable and competent source, among the leaders of the 17 December strike violence at the US-owned Cerro de Pasco mine in La Oroya, Peru. One of the three Cubans has also been active in promoting the seizure ofunchland in the Peruvian highlands by Andean Indians. Communist-led Indians were said to have planned to synchronize a major new seizure campaign with the violence against Cerro de Pasco. No such incidents have been reported yet. (SECRET)
+
+SECRET

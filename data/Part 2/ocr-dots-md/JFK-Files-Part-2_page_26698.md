@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_26698.png
+
+Convert to MarkdownSECRET
+
+50
+
+on an old Cuban Airways airplane. The damn airplane few too high and the bull became sterile by the time he landed in Cuba. No thought given to, you know, pressurizing the cabin and keeping the temperature at a certain point and this type of thing. So he was helping us all along the line and this here again, we generate propaganda, incompetence and this type of thing.
+
+But as far as sabotaging any Cuban product, no, we didn't go into that. Our object was to enforce the blockade and cut off his sources of supply.
+
+Q When was the Miami Station established?
+
+A As a station?
+
+Q Yes.
+
+A I think in September 1961.
+
+Q And that was several years before you became involved in Cuban matters?
+
+A Yes.
+
+Q Do you know of any other facilities of that nature within the United States, Agency facilities?
+
+A You mean, targeted against the opposition?
+
+Q Yes.
+
+A A station as such?
+
+Q Yes.
+
+A No. You have some communications facilities that you really call stations because here again, they are not
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32204971 Page 52

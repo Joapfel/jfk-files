@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_32731.png
+
+Convert to Markdownwere included as such in the Kennedy-Khrushchev exchange of October 27-28.
+
+The United States made it clear that it could not consider lifting the quarantine until the Soviets agreed to remove the IL-28s within a short time.
+
+Partial Settlement: November 20
+
+On November 20, Dr. Castro informed U Thant that if the Soviets wished to remove the bombers he would not object. That day an agreement was reached between Kennedy and Khrushchev under which the IL-28s would be withdrawn.
+
+U Thant was notified the same day by Ambassador Stevenson and Deputy Foreign Minister Kuznetsov. Soviet agreement to remove the bombers payed the way for the lifting of the quarantine. The partial settlement had taken just four weeks to accomplish.
+
+At his press conference that evening, President Kennedy announced that he had that day been informed by Chairman Khrushchev that all of the XL-28 bombers in Cuba would be withdrawn in thirty days, and that these planes could be observed and counted as they departed. "Inasmuch as this goes a long way towards reducing the danger which faced this hemisphere four weeks ago," the President announced, "I have this afternoon instructed the Secretary of Defense to lift our naval quarantine." The President then recalled the agreement he had reached with Chairman Khrushchev October 27-28, including the stipulation that once the Soviet leader had complied with all his pledges, "we would remove our naval quarantine and give assurance against invasion of Cuba." Evidence to date indicated that all known offensive missile sites had been dismantled, he stated, and sea inspection by the navy had confirmed that the missiles had been withdrawn. But, he warned, "important parts" of the agreement "remain to be carried out. The Cuban Government has not yet permitted the United Nations to
+
+/verify whether all

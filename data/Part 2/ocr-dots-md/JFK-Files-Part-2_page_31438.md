@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_31438.png
+
+Convert to MarkdownSF 100-33836
+
+FID/new
+
+**DETAILS:**
+
+## I. BACKGROUND
+
+### Residence
+
+The Subject resides at 881 Clayton Street, San Francisco.
+
+Mr. E. A. PAULSEN
+879 Clayton Street
+San Francisco on
+3/15/62.
+
+### Employment
+
+The Subject is employed as an architectural draftsman for various architects and construction projects in the San Francisco area obtaining his employment through the placement service of the American Institute of Architects, 47 Kearny Street, San Francisco.
+
+Mrs. ETHEL SMITH
+Executive Director,
+AIA, on 3/21/62
+
+## II. COMMUNIST PARTY (CP) AND RELATED ACTIVITIES
+
+### San Francisco County Communist Party (SFCCP)
+
+The Subject is a member of the Lincoln Club, SFCCP, and although he has recently moved into the area which encompasses the members of the Sunset Club, SFCCP, he has not as yet effected a transfer into the Sunset Club.
+
+SF T-1 - 3/15/62
+
+### American-Russian Institute of San Francisco (ARI)
+
+The ARI has been designated by the Attorney General of the United States pursuant to Executive Order 10450.
+
+The Subject attended the 30th Anniversary celebration of the ARI, which was held at 150 Golden Gate Avenue, San Francisco, on November 19, 1961. The purpose of this meeting was also to celebrate the 44th anniversary of the Russian
+
+277 -2-

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_27945.png
+
+Convert to MarkdownWACHTELL, LIPTON, ROSEN & KATZ
+
+Richard A. Sprague, Esq.
+
+October 29, 1976
+
+importance of obtaining top-flight help. I believe Miss Mordana
+would be an asset to your staff.
+
+I wish you well.
+
+BWN:jr

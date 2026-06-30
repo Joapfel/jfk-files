@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_25849.png
+
+Convert to Markdown1 perhaps wiping out the Bay of Pigs and maybe getting back into
+2 normal.
+
+3 Chase then said. Bundy wanted a chronological memo about
+4 the entire thing. I might say I have forgotten one point. When
+5 I first told Adlai Stevenson about this demarche or approach
+6 by the Cubans he said he liked it, but, and I quote, he said
+7 the CIA, unfortunately, is still in charge of Cuba. But he
+8 said -- he still offered to take it up with the White House.
+9 Anyway, we're now on November 12th, and I went to Miss
+10 Howard's apartment where she said he had set up a phone call to
+11 Havanna with Valao. We never could get through ... the bad
+12 connections, but she had spoken to him before I arrived and
+13 he had suggested that I come to Mariana o from Key West and
+14 talk directly with Fidel Castro, because they wanted to avoid
+15 going through Havanna.
+16 Bundy called me the same day to say that the White House
+17 favored preliminary talks with Valao at the UN but not down in
+18 Cuba and told me to tell Valao this. I finally reached Valao
+19 on the telephone on November the 14th and delivered a message
+20 about his coming here. He said -- and that we wanted to discuss
+21 agenda.
+22 He said he would send instructions to LaChuga and that he
+23 would -- or rather Castro, through him, to LaChuga, that they
+24 should discuss an agenda with me. He was very cordial on the
+25 telephone.
+
+HW 50955 DocId:32423630 Page 582
+
+TOP SECRET
+
+~~TOTAL SECRET~~

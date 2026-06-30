@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_32372.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+of the boundless personal ambitions of the respective leaders and the
+geographic dispersion of the units, these small groups could never be
+effectively merged into a centrally directed larger unit. To use them
+effectively we would have to try to siphon off the membership to
+controlled groups. If this is not possible, they may serve a useful
+purpose by providing unwitting diversionary harrassment while the
+larger groups work toward the major goals.
+
+2. A unilaterally recruited senior officer of the diplomatic service of a neutralist African country has been briefed and given training in secret writing and communications to assist him in reporting on our objectives in Cuba. He is now in Havana from where he plans to travel to areas of interest to us.
+
+3. The Chief of the Danish Intelligence Service has agreed to cooperate with us on Cuban intelligence operations. He has identified several sources aboard ships transmitting Cuban ports and has arranged for their periodic briefing and debriefing.
+
+4. The Norwegian Intelligence Service has also agreed to cooperate with us in establishing a case officer "centers" in Norway and Kiel, Germany, to handle Norwegian Merchant Marine sources who call at Cuban ports.
+
+5. The Madrid Station Cuban refugees debriefing center is now
+in operation and results of the first interrogations are being reviewed
+
+SECRET

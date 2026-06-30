@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_29531.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 16' -
+
+memory. In any event the record clearly indicates that
+the tapes should have been available, and probably were
+available, as late as 16 October 1963. 628/ This is
+significant because it was after receipt of the 10/10 ca-
+ble from Headquarters that the Oswald case took on a
+more than routine coloring.
+
+The increased significance that the Oswald
+visit took on during the period from October 11 to Octo-
+ber 16, 1963, could have provided the station with reason
+to retain the Oswald tapes. 629/
+
+Ms. Goodpasture was asked what became of the Oswald
+tapes:
+
+Q: What happened to that tape containing Oswald's voice?
+
+A: What happened?
+
+Q: What happened to that tape? yes?
+
+A: I do not know.
+
+Q: Do those tapes exist today?
+
+A: What?
+
+Q: Do those tapes exist today?
+
+A: If they do, I do not know where they are.
+
+**Classification:** TOP SECRET
+
+2000133
+
+Classified by derivation: 283
+
+N# 48327 DocId:32263889 Page 179

@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_32652.png
+
+Convert to MarkdownSECRET
+
+COMMITTEE ON ARMED SERVICES
+
+Richard B. Russell, Georgia, Chairman
+
+John Stennis, Mississippi
+Harry Flood Byrd, Virginia
+Stuart Symington, Missouri
+Henry M. Jackson, Washington
+Sam J. Ervin, Jr., North Carolina
+Strom Thurmond, South Carolina
+Clair Engle, California
+Howard W. Cannon, Nevada
+Robert C. Byrd, West Virginia
+Stephen M. Young, Ohio
+Daniel K. Inouye, Hawaii
+Leverett Saltonstall, Massachusetts
+Margaret Chase Smith, Maine
+J. Glenn Beall, Maryland
+Barry Goldwater, Arizona
+Clifford P. Case, New Jersey
+Harry L. Wingate, Jr. Chief Clerk
+
+PREPAREDNESS INVESTIGATING SUBCOMMITTEE
+
+John Stennis, Mississippi, Chairman
+
+Stuart Symington, Missouri
+Henry M. Jackson, Washington
+Strom Thurmond, South Carolina
+Leverett Saltonstall, Massachusetts
+Margaret Chase Smith, Maine
+Barry Goldwater, Arizona
+James T. Kendall, Chief Counsel
+
+SECRET
+
+HW 50955 DocId:32424709 Page 33

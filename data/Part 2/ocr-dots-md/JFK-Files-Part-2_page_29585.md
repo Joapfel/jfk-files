@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_29585.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+523/ Blind Memorandum entitled "Delay in Sending the first Cable about Oswald."
+
+524/ HSCA Deposition of Herbert Manell, 4/28/78, p. 30.
+
+525/ Tab F Draft, p. 5; MEXI 6453, 10/8/63; HSCA Deposition of B. Manell, 4/28/78, pp. 62-63; HSCA Deposition of Herbert Manell, 4/28/63, p. 21.
+
+526/ HSCA Deposition of B. Manell, 4/28/78, pp. 56-57.
+
+527/ Classified HSCA Staff Summary of Review of CIA Documents, 6/26/78, p. 4.
+
+528/ Ibid.
+
+529/ Deposition of B. Manell, 4/28/78, p. 65. CF. "Foul Foe" manuscript, p. 268, where Win Scott writes: "In fact, Lee Harvey Oswald became a person of great interest to us during this 27 September to 2 October 1963 period"; and on page 269, where he writes: "Because we thought at first that Lee Harvey Oswald might be a dangerous potential defector from the U.S.A. to the Soviet Union, he was of great interest to us, so we kept a special watch on him and his activities."
+
+530/ HSCA Deposition of John Scelso, 5/16/78, p. 25.
+
+531/ HSCA Deposition of Herbert Manell, 4/28/78, pp. 25-26.
+
+532/ HSCA Deposition of John Scelso, 5/16/78, p. 26.
+
+533/ HSCA Deposition of Herbert Manell, 4/28/78, p. 36.
+
+534/ See above. Cf. "Foul Foe" manuscript, pp. 268-269.
+
+535/ HSCA Deposition of Barbara Manell, 4/28/78, p. 52.
+
+536/ HSCA Deposition of Alan White, 5/18/78, p. 26-28.
+
+537/ Ibid.
+
+538/ HSCA Deposition of H. Maneell, 4/28/78, p. 30.
+
+**Classification:**
+
+
+
+Classified by derivation:
+
+337
+
+200807

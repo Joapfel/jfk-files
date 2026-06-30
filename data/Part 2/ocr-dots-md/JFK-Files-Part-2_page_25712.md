@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_25712.png
+
+Convert to MarkdownHonorable J. Lee Rankin
+
+The personal description of Ruby as obtained by Special Agent Flynn on March 11, 1959, did not in itself contain the remark "known Dallas criminal." This remark was added to the description by Special Agent Louis M. Kelley at the time when he was assisting in the preparation of the report of Special Agent Manning C. Clements at Dallas dated November 30, 1963.
+
+Enclosed herewith is the affidavit of Special Agent Louis M. Kelley at Little Rock, Arkansas, dated June 4, 1964, setting forth his basis for adding the remark "known Dallas area criminal" to the description of Ruby as it appears in the report of Special Agent Manning C. Clements at Dallas dated November 30, 1963, and in the enclosure to my letter to you of April 7, 1964.
+
+The summaries concerning the ten named individuals in your letter of June 1, 1964, are currently being prepared and will be forwarded to you promptly upon completion.
+
+Enclosure
+
+HW 50955 DocId:32423630 Page 445

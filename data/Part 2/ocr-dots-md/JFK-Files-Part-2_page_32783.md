@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_32783.png
+
+Convert to MarkdownS-E-C-R-E-T
+EYES ONLY
+
+cover and deception operations by that date.
+
+7. Task 7, p.5. By 1 February CIA will submit an operational schedule for the initiation of an organized resistance movement inside Cuba. The schedule will include the localities selected and the assessment of some candidates. A full assessment will be completed in accordance with the schedule listed in para. 4 above, in conformance with Task 4. It should be noted, however, that this operational schedule (like the schedules called for in Tasks 10, 26, and 30) will necessarily be tentative and subject to later revision as the number of assets inside Cuba increases and as the flow of intelligence is augmented. Moreover, the development of a resistance movement will not remain controllable, so that operational timetables produced during the next four weeks can serve only as guides for a proposed sequence of actions.
+
+8. Task 10, p.5. CIA has on hand both propaganda and political action assets in the Caribbean area and elsewhere in Latin America. It is planned to use those assets both to support the Project inside Cuba and to generate and mobilize public and official opinion against Castro outside Cuba. The operational schedule will be submitted on the stated date.
+
+9. Task 18, p.6. Discussions with the appropriate AFL-CIO
+
+-4-
+S-E-C-R-E-T
+EYES ONLY
+
+HWW 50955 DocId:32424934 Page 5

@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_27233.png
+
+Convert to MarkdownA - Ltr from Editor of Congressional Staff Directory to Mr. Belin
+10 Mar 75
+
+B - Ltr from Kelley to Mr. Belin - 26 Feb 75
+
+C - Ltr from Greene to Belin - 3 Mar 75
+
+D - Ltr from Belin to Gray - 28 Feb 75 w/attachment
+
+E - Ltr from Belin to John Pickering - 28 Feb 75 w/attachment
+
+F - Ltr from Ernest W. Lefever to Mr. Belin - 26 Feb 75 w/attachment
+
+G - Ltr from E. Drexel Godfrey, Jr. to Belin - 25 Feb 75
+
+H - Ltr from Belin to Starring - 25 Feb 75 w/attachment.
+
+I - Ltr from Belin to Professor Kirkpatrick - 25 Feb 75
+w/attachment
+
+J - Ltr from Belin to Congressman Jeffords - 20 Feb 75 w/attachment
+
+K - Ltr from Parsons to Camejo - 7 Feb 75 w/attachment
+
+L - Ltr from Belin to Gray - 20 Feb 75 w/attachment.
+
+M - Ltr from Belin to Sen. Marchi - 13 Feb 75 w/attachment.
+
+N - Memo from Belin to Gellhorn - 13 Feb 75 w/attachment
+
+O - Ltr from Belin to Stone - 12 Feb 75 w/attachment.
+
+P - Memo for Belin from Weidner - 12 Feb 75 w/attachments
+
+Q - M/R signed by Belin about call from Mr. Lander. 6 Feb .75
+
+R - Ltr from Sid Ballis to Rockefeller - 20 Jan 75
+
+S - Ltr from Douglas W. Metz to Belin - 16 Jan 75 w/attachment.
+
+T - Ltr from Pawley (former Amb. to Peru and Brazil) to the President dtd 6 Jan
+w/news clipping attached.
+
+U - Memo from Wallison to Belin - 16 Jan 75 w/attachments.
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 64

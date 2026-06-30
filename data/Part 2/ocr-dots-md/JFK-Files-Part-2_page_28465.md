@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_28465.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Tom Howarth, Budget Officer
+FROM: I. Charles Mathews, Special Counsel
+DATE: November 17, 1977
+RE: Elizabeth Feeley
+
+This is to advise you that Elizabeth Feeley has accepted a position as document clerk on the Martin Luther King Task Force, effective November 21, 1977, at an annual salary of $12,000.
+
+Please extend every possible assistance to Ms. Feeley.

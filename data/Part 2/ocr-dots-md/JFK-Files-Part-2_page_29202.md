@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29202.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10073-10321
+RECORD SERIES : NUMBERED FILES
+AGENCY FILE NUMBER : 005174 (2 OF 8)
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM : DOWINING, THOMAS N.
+TO : BATES, C.M.
+
+TITLE :
+
+DATE : 12/03/1976
+PAGES : 1
+
+SUBJECTS :
+HSCA, ADMINISTRATION
+
+DOCUMENT TYPE : LETTER
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Consulted
+CURRENT STATUS : Withhold
+DATE OF LAST REVIEW : 06/15/1993
+
+OPENING CRITERIA :
+COMMENTS : Box #:109.
+
+<table>
+   <tr>
+    <td>Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#:NW 88326 Date: 2025</td>
+   </tr>
+  </table>

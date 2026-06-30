@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_32364.png
+
+Convert to MarkdownSECRET
+
+- 3 -
+
+## 3. Movement of Guerrillas and Arms
+
+### Argentina
+
+Extremist members of the Peronist Party, apparently under the leadership of such figures as Hector Villalon and John William Cooke, were reported to be receiving encouragement and promises of large sums of money from Cuba in support of their efforts to train and organize subversive groups in Argentina. Villalon has stated that his plan calls for expanding and accelerating subversive activities in Argentina culminating in a complete take over within two years. There is no indication that Peron himself has agreed to this plan. It has been reported that leaders of the Communist Party of Argentina have been greatly annoyed by the tendency of the Castro regime to support the revolutionary Peronists without having consulted the Communist Party of Argentina.
+
+It is reported that the so-called Army of National Liberation (ANL) of Argentina, which is a relatively small Castroist organization directed from Cuba by John William Cooke, has in recent weeks been negotiating for the purchase of arms and has been offered submachine guns, bazookas and other weapons by two or three private suppliers. It was reported, however, that the ANL was having difficulty getting enough dollars from Cuba to make significant purchases possible.
+
+### Bolivia
+
+The Bolivian Ministry of Foreign Relations on 23 August protested formally to the Cuban Chargé d'Affaires in La Paz against the Cuban Embassy support to the miners during the recent crisis. Subsequently, however, Foreign Minister Fellman informed the Cuban Chargé that he need not fear that the Government of Bolivia would break diplomatic relations with Cuba. There has, in fact, been no hard information linking the Cuban Embassy with the present mining crisis in spite of some unconfirmed reports of Cuban support.
+
+SECRET
+
+IWM 50955 DocId: 32276192 Page 58

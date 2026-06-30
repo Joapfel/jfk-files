@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_31707.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:jb
+
+"The Daily Californian," issue of December 22, 1960, reflected that the SFPCC was formed at a meeting in Berkeley, September 21, 1960. This article stated that among the officers elected at this meeting was ROBERT SCHEER, who was elected Research Director; RICHARD CURRIER, President; and MAURICE ZEITLIN, Secretary.
+
+The publication "Student Council," Volume 1, Number 1, dated November 4, 1960, declared that this publication constituted the first issue of the "Student Council," FPCC newsletter, and that this publication would be a bi-monthly report concerning Cuba and the activities of the newly organized Student Council chapters. The publication on page one reported that under the leadership of RICHARD CURRIER and ROBERT SCHEER, the Berkeley Chapter had enlisted 90 members and had held several successful meetings.
+
+A source advised November 18, 1960, that an associate of RICHARD CURRIER described CURRIER as new to politics and as being very close to MAURICE ZEITLIN.
+
+SF T-13
+
+The same source reported that an associate of MAURICE ZEITLIN described him as an individual who formerly called himself a Stalinist and who has expressed himself as supporting Russia and Red China.
+
+SF T-13
+
+November 18, 1960
+
+Another source related February 12, 1957, that in September 1956, MAURICE ZEITLIN evidenced interest in joining the Labor Youth League (LYL) in Detroit, Michigan, but did not become active in LYL and, in fact, repulsed LYL efforts to take over a discussion group at Wayne University which ZEITLIN led.
+
+SF T-14
+
+February 12, 1957
+
+SECRET
+
+Copy 1 of 3 Copies
+Page 29 of 134 Pages
+
+1271
+
+SECRET
+
+NW 88613
+DocId:34517445 Page 30

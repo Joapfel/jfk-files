@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_29482.png
+
+Convert to Markdown**Classification:** TOP SECRET
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+After the assassination the CIA's Mexico City Station
+passed copies of seven of the above listed conversations to
+the U. S. Embassy Legal Attache. 471/ The 9/27/10:30 and the
+9/27 1:25 calls listed above are not included in this
+dissemination. 472/
+The cover memorandum states:
+
+Attached are photostatic copies of transcripts
+of all conversations from technical operations
+of this office which are possibly pertinent in
+this case. 473/
+
+The HSCA has not been able to determine why the 9/27
+10:30 and 9/27 1:25 calls were not included in this memorandum.
+While the 1:25 call could be considered unrelated, it is
+unlikely that the same would apply to the 10:30 call since
+the 9/27 10:37 call is included in the memorandum.
+
+At the bottom of each attachment page to the Scott
+memorandum, a summary of the conversation is provided. 474/
+The Station questioned the relevancy of only one of the seven
+calls presented in the memorandum. The summary of the 10/3
+call says:
+
+By the context of other conversations by Oswald
+and the fact that this called (sic) spoke in
+broken Spanish and English rather than Russian
+which he used previously, it is probable that
+this caller is not Osvald. 475/
+
+(Ibid., p.9.)
+
+A judgement that this call did not pertain to Lee Harvey
+Oswald could be based on the following facts:_____
+
+**Classification:** TYPICAL
+U N I V E R S I T Y C L I M A T E S
+
+23A
+
+Classified by derivation: _________
+
+26 MAR 1969
+
+NW 48327 DocId:32263889 Page 130

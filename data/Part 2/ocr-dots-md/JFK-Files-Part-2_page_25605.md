@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_25605.png
+
+Convert to MarkdownWith regard to Hank Greenspun, Roselli has known him since the 50's. The last time he met Greenspun was when he ran into Greenspun in Los Angeles shortly after he got out of prison, at which time they talked a few minutes. No questions were asked and there was no discussion with Greenspun about his involvement with Maheu. He noted that Greenspun has never questioned him about any matters.
+
+He noted that he has never met Gordon Liddy, Howard Hunt or any of the Cuban Americans who were involved in the Watergate break-in. He said however that he has been Liddy once, and that was at Terminal Island when he was acting as a prison librarian. There were no discussions with Liddy. He is fairly certain he has never met Hunt with regard to any CIA involvement of his own. He also noted that he has never had any property or business dealings in Cuba.
+
+The interview concluded with the serving of a subpoena upon Mr. Roselli and the decision to hold a further meeting under oath at a later date.

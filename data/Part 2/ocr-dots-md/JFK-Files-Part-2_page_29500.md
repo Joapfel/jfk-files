@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_29500.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+did not recheck the earlier transcripts, but did check
+the Station's index system to see if it had any record
+of a Lee Oswald, which it did not. 542/
+[needed输入]
+A: Right.
+
+Q: Despite this indication here I believe your testimony is that you did not go back to check the transcript because by virtue of your memory you knew that Oswald's name had not come up in any earlier conversation, is that correct?
+
+A: Yes. 543/
+
+So, Ms. Manell drafted the first paragraph of the 10/8 cable on the basis of the 10/1/10:45 conversation alone even though the other information was available. 544/ That paragraph of the cable provided an accurate summary of the intercepted conversation. It said:
+
+Acc (Soviet wiretap) 1 Oct 63, American male who spoke broker Russian said his name Lee Oswald (Phoretic), stated he at Sovem on 28 Sept when spoke with Consul whom he believed to be Valeriy Vladmirovich Kostikov. Sujb asked Sov Guard Ivan Obyedkov who answered, if there is anything new re telegram to Washington. Obyedkov upon checking said nothing received yet, but request had been sent. 545/
+
+Ann Goodpasture added a second paragraph to the
+
+200-02
+
+232
+
+Classification:
+---
+
+Classified by derivation:

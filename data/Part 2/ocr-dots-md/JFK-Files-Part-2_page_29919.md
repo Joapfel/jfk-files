@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_29919.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+XXXXXXXX OCR 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+| 12-14-76 | Information from Dade County that one Sam Calabrese - current in jail in Richmond, Virginia - may have information on the Roselli homicide.<br><br>Ex-CIA Agent Jim O'Connell was interviewed by Dade County reference the Roselli case.<br><br>Confidential source at MVA advises that Carol Carrafa recently purchased a new Continental Mark V, white in color. Source further advises that Mrs. Carrafa is always dressed in the latest fashions, and source feels that she is living beyond her means.<br><br>Jay Knohl's attorney Stanley Tashoff contacted and he stated that he has not sold Gino's, though he does have an offer. Tashoff further related that Mrs. Carrafa collected a substantial amount of insurance upon her husband's death.<br><br>N.Y.P.D. advises that Jose Soto may be deeply involved in the narcotics business.<br><br>Cpl. M. F. Alban |
+| 12-22-76 | Information received from Virginia State Police that Sam Calabrese is Samuel Ray Calabrese, AKA "Whole," W/M, 02-22-33, FBI #577 494 J1, S.S. #554-42-0214. Calabrese was involved in the Virginia SBA investigation along with the following subjects:<br><br>(1) Sanford E. Rafsky W/M, 48 of Forest Hills, N.Y. & Miami, Fla.<br><br>(2) Thomas Francis Regan W/M, 10-09-28<br><br>(3) Joseph Charles Palumbo W/M, 08-01-29<br>residence: 338 Ednam Dr., Charlottesville, Va. (804) 295-5880<br>office: 2307 Commonwealth Dr., Charlottesville, Va. (804) 973-3306 |
+
+PAGE# __________

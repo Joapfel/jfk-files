@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_28055.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+Elizabeth Berning, Chief Clerk
+
+FROM: I. Charles Mathews, Special Counsel
+
+DATE: June 2, 1978
+
+RE: Mr. Ronald Adrine
+
+Please be advised that effective Monday, June 5, 1978, Mr. Ronald Adrorne has accepted the position of Staff Counsel with the Select Committee. His effective starting salary will be $27,000.00 per annum.
+
+If you have any questions concerning this matter,
+please contact me at your convenience. (It has not been
+determined which task force Mr. Adrane will be assigned to)
+
+ICM:j

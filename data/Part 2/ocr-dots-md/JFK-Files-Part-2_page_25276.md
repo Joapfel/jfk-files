@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_25276.png
+
+Convert to Markdown# CIA Sent a Bedmate To Kill Castro in '60
+
+Fiorini gave her two capsules full of poison powder. She was told to sprinkle the powder in Castro's coffee.
+
+"I guess the company (CIA) supplied them. Frank said it was a company operation."
+
+Packing the olive-drab uniform that Castro had given her, designating her a lieutenant in the Revolutionary Army, Ms. Lorenz flew back to Havana on Cubana Airlines. Believing she might be searched at the airport, she hid the capsules in a jar of cold cream in her purse. When she arrived in Havana she checked into a tourist hotel, changed into her Fidelista uniform and went to the Hilton.
+
+## Cold-Cream Caper
+
+"The lobby was full of reporters and other people trying to see Castro, but he wasn't there. One of his aides recognized me and took me up to Fidel's suite.
+
+Entering the two-room suite, she saw that nothing had changed in her absence. The sitting room was crowded with Castro's bearded, pistol-packing retainers. The bedroom was littered with papers, cigar butts and guns.
+
+She waited nervously In Castro's private room until he came in a few hours later. As soon as he smiled and hugged her, she knew he didn't suspect she had visited the suite a few months previously and stolen his secrets. And he certainly didn't suspect she had come back to kill him.
+
+## Do Not Disturb
+
+"He asked why I left him and I said it was because I missed my mother and my home. He started talking about Cuba and the problems, the lack of money, the shortages. He talked a long time. He said he was expecting an important phone call, but he took the receiver off the hook and he shouted to the barbudos (bearded ones) in the next room: 'No me moleste (Don't bother me)'
+
+"Finally he ordered food and coffee sent up. When it came, he fell asleep on the bed, in his fatigues and with a cigar in his mouth. I had no confidence left, but I knew this was the chance to do it.
+
+"I went into the bathroom and opened the jar of cold cream. I stuck my finger In it and the whole thing came out like yuck. I couldn't find the capsules. They had melted.
+
+Alex said, 'It would save everybody a lot of trouble.' I thought he was joking, but they kept coming by. It, and I realized they were serious.
+
+"Alex said. 'Why don't you kill him?' I said, 'I don't know how, with all those men around him, and I don't know if it's in me to kill him.'
+
+"Once, in a fit of jealousy, I pointed a gun at him and Fidel didn't even say. He said, 'You can't kill me!' I said, 'I'm not planning to. I'm just cleaning the gun.'
+
+Ms. Lorenz said there were several more meetings at which various ways of killing Castro were discussed
+
+"Finally they decided on poison. They said it would be easy to put poison in his food or drink. I said, 'What are you trying to tell me?' To go down and kill him."
+
+"Alex said, 'It would change history. I said, 'Well, I don't want to die'
+
+"They didn't tell me to do it or not to do it. They said if I went I'd be protected, but who could guarantee I'd get out?"
+
+## A Method Ready
+
+Mrs. Lorenz said she finally agreed to go to Miami with
+
+HW 50955 DocId:32423630 Page 6

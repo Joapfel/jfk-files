@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_31737.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:jb
+
+"ROBERT SCHEER, Berkeley, Committee for New Politics." This publication stated that during the convention, a four-man panel would hold a discussion on "Perspective for 1968". ROBERT SCHEER was scheduled to be one of these panelists and was also scheduled to address the convention on the topic of "Perspective for 1968" on the evening of September 2, 1967.
+
+SF T-65
+July 10, 1967
+
+A syndicated article by BRUCE BIOSSAT was carried in the Berkeley Daily Gazette newspaper, Berkeley, California, issue of September 12, 1967 dealing only with the NCNP Convention which was held August 31, 1967 through September 4, 1967 in Chicago. The only person mentioned by name in this article was ROBERT SCHEER. The remarks related to SCHEER are as follows:
+
+"Perhaps the strangest performance of the whole incredible drama was that of Robert Sheer, managing editor of Ramparts magazine who last year ran a strong, though losing, primary race in California's Berkeley district as a peace candidate against an incumbent Democratic congressman.
+
+"On one convention day, Sheer stood before the assembled delegates and eloquently pleaded with the whites to purge themselves of self-contempt and self-hate. He called on them to find ways to build bridges to other whites whose sympathies must be won if white radicals are ever to bring any real power to a coalition with Negroes. Said Sheer:
+
+"You're helping the black people and the poor, but you can't talk to your own parents or to their kids you grew up with on your block."
+
+SECRET
+
+1301
+
+Copy.................of................Copies
+Page......52....of.............134 Pages

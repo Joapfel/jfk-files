@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_25136.png
+
+Convert to Markdown<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>COLBY, WILLIAM<br>MINH, GENERAL,<br>NHUNG<br>CONEIN<br><br>Nhu</td><td>1 November 1963</td><td>DIEM ✓</td></tr></table>
+
+**OCCURRENCE:** COLBY stated that "Apparently the decision by several of the generals, the ones that were present, that he (DIEM) would be executed when they got him. They sent an officer, a small armored unit to pick him up after they found out where he was down in the other part of town. He and his brother were put in an armored personnel carrier with an officer, a young Vietnamese who was an aide to GENERAL MINH, head of the coup group, and they went into the armored personnel carrier and when the carrier arrived back at headquarters, the two were dead and had been shot several times. That officer, incidentally, and a rather bizarre aspect of this, was himself apparently when this junta of generals was overthrown about two months later. Somebody took that occasion to shoot him." pp. 18-19.
+
+<table><tbody><tr><td>SOURCE:<br/>Hearings, SSCI, June 20, 1975, Colby, pp. 18-19</td><td>STAFF: R. DAWSON<br/>DATE: 29 June 1975</td></tr><tr><td colspan="2">FILE:</td></tr></tbody></table>
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>DIEM<br/>THICH TRI QUANG</td><td>May 7, 1963</td><td>DIEM ✓</td></tr></tbody></table>
+
+**OCCURRENCE:**
+
+The Diem circular to ban all religious flags reached Hue on May 7, 1963. Since the city was already bedecked with flags the Vietnamese Minister of Interior, Vui Van Long, arriving in Hue on the same date as the circular arrived went to the Buddhist leaders and explained that the flag regulation would not be enforced. "The leaders of the monks were very pleased," said Minister Long. "They listened to me and told me that I had given complete satisfaction to their desires." Quang was present during this exchange and joined in expressing satisfaction with the arrangement not to enforce the regulation. Some police in Hue did take down flags before the Province Chief could reverse the order to enforce the regulation. But the precipitating factor, according to Higgins was that Kuang sent a few monks around to tell the people to haul down the flags, even though he knew this was no longer required, thanks to the Interior Ministers actions. "The monks were told to tell the population that this was being done as a
+
+SOURCE: result of Diem's order to ban the Buddhist flag. "(91-92)
+Our Viet Nam Nightmare, Higgins, Harper and Row,
+1965
+FILE:
+
+STAFF:
+Dawson, R.
+DATE: July 2, 1975
+
+M 50955 DocId:32423615 Page 25

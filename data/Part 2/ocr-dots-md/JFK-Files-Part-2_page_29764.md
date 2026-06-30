@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_29764.png
+
+Convert to MarkdownKENNEDY
+
+SELECT COMMITTEE ON ASSASSINATIONS
+
+Name Donald Deneslya
+Date 9-24-78 Time 1:00 p.m.
+Address 12508 Knowledge Lane
+Place North Arlington, Va.
+Bowie, Maryland 20715
+
+Interview: Subject was directed to the writer by former Chief of Counterintelligence of the CIA. He is currently working as a real estate agent in Maryland but is planning shortly to leave for Oslo, Norway, where he will become involved in the importation and sale of American automobiles.
+
+He was employed by the Central Intelligence Agency from 1961 to 1964. During this period he became involved as Administrative Assistant for a Russian defector, Golitsin, also known as "Stone." In this capacity he was to spend approximately five hours each day assisting Stone in the preparation of a book. His "cover" was that he (Donald) was a student at Georgetown University, although Stone knew that he was CIA. He described this work under the crypotonym, "AELADLE project," "AE" being the prefix relating to Soviet Russia.
+
+When Stone, or Golitsin --as Donald referred to him, had been processed by the CIA and his bona fides accepted. He was domiciled in a house in the McLean area of Virginia. He
+
+Interviewer Signature
+Typed Signature James P. Kelly
+
+Date transcribed 9-28-78
+
+By: br Form #4-A
+
+HW 50955 DocId:32263956 Page 3

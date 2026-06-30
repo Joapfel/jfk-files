@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_30295.png
+
+Convert to Markdownin one order.
+
+But more, farther investigation, the true investigation --
+this is called checkup -- will be studied and they will start
+when they see something, let's say, suspicious in behavior of
+Oswald and this his connection..
+
+In case of Marina, when they found out that they are going
+to marry, sure, they will be more, farther investigation,
+thorough invetigation; but before it will only be checkup.
+From thispoint of view I was answering this question.
+
+Mr. Klein. Let me make it simple.
+
+Mr. Nosenko. Right.
+
+Mr. Klein. If the question was asked exactly as it appears
+here, "Why wouldn't she have been investigated when she first
+met Oswald?" would this be your answer? Is that a correct
+answer as it appears here?
+
+Mr. Nosenko. Well, it appears here, but I do not remember.
+
+Sure, I answered and this was question, but, gentlemen --
+Mr. Klein. Was this true? This says "There was no
+surveillance on Oswald to show that he knew her" -- is that
+right or wrong?
+
+Mr. Nosenko. This is what I answered, yes. It is right.
+It is written here.
+
+Mr. Klein. You remember answering that?
+
+Mr. Nosenko. No.
+
+Mr. Klein. How do you know you answered that?
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 87

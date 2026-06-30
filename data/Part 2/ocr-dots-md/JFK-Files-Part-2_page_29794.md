@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_29794.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR #6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+A subject by the name of "Reds", 424-6151 will be called
+by Smisek in an attempt to locate Dawson.
+
+Smisek also related that Bill Bogley knows Jay Knohl,
+and that in November of '75 a mutual friend of Smiseks
+and CARRAFA'S, Bob Leonardo, from Kensington, allegedly
+died of brain cancer.
+
+08-06-76
+
+Source in Plantation Florida P.D. advises the following
+subscriber information for the four Florida telephone
+numbers called by CARRAFA:
+
+(305) 857-0293 Lillian Hair
+5908 Luzon Drive
+Orlando, Florida
+
+(305) 595-9339 Alan Smith
+9315 S.W. 77th Ave., Apt. 119
+Miami, Florida
+
+(305) 776-6765 Lewis E. Iandoli
+#1 Compass Road
+Fort Lauderdale, Florida
+
+(305) 941-0746 Ann Iandoli
+Ann's Beach Ware
+37 Ocean Side Center
+Pompano Beach, Florida
+also (305) 941-0745
+
+Reference "Reds" and (301) 424-6151; cross directory and M.V.A. reveal him to be Joseph John Ilgenfritz, W/M, 03-19-07, 5'9", 175, Soundex I-425-441-429-207, of 401 West Montgomery Avenue, Rockville, Maryland. Subject has two vehicles registered to him with the following title numbers:
+
+3959498
+4077488
+
+PAGE#

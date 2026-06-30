@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_29891.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+<table><thead><tr><th>DATE</th><th>OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES</th></tr></thead><tbody><tr><td></td><td>Las Vegas 7/20 (702) 385-3711</td></tr><tr><td></td><td>Newark, N.J. 7/13 (201) 481-1400</td></tr><tr><td></td><td>New York, N.Y. 7/16 (212) 755-7592</td></tr><tr><td></td><td>Baltimore 7/12 (301) 764-0279</td></tr><tr><td></td><td>Baltimore 7/9 (301) 276-3200</td></tr><tr><td></td><td>from N.Y., N.Y. 7/6 (212) 737-4722</td></tr><tr><td></td><td>Beverly Hills 7/20 (213) 271-6587</td></tr><tr><td></td><td>AUGUST:</td></tr><tr><td></td><td>Las Vegas 8/2 (702) 734-7110</td></tr><tr><td></td><td>Beflin, Md. 8/6 (301) 641-0936</td></tr><tr><td></td><td>Scottsdale, Ariz. 8/11 (602) 948-7594</td></tr><tr><td></td><td>Las Vegas 8/10 (702) 384-7040</td></tr><tr><td></td><td>Rochester, Minn. 8/14 (507) 288-3455</td></tr><tr><td></td><td>from Las Vegas 8/8 (702) 452-3443</td></tr><tr><td></td><td>Las Vegas 8/10 (702) 384-7040</td></tr><tr><td></td><td>from D.C. 8/3 (202) 296-9612</td></tr><tr><td></td><td>D.C. 8/3 (202) 387-4887</td></tr><tr><td></td><td>from Inglewood, Calif. (213) 646-7742</td></tr><tr><td></td><td>Fort Lauderdale 8/3 (305) 581-6585</td></tr><tr><td></td><td>from W. Palm Beach 8/3 (305) 532-2416</td></tr><tr><td></td><td>Miami 8/3 (305) 532-2416</td></tr><tr><td></td><td>from W. Palm 8/4 (305) 683-4905</td></tr><tr><td></td><td>Arrowhead, Calif. 8/1 (714) 337-3342</td></tr><tr><td></td><td>from Las Vegas (702) 734-1122</td></tr><tr><td></td><td>Malibu, Calif. 8/1 (213) 457-9152</td></tr><tr><td></td><td>D.C. 8/2 (202) 833-9500</td></tr><tr><td></td><td>Beverly Hills 8/2 (213) 553-6060</td></tr><tr><td></td><td>D.C. 8/2 (202) 387-4887

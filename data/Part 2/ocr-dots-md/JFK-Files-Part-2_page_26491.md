@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_26491.png
+
+Convert to MarkdownSECRET
+
+27 March 1963
+
+HONDURAS
+
+1. There were 92 legal travelers from Honduras to Cuba in 1962 and 21 to date in 1963. Twelve travelers continued to Soviet bloc countries. Most of the travel to Cuba was for one or two weeks, precluding any extensive paramilitary training, but a definite correlation can be established between the return of Hondurans from Cuban visits and the intensity of propaganda and labor agitation. Honduran exiles in Cuba carry on a virulent propaganda campaign over Radio Habana, calling for revolution.
+
+2. There are no known Honduran paramilitary formations, and other Central American Communists are known to have criticized the Honduran Communist Party for lack of militancy. The PCH obtained a series of 16 different military manuals in October, 1962, including manuals on the use of the carbine, explosives, and demolition techniques.
+
+3. As in the case of Costa Rica, there are guerrilla units of Nicaraguan exiles based in thinly patrolled Honduran frontier areas, receiving support from Cuba and raiding sporadically into Nicaragua in the hope of sparking a mass uprising. One group under Carlos Fonseca Amador has about 40 men.
+
+4. Since 1 January 1962, there have been only two arrests for subversive activity in Honduras. Neither man is known to have received training in Cuba, and both were released after short detention without trail. Three other individuals have been charged with subversive activity but no action was taken.
+
+5. Hondurans in leading organizational positions known or believed to have received training in Cuba include:
+
+Labor: Manuel Noe Rodriguez Reyes, Florismila Castro, Luis Banegas Izaguirre, Sebastian Suazo Lopez, Jesus Otavio Hernandez, Darios Hector Toledo, Regina de Lainez, Anibal Moradelo, Felex Vanencia, Ramon Sabillon Orellana, and Guadalupe Reyes.
+
+SECRET

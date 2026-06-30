@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_32576.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+Security Information
+
+to operate a transmitter, should be allowed near the transmitter site. The delivery of tapes, etc., should be through a cutout. Like-wise, the studio and programming activity should be separated from the operation of the transmitter as well as from any other activities of the cover organization. If two or more language groups use the same facilities they should be compartmented from each other.*
+
+(See Para. 4.a.(1))
+
+g. Evaluation.
+
+(1) In the Preliminary Survey of Radio Broadcasting (25 February 1953--TS 86889) attention was called to the need for a continuing evaluation of all radio broadcasting operations with particular reference to coverage and impact, and sources for the essential information were outlined.
+
+(2) PP/OPS, in collaboration with this office, has initiated this much-needed undertaking.
+
+h. Personnel
+
+(1) There is a shortage of professional and technical personnel qualified for covert radio broadcasting. A program of selective recruitment should be undertaken in coordination with any plans for new radio projects.
+
+(2) A training program in covert broadcasting techniques should also be initiated. This training should be undertaken in safe houses by detail of qualified instructors from covert training for basic indoctrination; to be supplemented by area instruction by the area desks and specialized radio training by Commo. and this office.
+
+5. Recommendations
+
+Pending clarification of CIA's future responsibility in the cold war we have made certain assumptions as to the criteria which should govern agency activities in radio broadcasting.
+
+Our thesis is that CIA should use radio broadcasting in covert Psychological Warfare only under the following conditions:
+
+a. That the task cannot be performed by VOA or other overt media.
+
+b. That any contemplated operation follow strict concepts for clandestine operations, including
+
+(1) Positive and direct agency control of both management and policy.
+
+(2) Strict security requirements including compartmentation of all elements of broadcasting operations.
+
+-10-
+
+(3) Maintenance of
+
+S-E-C-A-E-T

@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_31590.png
+
+Convert to MarkdownSF 100-54462
+FSP:mb
+
+strike appeared to have failed and did not receive any backing from faculty members. After the rally some 200 persons remained in the area and broke up into "work shops" with the announced intention of studying what action would be taken by the VDC when UN Ambassador to the UN, ARTHUR GOLDBERG appeared at the UCB Campus activities on March 25, 1966, for the Charter Day exercises; what action would be taken in connection with the march on the Oakland Induction Center and a discussion of U.S. foreign policy in Vietnam.
+
+The "Berkeley Gazette" in its issue of February 9, 1966, described the student strike at UCB as a "flop" and a 'fiasco".
+
+The article commented that a check of attendance at regular classes at the UCB on February 9, 1966, showed it to have been little affected by the strike.
+
+Officer HULL informed on February 7, 8 and 9, 1966, that there were no arrests on February 7, 8 and 9, 1966.
+
+## H. Demonstration at Oakland Induction Center, Oakland, February 23, 1966
+
+On February 23, 1966, a Special Agent of the FBI received a copy of a printed leaflet, "WOMEN: MARCH AGAINST THE WAR - FOR HIM AND FOR ALL OF AMERICA'S YOUNG MEN", issued by the Women's March Committee, VDC. The leaflet was distributed in Berkeley and informed that on February 23, 1966, there would be an all-women's march on the Oakland Induction Center.
+
+According to the leaflet those wishing to march would congregate at Constitution Square in Berkeley at 1:15 PM and would arrive at the Oakland Induction Center at approximately 3:15 PM.
+
+In the February 23, 1966 issue of "The Daily Californian", there appeared an article captioned, "A Female March to Oakland."
+
+The article, among other things, quoted JAMIE ALLEN described as organizer of the all-women VDC march as stating:
+
+"The Government can't accuse us of being draft dodgers, or of lacking the courage to fight"
+
+- 54 -
+
+921

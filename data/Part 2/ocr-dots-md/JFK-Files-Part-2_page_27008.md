@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_27008.png
+
+Convert to MarkdownSECRET
+
+Ms. Jeanne W. Davis
+
+3. John Edgar Hoover letter to Mrs. Mildred Stegall dated January 3, 1968, classified "Secret," (1 page).
+
+4. FBI Letterhead Memorandum (LHM) captioned "Training of Negroes in Cuba" dated January 3, 1968, classified "Secret," (2 pages).
+
+5. John Edgar Hoover letter to Honorable Bill D. Moyers dated January 11, 1965, classified "Secret," (1 page).
+
+6. John Edgar Hoover letter to Mrs. Mildred Stegall dated November 3, 1967, classified "Secret," (1 page).
+
+7. John Edgar Hoover letter to Honorable Marvin Watson dated June 7, 1965, classified "Secret," (1 page).
+
+Mr. Moore further advised Mr. Skancke that the following documents could be made available to the SSC Staff with appropriate deletions:
+
+1. FBI LHM captioned "Alleged Cuban Plot to Assassinate Governor Roberto Sanchez Vilella of Puerto Rico," classified "Secret," (1 page). The words "inside Cuba" appearing on the second line of the first paragraph to be deleted.
+
+SECRET
+
+- 2 -

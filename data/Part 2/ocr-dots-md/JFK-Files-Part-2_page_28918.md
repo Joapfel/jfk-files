@@ -1,0 +1,73 @@
+# JFK-Files-Part-2_page_28918.png
+
+Convert to MarkdownINCOMING CORRESPONDENCE
+
+DEPARTMENT OF
+HEALTH, EDUCATION, AND WELFARE
+SOCIAL SECURITY ADMINISTRATION
+
+Form Approved.
+Budget Bureau
+No. 72-R597.2
+
+CLAIMANT'S REPORT TO
+SOCIAL SECURITY ADMINISTRATION
+
+PRINT NAME OF PERSON OR PERSONS ABOUT WHOM REPORT IS MADE
+
+SOCIAL SECURITY CLAIM NUMBER(S)
+
+Fill in Only the Item(s) being reported.
+
+1. CHANGE OF ADDRESS. (Fill in new address at bottom.)
+   Check if change is for: ☑ more than 6 months ☐ 6 months or less
+   To avoid delay in receipt of checks you should also file a regular change
+   of address notice with your local post office.
+
+Enter date of marriage
+
+2. MARRIAGE
+Show New Name
+
+3. DEATH OF (Show Name)
+
+Enter date of death
+
+4. DIVORCE OR ANNULMENT OF MARRIAGE
+(of spouse beneficiary from insured individual)
+Enter date decree final
+
+5. CHILD OR OTHER CLAIMANT LEFT YOUR CARE
+Enter date child left your care
+
+Show Given Name(s) of Person(s) Who Left:
+
+6. GOING OUTSIDE THE U.S.
+Name of country to which going
+Date of departure from
+U.S.A.
+
+Given Name(s) of Person(s) Going
+
+Enter date of adoption
+
+7. CHILD LEGALLY ADOPTED
+Show Given Name(s) of Child(ren)
+
+BY ☐ Stepparent ☐ Grandparent ☐ Aunt ☐ Uncle ☐ Other
+
+SIGNATURE of person making this report
+X Mrs. Maria Oswald
+
+P.O. Box or Street
+1245 DONNA DRIVE
+
+City State Zip Code
+RICHARDSON, TEXAS 75080
+
+Enter name of county, if any, in which you live
+DALLAS COUNTY
+
+* GPO : 1963 OF-696-004
+
+FORM OA-C 668 (6-63)

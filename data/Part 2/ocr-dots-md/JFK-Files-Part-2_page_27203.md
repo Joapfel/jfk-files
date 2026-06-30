@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_27203.png
+
+Convert to MarkdownCONFIDENTIAL
+
+IV. OFFICE OF SECURITY
+
+A. Files Material (Security Files) (Some SECRET)
+(10 documents)
+
+B. CIA Relation with FBI (2 documents plus notes) (SECRET)
+
+C. Working Papers (5 Miscellaneous documents - some SECRET)
+
+D. FBI material (Some SECRET)
+
+E. Roethe Letter Request - 23 May 1975 (8 documents
+relating to Office of Security and Science and
+Technology (TOP SECRET and SECRET))
+
+F. Project MERRIMAC (8 documents) (Some SECRET)
+
+G. Alleged Illegal Domestic Activities (Richard V. Allen)
+(SECRET)
+
+H. Alleged Illegal Domestic Activities (State Police -
+General, SF #78195)
+
+Vols. I and II (SECRET)
+
+I. Alleged Illegal Domestic Activities (Dissident Activity, Jan. 1966 - Jan 1973)
+
+J. Project MORTAL, et al. (SECRET)
+
+K. Security Vulnerabilities Index (CONFIDENTIAL)
+
+L. Agency Training of Police (SECRET)
+
+M. Projects JETTISON and MAGNET (SECRET) (5 documents) (SECRET)
+
+N. Surveillance on Behalf of Metropolitan Police Department
+(CONFIDENTIAL)
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 34

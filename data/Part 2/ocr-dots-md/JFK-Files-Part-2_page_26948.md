@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_26948.png
+
+Convert to MarkdownSECRET
+
+You know, we have a traveler program where when Cubans travel,
+whether they are on an island or perhaps other places, their
+names turn up on manifests and this type of thing. Well, these
+are put into a machine system. What we did when these cards
+were all transferred back here in Miami, we did go through them
+at random and pick out cards and then try to match it up with
+what the machine system had to see if there was updated informa-
+tion in the machine system that would show that this guy had
+become a naturalized citizen, and it didn't work out. So —
+
+Excuse me, off the record.
+
+(Off the record discussion)
+
+MR. MANFREDI: Back on the record.
+
+BY MR. MANFREDI:
+
+Q. I want to straighten out confusion in my own mind
+where these files presently reside. The cards I take it are
+presently here in Washington?
+
+A. The cards and what is left of the files.
+
+Q. That is the soft cover files?
+
+A. Yes.
+
+Q. And —
+
+A. I assume they are either here or down at the
+Records Center.
+
+Q. And where is the computer system?
+
+A. You mean our machine system? We have --
+
+Q. The machine here that you tried to match up with the
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32275454 Page 71

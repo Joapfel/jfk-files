@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_30498.png
+
+Convert to MarkdownSECRET
+
+1-73
+
+from the Soviet Union, would it have been standard operating
+procedure for the Agency to have interviewed him or debriefed
+him in some way?
+
+Mr. Shaw. No. I think that it would have been more
+likely for the FBI to interview him.
+
+Mr. Goldsmith. Why is that?
+
+Mr. Shaw. Because he was an American citizen in the
+United States. That was the FBI's territory.
+
+Mr. Goldsmith. Even though Oswald worked for several
+years -- not for several years, but for some time -- in a
+radio factory while he was in Russia?
+
+Mr. Shaw. I was not aware that he worked in a radio
+factory, but the fact that he had been in the Soviet Union,
+the fact that he had been in the United States Marine Corps,
+would indicate to me that if he had been interviewed, he
+would have been interviewed by the FBI.
+
+Mr. Goldsmith. Does not the Agency have a Domestic
+Contacts Division, or service, which customarily interviews
+people who have been abroad in Communist countries?
+
+Mr. Shaw. The Agency has the Domestic Contacts Division.
+It used to be called O/O Contacts. I never worked with those
+people.
+
+It is my understanding that what they do is routinely
+debrief, if the person is willing, businessmen -- in the old
+days, tourists -- who had visited the Soviet Union, or to
+
+SECRET
+ALDERSON REPORTING COMPANY
+
+300 7TH STREET, S.V. REPORTERS' BUILDING, WASHINGTON, D.C. 20024 (202) 554-2345
+
+HW 50955 DocId:32277214 Page 74

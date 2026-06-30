@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_25921.png
+
+Convert to MarkdownDear Mr. Attorney General:
+
+I am writing you today on behalf of the Select Committee about the recent death of Samuel Giancana. As you are no doubt aware, his name has been raised in the context of allegations concerning the Central Intelligence Agency's possible involvement in so-called political assassinations.
+
+Based on information available to the Committee, it was obvious that he might be knowledgeable about the political assassination matter. Although Mr. Giancana had not actually been subpoenaed to testify by this Committee, he had been approached by members of the staff for a possible interview. Since this might involve violation of federal statutes pertaining to obstruction of a Congressional Committee investigation, the Select Committee is requesting that you instruct the Federal Bureau of Investigation to keep it fully informed of all information coming to the Bureau's attention pertaining to Mr. Giancana's death. In making this request, the Committee is not conceding its right to conduct its own investigation of this matter. However, it is acting in the spirit of cooperation on a question of mutual concern to the Executive and Legislative Branches of government.

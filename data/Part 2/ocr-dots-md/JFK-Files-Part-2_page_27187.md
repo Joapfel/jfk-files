@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_27187.png
+
+Convert to MarkdownS-M Files
+
+III. Miscellaneous Files
+
+A. References (Watergate) (1 Memo - SECRET and 2 unclassified lists)
+
+B. Waivers (23)
+
+C. Draft Report on Office of General Counsel, dated 11 April 1975
+
+D. Schwarzer Chronological File
+
+E. Manfredi Chronological File (15 Memos; 3 of which are SECRET)
+
+F. Miscellaneous Handwritten Notes
+
+G. Miscellaneous Office Files.
+
+H. Miscellaneous documents (6 Memos - 2 of which are SECRET and 1 CONFIDENTIAL)
+
+I. Helms' Document Inspection (11 Memos - 3 of which are SECRET and 1 CONFIDENTIAL)
+
+Photocopy from
+GR Ford Library
+
+HW 50955 DocId:32105598 Page 18

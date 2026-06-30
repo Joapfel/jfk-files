@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_27248.png
+
+Convert to MarkdownSummary Financial Support to the White House (CONFIDENTIAL)
+
+with 3 Tabs:
+
+1. Memo to Associate Deputy Dir for Admin. from Deputy Dir of Finance - 5 Feb 75.
+
+2. Info - Office of Logistics Supply & Procurement for the White House Communications Activity.
+
+3. Memo for Record - on Misc. Security Support to the White House dtd 28 Jan 1975. CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

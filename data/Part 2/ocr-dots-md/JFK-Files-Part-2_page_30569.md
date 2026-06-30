@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_30569.png
+
+Convert to MarkdownSECRET
+
+6/4/64 Memo: Mother's address + quote from Wise & Ross passed to FBI. SECRET
+
+Memo for Record 5/31/63
+by Ray 5. Cline (DDI)
+re: visit from Lt. Colonel Donald M. Dessert from Air Force Intelligence re inquiry as to whether A.D. had been used in any CIA ops. other than Penchavsky. - DDI informed him he hadn't.
+
+Memo for Record 5/7/63
+by Rose 5. Cline (DDI)
+re: visit from Lt. Colonel Donald M. Dessert from Air Force Intelligence re inquiry as to whether A.D. had been used in any CIA ops. other than Penchavsky. - DDI informed him he hadn't.
+
+Memo for Record 5/7/63
+by Rose 5. Cline (DDI)
+re: visit from Lt. Colonel
+Donald M. Dessert from
+Air Force Intelligence re
+inquiry as to whether
+A.D. had been used in
+any CIA ops. other than
+Penchavsky. - DDI informed
+him he hadn't.
+
+Memo for Record 5/7/63
+by Rose 5. Cline (DDI)
+re: visit from Lt. Colonel
+Donald M. Dessert from
+Air Force Intelligence re
+inquiry as to whether
+A.D. had been used in
+any CIA ops. other than
+Penchavsky. - DDI informed
+him he hadn't.

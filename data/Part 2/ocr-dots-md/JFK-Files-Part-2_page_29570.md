@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_29570.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+284/ _Ibid._, p. 6.
+
+285/ A. Tarasoff Testimony, 4/12/78, pp. 8-12.
+
+286/ _Ibid._, p. 12; Goodpasture Testimony, 4/13/78, pp. 62-63.
+
+287/ _Ibid._
+
+288/ _Ibid._; HSCA Deposition of B. Manell, 4/28/78, p. 8.
+
+289/ Goodpasture Testimony, 4/13/78, p. 63; Phillips Testimony,
+      11/27/76, p. 14.
+
+290/ Manell Interview, 3/20/78, p. 3; Phillips Testimony, 11/27/76,
+     pp. 14-16; Goodpasture Testimony, 4/13/78, pp. 54, 63.
+
+291/ _Ibid_.
+
+292/ Project Renewal Request, 1/11/65, attached to HMMA 25141.
+
+293/ HMMA-22135, 9/13/63, para. 3; HMMA-22005, 8/23/63, para. 3.
+
+294/ Classified Staff Summary of Review of CIA Documents, 3/9/78,
+      p. 1.
+
+295/ B. Tarasoff Testimony, 4/12/78, p. 7.
+
+296/ _Ibid._, pp. 16-19; Classified Staff Summary of Review of
+CIA Documents, 3/9/78, pg. 3-4.
+
+297/ _Ibid._, pp. 2-3.
+
+298/ B. Tarasoff Testimony, 4/12/78, p. 30.
+
+299/ _Ibid._, p. 13.
+
+300/ _Ibid_.
+
+301/ _Ibid._,p. 14; Manell Interview, 3/20/78, pp. 4 and 11.
+
+302/ See Section II above.
+
+303/ See Section II, C, 4 above
+
+Classification: _______
+
+Classified by derivation: _______
+
+HW 48327 DocId:32263889 Page 218
+
+322

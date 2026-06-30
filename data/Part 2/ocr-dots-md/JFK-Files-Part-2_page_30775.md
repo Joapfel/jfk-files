@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_30775.png
+
+Convert to MarkdownNOTE: Posada claims to have been the chief instructor for JURE camps for three months in an unspecified year prior to 1965.
+
+Additional info:
+
+1. AKA: Luis Clemente Carriles
+   Bambi Posada Carriles
+   Bambi Carriles
+   Julian Posada Carriles
+   Julian Carriles
+
+2. He has listed AS REFERENCES:
+   Carlos Porco, 395 E. Tallmadge, Akron
+   Antonio Garcia, 3604 S.W. 26th Terrace, Miami
+   Segundo Ortes, 685 Carnegie Ave., Akron
+   Dick Patterson, FBI, Akron.
+
+3. SS # 265-72-1345
+
+4. U.S. Army # C-2312445
+
+5. U.S. Army Dossier # 265-72-1345
+
+6. Posada was in contact with one "Lefty" Rosenthal in Miami;

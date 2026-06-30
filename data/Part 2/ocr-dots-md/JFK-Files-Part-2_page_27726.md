@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_27726.png
+
+Convert to MarkdownSelect Committee on Assassinations
+
+U.S. House of Representatives
+
+3342 HOUSE OFFICE BUILDING, ANNEX 2
+WASHINGTON, D.C. 20515
+
+March 2, 1977
+
+Richard A. Sprague
+Chief Counsel and Director
+Select Committee on Assassinations
+Washington, D.C.
+
+Dear Mr. Sprague:
+
+As we discussed today, I have accepted a position in the Office of the Speaker of the House effective Monday, March 7.
+
+I would like to convey to you my personal admiration and feel we are very fortunate to have a person of your caliber in the service of the Congress.
+
+Your continued leadership of the investigations is absolutely vital and I wish you every success.

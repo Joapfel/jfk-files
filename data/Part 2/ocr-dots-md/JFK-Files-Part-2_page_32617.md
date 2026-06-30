@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_32617.png
+
+Convert to MarkdownSECRET
+
+the communist bloc and had postponed its plans to industrialize.
+
+c. On September 27, the Agency issued a circular instruction to allites Latin American posts urging greater attention to opportunities for publicizing Cuban- stigmatized subversion, suggesting the various types of information activities to support this effort, and requesting monthly reports of field actions taken to implement the instruction. This was done as a follow-up to the original instruction on Cubon subversion which was issued April 3, 1963.
+
+Central Intelligence Agency
+
+a. CIA in Brazil协助ed in the defection and exploitation of a Cuban athlete Roberto Perez Ondarso in Porto Alegre on 4 September 1963. Perez was a member of the Cuban basket-bell team which participated in the World University Games (FISU) held in Porto Alegre Brazil in early September 1963.
+
+b. Assistance was given to the Government of Guatemala in the interrogation of some of those who were arrested in connection with the Communist Party documents that were confiscated in late May 1963.
+
+SECRET
+
+Only
+
+HW 50955 DocId:32424708 Page 18

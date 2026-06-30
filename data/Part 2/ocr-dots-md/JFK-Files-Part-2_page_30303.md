@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_30303.png
+
+Convert to MarkdownTOP SECRET
+
+1 you understand that it is necessary time, time to settle psy-
+chologically, he doesn't know how he will be living, what he will
+be doing, and at the same time a person feels attitude on the
+part of those who helped him to come CIA? I felt something
+going on.
+
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+Mr. Klein. You testified to us today that you didn't know how wrote the summary of Oswald's file in the First Department because you never had an opportunity to read it. Did you ever tell anyone that Fedroseve and Matveev, F-e-d-r-o-s-e-v-e and M-a-t-v-e-e-v of the First Department, Second Chief Directorate, took the file and wrote a second "spravka", which you told us was a summary?
+
+Mr. Nosenko. Summary.
+
+Mr. Klein. Did you ever tell anybody that?
+
+Mr. Nosenko. Must be I told, it is again right, because
+you see, not Fedroseve -- Fedroseve was Chief of First Depart-
+ment, American Department, and I will repeat what I told you
+yesterday. Matveev has come to take file, but surely Fedroseve
+who is Chief of American Department, he had given call to Chief
+of Seventh Department. He was involved in this; that is why I
+mentioned him. He was Chief of First American Department.
+His deputy, Colonel Matveev, has come, and not alone; with him
+was a couple of officers, has come and told that Gribanov
+ordered and Fedroseve giving call to Department, we must take
+it, and took. Who of them wrote, I do not know, no doubts that Fedroseve
+and Matveev were participated in the preparation of documents.
+
+TOP SECRET

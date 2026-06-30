@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_30474.png
+
+Convert to MarkdownSECRET
+
+1-49
+
+that all of the transcripts of the Cuban Ops were examined
+by the Cuban Ops section, I would have to, again, say I do
+not know.
+
+(Discussion off the record.)
+
+Mr. Goldsmith. We just went off the record for a moment
+because Mr. Shaw had a question about where his car was parked
+and whether there would be any problem about that, and I
+indicated that I did not think there would be a problem.
+
+Mr. Shaw, do you recall who delivered the photographs
+to the station, the tape from the surveillance operation?
+
+Mr. Shaw. It was my understanding that the technician
+picked them up. Bob Zamberardi would have picked them up
+from the agent.
+
+You are talking of the Cuban Embassy now?
+
+Mr. Goldsmith. Yes, and consulate.
+
+Mr. Shaw. It is my understanding that he would have
+picked them up from the agent who took the photographs. The
+agent who took the photographs developed them, printed them,
+and turned the prints over to Mr. Zamberardi. That is the way
+I think it worked.
+
+Mr. Goldsmith. How would you actually get to review the
+photographs? Who would bring them to you?
+
+Mr. Shaw. Usually I do not remember who brought them to
+me. I have the impression it may have been Lorna McKay, but
+I could be wrong. Maybe Bob brought them to me. I do not know.
+
+SECRET
+
+ALDERSON REPORTING COMPANY
+
+300 7TH STREET, S.W.,
+
+WASHINGTOH, D.C. 20002 (202) 554-2345
+
+HW 50955 DocId:32277214 Page 50

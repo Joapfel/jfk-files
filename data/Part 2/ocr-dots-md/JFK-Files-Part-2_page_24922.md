@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_24922.png
+
+Convert to Markdowndiscussed in the presence of senior Administration officials.
+While those officials never consented to actual assassina-
+tion efforts, they also failed to indicate that assassination
+was impermissible as a matter of principle.
+
+In early 1961, McGeorge Bundy was informed of a CIA project described as the development of a capability to assassinate.* Bundy raised no objection and, according to Bissell, may have been more affirmative. Although Bissell stated that he did not infer authorization from Bundy's remarks for the underworld plot against Castro that was then underway, the fact that he believed that the development of an assassination capability had been approved by the White House (which he subsequently told to Harvey) may well have contributed to the general perception that assassination was not prohibited.
+
+Documents indicate that in May 1962, Attorney General
+Kennedy was told that the CIA had sought to assassinate
+Castro prior to the Bay of Pigs. According to the CIA
+officials present at the briefing, the Attorney General
+
+* Bundy, who was National Security Advisor to the President,
+had an obligation to tell the President of such a grave
+matter, even though it was only a discussion of a capability
+to assassinate. His failure to do so was a serious error.

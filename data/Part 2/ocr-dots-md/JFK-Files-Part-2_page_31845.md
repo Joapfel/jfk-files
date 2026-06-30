@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_31845.png
+
+Convert to Markdown(6353-6004) 18 Jan 67
+
+FROMER, David Reed
+DPOB: 21 Jul 42; Chicago, Illinois
+
+Con't - Item 16 (Remarks)
+
+Item 15 - SUBJECT explained in the "Remarks" section as follows: "(I have not done anything that I am not proud of) - I have been advised by my attorneys that I cannot sign this form without placing myself in jeopardy: Peter Franck - personal attorney, Vincent Hallinan - family attorney."
+
+FBI reports, San Francisco, California, titled: David Reed FROMER, with Bureau File #: 100-433071, dating from 3 May 1960 to the latest dated 23 November 1966, are in the possession of this office. Request any additional and/or subsequent information.
+
+385
+
+2

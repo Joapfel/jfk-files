@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_26080.png
+
+Convert to MarkdownO'BRIEN:
+
+LANSDALE: isn't my idea of a good spot to be in. You just get belabored over that.
+
+LANSDALE: Well, did Nolting ever try to get you back to Vietnam, in an advisory position?
+
+LANSDALE: I think so. There were a number of attempts by the Vietnamese themselves, and unfortunately, some of them were couched in terms of wanting me to come out as ambassador, by the Vietnamese, but Nolting and I had very friendly relations, and I think he had proposed that I come on out several times. But these things would usually only come to me sort of second or third hand, and one time apparently President Kennedy had said something to the JCS because suddenly my relations with the Chiefs went down to less than zero and sub-zero, and I finally asked General [Curtis E.] Lemay of the Air Force, because I'm an Air Force officer, what the trouble was. And he said, "You and your ambitions to have four stars." I said, "What's this again?" Apparently Kennedy had said something to the Chiefs of what would they think of my being given four stars and being put in charge of operations in Vietnam?

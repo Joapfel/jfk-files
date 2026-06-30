@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_25858.png
+
+Convert to MarkdownTOP SECRET
+
+COMMISSION ON CIA ACTIVITIES WITHIN THE UNITED STATES
+
+Washington, DC 20500
+
+May 21, 1975
+
+MEMORANDUM
+
+To: File
+
+From: Mason Cargill MC
+
+Subject: JUSTICE DEPARTMENT DOCUMENTS RELATING TO PLOTS TO ASSASSINATE CASTRO
+
+On May 20, 1975, I reviewed one file of documents in the office of the Assistant Attorney General/Criminal Division. The file was about one-half inch thick, was marked "#82-46-5 - TOP SECRET." It contained documents relating to the October 31, 1960, wiretapping incident in Las Vegas.
+
+The documents in this file indicated the following items of interest:
+
+1. The IRS investigated Rosselli from December 1, 1962, to March 1, 1963.
+
+2. IRS report attached to March 19, 1963, memo to Herbert J. Miller, Assistant Attorney General, Criminal Division, indicates Maheu told FBI that Rowan tap had been placed to determine whether McGuire had leaked any classified information she had obtained from Giancana.
+
+3. Letter from Miller (Assistant Attorney General) to U.S. Attorney in Las Vegas of January 17, 1963, instructed that prosecution of Balletti should be dropped.
+
+4. Memo for the Record, dated May 14, 1962, Subject: Arthur James Balletti et al - Unauthorized Publication or Use of Communications, by Sheffield Edwards of CIA - The file contained original of this memo outlining the full briefing which had been given Robert F. Kennedy on May 7, 1962. (We have a copy of this from CIA.)
+
+RMC:clb
+
+PROPERTY OF
+THE WHITE HOUSE OFFICE
+
+' 02872
+
+HW 50955 DocId:32423630 Page 591

@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_29736.png
+
+Convert to Markdown# Classification: TOP SECRET
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+- 60 -
+
+862/ CIA #586-587, Wx-7241, Entry No. 425, CIA p. 718.
+
+863/ See Section VI, A, 2a.
+
+864/ CIA #586-587, Wx-724, Entry No. 425, p. 91, CIA p. 718.
+
+865/ Ibid.
+
+866/ Ibid.
+
+867/ Ibid.
+
+868/ Ibid.
+
+869/ Ibid.; also see HSCA investigation of Elena Garro de Paz/alterations.
+
+870/ CIA No. 586-587, Wx-7241, Entry No. 425, p. 91, CIA p. 718.
+
+871/ Ibid.
+
+872/ HSCA pre-interview of Rubén Duran, 5/31/78
+
+873/ The House Select Committee has determined that the Central Intelligence Agency received the copy of the Thomas memorandum prior to December 25, 1965, his next meeting with Elena Garro; Also, see below.
+
+874/ CIA No. 588, note from Stanley Watson to Chief of Station.
+
+875/ Ibid.
+
+876/ Cable from Mexico City to the Director, MEXI 5621, Dec. 16, 1965, CIA No. 584-585.
+
+877/ Ibid.
+
+878/ Ann Goodpasture.
+
+879/ Cable from Mexico City to the Director, MEXI 5621, Dec. 16, 1965 CIA Nos. 584-585.
+
+880/ Chief of Station in Mexico City.
+
+Classification:
+
+2001031
+
+483
+
+Classified by derivation:

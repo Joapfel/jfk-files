@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_27251.png
+
+Convert to MarkdownA. DDO Instruction No. 1-14 - Organization and Functions Foreign Resources Div. - 6 Feb 74 SECRET
+
+B. Clandestine Service Instruction 1-14 - 15 Mar 72 SECRET
+
+C. Clandestine Services Instruction 1-14 - 17 Oct 68 SECRET
+
+D. Clandestine Services Notice 50-24 - WUENTREE PROGRAM - 22 Dec 66 SECRET
+
+E. Clandestine Services Notice No. 1-589 - 16 Mar 64 SECRET
+
+F. Memo for Distribution from C. Tracy Barnes 15Feb63 SECRET
+
+G. Clandestine Services Instruction No. 1-14 - 11 Feb 63 SECRET
+
+H. Clandestine Services Notice No. 1-470 - 20 Mar 62 SECRET
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 82

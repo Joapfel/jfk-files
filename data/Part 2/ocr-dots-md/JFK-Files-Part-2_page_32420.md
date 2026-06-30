@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32420.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEM
+
+Eight Dominican pro-Castro leaders were aboard the Czech airlines flight to Cuba which transited Shannon Airport on 14 December, according to an official Irish service. The Dominicans included Maximo Lopez Molina, Tomás Parmenio Erickson, and Gustavo Ricart, leaders of the outlawed Dominican Popular Movement (MPD), one of the most active pro-Communist groups in the Dominican Republic. The eight Dominicans were among the ten who were deported from the Dominican Republic to France earlier this year. Another source reported last November that the Cuban ambassador in Paris had a meeting with the ten Dominican deportees to discuss helping them travel to Cuba without passports. (CIA Dublin, TCS-3/531,991, 21 December, SECRET/NO FOREIGN DISSEM)
+
+SECRET
+
+NO FOREIGN DISSEM

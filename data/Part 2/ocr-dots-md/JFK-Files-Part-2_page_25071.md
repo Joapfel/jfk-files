@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_25071.png
+
+Convert to MarkdownJUL 14 1975
+
+CIA
+
+U.S.A.
+
+Vd. 9 Jul '75
+
+02
+
+CUBA
+
+"How can you compare cocoa and oil?" he asked, "What benefit is it to countries like Sri Lanka and Tanzania that all countries control their raw materials when all this means to them is that they must pay more for both oil and industrial goods?
+
+"I am not speaking for myself," he explained, "We receive oil from the USSR on favorable terms. But if the oil countries demand solidarity from the Third World, they must concern themselves with the problems of the Third World. They are, as yet, reluctant to do this.
+
+"Where has the oil revenue gone?" he asked, and he answered the question.
+
+"It has been deposited in the economies of the industrial world and has been used for arms purchases. The industrialized countries will emerge from the economic crisis stronger than ever. It will be the developing countries which will be affected."
+
+## They Do Not Dare
+
+Fidel Castro fell silent and he looked at the Swedish journalists with an expression of genuine alarm.
+
+"Do you think I am speaking too severely?" he asked worriedly. "But you must understand that someone must talk about this. There is no one else who dares, since all are hoping for loans from the oil countries."
+
+And he gave those who sat next to him a comforting slap on the back.
+
+In various Latin American countries Latin America is described today as a changing continent, and in both Mexico and Venezuela Olaf Palme listened to the revolutionary and anti-imperialist diatribes which are increasingly part of both these countries' official language.
+
+Fidel Castro did not appear especially impressed by this change. He did not mention Mexico and Venezuela at all when he was asked about the prospects for social revolution in South America--but he did mention the military governments of Peru and Panama.
+
+## Better Than Nothing
+
+"No path toward revolution can be ruled out," he said, "and we are watching the progressive regimes in Peru and Panama with great interest. It is meaningless to discuss whether an armed struggle is necessary for revolution--all that can be said is that a revolution must be based on real force, whether it be in Chile or Cuba."
+
+He smiled sadly when asked for his opinion of the governments in Venezuela and Mexico, which, by their own assurances, are revolutionary, and he thought for a long time before answering: "It is better than nothing."
+
+Someone asked if it is true that Cuba is receiving economic aid from the USSR in conflict with its own ideology and that it has its "stomach in Moscow and its head in Peking."
+
+Fidel Castro was obviously upset by the question.
+
+"It was not they who contrived the Cuban revolution," he said, "it was us. But the USSR helped us when no one else would, and we cannot forget that. We have not compromised with either the USSR or anyone else, and who else could have helped us? The United States?"

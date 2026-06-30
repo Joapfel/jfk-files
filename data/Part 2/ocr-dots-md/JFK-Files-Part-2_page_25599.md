@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_25599.png
+
+Convert to MarkdownNevada Gaming Control Board refused to allow the Tropicana to open as long as Sacco was associated with its operation, whereupon the hotel owners were forced to buy back the gift shop lease at a cost of $180,000, reportedly about thirty times the amount paid for the lease.
+
+During the above period, Sacco also involved himself in the production of shows for the Tropicana, but again the Gaming Control Board refused to allow him to participate in any capacity and he sold his interest. Following his ouster from the Tropicana, Sacco sold ice machines to most of the Las Vegas hotels at prices far in excess of prices on the open market. Sacco has also received numerous "finders fees" from various Las Vegas hotels and casinos for which few if any services were performed.
+
+In October 1960, Sacco and T. W. Richardson were involved in placing a wire tap on the telephone of comedian Dan Rowan in Las Vegas at the request of Chicago gangster Sam Giancana.
+
+In May 1968, Sacco was convicted of failing to register as an alien and report his address annually. In the course of that trial, it was shown that birth records in Chicago, Illinois, had been forged in an effort to make it appear that Sacco had been born there as John Rosselli. Sacco has long been a close friend of Edward J. Barrett, County Clerk, Cook County, Illinois, in whose office the birth records for Chicago were kept.
+
+Among Sacco's underworld associates are the following:
+
+* Al Capone - head of the Chicago underworld gang;
+
+* Charles F. Fischetti - a Capone lieutenant;
+
+* Micky Cohen - gambler and racketeer;
+
+* Jack Dragna - leader of the Cosa Nostra, Los Angeles, now deceased;
+
+* Benjamin "Bugsy" Siegel - member of Murder, Inc., murdered June 20, 1947;

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_30381.png
+
+Convert to MarkdownNew Zealand, and Oceania. That was until 1964.
+
+Mr. Goldsmith. Have you had a chance to review CIA document number 1817 and the pages that follow it?
+
+Mr. Tovar. Yes, I have read these. I had not read these.
+They were released by one of my subordinates, Mr. Friedlander.
+
+Mr. Goldsmith. Are you telling us that today is the first chance you had to read them?
+
+Mr. Tovar. I did not read them this time. They went to you, to the Committee but I have since read them.
+
+Mr. Goldsmith. They were prepared by whom?
+
+Mr. Tovar. Jack Friedlander, Chief of Operations. They were signed by him, not prepared by him. They would have been originated probably by Mr. Kowalski or Mr. Bradley, I am not sure which. I think Kowalski almost certainly.
+
+Mr. Goldsmith. The memorandum which is labeled CIA No. 1817 was a response by the Agency to an inquiry by the Committee as to whether it was standard operating procedure for the Agency to debrief what in effect were repatriated defectors.
+
+I believe it is fair to say by way of summary that the memo says that it was not in fact standard operating procedure during the years 1959 to '63 to debrief such individuals. Is that correct?
+
+Mr. Tovar. Insofar as I understand it. My knowledge is limited to what I see here before me in the paper. During this period in question I was not involved, so I didn't know what
+
+TOP SECRET
+
+TNW-48331 DocId:32277210 Page 7

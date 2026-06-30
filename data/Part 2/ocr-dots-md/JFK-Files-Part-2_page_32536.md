@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_32536.png
+
+Convert to MarkdownSECRET
+
+-14-
+
+Department of State
+
+Instructed Embassy La Paz to follow up closely on charges of involvement of Cuban mission in internal politics of Bolivia, and, at the Embassy's discretion, to point out to Bolivian officials the opportunity for a possible break in relations with Cuba. Embassy La Paz was not able to press for a break when the evidence of Cuban intervention did not prove to be as conclusive as originally reported.
+
+8. Other Special Actions
+***
+
+
+Department of State
+
+a. Obtained action by the COAS on July 3 on the Lavalle Committee Report transmitting the document to the governments and urging them to implement the specific and general recommendations contained therein as soon as possible.
+
+b. Through Embassy Managua informed the Nicaraguan Government of the matters which we wanted to have considered during the informal meeting of the Ministers of Security and Interior of the isthmian countries held in Managua, August 26-28 in preparation for the second formal meeting of the Managua Security Conference countries later this year.
+
+SECRET
+
+HW 50955 DocId:32424014 Page 16

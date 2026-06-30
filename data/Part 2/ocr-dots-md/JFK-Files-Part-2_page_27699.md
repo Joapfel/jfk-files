@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_27699.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+
+FROM: G. Robert Blakey, Chief Counsel and Director
+
+DATE: May 24, 1978
+
+Mel Kreidman will be on administrative leave from now through June 30, 1978. He will not be with the Committee after that time.
+
+NW 88326
+DocId:32239468 Page 5

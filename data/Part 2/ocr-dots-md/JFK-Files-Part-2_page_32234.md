@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_32234.png
+
+Convert to Markdown- 7 -
+
+# ALTERNATIVE II
+United States Policy
+
+1. Our ultimate objective with respect to Cuba is the overthrow of the Castro/Communist regime and its replacement by one compatible with the objectives of the U.S. and, where possible, sharing the aims of the Free World. To achieve this objective, the U.S. Government will apply increasing degrees of political, economic, psychological and military pressures, as appropriate opportunities present themselves or can be created, until the Castro/Communist regime is overthrown.
+
+2. Our immediate objectives are to isolate the Castro/Communist regime from the Free World and from the Bloc; weaken it economically; promote internal dissension, erode its domestic political support; frustrate its subversive activities; negate its influence in the hemisphere; increase the cost to the Bloc of sustaining the regime; and obtain the withdrawal of Russian troops from Cuba.
+
+3. Isolating, undermining and discrediting the Castro/Communist regime through the exercise of all feasible diplomatic, economic, psychological and covert actions may achieve the immediate objectives and could create propitious conditions in Cuba for further advance toward our ultimate objective.
+
+4. We should be in a position to respond with open military support (to include such items as materiel, advisors, training, and Special Forces support and, if necessary, up to the full range of military forces), to a request for assistance from any anti-Castro/Communist group or groups in Cuba which demonstrate an ability to survive, which threaten the present regime, and whose aims are compatible with those of the U.S.
+
+5. Invasion of Cuba by U.S. military forces, as distinguished from military support upon request of indigenous forces, should not be undertaken in the absence of aggression or other Castro/Communist and/or
+
+Soviet
+
+SECRET

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_27640.png
+
+Convert to Markdown# MEMORANDUM
+
+TO: CHAIRMAN STOKES
+
+FROM: TOM LAMBETH
+
+DATE: June 7, 1977
+
+RE: Diana Jones
+
+I recommend approval of the attached which will bring the size of
+the clerical staff of the King unit up to that of the Kennedy unit.

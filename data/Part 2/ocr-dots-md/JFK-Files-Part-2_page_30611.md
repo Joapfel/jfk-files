@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_30611.png
+
+Convert to MarkdownSECRET
+
+CC02408
+
+1. MW - 6 (File #2 Large) envelope (1945) l/kgord.ck.
+
+2. 8/11/45 - Files. Report, security approval granted, glowing recommendations
+
+3. 12/10/45 - Termination inter, 50 branch / China, leaving 5541 & Army
+
+4. 9/9/62 record ck. on Werbell/armys / Ecuador
+1959
+
+5. 10/24/62 letter to Hoover from DOP. - response to 4. - no info on arms - reports seeking recog for Culto exile gorét request to Guatemala, El Salvador, + Rica.
+
+6. 2/23/67 "Diary" "Gleichanhb." calls + reports Werbell says Chet Gray concerned over alleged assass attempt on a foreign slip + will go to gov. Calif
+
+SECREl.:
+
++

@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_28737.png
+
+Convert to Markdown2. New York State District Attorney's Association
+June 1976 - Eye-witness Identification + Line-up
+Procedures.
+
+3. New York City Homicide Investigators Course conducted by the Detectives Bureau and New York City Robbery School conducted by the Chief of Detectives Office - citywide seminar for detectives assigned to homicide and robbery squads.
+
+**Law School:**
+
+University of California, Berkeley
+
+Boalt Hall School of Law
+
+Juris Doctor, 1968
+
+Activities: Head Tutoring Program for Disadvantaged
+University Entrants
+Attorney General of Student Body
+Ass't Varsity Basketball Coach, University
+of California, Berkeley
+
+Tyre & Kamins
+Century City
+Beverly Hills, Calif.
+Corporate Law - summer '67
+
+**College:**
+
+University of California, Berkeley
+
+Bachelor of Arts, 1965
+
+Activities: President Class '65
+California Club (25 member organization representing each campus of the Univ. of California selected by Univ. Pres. Clark Kerr)
+Honor Student Society
+Varsity Debate Team
+Freshman Basketball
+
+**High School:**
+
+New Rochelle High School
+
+Captain Basketball Team
+
+Scholarships: Appointment U.S. Naval Academy,
+Stanford, Columbia, University of
+California, Berkeley
+
+NW 88326
+
+DocId:32244104 Page 22

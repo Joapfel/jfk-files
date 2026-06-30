@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_25968.png
+
+Convert to MarkdownJFK Assassination System
+Identification Form
+
+Date: 5/5/2016
+
+Agency Information
+
+AGENCY : NARA
+RECORD NUMBER : 176-10030-10085
+
+RECORD SERIES : ORAL HISTORY INTERVIEWS
+
+AGENCY FILE NUMBER :
+
+Document Information
+
+ORIGINATOR : CITIZEN
+FROM :
+TO :
+TITLE : ORAL HISTORY WITH EDWARD LANSDALE BY DENNIS O'BRIEN
+
+DATE : 07/11/1970
+PAGES : 123
+
+SUBJECTS :
+BAY OF PIGS
+
+DOCUMENT TYPE : TRANSCRIPT
+CLASSIFICATION : Not Marked
+RESTRICTIONS : Open in Full
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 06/05/1998
+
+OPENING CRITERIA :
+
+COMMENTS : Pages 3-21 and 28-34 talk about the Bay of Pigs. Pages 96 and 98 have been sanitized.

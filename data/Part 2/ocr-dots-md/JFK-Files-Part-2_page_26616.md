@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_26616.png
+
+Convert to MarkdownJFK Assassination System
+Identification Form
+
+Date: 3/6/2018
+
+Agency Information
+
+AGENCY : LBJ
+RECORD NUMBER : 177-10002-10103
+RECORD SERIES : NSF, INTELLIGENCE BRIEFINGS, 11/23/63-12/5/63, BOX 1
+AGENCY FILE NUMBER :
+
+Document Information
+
+ORIGINATOR : CIA
+FROM :
+TO :
+TITLE : THE PRESIDENT'S INTELLIGENCE CHECKLIST
+
+DATE : 11/23/1963
+PAGES : 15
+
+SUBJECTS :
+INTELLIGENCE REPORT
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : Unclassified
+RESTRICTIONS : IB; Mandatory Review Material
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 12/12/1997
+
+OPENING CRITERIA :
+
+COMMENTS : DOC. #1
+
+v9.1
+
+| | | | |
+|---|---|---|---|
+| | | | |
+| | | | |
+| | | | |
+| | | | |
+| | | | |

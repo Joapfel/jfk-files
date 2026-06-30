@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_28494.png
+
+Convert to MarkdownJune 6, 1977
+
+Thomas M. Gannon, S.J.
+Select Committee on Assassinations
+U. S. House of Representatives
+Washington, D.C. 20515
+
+Dear Tom:
+
+This is to acknowledge receipt and acceptance
+of your letter of June 3, 1977, resigning from the
+staff of the Select Committee on Assassinations
+effective on the close of business on Friday, June 17,
+1977.
+
+I regret that we will be losing you, but wish
+you the best of luck in your new position.
+
+TL:eb

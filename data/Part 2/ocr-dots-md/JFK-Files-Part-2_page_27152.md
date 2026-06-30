@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_27152.png
+
+Convert to MarkdownTOP SECRET / SENSITIVE Attachments
+
+Mrs. Davis also said that Justice made reference to Walt Rostow's recollection of a general survey of all "intelligence programs country by country" made by the 303 Committee. I assume he means the general beginning-of-a-new-President's-term roundup (similar to the ones given Mr. Nixon and Mr. Ford). We find references to covert action reviews, but these appear to have been oral and we find nothing in writing, and no references to mail operations.
+
+In summary, we have made a review of our files, with special reference to the general index of minutes and the country files deemed most likely to include references to "any use of mail techniques." Representative findings are cited above. We find no record of "illegal" mail operations being a subject of discussion or consideration within the 40 Committee and predecessor organizations (December 1958 to the present). However, there is evidence that the Committee was informed that mail intercept operations were conducted (TAB C-6).
+
+Please advise if any additional material or presentation is desired.
+
+Attachments
+TABs A-D
+
+PHOTO COPY
+FROM
+GERALD R. FORD LIBRARY
+
+TOP SECRET/SENSITIVE Attachments
+
+EYES ONLY
+
+HW 50955 DocId:32105870 Page 4

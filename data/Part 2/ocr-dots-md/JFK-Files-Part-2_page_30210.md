@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_30210.png
+
+Convert to MarkdownAdmiral Stansfield Turner OCR
+
+had reviewed the investigative report provided by Turner.
+
+Blakey requested that he be permitted to see Blahut's security file. Gambino refused, but offered the personnel file instead.
+
+The personnel file reflected that Blahut had consistently received excellent ratings from his superiors, that he showed leadership qualities in his work, and that he had been commended for consistently reporting to his superiors what he had observed and done during his assignments, and alerting them to any problems he encountered.*
+
+Finally, Smith and Gambino asked Blakey what he felt the Agency should do now. Blakey said that full interviews of all of Blahut's supervisors should be conducted, and written reports made. In addition, Blakey stated that new polygraphs should be taken, focusing primarily on the area that was essentially omitted on July 15, namely, the question of motive.
+
+Hav Smith asked whether the Committee was going to accept the Agency's investigation after it was completed; he said he wanted to know now, that he wanted a commitment. Smith said that he was 99 percent sure that the final report would show no involvement in the tampering on the part of the Agency. Gambino said, "We know we're clean." In reply, I asked how the Agency could be so sure at this early point that none of their employees except Blahut were involved, and I also commented that Smith was asking the Committee to "buy a pig in a poke" in suggesting that we should tell him now whether or not we would be satisfied with the Agency's investigation
+
+* The original report indicated Blahut said we accused him of being a "CIA plant" It also said we didn't want to tape him or the 3rd occasion he didn't use Smith'srubric that each lie stated was unbased,
+ NW 88326 DocID:32269709 Page:11-

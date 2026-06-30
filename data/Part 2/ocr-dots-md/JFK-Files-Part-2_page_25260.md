@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_25260.png
+
+Convert to Markdown# TOP SECRET
+
+NHU
+
+**PERSONS/ENTITIES:**
+
+| **DATES:** | **CATEGORIES:** |
+| :--- | :--- |
+| Nov. 2, '63<br>1130 hours | DIEM ✓ |
+
+**OCCURRENCE:**
+
+1130 Lt. Colonel Phong Pgeo Two said that he and his forces suffered six long Peace during the early morning hours to report him and his men to the JCS after their surrender. A search revealed they were not at the paleo and had not been there during the coup. Two reported back to the JCS. Villas in Sanigon and Cholon known to be owned by the Ngo Family were searched.
+
+**SOURCE:** Hearings, S.S.C.I., 6/20/75, Conein, Exhibit one, page 24.
+
+**FILE:**
+
+**STAFF:** Dawson
+
+**DATE:** 6/30/75
+
+**PERSONS/ENTITIES:**
+
+| **DATES:** | **CATEGORIES:** |
+| :--- | :--- |
+| 11/2/63<br>1330 hours | DIEM ✓ |
+
+**OCCURRENCE:**
+
+Officer in J-2, JCS, reported that Dima and I was fed an orderly were caught and killed by mya's personnel at a church in Cho Quua, Cholon. Coprocured with the rest. Captain Do Mad, a nephew of La Mau, Mrs Chief.
+
+**SOURCE:** Hearings, S.S.C.I., 6/20/75, Conein, Exhibit one,
+
+**FILE:**
+page 25.
+
+**STAFF:** Dawson
+
+**DATE:**
+
+6/30/75
+
+TOP SECRET
+
+641 Page 149
+51932423:B1000
+55605 MM

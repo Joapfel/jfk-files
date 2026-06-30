@@ -1,0 +1,72 @@
+# JFK-Files-Part-2_page_26716.png
+
+Convert to MarkdownSECRET
+
+Photocopy from
+Gerald Ford Library
+
+1 purposes other than recruitment?
+
+2 A. Well--
+
+3 Q. For example, let me ask you this. Were any of these files on Cubans who were suspected or thought to be a possible internal security problem?
+
+4
+5
+
+A. No. No. They didn't keep those types of files. We would simply task them with through your sources what do you have on so and so. They would not be told the reason why we wanted the information on anybody.
+
+6
+7
+8
+9
+
+Q. Well, I guess with several million files or several million cards and tens of thousands of files it is difficult to make generalizations about the kind of information that is in those files?
+
+10
+11
+12
+13
+
+A. Well, that is right.
+
+14
+
+Q. So I guess I won't ask you to do so, but I want to ask you this. I trust that there is the possibility that some of these files do contain what you in the trade refer to as depository information?
+
+15
+16
+17
+
+A. I would assume so.
+
+18
+19
+
+Q. And that so much of them may -- some of the subjects of those files may now be American citizens?
+
+20
+21
+
+A. Right.
+
+22
+
+Q. And finally I take it that no effort has been made to study that particular situation?
+
+23
+24
+
+A. Well, we did make an effort to do it at one time.
+
+25
+
+SECRET
+
+HW 50955 DocId:32204971 Page 70
+
+WAKD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

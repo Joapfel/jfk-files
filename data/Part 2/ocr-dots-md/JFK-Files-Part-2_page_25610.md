@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_25610.png
+
+Convert to MarkdownFILED
+
+DEC 21 1967
+
+CLERK, U. S. DISTRICT COURT
+CENTRAL DISTRICT OF CALIFORNIA
+
+BY
+
+DEPUTY
+
+UNITED STATES DISTRICT COURT
+CENTRAL DISTRICT OF CALIFORNIA
+
+NO. 1432
+
+INDICTMENT
+
+[18 U.S.C. §371: Conspiracy; 18 U.S.C. §1952: Interstate Transportation in Aid of Racketeering; 18 U.S.C. §2314: Interstate Transportation of Funds Obtained by Fraud; 47 U.S.C. §502: Operating Un-certified Communication Device; 26 U.S.C. §7206 (1) Subscribing False Tax Return.]
+
+UNITED STATES OF AMERICA,
+Plaintiff,
+
+v.
+
+MAURICE H. FRIEDMAN;
+MANUEL JACOBS (aka RICKY JACOBS);
+VICTOR G. LANDS;
+T. WARNER RICHARDSON,
+FILIPPO SACCO (aka JOHN ROSSELLI);
+BENJAMIN TEITELBAUM,
+
+Defendants.
+
+The Grand Jury charges:
+
+COUNT ONE
+
+[18 USC §371]
+
+Commencing prior to June 15, 1962, and continuing to the date of the return of this indictment, defendants MAURICE H. FRIEDMAN, MANUEL JACOBS (also known as RICKY JACOBS), VICTOR G. LANDS, T. WARNER RICHARDSON, FILIPPO SACCO (also known as JOHN ROSSELLI), BENJAMIN TEITELBAUM, and their unindicted co-conspirators Ernest S. Allen, Vernall Furlong (also known as William G. Douglas), Edwin Nathaniel Gebhard (also known as Pete Kelly, Pete Peterson, and George McFarland), Alfred Mathes, George E. Seach, and Albert Snyder agreed, confederated and conspired together to commit offenses against the United States as follows:
+
+(a) To travel in interstate commerce and use facilities
+
+DRN:mlm:mt
+
+FPI-LPC-8-07-150M-3124
+
+C1
+
+NW 50955 DocId:32423630 Page 343

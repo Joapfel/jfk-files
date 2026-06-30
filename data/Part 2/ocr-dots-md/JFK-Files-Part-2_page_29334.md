@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_29334.png
+
+Convert to Markdown**Phillips, page 11.**
+
+the DGI in Mexico was a man named "LUNA."
+
+Mr. Phillips was asked about the story in his book concerning the DGI officer with the penchant for antique jewelry that appears at page 133. He said that he does not remember the name of that person, but says he took some literary license because he doesn't specifically recall if the person was, in fact, a DGI officer. "Thank God my next book is fiction," he said.
+
+Phillips was asked about the following DGI officers:
+
+Orestes Guillermo Ruiz Perez--"vaguely familiar";
+
+Rogelio Rodriguez Lopez--"Yes, familiar.";
+
+Manual Vega--could have been Chief of DGI;
+
+Luisa Calderon--"familiar";
+
+Teresa Proenza--"definitely familiar";
+
+Alfredo Mirabal--"familiar";
+
+Eusebio Azcue--the consul, "to my knowledge he was not Cuban intelligence."
+
+Mr. Phillips was asked if Proenza was a CIA asset. He said "The name is familiar but I don't recall the context." He also could not remember if Luisa Calderon had been an asset. He said: "I don't really remember the true names of the agents. I never saw them or dealt with them." He stated that he could not remember whether the Agency had ever pitched Ruiz but that "there were several attempts to pitch intelligence types."
+
+Mr. Phillips was shown Carlos Blanco's report of 28 June 1963. He stated that he had probably seen it previously but does not remember it specifically. He said that the name
+
+COMMITTEE SENSITIVE
+
+COMMITTEE SENSITIVE
+
+HW 50955 DocId:32263505 Page 17

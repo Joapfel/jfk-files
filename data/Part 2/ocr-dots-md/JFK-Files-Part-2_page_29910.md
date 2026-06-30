@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_29910.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+
+WY/MD# 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+The two incidents came shortly after Knohl's attorney made a reported attempt to deal with prosecutors by offering to turn Knohl over to them in return for a bail reduction or a lessening of charges against him.
+
+Cpl. M. F. Alban
+
+12-09-76 Det. McKevitt, NYCPD O/C, advises that Soto was upset about the forfeiture of the bond he posted for Knohl, and a meeting was set-up at a vacant house between Soto and Bob White's lawyer; however no one appeared at the meeting.
+
+Cpl. M. F. Alban
+
+PAGE# _________

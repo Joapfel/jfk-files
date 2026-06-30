@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_32482.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+S-E-C-R-E-T
+
+COUNTRY Costa Rica/Cuba
+
+REPORT NO. CS -3/534,724
+
+SUBJECT Departure of Costa Rican Communist to Live in Cuba
+
+DATE DISTRIBUTION DATE OF INFORMATION COSTA RICA San JOSE PLACE & DATE ACQ. (23 November 62)
+
+22 January 1963
+
+NO. PAGES 1
+
+REFERENCES RD
+
+FIELD REPORT NO. HRS-3006
+
+SOURCE EVALUATIONS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.
+
+SOURCE: Costa Rican (B) with good contacts in Costa Rican Communist Party circles. Appraisal of Content: 2.
+
+Carlos Guillen Fernandez, Costa Rican Communist who was formerly very active in the Sociedad de Amigos de la Revolucion Cubana (Society of Friends of the Cuban Revolution), left Costa Rica on 14 November, on his way to Cuba, where he planned to remain indefinitely and to work.

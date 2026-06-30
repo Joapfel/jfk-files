@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_28635.png
+
+Convert to Markdown# RESUME
+
+Miriam Rudder
+4927 Fitch Place, N.E.
+Washington, D.C. 20019
+559-3716 or 699-5653
+8/356 date of birth
+Single
+
+## EDUCATION
+
+Western High School, 1974
+
+Prince Georges Community College
+BA, 1978
+
+## OTHER EXPERIENCE
+
+Water Safety Instructor
+
+First Aid Instructor
+
+## CLERICAL
+
+Typing 50wpm
+
+## JOB EXPERIENCE
+
+Capitol East Natorium, present, Water Safety Instructor. Responsibilities include safety and health of patrons. Instruct classes of all age groups and levels. Perform instructions of special classes.
+
+Riggs-LaSalle Swimming Pool 5/76 - 9/76 (summer employment)
+
+Howard University 6/76- 8/76 Water Safety Instructor- Supervisor, teaching and working with inner-city and under privileged children.

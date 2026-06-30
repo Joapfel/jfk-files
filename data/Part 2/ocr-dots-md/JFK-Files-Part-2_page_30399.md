@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_30399.png
+
+Convert to MarkdownIUP SECRET
+
+1 became more extensive, it might contain a considerable amount of information. If he became involved with this operation it might include operational material, intelligence operations as well, all part of the 201 complex.
+
+5 The point I am making is that it is an individual file as opposed to an activity file.
+
+7 Mr. Goldsmith. If you wanted to learn about the operations that an individual was involved in, would you go to his 201 file or to his operations file?
+
+9 Mr. Tovar. I would go to the 201 file first. There might not be an operations file. In fact, in the vast majority of the 201 cases there are no operational files because there is no hard and fast rule on when you open a 201 file or who opens a 201 file.
+
+11 If I, for example, am overseas and I become interested in a person who looks to me to have considerable promise from the operational standpoint, say a local foreign type, I might give my own local checks, I might examine my own files to see if I know anything about him. Then I say to headquarters "here is Joe Doe. He is interesting to me for these reasons. Will you please check against headquarters records and other agencies and let me know if you have anything of interest on him."
+
+13 I might not ask for a 201 file. Headquarters might then, because they thought he was interesting, open a 201 file. Conversely, I might likewise say this looks terribly interest-
+
+24
+
+25
+
+TOP SECRET
+
+NW 48331 DocId:32277210 Page 25

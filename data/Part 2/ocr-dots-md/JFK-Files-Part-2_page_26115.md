@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_26115.png
+
+Convert to Markdownsort of dealing with them, of categories of work, and where the boundary lines of who did what on the things, and this is where their jealousies and emotions and everything would come up over almost nitpicking of boundary lines of who would do what. It wasn't a thing of we'll do it all, and you go out of business--that feeling hadn't come up,--but after the Bay of Pigs, the DIA and its creation, a lot of the people in that who were civilian employees, Defense Department employees, had an idea, "We can do a better job than CIA," and in a much wider field than the service intelligence agencies had been done.
+
+O'BRIEN: Are there enough skilled and competent people around, in the universities and the military, to staff all the intelligence agencies: the NSA [National Security Agency], DIA, CIA, and organizations? Are there enough people, or are these operations just simply too big at this point?
+
+LANSDALE: Indeed. They might be too big. The need to know things is a very elastic bit. I'm certain that the chief executive of the United States,

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_30713.png
+
+Convert to MarkdownSECRET
+
+Betsy Palmer
+
+Review of Manuel Ray y Rivero Files Volumes I - XVIII
+
+April 6, 1978
+Volume VI - August 1, 1961 - June 30, 1962
+
+11110834
+
+1. Cable to JMWAVE from Director
+
+Date: August 1, 1961
+
+FBI conducting investigation on MRP and Ray and Director indicates he needs to know purpose of investigation to respond properly.
+
+* 2. Dispatch from Chief of Base, JMWAVE
+
+Date: August 4, 1961
+
+Subject: Debriefing of Father Bastarrica
+
+[ Father Bastarrica ] recently arrived from Cuba as a political exile. At a luncheon meeting, he reported as follows:
+
+MRP formed in Cuba around 26 July 1960. Organizers were Dr. Amalio Fiallo Gonzalez, Dr. Antonio Fernandez Nuevo, Reynol Gonzalez, Humberto Perez Herrera. All these men belonged to group called Accion Democratica. The name of MRP was suggested by Raul Chibas and in itself it does not constitute a party or group but rather a coalition of several small groups, which were the following:
+
+a. The 20 May group, led by Manuel Ray
+
+b. Accion Democratica, led by Dr. Fiallo
+
+c. Accion Verde Olivo, led by Dr. Rufo Lopez Fresquet
+
+d. 30 November Movement, led by David Salvador (never really joined)
+
+e. Chibas' group with Jorge Beruff and Felipe Pazos
+
+f. Dr. Valdez Pino, in asylum in Embassy of Peru and belonged to Accion Democratica.
+
+[ Father Bastarrica's ] opinion of Ray is that he had no way of judging whether Ray is Communist or Marxist. Lacks quality of leadership because he does not publically hold to a definite political, social and economic ideology. He appears to agree with every person he talks to, never arguing with them or opposing them, all of which shows he has no ideology and makes him a very dangerous man. Is extremely ambitious for himself, with great desire for power.
+
+* 3. Memorandum for Chief, WH Division, dated 10 October 1961, from [Warren S. Yauger](https://www.cia.gov/publications/the-cia-publication/3036-1-the-cia-memorandum-for-chief-wh-division-dated-10-october-1961-from-warren-s-yauger). Subject: General - Cuban Matters; Specific - Manuel (Monolo) Ray Planning Board of Puerto Rico announced on 9 October 1961 that Ray has accepted position as consultant to that Board. Board is an important agency of Puerto Rican government, attached to the Office of the Governor. Has broad powers over economic and social planning and is active in exercising these powers. Ray to receive $12,000 per year. Ray presently in Venezuela but expected to arrive Puerto Rico within a week.
+
+SECRET

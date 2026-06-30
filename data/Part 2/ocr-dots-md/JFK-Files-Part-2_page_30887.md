@@ -1,0 +1,265 @@
+# JFK-Files-Part-2_page_30887.png
+
+Convert to MarkdownSECRET
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+Wilson, James B. JR.
+DOB 09-27-31
+
+Personnel file
+
+09-15-63
+
+DDP/FE 13-3 (FOREIGN FIELD, [FE/JK0])
+TOKYO STATION] SUPPORT STAFF
+POSITION - FISCAL ACCT A SST
+
+FITNESS REPORT 26 APR 65 - 15 APR 66
+
+"Subject was barely adequate in performing his assigned tasks."
+
+11 Oct 64 to 25 Apr 65
+Subject considered proficient and described as cooperative and dependable.
+
+1 Jul 63 to 30 Jun 64
+Subject considered proficient - Remarks "Subject has performed his duties in a competent manner".
+
+Specific duty no. / - "As Station cashier responsible for the daily receipt and disbursement of cost (Japanese yen) U.S. dollars, NPE)."
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/7m
+
+3/8m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient
+
+3/8m
+
+3/7m
+
+SECRET.
+
+1964-07-30
+
+11110303
+
+SECRET.
+
+1 Jul 62 to 30 Jun 63
+Subject considered proficient

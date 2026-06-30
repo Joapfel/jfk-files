@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_31622.png
+
+Convert to MarkdownSF 100-55462
+FSP:mb
+
+INDEX (Cont.)
+
+DELACOUR, MIKE 3, 9*
+CRISAN, Deputy Sheriff JOHN 12
+DUNCAN, DONALD 43*
+EPTON, BILL 32, 33
+EWART, GEORGE 29*
+Fair Play for Cuba Committee 69*, 70*
+Fair Play for Cuba Committee, Bay Area Chapter, aka Bay Area Fair Play for Cuba Committee (BAFPCC) 68*
+FOWLER 30, 31*, 32*
+FOWLER, GLEN D. 30
+FPCC 16
+FRIEDMAN, DAVID 21*, 22*
+GIBSON, FRED 3, 9*
+GOLDBERG, UN Ambassador 57
+GORBACH, ADJA 3
+GORBACH, ADJA GOLDFINE 9*, 10*
+GOLDBERG, ARTHUR 54
+GOLDBERG, UN Ambassador ARTHUR 56
+HALLINAN, CONN 61
+HALLINAN, CONN "RINGO" 62*
+HAMLIN, LARRY 29
+
+c
+
+853
+
+NW 88613 DocId:34530150 Page 89

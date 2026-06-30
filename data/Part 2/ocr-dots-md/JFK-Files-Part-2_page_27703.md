@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_27703.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Tom Howarth, Budget Officer
+FROM: Charlie Mathews, Special Counsel
+DATE: October 3, 1977
+RE: Mr. Melvin Kreidman
+
+Mr. Melvin Kreidman has accepted the position of Senior Staff Attorney with the Martin Luther King Task Force. His effective starting date will be ~~October 8~~ Nov. 8, 1977, and his starting salary will be $34,000.00 per annum.
+
+Mr. Kreidman graduated from Cornell Law School in 1963 and since 1967 has served in the New York County District Attorney's Office. He is currently Assistant District Attorney, Homocide Bureau, in that office.
+
+Your full co-operation in familiarizing Mr. Kreidman with staff procedures and welcoming him aboard will be appreciated.
+
+ICM:jl
+
+NW 88326
+DocId:32239468 Page 9

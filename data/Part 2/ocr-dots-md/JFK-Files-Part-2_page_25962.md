@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25962.png
+
+Convert to MarkdownSECRET
+SENSITIVE
+EYES ONLY
+
+Extract from paper sent Gen. Lansdale 29 August 62
+
+2. Through clandestine agent sources, we learned recently that a Western European merchant ship en route from Havana, Cuba, to Odessa, USSR, would be forced to dock at a Caribbean port and off-load temporarily part of its cargo in order to repair minor hull damage which resulted from an accidental grounding. It was ascertained that this vessel carried as cargo 80,000 two-hundred pound bags of Cuban raw sugar shipped to Odessa, USSR, for refining in the Soviet Union. In order to lighten the ship sufficiently to permit repairs, it was necessary to off-load and temporarily warehouse 14,000 of the two-hundred pound bags of sugar.
+
+3. Through a clandestine operation which was not detected and is not traceable, we were able to contaminate 800 of these bags of sugar with a chemical used in the process of denaturing alcohol while the bags were in the warehouse and before they were reloaded on the vessel.
+
+4. When this cargo of sugar is refined in the Soviet Union the contaminated bags will completely contaminate the entire shipment making the sugar unfit for human or animal consumption in any form. The contaminate we used will give the sugar an ineradicable, sickly bitter taste which no process will remove. The contaminate cannot be detected in the refining and although the contaminate is not in any sense dangerous to health, it is so strong to the taste that it ruins the taste of the consumer for any food or drink for a considerable time.
+
+5. This successful contamination will spoil the entire cargo the value of which to the USSR is estimated at $350,000 to $400,000.
+
+**Additional Information**
+
+For your further information in connection with this operation, it was completed on 24 August 1962 in San Juan, Puerto Rico. The vessel involved was the British merchant ship STREATHAM HILL. The operation was successfully conducted without compromise and none of the personnel connected with the vessel are aware of the operation.
+
+EYES ONLY
+
+SECRET
+SENSITIVE
+
+GROUP 1
+Excluded from automatic
+congratulations and
+dedication

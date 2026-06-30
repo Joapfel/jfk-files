@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_29064.png
+
+Convert to Markdown# Form 1040 (1973)
+
+<table><thead><tr><th>Other Dependents</th><th>(a) NAME</th><th>(b) Relationship</th><th>(c) Months lived in your home. If born or died during year, write B or D.</th><th>(d) Did dependent have income of $750 or more?</th><th>(e) Amount YOU furnished for dependent's support. If 100% write ALL.</th><th>(f) Amount furnished by OTHERS including dependent.</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td>$</td><td>$</td></tr><tr><td colspan="7">27 Total number of dependents listed in column (a). Enter here and on line 6d</td></tr></tbody></table>
+
+## Part I: Income other than Wages, Dividends, and Interest
+
+<table><tbody><tr><td>28</td><td>Business income or (loss) (attach Schedule C)</td><td style="text-align:right;">28</td></tr><tr><td>29</td><td>Net gain or (loss) from sale or exchange of capital assets (attach Schedule D)</td><td style="text-align:right;">29</td></tr><tr><td>30</td><td>Net gain or (loss) from Supplemental Schedule of Gains and Losses (attach Form 4797)</td><td style="text-align:right;">30</td></tr><tr><td>31</td><td>Pensions, annuities, rents, royalties, partnerships, estates or trusts, etc. (attach Schedule E).</td><td style="text-align:right;">31</td></tr><tr><td>32</td><td>Farm income or (loss) (attach Schedule F)</td><td style="text-align:right;">32</td></tr><tr><td>33</td><td>Fully taxable pensions and annuities (not reported on Schedule E—see instructions on page 8)</td><td style="text-align:right;">33</td></tr><tr><td>34</td><td>50% of capital gain distributions (not reported on Schedule D)</td><td style="text-align:right;">34</td></tr><tr><td>35</td><td>State income tax refunds (does not apply if refund is for year in which you took the standard deduction—others see instructions on page 8).</td><td style="text-align:right;">35</td></tr><tr><td>36</td><td>Alimony received</td><td style="text-align:right;">36</td></tr><tr><td>37</td><td>Other (state nature and source)</td><td style="text-align:right;">37</td></tr><tr><td>38</td><td>Total (add lines 28, 29, 30, 31, 32, 33, 34, 35, 36, and 37). Enter here and on line 12</td><td style="text-align:right;">38</td></tr></tbody></table>
+
+## Part II: Adjustments to Income
+
+<table><tbody><tr><td>39</td><td>"Sick pay." (From Forms W-2 and W-2P. If not shown on Forms W-2 or W-2P, attach Form 2440 or statement.)</td><td style="text-align:right;">39</td></tr><tr><td>40</td><td>Moving expense (attach Form 3903)</td><td style="text-align:right;">40</td></tr><tr><td>41</td><td>Employee business expense (attach Form 2106 or statement)</td><td style="text-align:right;">41</td></tr><tr><td>42</td><td>Payments as a self-employed person to a retirement plan, etc. (see Form 4848)</td><td style="text-align:right;">42</td></tr><tr><td>43</td><td>Total adjustments (add lines 39, 40, 41, and 42). Enter here and on line 14</td><td style="text-align:right;">43</td></tr></tbody></table>
+
+## Part III: Tax Computation (Do not use this part if you use Tax

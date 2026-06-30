@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_30534.png
+
+Convert to MarkdownSECRET
+
+There is no person in the organization who is not involved in a project.
+
+PROHIBITED
+
+Contract and Contract support capacities are agreed upon by C.A. controlled people will be the same.
+
+source - previous information asset - may someone who may provide a service or info.
+
+Name check process - procedure to learn what is known about a person. - involve a check file res files at 201 file if there is 201 files are personally in sequence
+
+Name check are written down w/ opening of 201.
+
+True id may be read out of 201, it was also be worked in cryptogram.
+
+SECRET
+
+0001752
+
+11 of 20

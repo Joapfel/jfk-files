@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_29874.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+XXXXXXXXXX 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+| 19. | Owen Inspt. EM 2-1213, office RI 3-5681 |
+| 20. | Palace TU 2-1600 |
+| 21. | Reds 927-2568 |
+| 22. | Rowe Burly 768-8626 |
+| 23. | Sewer: Kahler EX 2355 |
+| 24. | Eddie Smith 423-6243 |
+| 25. | Norman Zipkin EM 3 6728, Davenport St. Father UN 4-1680, 2410 Sheridan |
+
+## B. Business Cards, some of which are as follows:
+
+1. NYCPD 6th Precinct card with notation "Case #6306"
+2. Model Plating Co., Dick Fratello
+3. Michael B. Green Associates - rear of card name - Capt. McDonald 225-5607
+4. Frank Malatesta, Florida Specialists, "Specializing in Florida Moving"
+5. Horseless Carriage Carriers, Inc., Walter Riley, Vice President
+6. Classic Carriage House of Arizona Russ Jackson (602) 946-8393. Brian Jackson (602) 275-6825
+7. Aristocrat Properties Inc., Frank R. White, President, National Press Building, Suite 898, 14th & "F" N.W., Washington, D.C., (202) 244-2125
+8. Tom's Auto Parts & Wrecking, 5601 Foster Avenue, Brooklyn 34, New York RN 3-4131 and CH 1-5760
+9. Benny's Rebel Room, 829 14th Street, N.W., Washington D.C., Keith Snider, Proprietor, (202) 638-1642 and notation Home 280-1348; rear of card notes name Tom Antico, Jr., NYC, (212) SA 7-0183
+10. Marlow Heights Auto Center, J. J. Guttilla
+
+## C. Other Papers:
+
+1. Two tickets to car auction on 07-17-76 at Lake County Fairgrounds, Grayslake, Ill.
+2. Mobil Credit Card #8781221919 (Carrafa)
+3. Washington Shopping Plate 209 261 833 to (Carrafa)
+4. Central Charge Service credit card #20 9261 833 to Carrafa.
+5. Three color slides.
+
+PAGE#

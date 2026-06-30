@@ -1,0 +1,338 @@
+# JFK-Files-Part-2_page_31225.png
+
+Convert to MarkdownSECRET
+
+002270
+
+All (cable) traffic be any ZR/RIFLE to be delivered in small envelopes to Chief FI/Div. D, 15024 Bly only.
+
+- Pudnall, approved of DD Plan!
+
+Harry
+Chief FT /Dmr. D
+
+19 Feb 1962
+
+To Harry re autogun or QATW for ZR RIFLE writer the Dec 1962
+
+Because of sensitive nature of this activity, accounting for funds will be by general category & by your cut-through
+
+2. Sally 1300pm; 750-in addition fully loaded
+
+3. Muni to be censured in lieu of project & constitute autogun for all future per diem; operational & other expense
+
+4. Eyes Only
+
+Red. Helms.
+
+Handwritten notes:
+
+Morgan - Roselli - Mahue - Gannin
+Maichin - lacVigar
+Morgan & Maichin
+
+1) Puerto Margio
+2) Angao to Andal (Boo)
+3) Andal to Littl al
+4) Littl al to Littl 62 (Culver'saste emm)
+5) Littl 62 to SECRET 63
+
+SECRET
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63
+
+SECRET 63

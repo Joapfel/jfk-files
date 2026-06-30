@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_25074.png
+
+Convert to MarkdownTHE CIA IN CUBA:
+CHRONOLOGICAL SUMMARY
+OF CUBAN ALLEGATIONS
+
+(1) Mid-1960, "La Cruz" counterrevolutionary group, Tauler Sague, a "ganster," and Cubria Ramos were infiltrated through Punta Hicacos zone in Matanzas Province for a plot against Castro and other Terrorism and sabotage. TNT, revolvers, and automatic pistols, a high-powered rifle, and large quantities of ammunition were supplied by the CIA.
+
+(2) March, 1961, various counterrevolutionary groups were trained and armed by the CIA, and infiltrated through the north of Havana, to assassinate Castro and support the Bay of Pigs invasion. Humberto Sori Marin and four other individuals were infiltrated to coordinate the activities of various counterrevolutionary groups directed by the CIA inside Cuba. Weaponry included automatic weapons, high-powered rifles with scopes, ammunition, and explosives.
+
+(3) June, 1961, the "Frente Revolucionario Democratico" (FRD) met with individual infiltrated into Cuba with instructions for a plot against Castro. Jeeps with bazookas were placed in a garage at an intersection in Havana and a truck with grenades was placed in sports city. Plan was to ambush Castro and other leaders. Two participants -- Guillermo Caula Ferrer and Higinio Menendez -- said when arrested that the CIA was in charge, and that contact was maintained through Guantánamo and the Swiss Embassy.
+
+In July, 1961, after Bay of Pigs, CIA worked to consolidate counterrevolutionary groups into the "Unidad Resistencia" (United Resistance) organization. Jose Pujals Mederos made an undercover visit to the United States to meet with CIA officers Jim Bender (or Boulding), Harold Bishop and Carl Hitch. There Mederos was appointed head of CIA operations in Cuba in place of the arrested Aldredo Izaguirre. Programs included "selfaggression" against Guantánamo to justify counter-attacks on other countries to provoke war against Cuba.
+
+(4) July 26, 1961, through the infiltration of CIA agents Emilio Adolfo Rivero Caro (Brand), Adolfo Mendoza (Raul) and Jorge Garcia Rubio (Tony), and others, the United Resistance group developed a plot against Castro during the 26th of July celebration in Oriente Province.
+
+(5) July 26, 1961, the same group planned another plot the same day against Castro during a rally at Revolution Square. Meetings were held at the Guantánamo Naval Base, where war material, including large quantities of small arms, was supplied by base commander Captain Carl E. Schenweias.
+
+(6) Also in July, 1961, plotting against Castro was undertaken by representatives of "30 de Noviembre," "Movimiento Revolucionario del Pueblo," and "Frente Revolucionario Democratico." The assassination attempt was to be carried out near the home of Celiz Sanchez Manduley in Vedado. CIA instructions came through contacts abroad with Tony Varona, Manuel Ray and Aureliano Sanchez Arango, and through Admiral Burke and CIA agents on Guantánamo. Weapons included explosives, mortars, high-powered rifles, and 30-caliber machine guns.
+
+(7) September 13, 1961, the same groups listed in (6) above, in contact with the "Movimiento de Recuperación Revolucionaria" (MRR), led by Juan Jose Martore Silva, made an attempt on the life of Dr. Carlos Rafael Rodriguez when he was returning from Matanzas to Havana. They worked with a CIA agent in Matanzas and a counterrevolutionary band there.. Weapons included automatic handguns, machine guns, and a high-powered rifle with telescopic site.
+
+(8) October 4, 1961, the MRR and "Il Frente del Escambray," under CIA direction, agreed upon a plan for sabotage in Havana, timed to coincide with the return of Cuban President Osvaldo Torrado from Punta del Este. A bazooka was to be fired toward the President at the former presidential palace from a nearby apartment building, with the withdrawal covered by launching grenades against the public. Weapons recovered included automatic rifles and grenade launchers.

@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_26431.png
+
+Convert to MarkdownJFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+
+AGENCY : NARA
+
+RECORD NUMBER : 176-10037-10460
+
+RECORD SERIES : National Security Files
+
+AGENCY FILE NUMBER :
+
+ORIGINATOR : CIA
+
+FROM :
+
+TO :
+
+TITLE : Task Force Status Report
+
+DATE : 0/00/1963
+
+PAGES : 1
+
+SUBJECTS :
+
+DOCUMENT TYPE :
+
+CLASSIFICATION :
+
+RESTRICTIONS :
+
+CURRENT STATUS :
+
+DATE OF LAST REVIEW : 9/10/2000
+
+OPENING CRITERIA :
+
+COMMENTS : National Security Files, Box 332 R & S, Southeast Asia Task Force Reports 4/11-6/13/63. Box 6.

@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_25287.png
+
+Convert to MarkdownSurrounded by his soldiers, Castro enters Havana in triumph after ousting the Batista government.
+
+(Continued from page 6)
+
+visitors were allowed on the Castro floor without special permission.
+
+"There's a guy here to see you," the cop reported. "He says he's your uncle."
+
+"Send him up," Frank replied.
+
+The short, pot-bellied man who arrived a few minutes later looked more like a godfather than an uncle. Frank recognized him as 'a member of the Havana gambling mob. Coming straight to the point, the boy offered Frank $100,000 to kill Castro.
+
+"I'm not for hire," Frank said, ending the conversation.
+
+When he returned to Havana a few days later, he reported the offer to his CIA contacts at the American Embassy.
+
+Sturgis had no further contact with the gangster who approached him in New York, but someone in the intelligence hierarchy decided that the CIA and the syndicate should join forces against Castro. The go-between picked for this project reportedly was Norman Rothman.
+
+"Rothman was in touch with several CIA agents," a former agent told The News. "They had many meetings concerning assassination plots against Castro."
+
+Rothman, in turn, discussed the matter with his peers. Among those who took part in these secret parleys, able sources said, were Santo Trafficante of Tampa; Sam Mannarino of Pittsburgh; Salvatore (Sally) Burns; Granello and Charles (Charlie the Blade) Tourne, both of New York, and John (Don Govan) Roselli of Las Vegas.
+
+Granello, a member of the Vito Genovese crime family, had run casinos in Cuba and executed a major bookmaker operation on Manhattan's East Side. Tourne, an associate of New Jersey mob chieftain Ruggero (Richie the Boot) Boardo and Gerardo (Jerry) Castro, also had operated Havana casino
+
+Several large cells were made for Castro's nemesis. One was to send for Gaspar Magaddino, a one-man Murder Inc. who killed more than 50 people in various parts of the world before he was blown away by a shotgun blast in Brooklyn in 1970. A Sicilian Malafuso, Magaddino had lived in South America.
+
+UPI Photo
+
+Deprived of its Havana casinos, U.S. mob joined CIA in series of plots to kill Castro, using everything from poison to dynamite
+
+CIA coup. He knew Havana well and was a perfect choice for the assassination assignment, but he either declined or wasn't offered the contract.
+
+The mob and the CIA finally gave it to Roselli, reputed Machiabali boss of Las Vegas, federal sources said.
+
+A dapper, gray-haired man who calls himself a Hollywood movie producer and is a benevolent patron of Vegas showgirls, Roselli reportedly was intro-
+duced to CIA agents in 1960 by a Howard Hughes executive who formerly worked for the FBI. Then, federal sources said, Roselli agreed to implant a death squad to get to Cuba hunting Castro.
+
+Money from CIA
+
+The CIA was to supply money, weapons, and transportation
+
+Roselli flew to Miami in March, 1961, and held separate conferences with CIA agents and Trafficante on the Castro project.
+
+Roselli volunteered to accompany CIA financed agents to Cuba, the federal sources said. One of these expeditions reportedly landed an execution squad that attempted but failed to hit Castro. On another occasion, the crew of Roselli's launch fought a running gun- fight with a Cuban patrol boat.
+
+Columnist Jack Anderson reported that CIA agents have Roselli some person capers which he passed along to a Cuban who was related to Castro's chief. The chief was to put the poison in Castro's food. The sources interviewed by the News confirmed that at least one attempt was made to poison Castro.
+
+An American who was active in the anti-Castro underground in Cuba at the time said "enough poison to kill to people" was dropped in a glass of malted milk sent to Castro's suite in the Havana Hilton in 1961.
+
+"Castro ordered a chocolate bar every afternoon and the same, was always brought to him," he says. "When the water came in with vomitedilk, he was looking so
+
+you?" The walter said, "I don't know: maybe I got a fever." Castro had him arrested and had the drink analyzed. Chemists found the poison right away."
+
+In early 1961, a more elaborate assassination attempt was directed by a well-financed American who arrived in Havana soon after the Castro takeover and lived there until security police accused him of working for the CIA and plotting to murder Castro.
+
+Working with an: Castro Cuban military officer, the American planted several sticks of dynamite under the garage floor of a 20 story apartment building where a number of Castro adeles and Communist blue diplomats lived with their families.
+
+"Castro came to

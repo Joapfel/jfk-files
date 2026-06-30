@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_25867.png
+
+Convert to MarkdownJOB # 72-B-431
+
+All
+
+# I of 10
+
+3 Committee January-December 1963-
+
+4
+
+3 Committee January-December 1963
+
+Counter-Insurgency July-December 1962
+
+Counter-Insurgency January-June 1962
+
+Special Group CI-1965
+
+Special Group CI-1964
+
+Cirno 1962
+
+Checked generally - nothing relating to Cuba
+
+spot checked.
+
+PROPERTY OF
+THE WHITE HOUSE OFFICE
+
+02302
+
+HW 50955 DocId:32423630 Page 600

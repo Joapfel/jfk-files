@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_31153.png
+
+Convert to Markdownto the 1967 F. B. I. Report, the extrication of Biancana took place during the week of 25 September 1960 - .... L 1967 F.B. Report, p. 38] In contrast, the SSC Interim Report at p. 76, does not provide for Biancina's initial appearance until October 18th (p. 76) because of completing testimony evidence between the 1967 F.B. September date and Maheen's Senate testimony which set the interplay in motion/interlude 1960, to a compromise, The Interim Report reasoned that Biancina had been introduced to the Maheen prior to October 18th because the Las Vegas wiretap recorded M. October 30, 1960; and that DDP Bissell did receive an FMP memo stating 18 October 1960 which revealed an FMP FLAIR quotely testimony as documentary links involvement in an assassination plot against Castro/FMP memo, dated 18 Oct 1960 from Horne & Bissell, Interim Report, p. 395
+
+Comment:
+
+Each of the dual reasons listed on the Interim Report on p. 77 are subject to critical analysis which will be dealt with separately in the below.
+
+0002184
+
+Comment:
+
+Attorney general the 1967 F.B. Report said
+
+SECRET

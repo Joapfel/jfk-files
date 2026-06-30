@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_27374.png
+
+Convert to MarkdownA. Ltr from William A. Snyder, Jr. to Mr. Clapper - Re: E. Howard Hunt, Jr. - 6 May 75
+
+B. Memo from Knoche to Olsen - 12 Mar 75
+
+C. Ltr from Clapper to Mr. Howard St. John Hunt - 25 Apr 75
+
+D. Memo from Clapper to Olsen - Subj: Phone Interview w/James A. Hunt dtd 3 Apr 75.
+
+E. Ltr from Clapper to Hunt - 24 Apr 75
+
+F. Ltr from Clapper to Ms. Lisa Hunt - 10 Mar 75
+
+G. Ltr from E. Howard Hunt to Mrs. Ashmore - 11 Mar 75
+
+H. Affidavit of Mary Trayner
+
+I. Ltr from James A. Hunt to Mr. Clapper - 1 May 75
+
+J. Statement by Kevan T. Hunt for the Rockefeller Commission on CIA Domestic Activities - 11 Mar 75.
+
+Photocopy from
+G R Ford Library

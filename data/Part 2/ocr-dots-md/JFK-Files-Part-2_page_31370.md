@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_31370.png
+
+Convert to Markdown07D18-1
+
+DETAILS
+
+1. On 28 July 1969, SUBJECT Voluntarily appeared at OSI Detachment 710. Eglin AFB, FL and released a previously prepared signed, notarized, undated statement pertinent portions of which are set forth as follows:
+
+My assignment is Assistant to the Commander of the Air Force Armament Laboratory. I am responsible for many staff duties, the following of which bear directly upon my official actions which were taken in connection with the matter being investigated. (These, of course, are known by Colonel Martin). Although SIONICS never has made a sale to the Air Force Armament Laboratory, or been awarded a contract by the lab, they are working on developments related to laboratory requirements and continue to try to come up with attractive proposals. They are welcome to keep working to meet our requirements as are other contractors who naturally try to make sales.
+
+As APSC munitions specialist in SEA for the second tour, during 1969, I was directed officially to work with SIGNICs in the combat theater. The APSC Liaison detachment was requested by its chain-of-command supervisor, Colonel Louis Schaffer, APSC Assistant for Limited War, HQ ASD (ASJ), WPAFB, to afford the SIONICS representative every assistance to include assisting him to get materials in and out of the country (Vietnam), to introduce him to units in the theater to whom he could demonstrate SIGNICs items developed to use in combat, to advise and assist him in obtaining quarters and transportation, and in short, to assist him in every way to perform his mission. The recipient of this direction was Colonel William Pagan, Commander of the APSC Liaison Detachment and my boss in SEB.
+
+The facts in this paragraph are set down only because of the nature of the questions raised by the OSI. First, why did we telephone SIGNICS? To have We have already mentioned the base defense proposal SIGNICS wishes to submit and for which they made advance queries. In addition to this subject, SIONICS called frequently to find out if we had received evaluations through the SEA liaison office of the items placed throughputout the combat theater as previously explained. Many of those were still outstanding when I left Vietnam. We checked to see if any had been received after each call and called back. Sometimes we were out when called and were requested to call back. Also, of course, there were calls about the shipments. Second, what are our personal relations with SIGNICS? APSC liaison office in SEA and for the Armament Lab as herein explained. My actions have been directed and authorized or no special or unusual favors have been done for SIGNICS. I have had only one social contact with Mr. Brown. A few weeks ago, the Browns
+
+Reviewed By AFOSI
+For Public Disclosure
+In Accordance With
+JFKARCA, 1992
+
+14 AUG 95
+
+1443
+
+NW 88613 DocId:34530443 Page 21

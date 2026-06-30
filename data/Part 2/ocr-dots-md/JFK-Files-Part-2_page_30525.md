@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_30525.png
+
+Convert to MarkdownSECRET
+
+2
+
+Info: in PRQI is info. shifted fromotters.
+" " II is info. from person if he is recruited -> they want it separated, to be
+viewed only on "need-to-know" basis.
+
+Standard form for opening 201 file would not contain season; would
+contain ref. to a document which would be the reason.
+
+201 #'s are assigned by a particular office - they are opined in sequential
+numerical order as agreed for purposes of calculations occur.
+
+201 would contain photo if agency has one - if it has been sent in from field.
+If photo is sent in from field or another agency after 201 has been opened,
+it would be added to 201.
+
+Doc. "Review of 201 file on U.S. Person" - Person is categorized
+by a review of the file using specific criteria.
+
+PRQI does not apply a PRQII.
+
+Normally PRQI & PRQII would exist in the same file. If PRQII contains
+primarily op.info., then it would be maintained in separate file,
+to which would be a reference which would be made.
+
+If operational info. is sensitive, the entire 201 would have
+limited access
+
+First name & cryptonym are not maintained on the same file.
+On 201 req. form, there is room for a cryptonym, but it is not
+filed in a true name file.
+
+There is a table of contents list of what is available in 201 file.
+This is compiled from abstract record list in complete system
+
+Green list check : Info. gathered as a result of SIGINT or COMINT.
+K list check : also a separate check, but Clifford doesn't know what it checks.
+
+SECRET
+
+PAGE 2 of 27
+COPY NO. _________

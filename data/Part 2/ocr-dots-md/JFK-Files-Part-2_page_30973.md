@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_30973.png
+
+Convert to MarkdownSECRET
+
+morgan
+
+* cable Oct 5, 1960 reporting that a secret writing system had been provided for issuance to Morgan. "U.S. Army using Morgan despite strenuous HQS recommendations to contrary."
+
+* Background Info
+  Oct 21, 1960 - Morgan's arrest announced.
+
+* Copy of the last written statement made by William Alexander Morgan before his execution.
+
+* extract from a memo of conversation written by the FI Departmental - Coordination Group re Discussion with office of OACS I dated 9 may 1973.
+OACS I said
+Asst Chief Staff Intelligence (U.S.Army)
+the OACS I files were incomplete as to the nature of Army contact/ or we of Morgan. "An ISR check confirmed that Morgan was not registered at any time, but that he was connected in an undefined manner to a registered source of Army."
+
+* Info on Frank Emmick, Gus Kangos, SECRET.

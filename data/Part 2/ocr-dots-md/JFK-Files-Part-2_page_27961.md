@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_27961.png
+
+Convert to Markdown# RESUME
+
+Cecelia Morton
+
+Cecelia T. Morton
+1240 46th Street S.E.
+Washington, D.C. 20019
+(202) 575-2571
+
+Date of Birth: 8-13-49
+No. of Dependents: 1
+
+Marital Status: Married
+
+## Employment Record
+
+April 1972 - Present
+
+Rural Housing Alliance, 1346 Connecticut Ave.
+N. W. Washington, D. C. 20036 (202) 659-1680
+Immediate Supervisor: David Raphael
+Title: Assistant Director
+
+Position: Secretary
+Reason for Leaving: Need new Challenges
+
+## Job Description:
+
+Responsible for assisting Director in carrying out duties pertaining to fund-raising activities and special projects. Interviewing applicants for various secretarial positions. Responsible for review of items published in Federal Register. Prepare summaries of all rules and notices of regulations pertaining to rural issues. Responsible for maintenance of library, publications, and materials, periodic review of system of coding and filing. (Volume approximately 4,000 items)
+
+Also served as Membership and Subscription Secretary which duties included: processing applications for members, day-to-day contact with mailing houses. Maintaining supply of materials for publications. Assisting with the organization of new publications, layout work.
+
+At one time served as Information Director/ Research Secretary, some duties included: preparation and layout work for the monthly newsletter (RHA Reporter) for printers, making travel arrangements, coordinating all local and national newsclippings dealing with housing issues, responding to members inquiries. Typing press releases, speeches, statements, and other correspondence.
+
+(more).

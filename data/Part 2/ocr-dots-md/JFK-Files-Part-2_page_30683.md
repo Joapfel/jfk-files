@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_30683.png
+
+Convert to MarkdownSECRET
+
+When Langelle returned to the United States, she continued working for the State Department. She resumed [his] CIA duties on a part-time basis in 1961. [He dealt with communications between Washington and Moscow.] In September 1961 he resumed [his] CIA duties on a full-time basis at Headquarters. He worked mainly in the Soviet Russia Division, External Operations, Africa and Europe. [She is present at present but he is still with the CIA (and is still paid by the State Department)] but he plans to retire soon.
+
+11112585
+
+SECRET

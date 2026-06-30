@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_27421.png
+
+Convert to MarkdownApril 22, 1975
+
+Mr. E. Henry Knoche
+Central Intelligence Agency
+Washington, D. C.
+
+Dear Mr. Knoche:
+
+The Commission would like copies of the following documents:
+
+**Regulations**
+
+(1) HR-5 Publications
+
+(2) HR-230 Plans, Programs and Projects
+
+(3) HR-1 Organization
+
+(4) HR-18 Training
+
+(5) HR-31 Audit
+
+**Handbooks**
+
+(1) HHB 7-1 Handbook of Required Regulatory Reading
+
+(2) HHB 30-1 Procedures for Financial Administration
+
+**Notices**
+
+(1) HN 7-10 Management Advisory Group (March, 1975)
+
+**Bulletins**
+
+(1) Headquarters Bulletin 337 (December, 1972)
+
+TSH:clb
+(2)
+
+1 - Addressee
+
+1 - Chron
+
+CONFIDENTIAL
+
+Photocopy
+from
+Gerald R. Ford Library
+
+HW 50955 DocID:32105596 Page 252

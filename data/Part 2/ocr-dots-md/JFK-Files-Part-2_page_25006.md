@@ -1,0 +1,72 @@
+# JFK-Files-Part-2_page_25006.png
+
+Convert to MarkdownPhone (Area 202) 544-6000
+
+# TOP SECRET
+
+until that day, and announced both of us at once. So I was
+announced as of the middle of December as the future Secretary
+of the Treasury.
+
+That rather limited my capacity in the State Department.
+But I did continue for two or three more weeks to wind things
+up and make a proper turnover.
+
+And then I resigned from the State Department in January
+and continued that preparation for the new job.
+
+And that is how that happened.
+
+Mr. Baron. So you left the State Department -- you said
+earlier to me on January 2nd or 3rd?
+
+Mr. Dillon. Or 4th or 5th, sometimes in the first four,
+or five or six days. And after that one thing I ought to
+make clear is that President Kennedy had a great interest in
+the authority of the Presidency in foreign policy. And I
+think he was under the impression that Secretary Dulles had
+probably dominated President Eisenhower in some aspects,
+which I don't think was an accurate description of what
+happened at all, but it was a generally held one at that time.
+So he wanted to take over this very much himself. And so he
+put in some new people there.
+
+And we came to be very close, and worked very well
+together. And I had the greatest admiration for him.
+
+He never at that time or later ever asked me anything about
+my experience at the State Department or any foreign policy
+
+TOP SECRET
+
+HW 50955 DocId:32423566 Page 67
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL

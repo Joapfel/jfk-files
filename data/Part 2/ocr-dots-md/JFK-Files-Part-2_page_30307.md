@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_30307.png
+
+Convert to Markdown1. Mr. Nosenko. "On the basis of Nosenko's evaluation of Oswald, he instructed Krupnov to advise Oswald through the Intourist interpreter Oswald would not be permitted to remain in the U.S.S.R. permanently and that he would have to depart at the expiration of his visa, and thereafter seek reentry as a permanent resident through routine channels at the Soviet Embassy in the United States."
+
+8. Mr. Klein. Did you ever say that?
+
+9. Mr. Nosenko. I do not remember saying this. It can be that simply misunderstanding, and, you see, this is not transcription from the tape. It is, I will say a summary, and I do not remember. But, if I said this, it is not right because Krupnov didn't participate it in the beginning.
+
+14. Mr. Klein. Also it says —
+
+15. Mr. Nosenko. It was participation of Rastrusin.
+
+16. Mr. Klein. Also is it correct when it says in there that you made the decision and –
+
+17. Mr. Nosenko. No, I couldn't make decision, being Deputy Chief of Section.
+
+20. Mr. Klein. Does it say anything there --
+
+21. Mr. Nosenko. I could say my opinion, yes.
+
+22. Mr. Klein. Does it say anything there about a meeting to determine what to do, or does it say that on basis of your evaluation, you told Krupnov to do it?
+
+23.
+
+24. Mr. Nosenko. It's not right. I said only that Krupnov
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 49

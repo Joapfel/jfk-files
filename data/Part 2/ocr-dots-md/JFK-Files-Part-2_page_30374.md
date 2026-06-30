@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_30374.png
+
+Convert to MarkdownThe Chairman. You are excused.
+
+At this time, there being no further business to come
+before the Committee, the meeting is adjourned subject to the
+call of the Chair.
+
+(Whereupon, at 10:17 o'clock p.m., the Committee was
+adjourned subject to the call of the Chair.)
+
+TOP SECRET
+
+ALDERSON REPORTING COMPANY, INC.
+
+HW 50955 DocId:32277209 Page 116

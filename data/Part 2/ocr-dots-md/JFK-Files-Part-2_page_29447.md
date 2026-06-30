@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_29447.png
+
+Convert to Markdown# Classification: TOP SECRET
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+According to my recollection, I myself, have made a transcript, an English transcript, of Lee Oswald talking to the Russian Consulate or whoever he was at that time, asking for financial aid.
+
+Now, that particular transcript does not appear here and whatever happened to it, I do not know, but it was a lengthy transcript and I personally did that transcript. It was a lengthy conversation between him and someone at the Russian Embassy.327/
+
+Ms. Tarasoff testified that the transcript that she remembered was approximately two pages long.328/ She testified that the caller identified himself as Lee Oswald.329/ She was certain that the 10/1/63, 10:45 a.m. conversation was not the one that she recalled.
+
+No. This would not be the conversation that I would be recalling for the simple reason that this is my husband's work and at that time probably the name didn't mean much of anything. But this particular piece of work that I am talking about is something that came in and it was marked as urgent.330/
+
+In the call that Ms. Tarasoff recalled, Oswald spoke only English.331/ Ms. Tarasoff testified that the 10/1/63, 10:45 conversation could not be the call she remembered because the transcript indicates that Oswald spoke in borken Russian as opposed to English; the transcript is shorter than the one she remembers; the transcript is in her husband's style as opposed
+
+Classification:
+
+199
+
+Classified by derivation:
+
+NW 48327 DocId:32263889 Page 95

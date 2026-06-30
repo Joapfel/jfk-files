@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_31774.png
+
+Convert to MarkdownSF 100-46832
+WEH/dp
+
+Both CARL OGLESBY and ROBERT SCHEER were present.
+The time was spent generally in questioning OGLESBY and SCHEER
+by youths of the New Left who were attempting to find
+themselves. There were about 50 persons present at this
+meeting including at least three CP members.
+
+SF T-90, 10/11/67
+
+# Television, October 11, 1967
+
+ROBERT SCHEER was introduced as Editor of Ramparts
+and as spokesman for the New Left when he appeared as a guest
+on the LES CRANE Show on television station KTTV, Channel 11,
+Los Angeles, California, on October 11, 1967. SCHEER stated
+on this program that due to electoral procedure it would be
+impossible to place a candidate on the ballot - that the
+industralist and monied interests controlled the ballot system.
+SCHEER said "we" had no money and because of time and other
+factors, it would be impossible to obtain the thousands of
+names to place an eligible candidate on the ballot. He added
+"we" would have to take over the polls. He claimed that in
+order to make necessary changes in the present political
+structures "we" would have to "take over" the estabishment
+in Washington.
+
+SF T-91, 10/13/67
+
+November 20, 1967
+
+"The Fairfield Republican" newspaper published
+at Fairfield, California, in its issue of November 21,
+1967, carried an article headlined, "Leftist Calls U.S.
+'Bought Out Society' in J. C. Talk." This article stated
+that ROBERT SCHEER, editor of Ramparts magazine, spoke
+November 20, 1967, at the Solano College Gymnasium and
+delivered a blistering attack on what he termed the
+'bought off society." He decried what he termed an
+"exploitive corrupt war economy fostered by a profiteering
+business community."
+
+SECRET
+1338
+
+Copy of 3 Copies
+Page of 96 Pages
+
+NWO 88613
+DocID:34517445 Page 97

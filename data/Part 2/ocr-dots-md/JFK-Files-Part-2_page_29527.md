@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_29527.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+October. An examination of the documents does not clarify
+this question but rather adds confusion to the issue.
+
+Several documents and cables deal with the tapes and
+a voice comparison of the recorded conversations. In
+Oswald's "P" file there is a newspaper clipping of an
+article from the 21 October 1964 Washington Post. The
+article, by Robert S. Allen and Paul Scott, is entitled
+"CIA Withheld Vital Intelligence from Warren Commission."
+
+One paragraph from that article says:
+
+The investigators also are trying to determine
+why the CIA in its preassassination report to
+the State Department on Oswald's trip to Mexico
+City gave details only of the defector's visit
+to the Russian Embassy and not the Cuban Embassy.
+The CIA did not report the latter visit until after
+Kennedy's assassination in Dallas.
+
+Next to that paragraph Ann Goodpasture wrote:
+
+The caller from the Cuban Embassy was unidenti-
+fied until HQ sent traces on Oswald and voices
+compared by (Tarasoff). 617/
+
+That statement is very clear in saying that a voice
+comparison was made. The cable traffic that went from
+Mexico to CIA Headquarters after the assassination is
+not so clear.
+
+Classification:
+---
+
+Classified by derivation:

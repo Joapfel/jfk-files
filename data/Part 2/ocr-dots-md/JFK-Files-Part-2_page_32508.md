@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_32508.png
+
+Convert to Markdown**SECRET**
+
+-5-
+
+Indicated his intention to inquire further and to keep us advised. London reported that neither the Cubans nor the British Gurane Governments had raised the issue of landing rights with R.M.O.
+
+a. Urged the governments of Mexico, Canada, Jamaica and the Netherlands to refuse to assist the Cuban government in its efforts to find a short route for return of the 30 American students who illegally travelled to Cuba. Also informed Pan American Airways that we were opposed to a Cuban request for a PAA charter flight to fly the students from Habana to New York.
+
+1. Instructed our missions at Port of Spain and Barbados on several occasions to approach these governments to express the concern of the U.S. at indications of Cuban interest in the use of their aviation facilities.
+
+Embassy Port of Spain discussed with the Foreign Secretary of Trinidad various legal moves available that would enable CITT to control movements of aircraft within their territory, citing examples of such controls instituted by Mexico, Canada and Ireland. He indicated receptiveness to the proposal that the list of suggestions be made available to the aviation officials concerned.
+
+j. During a previous reporting period Embassy Santiago
+
+HW 50955 DocId:32424006 Page 6

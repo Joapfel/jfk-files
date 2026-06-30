@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_26270.png
+
+Convert to MarkdownSECRET
+
+CENTRAL INTELLIGENCE AGENCY
+
+WASHINGTON 25, D. C.
+
+EYES ONLY
+
+11 April 1963
+
+MEMORANDUM FOR: The Director of Central Intelligence
+
+SUBJECT: Activities of Cuban-Trained Peruvian Guerrillas
+
+1. The information in this memorandum comes from an extremely sensitive source who is currently a member of a group of Cuban-trained Peruvian guerrillas. No other dissemination has been made of the reports he has provided, in order to protect him and to insure that a channel is kept open to him. The information is being forwarded in this restricted manner at this time to furnish an insight into the extent of Cuban efforts to assist Latin American revolutionary movements. The Agency directed asset is working inside a network which is now assisting Cuban-trained Latin Americans to re-enter their own countries illegally, and to join with leftist revolutionary groups to overthrow the established governments.
+
+2. The Agency asset was a member of a group of more than 70 Peruvians trained in Cuba from June until December 1962. His contingent traveled in small groups by way of Mexico. He received his first special assignment when he was appointed to stay behind in Mexico temporarily and to act as a clandestine contact with a Cuban Embassy official there. The Cuban gave him instructions and funds, and he directed the later groups which transited Mexico.
+
+3. The Peruvian group was ostensibly in Cuba only to attend the July celebrations. According to our agent, some of the members themselves did not know in advance they were to be given training. The Cubans set the Peruvians up as self-contained units in secret training sites in Habana, where they were given political indoctrination and weapons. Later they were moved to rural hill areas for guerrilla training. The agent has described in detail these secret training sites, giving address of the houses and the locations of the guerrilla areas.
+
+4. The agent was removed from his group for several weeks to undergo special training in secret communications techniques, in preparation for his current assignment.
+
+5. At present, the agent acts as coordinator, helping the Peruvians to return illegally to Peru. He is in correspondence with
+
+SECRET

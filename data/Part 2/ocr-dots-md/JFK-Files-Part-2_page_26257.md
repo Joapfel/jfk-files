@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_26257.png
+
+Convert to MarkdownSECRET
+
+against him. If, however, his windfall is taken from him, it is the firm opinion of this Division that a violent reaction on his part will shortly thereafter be felt which will end either with the liquidation of Trujillo and his cohorts or with a complete roll-up of the internal opposition. While the organization of delivery capabilities described elsewhere in this memorandum is proceeding according to schedule, it is now feared that these capabilities will not be ready for use until the appropriate time, i.e., prior to 1 April, has passed and until there may no longer exist internal assets with which to deal. WH Division, therefore, recommends that consideration: be given to the immediate use of sea capabilities now employed by WH/4 to cache the requested arms and other material on land areas contiguous to the Dominican coast from whence, as informed FCR elements claim they can do, infiltration of the arms can be carried out by members of the internal FCR by the use of fishing vessels.

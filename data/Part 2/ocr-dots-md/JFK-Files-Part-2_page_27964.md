@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_27964.png
+
+Convert to MarkdownJACK BROOKS, TEX., CHAIRMAN
+ROBERT N. GIAIMO, CONN.
+JAMES G. O'HARA, MICH.
+JAMES C. CLEVELAND, N.H.
+JOHN M. ASHBROOK, OHIO
+
+**Congress of the United States**
+**JOINT COMMITTEE ON CONGRESSIONAL OPERATIONS**
+**OFFICE OF PLACEMENT AND OFFICE MANAGEMENT**
+
+WASHINGTON, D.C. 20515
+
+LEE METCALF, MONT.,
+VICE CHAIRMAN
+MIKE GRAVEL, ALASKA
+LAWTON CHILES, FLA.
+JESSE A. HELMS, N.C.
+PETE V. DOMENICI, N. MEX.
+
+MAY 9 1977
+
+Date 5/6/77
+
+Listed below is the result of a test administered by the Placement Office to Cecelia Morton on Friday, May 6, 1977,
+
+Typing:
+
+76 wpm on a 5-minute test (81 wpm with 5 errors)
+
+Anne Wilander
+Placement Officer
+
+NW 88326
+DocId:32239497 Page 14

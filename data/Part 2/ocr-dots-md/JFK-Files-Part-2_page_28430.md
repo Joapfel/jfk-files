@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_28430.png
+
+Convert to Markdown333 East 23rd Street
+Apartment #2B
+New York, New York 10010
+
+October 12, 1976
+
+212-689-1272 (Home telephone)
+212-466-1250 (Business telephone)
+
+Richard Sprague, Esq.
+1622 Locust Street
+Philadelphia, Pa. 19103
+
+Dear Mr. Sprague:
+
+Thank you for calling me about a position as your deputy on the staff of the Select Committee on Assassinations. I anticipate that I will find the Committee's work interesting and challenging.
+
+I have prepared and enclosed a resume for your consideration. I believe that you will find that I am well qualified for the position by virtue of my background and experience.
+
+I look forward to meeting you personally to further discuss the position and work of the Committee.
+
+Enclosure

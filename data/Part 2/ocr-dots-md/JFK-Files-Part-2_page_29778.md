@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_29778.png
+
+Convert to MarkdownMEMORANDUM
+
+8/5/77
+
+TO: JH, KK
+FROM: PMO
+RE: CIA Station in Mexico City
+
+Attached find a list of individuals known to have been connected with the CIA station in Mexico City during Lee Harvey Oswald's visit.
+
+This information has been gleaned mainly from the executive session testimony of David Phillips, ex-CIA agent who had been in charge of Cuban Affairs for the CIA in Mexico City. Other information comes from staff interviews with a witness, Boris Tarasoff, formerly with the intercept unit of the CIA station.
+
+It has been suggested that E. Howard Hunt may have been involved in CIA activities in Mexico City and specifically with the visit of Lee Harvey Oswald. Many critics cite the fact that the CIA Station Chief has never been identified publicly as a basis for speculation that Hunt possibly held that position. This, however, would conflict with information from Phillips that the Station Chief was named Winston Scott, now deceased.
+
+This does not preclude the possibility that Hunt held

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_29932.png
+
+Convert to Markdown# KENNEDY
+
+## OUTSIDE CONTACT REPORT
+
+DATE: 11/25/77 TIME:
+
+### I. Identifying Information:
+
+Name: Mr. William Foster
+Telephone:
+Address: Federal Probation Office, Northern District, Ill.
+
+Type of Contact: X Telephone
+Person
+
+### II. Summary of Contact:
+
+In re: Former SS Agent Abraham Bolden DOB 1/19/35; Social Security No. 330-28-2266. A trace of Abraham Bolden's prison record was developed from a newspaper article found in the LBJ Library which mentioned initial incarceration in Springfield, Mo. Mr. Bolden was transferred from Springfield to Maxwell Field Federal Prison Camp (Montgomery, Alabama) and was placed on parole in September of 1959. Maxwell retained no records except for an indication that at some time Bolden stated that he had had "a residence in Chicago." This lead suggested that an inquiry be made to the Federal Probation service for the Chicago area.
+
+Coincidentally, Mr. Foster was the probation officer who personally supervised Mr. Bolden while Bolden was on probation.
+(cont.)
+
+### III. Recommended Follow-up (if any):

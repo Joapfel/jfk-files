@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_26038.png
+
+Convert to Markdownbrother, and he was doing it by trying to get the goods on everybody working for his brother throughout, the government and anybody opposed to his brother and the intelligence people, picking it up, discovered that if they brought in bad news about some guy that the brother didn't like, he'd pay them and believe it. So I'm sure that there was a lot of manufactured evidence in the intelligence take that was coming in and I don't think the Americans were screening any of that type of information because it went right into the palace, and there was a big room behind the president's office that had many files and was the main personnel dossier type of file place.
+
+O'BRIEN: Well, you're critical of the MAAG [Military Assistance Advisory Group] operation there. What's wrong with it, in the late fifties? A
+
+LANSDALE: Well, I felt that MAAG under "hanging" Sam [[Samuel T.] Williams in the late fifties was a

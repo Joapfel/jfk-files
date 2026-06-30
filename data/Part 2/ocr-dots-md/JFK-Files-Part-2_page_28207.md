@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_28207.png
+
+to the Exec. Dir. and worked with him in all phases of the operation. Worked as liaison with Executive and Legislative branches of government for other groups interested in educational funding (public schools, universities, libraries, handicapped, etc.) to coordinate an effort for full funding of education programs on a Federal level. Initiated legislative communications (phone & letter) to inform members and association executives of pending bills. Attended hearings and meetings, reviewed and analyzed Congressional Records and Federal Registers, and managed the financial records of the Committee. Collected and organized bills, reports, and background materials on pending education appropriations and budget legislation. (1975)

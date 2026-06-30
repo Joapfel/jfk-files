@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_29240.png
+
+Convert to Markdown<table><thead><tr><td>DATE COMPLETED:</td></tr></thead><tbody><tr><td>APPROX MARCH 1962</td></tr><tr><td>05 MARCH 1965</td></tr><tr><td>FILE #1313-1C</td></tr><tr><td>APPROX JUNE 1965</td></tr><tr><td>APPROX JUNE 1970</td></tr></tbody></table>
+
+**ITEM #13 "SECURITY CLEARANCES HELD"**
+
+| **ORGANIZATION:** | **DEPT:** | **CLEARANCE:** |
+| :--- | :--- | :--- |
+| U.S.ARMY | ARMY | T.S. CRYPTO |
+| DIO NDW | NAVY | T.S. S.I. |
+
+INVESTIGATIVE AGENCY: CLC DIO NDW
+
+NIPSSA NAVY T.S. S.I. BELIEVED TO BE N.I.S.
+
+NIPSSA/NOSIC NAVY T.S. S.I. BELIEVED TO BE N.I.S.
+(UPDATE)
+
+**ITEM #10 (wife's step-brother)**
+
+**NAME**
+Thomas Howard Speer
+
+DOB/POB
+25 October 1933
+Omaha, Texas.
+
+PRESENT ADDRESS
+403 Hornel Avenue
+Baltimore, 24, Maryland.
+21224
+
+U.S. CITIZEN
+"YES"
+
+**ITEM #14 "CREDIT REFERENCES"**
+
+VIRGINIA MORTGAGE AND INVESTMENT CO INC...ACCOUNT NUMBER 0143270
+VIRGINIA NATIONAL BANK................ACCOUNT NUMBER 1001578
+
+I CERTIFY THAT THE ENTRIES MADE BY ME ABOVE ARE TRUE COMPLETE, AND CORRECT TO THE BEST OF MY KNOWLEDGE AND BELIEF AND ARE MADE IN GOOD FAITH. I UNDERSTAND THAT A KNOWING AND WILLFUL FALSE STATEMENT ON THIS FORM CAN BE PUNISHED BY FINE OR IMPRISONMENT OR BOTH (See U. S. Code, title 18, section 1301).
+
+THIS SECTION TO BE COMPLETED BY AUTHORITY REQUESTING INVESTIGATION
+
+**NOTE:** DESCRIPTION OF DUTY ASSIGNMENT AND DEGREE OF CLASSIFIED MATTER (top secret, secret, etc.) TO WHICH APPLICANT WILL REQUIRE ACCESS
+
+RECORD OF PRIOR CLEARANCES
+
+<table><thead><tr><td>CITY OF CURRENT ADDRESS</td><td>PRIOR CLEARANCE</td><td>GROUP THAT CONTRIBUTED INFORMATION</td></tr></thead><tbody><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>

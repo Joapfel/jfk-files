@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_32371.png
+
+Convert to MarkdownSECRET
+
+10 APR 1962
+
+CUBA PROJECT PROGRESS REPORT
+
+4 - 11 April 1962
+
+OPERATIONAL
+
+1. An internal leader of the Movimiento Recuperacion Revolucionario (MRR) who was infiltrated into Cuba on 29 December 1961, and exfiltrated on 29 March 1962, said at a debriefing on 7 April that he considers only five clandestine resistance organizations in Cuba of national importance: The Directorio Revolucionario Estudiantil (DRE), Movimiento Democratisado Cristiano (MDC), Movimiento Revolucionario del Pueblo (MRP), Movimiento Recuperacion Revolucionario (MRE), and the 30th of November unit. Only these groups have the necessary motivation and discipline to establish coordination among themselves. There are a large number of other underground revolutionary units which claim to be of national importance but which have no more than two or three dozen men at most and can be found only in the area where they were established. Most of the small organizations, appear to have been established by self-named leaders for personal reasons, financial gain through the sale of "bonds," or for future political opportunity when Fidel Castro is overthrown. Although the small groups are relatively inactive, their claims to importance have attracted numerous dissidents who could be more useful if they were members of the few larger and more effective organizations. Because
+
+SECRET
+
+Fidel Castro

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_27024.png
+
+Convert to MarkdownJune 26, 1975
+
+10. Have governmental officials outside the CIA sought and obtained the CIA's assistance for political purposes or personal advantage? To what extent have private organizations or individuals enjoyed special treatment or influence because of their involvement with CIA activities or their knowledge of such activities? What measures have been or should be taken to ensure that the CIA is not misused in such ways?
+
+11. What have been the procedures and mechanisms within the CIA for initiating, reviewing, reporting, and controlling CIA intelligence or counterintelligence activities within the U. S. or directed at U. S. citizens abroad? How might these procedures be improved? What are the procedures and mechanisms external to the CIA for oversight of the CIA's intelligence and counterintelligence activities within the U. S. or directed at U. S. citizens abroad? How might these mechanisms and procedures be improved?
+
+The annexed notifications set forth requests for additional documents and the names of persons the Committee presently desires to interview. In some cases the occupant of a position is not known to the Committee and the Committee requests that the CIA provide the name of the individual. In any case, where the individual is no longer with the Agency, the Committee requests that the CIA provide the individual's last known address. Finally, the notifications indicate the names of the staff members who, in addition to the Committee's senior staff, will be working in these areas.
+
+The Committee, in the course of the next few months, will undertake other subjects for investigation as its work proceeds and will notify you as appropriate.
+
+We look forward to your cooperation in these matters.

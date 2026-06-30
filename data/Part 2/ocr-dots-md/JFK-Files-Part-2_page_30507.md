@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_30507.png
+
+Convert to MarkdownIndex - Star - ref. #s -> documents or files
+1/3M -> 201 or operational activities file
+
+name grouping used for storage &
+retrieval
+
+name-grouping tables
+
+- alphabetical
+
+- names from DPO correspondence according
+  criteria. terrorists KGB etc.
+
+matrinymic search
+
+ pseud, - office assigns
+   manual file

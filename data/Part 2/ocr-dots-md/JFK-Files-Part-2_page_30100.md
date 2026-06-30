@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_30100.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10125-10172
+RECORD SERIES : SECURITY VIOLATION CASE FILE
+AGENCY FILE NUMBER :
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM :
+TO :
+TITLE :
+DATE : 07/00/1978
+PAGES : 100
+SUBJECTS :
+PHOTOGRAPHS AND FILM
+KENNEDY, JOHN, AUTOPSY
+BLAHUT, REGIS
+HSCA, ADMINISTRATION
+CIA, STAFF
+HSCA, FILES
+DOCUMENT TYPE : REPORT
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Consulted
+CURRENT STATUS : Withhold
+DATE OF LAST REVIEW : 08/20/1993
+OPENING CRITERIA :
+COMMENTS : Box 1.
+
+<table>
+   <tr>
+    <td>Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#:NW 88326 Date: 2025</td>
+   </tr>
+  </table>
+
+v9.1
+
+WW 88326 DocId:32269709 Page 1

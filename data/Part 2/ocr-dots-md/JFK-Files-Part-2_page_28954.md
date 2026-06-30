@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_28954.png
+
+Convert to MarkdownREPORT OF CONTACT
+(USE INK OR TYPEWRITER)
+
+OFFICE:
+DATE:
+A/N
+
+CONTACT MADE:
+
+IN PERSON ☐ TELEPHONE ☐
+
+PLACE OF CONTACT:
+
+Since there were several million witnesses to the shooting which resulted in Lee H. Oswald's death, we feel it is not necessary to obtain a statement from authorities showing Mrs. Oswald was not involved.
+
+CONTACT MADE BY
+
+(SIGNATURE)
+
+(TITLE)
+
+(FOR CONTINUATION OF THIS REPORT, TURN PAGE. KEEP MARGINAL SPACE AT RIGHT FOR BINDING)

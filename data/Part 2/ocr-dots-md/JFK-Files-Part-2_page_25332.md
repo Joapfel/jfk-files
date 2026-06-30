@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_25332.png
+
+Convert to MarkdownATTORNEY GENERAL LEVI
+RE: RAPHAEL GENER
+
+October 26, 1976
+
+IN REPLY PLEASE REFER TO #R 5080
+
+Honorable Edward H. Levi
+Attorney General of the
+United States
+Department of Justice
+Washington, D. C.
+
+Dear Attorney General Levi:
+
+As you know, the Intelligence Committee has taken testimony with regard to John Rosselli and the assassination plots directed against Fidel Castro. As part of the Committee's inquiry in this area, testimony has been received regarding an individual by the name of Raphael Gener. Committee staff have participated in a review of this testimony with representatives of the Federal Bureau of Investigation. We are requesting that, upon the completion of this review of testimony, the Committee be provided access to all FBI materials relating to Mr. Gener.
+
+We are hopeful that Committee staff and your representatives will be able to work out access to the appropriate files and materials in the same manner as we have in the past. We continue to appreciate your assistance in these matters.
+
+Aloha,
+
+Daniel K. Inouye
+Chairman
+
+Howard H. Baker, Jr.
+Vice Chairman
+
+MJM:mlh

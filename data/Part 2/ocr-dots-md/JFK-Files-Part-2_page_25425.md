@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_25425.png
+
+Convert to MarkdownBook V, p. 25 On November 23, 1963, the CIA Headquarters asked the Mexico Station to stop the planned arrest of Sylvia Duran. Karamessinis speculated that this was because CIA feared Cuba responsible for assassination.
+
+p. 29 Headquarters equally concerned with Duran on November 27 and warned Mexico City station chief that U.S. Ambassador pushing Cuban theory too hard.

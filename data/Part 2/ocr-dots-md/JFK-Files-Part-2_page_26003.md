@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_26003.png
+
+Convert to Markdownhaving quite a bit of an advisory role with
+
+our military commanders out there, and influence
+
+with them, was fighting another Korea in Vietnam
+
+more or less. There were some changes in tactics,
+
+but it was more use of helicopters just for vertical envelopment attack instead of
+
+moving guys along the ground to start with the thing.
+
+O'BRIEN: Why don't they come to an understanding? [barking]
+
+LANSDALE: I'm sure that's going to make a good-broadcast for you, a good-tape. .
+
+O'BRIEN: A diversion at least.
+
+LANSDALE: I'm completely baffled by that. I just don't know.
+
+O'BRIEN: Don't they read?
+
+LANSDALE: They speak the words, and particularly when they were talking with President Kennedy, they picked up the words and enthusiasm and responded, but would show by what they did that they didn't understand what they were saying. It's something that, of course, I have been trying to

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32722.png
+
+Convert to MarkdownChairman Khrushchev sent a copy of this message to U Thant "to enable you to familiarize yourself with our position, which we regard as exhaustive and which will help you to discharge your noble functions." At the same time, he informed the United States and the United Nations, that in connection with the negotiations U Thant was conducting with representatives of the USSR, the United States, and Cuba, the Soviet Government was sending First Deputy Foreign Minister V. V. Kuznetsov to New York to help U Thant in his "noble efforts aimed at eliminating the present dangerous situation."
+
+President Kennedy replied at once to the broadcast message of October 28 even before the official text reached him, and welcomed it as "an important contribution to peace." The operative paragraph read:
+
+"The distinguished efforts of Acting Secretary-General U Thant have greatly facilitated both our tasks. I consider my letter to you of October 27 and your reply of today as firm undertakings on the part of both our governments which should be promptly carried out. I hope that the necessary measures can at once be taken through the United Nations as your message says, so that the United States in turn can remove the quarantine measures now in effect. I have already made arrangements to report all these matters to the Organization of American States, whose members share a deep interest in a genuine peace in the Caribbean area."
+
+"I agree with you," the President concluded, "that we must devote urgent attention to the problem of disarmament...I think we should give priority to questions relating to the proliferation of nuclear weapons, on earth and in outer space, and to the great effort for a
+
+/nuclear test ban."

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_29442.png
+
+Convert to MarkdownClassification: TOP SECRET
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+c. October 1, 1963, Tuesday
+
+(1) At 10:31 a.m. an unidentified man called the Soviet Military Attache and, in broken Russian, said that he had visited the Consulate the previous Saturday and had spoken to the Consul. The man wanted to know if the Soviets had received an answer from Washington. At that point, the Soviet official gave the man the Consulate phone number and asked him to call there. This conversation is in the English transcripts, indicating the man spoke in either Russian or English.
+
+(2) At 10:45 a.m., a man who, according to the translator's comment, had phoned a day or so before and had spoken in broken Russian, called the Consulate and spoke to an employee named Obyedkov. The man calling introduced himself as "Lee Oswald" and stated that he visited the Soviet Consulate the previous Saturday. He told Obyedkov that he spoke with the Consul on that day. Oswald added that the Consul had stated that they would send a telegram to Washington and he wanted to know if they
+
+Classification:
+
+Classified by derivation:
+
+194
+
+NW 48327 DocId:32263889 Page 90

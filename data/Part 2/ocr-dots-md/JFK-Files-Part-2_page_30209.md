@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_30209.png
+
+, Hav Smith, met with Blakey and Cornwell after they
+
+* Polgraph showed no deception on
+1) didn't copy
+2) ended nothing else
+3) didn't talk to media
+
+* sent on mission"

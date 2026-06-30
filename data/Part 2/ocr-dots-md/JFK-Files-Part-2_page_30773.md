@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_30773.png
+
+Convert to MarkdownMr. Patrick Carpentier
+
+March 8, 1978
+Page 6
+
+49) WILLIAM H. SHELLEY - Date of birth: 7/19/25. 1964 address: 126 South Tatum Street, Dallas, Texas.
+Social Security #: 302-16-6801. FBI #: 852 354 6.
+
+50) RICHARD M. SIMS - Born in Dallas. Last known employment: Dallas Police Department Detective (joined in August 1948).
+
+51) L. C. SMITH - Last known employment: Dallas County Deputy Sheriff.
+
+52) RICHARD S. STOVALL - Date of birth: 1928. 1964 address: 3211 Grayson Drive, Dallas, Texas. Last known employment: Dallas Police Department/Detective/Homicide.
+
+53) ROBERT LEE STUDEBAKER - Born in Niles, Michigan. Last known employment: Dallas Police Department/Crime Scene Search (joined February 1954).
+
+54) ALLAN SWEATT - Chief Criminal Deputy/Dallas County Sheriff's office.
+
+55) ROY SANSOM TRULY - Approximate date of birth: 1908, in Hubbard, Texas. 1964 address: 4932 Jade Drive, Dallas, Texas.
+
+56) F. M. TURNER - Approximate date of birth: 1929 in Murphy, Texas. Lived in Garland, Texas with family in 1964. Last known employment: Dallas Police Department Detective
+
+57) WILLIAM J. WALDMAN - Date of birth 11/16/12. 1964 address: 335 Central Avenue, Wilmette, Illinois.
+Last known employment: Vice President, Klein's Sporting Goods, Inc.
+
+58) EDDIE RAYMOND ("Buddy") WALTHERS - Date of birth: 7/17/28. 1964 address: 2527 Boyd Street, Dallas, Texas. Last known employment: Dallas County Deputy Sheriff.
+
+59) RALPH WALTERS - Last known employment: Dallas County Deputy Sheriff.

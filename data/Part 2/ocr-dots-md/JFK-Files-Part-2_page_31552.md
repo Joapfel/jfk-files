@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_31552.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mfm
+
+JOHN CLIFFORD NORDEEN, 9125 Marmora Avenue, Morton Grove, Illinois, a self-described friend of JOHN PETER SELTZ, has informed that SELTZ served under one ALEJANDRO MARTINEZ, leader of an anti-Somoza Nicaraguan revolutionary group on the Honduras-Nicaragua border during May and June, 1960.
+
+STEPHEN SMALE,
+also known as
+Steve Smale
+
+SF T-11 in February, 1952 identified STEVE SMALE as a member of the Labor Youth League (LYL) at the University of Michigan, Ann Arbor, Michigan.
+
+The LYL has been designated by the Attorney General of the United States pursuant to Executive Order 10450.
+
+The LYL became defunct in February, 1957.
+
+SF T-12 in January, 1961, identified SMALE as Faculty Adviser of the Students Committee FPCC at UCB.
+
+STEPHEN SMALE is a UCB Mathematics Professor.
+
+JOHN WINDRIM SMITH, JR.,
+also known as
+Windy Smith
+
+SF T-13 reported on November 15, 1963 and March 27, 1964, that JOHN WINDRIM SMITH, JR. was a member of the Southern California District Communist Party (CP).
+
+SF T-14 reported on February 25, 1966, that WINDY SMITH was a transfer to the Marin County, California CP Club; however, he had not attended any meetings of the club.

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_27147.png
+
+Convert to MarkdownSECRET SENSITIVE
+
+8. That CIA counterintelligence liaison abroad be improved through a judicious augmentation of exchange of counterintelligence information, including penetration leads, by augmentation of U.S. capacity for leadership in dealing with the common adversary, and the expansion of the cadre of counterintelligence liaison officers abroad.
+
+9. That CIA undertake a more vigorous program to obtain further data about the intelligence and counterintelligence services of China, Cuba and Eastern Europe, so that our knowledge of them becomes fully comparable with our knowledge of the Soviet services, and that these increased holdings be placed in machine records as rapidly as their size warrants.
+
+10. That the U.S., and especially the FBI and the CIA, intensify countering intelligence work against Soviet and other illegals.
+
+11. That within the expanded counterintelligence unit in CIA headquarters a defector section be created and that this section be responsible for supervising the operational handling and continuing debriefing of designated defectors, both abroad and in the U.S.,
+
+36
+
+SECRET SERVICE
+
+Photocopy
+from
+Gerald R. Ford Library
+
+NW 50955 DocId:32112721 Page 37

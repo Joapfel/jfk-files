@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_29003.png
+
+Convert to Markdown**PART II Sales or Exchanges of Property Used in Trade or Business and/or Involuntary Conversions**
+(Section 18181-82) see Instruction E
+
+### Section A - INVOLUNTARY CONVERSIONS DUE TO CASUALTY AND THEFT
+
+<table><thead><tr><th>a. Kind of property (if necessary, attach statement of descriptive details not shown below)</th><th>b. Date acquired (mo., day, yr.)</th><th>c. Date sold (mo., day, yr.)</th><th>d. Gross sales price</th><th>e. Depreciation allowed (or allowable) since acquisition</th><th>f. Cost or other basis, cost of subsequent improvements (if not purchased, attach explanation) and expense of sale</th><th>g. Gain (or loss) (d. plus e. less f.)</th></tr></thead><tbody><tr><td>15.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>16. Combine the amounts on line 15, enter here and also on the appropriate line as follows<br>(a) For all returns, except partnership returns: (1) If line 16 is zero or a gain, enter amount of each gain or loss, above, in column (g) of applicable Section B-1, B-2 or B-3; (2) If line 16 is a loss, enter such amount on line 25 of Part III.<br>(b) For partnership returns: Enter gain(s) and loss(es) in Schedule K (Form 565). See Instruction E.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+### Section B — SALES OR EXCHANGES OF PROPERTY USED IN TRADE OR BUSINESS AND CERTAIN INVOLUNTARY CONVERSIONS
+(Not Reportable in Section A)
+
+<table><tbody><tr><td colspan="7">Section B-1 Property Held One Year or Less</td></tr><tr><td>17.</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>18. Combine the amounts on line 17, enter here . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

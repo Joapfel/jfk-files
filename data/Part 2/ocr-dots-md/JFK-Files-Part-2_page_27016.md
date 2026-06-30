@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_27016.png
+
+Convert to MarkdownPHOTOCOPY FROM THE GERALD R. FORD LIBRARY
+
+covered by this history includes the last year of the Eisenhower Administration)
+
+16. History of a Proprietary Investment Project, Covert Economic Action Phase, 1960-1963 (262) (note that the time period covered by this history includes the last year of the Eisenhower Administration)
+
+17. Newspaper Operations in Eusaka, Zambia, March 1963 - August 1965 (115)
+
+18. An Academic Cover Operation in Dar es Salaam, Tanzania, October 1965 - November 1966 (116)
+
+19. A Staff Agent Under Commercial Cover in Tanzania, February 1966 - November 1967 (212)
+
+20. Trade Union Council of South Africa, 1962-1967 (164)
+
+21. The Ethiopian Labor Movement, 1961-1968 (226)
+
+22. The Atassi Case, 1963 - February 1965 (184) (Near East Division) (apparently an operation in Syria).
+
+23. Domestic and Area-Wide Operations (WH/6), August 1963 - 30 June 1967 (172) (Western Hemisphere Division)
+
+24. Emergency Supply Operations During the Dominican Republic Crisis, 29 April - 4 June 1965 (OL-4)
+
+25. A Tour at the White House, 1967-1969 (OCI-3)

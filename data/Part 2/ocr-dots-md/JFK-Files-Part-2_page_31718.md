@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_31718.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:jb
+
+Congressman COHELAN "has been completely unresponsive to the concern of East Bay citizens who are opposed to Administration policy in Vietnam." It added that in addition to the Vietnam issue, SCHEER intended to put forward a "Radical critique of the Great Society." It also requested contributions of time and money to help in this campaign. "Endorsers" of SCHEER for Congress were listed on this letterhead as follows:
+
+CARL BLOICE, Reporter
+"People's World"
+
+MARK COMFORT
+Oakland Direct
+Action Committee
+
+MIRIAM CONNELLY
+President
+Bettermade Foods
+
+Dr. J. RAYMOND COPE
+
+CASSANDRA DAVIS
+East Bay Organizing
+Committee
+
+RONNIE DAVIS
+Director,
+S. F. Mime Troupe
+
+DON DUNCAN
+Master Sergeant, Ret.
+US Special Forces
+
+LAWRENCE FERLINGHETTI
+Poet
+
+BILL FINN
+Building Contractor
+
+JOHN GEORGE
+Attorney
+
+SECRET
+
+1282
+
+Copy...................of...................Copies
+Page.................of.................Pages
+
+NW 88613
+DocId:34517445 Page 41

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_29914.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+XXX/BD# OCR 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+| | Levinson then moved to Newport, Kentucky, where he operated the Flamingo Club, a casino, along with Las Vegas racketeer Irving "Nig" Devine. In 1951, he moved to Miami Beach, where he operated the bookmaking concession at the San Souci Hotel. Levinson was chased out of Miami in 1951 by the Kefauver Committee, so he ventured to Las Vegas and became part-owner in the Sands Hotel, which was being operated for Joseph "Doc" Stacher, a Meyer Lansky lieutenant. |
+| | By 1955, Levinson, having acquired interests in the Flamingo and Dunes hotels, was ready to give them all up for his coming involvement in Doc Stacher's Fremont Hotel. At that same time, he also acquired a major interest in the Horseshoe Club. (By late 1963, he was the largest single stockholder in the Fremont Hotel and in the Horseshoe.) |
+| | He became involved in the establishment of the Bank of World Commerce, Ltd., which incorporated in 1961 under British law in Nassau. Ed Levinson and Cliff "Big Juice" Jones, former Nevada Lieutenant Governor, were listed as stockholders, with the directors of the bank being Levinson; Benjamin Siegelbaum, a reported bagman for Meyer Lansky; Irving Devine; and John Pullman. Reportedly, the Bank of World Commerce served as a "laundromat" for syndicate cash by allowing money to flow into the bank only to return to the United States from Nassau in the form of loans for everything from homes for gangsters to savings and loan associations around the country. |
+| | During the 1960's Levinson became associated with several political figures. No only did he aid financially troubled Teamsters President Jimmy Hoffa, but he became a partner in the Serv-U Vending Corporation with Bobby Baker, then secretary to the Democratic Majority Leader of the United States Senate; Fred Black, Jr., a Washington lobbyist for North American Aviation Company; and Benjamin Siegelbaum. This company provided vending machines for companies working on government contracts and was substituted for a firm that had handled North American Aviation's vending business for years, despite the fact that Serv-U had no employees, vending machines, or experience. |
+| | In 1962, Levinson, along with Benjamin Siegelbaum, appeared to be involved in Airway Hotel, Inc., the hotel corporation which created the International Airport Hotel on Century Boulevard in Los Angeles. PAGE# |
+
+NW 88326 DocId:32266807 Page 126

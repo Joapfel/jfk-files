@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29574.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+photographs or intercept transcripts pertaining to Lee Harvey Oswald. (HSCA Deposition of James Angleton, 10/5/78, p. 116.)
+
+352/ Classified Letter from Blakley to Breckinridge, 7/6/78.
+
+353/ Draft of letter from Scott to John Barron, 11/25/70, p. 3. Emphasis added.
+
+354/ Foul Foe manuscript, p. 267.
+
+355/ See discussion above.
+
+356/ Blind Memo re: Lee Harvey Oswald/Silvia Tirado de Duran; Source: LI/4, 11/26/63, p. 5.
+
+357/ See Sections V, C and VI, A, below.
+
+358/ Eusebio Azcue Public Testimony, 9/18/78, pp. 33-35.
+
+359/ See Section II, C, 3 above.
+
+360/ See Sections II, A and B, above.
+
+361/ See below.
+
+362/ See below.
+
+363/ It should be noted that the two sets of photographs which are missing are the most relevant of all the photographs produced by the Mexico City surveillance operations. Had a photograph of Oswald been obtained, it would have most likely have been done by one or both of the bases from which production is missing. Oswald visited the Cuban Consulate which was covered by a pulse camera. The photographs of people entering the Cuban Embassy have been made available to this Committee for review but the material from the pulse camera which covered the entrance to the Consulate which Oswald visited has not been forthcoming. (See Section II, A, 3, above, for details.) The documented standard operating procedure of the Soviet target bases indicates that LILYRIC, the base from which production was not forthcoming, would have been the one in operation at the time of
+
+Classification:
+
+326
+
+Classified by derivation:

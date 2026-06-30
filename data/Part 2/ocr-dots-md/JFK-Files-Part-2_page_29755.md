@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_29755.png
+
+Convert to MarkdownClassification: IUP SECRET
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+- 79 -
+
+1199/ Diaz-Ordaz and Echevarria were the two presidents of Mexico respectively from 1964 to 1970 and 1970 to 1976.
+
+1200/ See HSCA Staff Interview of Horacio Duran, 6/5/78, JFK Document No. 011680.
+
+1201/ See HSCA Staff Interview of Pedro Gutierrez Valencia, 6/5/78, JFK Document No. 011682.
+
+1202/ Lynn Duran is the sister of Horatio and Ruben Duran. The Committee wished to ask her whether Lee Harvey Oswald had attended any twist parties at the Durna homes. See HSCA Staff Interview of Lynn Duran, 6/5/78, JFK Doc. # 011681
+
+1203/ See HSCA Staff Interview of Ruben Duran, 6/6/78, JFK Doc. # 011680.
+
+1204/ The Committee never sent the Mexican government the questions because a 2nd trip to Mexico was arranged.
+
+1205/ The Committee wished to ask Ms. Serratos whether Lee Harvey Oswald had attended any twist parties at the Duran homes. See HSCA Staff Interview of Betty Serratos, JFK Doc. # 011392.
+
+1206/ See HSCA Staff Interview of Silvia Duran, 6/6/78, JFK Document No. 011775.
+
+1207/ Danny Flores was one of AMMUG's (a Cuban DGI Defector in 1964) Security Officers. The Committee wished to ask Mr. Flores about AMMUG's statements about Lee Harvey Oswald's Trip to the Cuban Consulate.
+
+1208/ Ramon Alvarez Dupont was a CIA agent in charge of picking up the photographic surveillance film from personnel stationed at the three bases and delivering it to his brother-in-law (unknown) and later delivering it to his case officer Ann Goodpasture.
+
+2001057
+
+'**TOP SECRET**'
+
+Classified by derivation:
+
+506

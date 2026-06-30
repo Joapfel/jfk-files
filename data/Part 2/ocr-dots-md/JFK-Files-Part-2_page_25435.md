@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_25435.png
+
+Convert to MarkdownBook V, p. 65 It is known that the CIA took an interest in the Fair Play for Cuba Committee with which Oswald was associated. According to Bureau documents, the Agency advised the Bureau that they were considering the use of disinformation that might embarrass the Committee in areas where the Committee had support.

@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_29851.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+### CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+WYWR# 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+Dick Carlson, Channel 8, San Diego, California (714) 232-2114 heard a rumor - unknown where - that Carrafa met Roselli in Chicago.
+
+Chicago Intelligence reports that (312) 943-1155, is listed to Louis J. Lederec, 860 N. Lake Shore Drive, Chicago, Ill.
+
+Telephone numbers found in Janice M. Piccerelli's telephone book (312) 321-0110 with notation Little Corporal listed to Little Corporal Restaurant, Chicago, Illinois. Name Ruggles (312) 642-3353 unlisted.
+
+Interview with Pat "Nutsy" Sherman on 08-17-76 reveals the following (see interview):
+
+1. "Lou's wife Janice was murdered because she witnessed a murder."
+
+2. Jay is a "lay-off" man.
+
+3. When asked if he knew Joe Nesline, he said yeah, he reports to Tourine.
+
+Diners Club card #2308 2204 1, exp. 12-71 issued to Frank J. Nenning found behind J. Piccerelli's Riggs National Bank checkbook. NCIC check negative.
+
+Cpl. M. F. Alban

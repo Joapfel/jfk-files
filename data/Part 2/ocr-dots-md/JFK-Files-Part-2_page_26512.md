@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_26512.png
+
+Convert to MarkdownSECRET
+
+C. In any event, we know of only two coun- tries--Mexico and Uruguay--where Castro appears inclined for the time being to forego inciting violence, and this only because he wants a favorable climate for his operations into other countries.
+
+II. Even before the October missile crisis--and with increasing rancor since then--Cuban leaders have been exhorting revolutionary movements to violence and terrorism, and supporting their activities.
+
+A. Cuban support takes many different forms. We have occasional evidence of direct participation by Cuban nationals, as in the La Oroya disorders in Peru in December. We know that some funds move, generally in cash by courier, from Cuba to the revolu- tionaries in other countries. While we have not been able to come up with the kind of airtight proof a court would require that weapons move directly from Cuba to these same groups, we do know that Cuba furnishes money to buy weapons, and that some guer- rilla forces in Peru, for instance, are equipped with Czech weapons which most logically would come from Cuba.
+
+SECRET
+
+HW 50955 DocId:32205169 Page 3

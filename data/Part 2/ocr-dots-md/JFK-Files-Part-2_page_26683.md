@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_26683.png
+
+Convert to MarkdownSECRET
+
+country until we have a Certificate of Origin. As a matter
+of fact, there was a boat that was pulling into the dock in
+New York and they wouldn't let it unload. They just turned it
+around. Eventually, over a period of months, le Nickel
+found other sources and export privileges to the United States
+were restored.
+
+You know, it is -- you just -- any time you raise
+or lower a tariff you have economic warfare. It is that
+simple.
+
+Q Were there any other instances that you can recall
+of economic warfare in which you enlisted the support of
+American business firms?
+
+A I know we were in touch with a great many American
+business firms. We enlisted everybody's support that we could.
+
+MR. MANFREDI: Off the record.
+
+(Discussion off the record.)
+
+BY MR. MANFREDI:
+
+Q When we broke for a moment we were discussing other
+instances where the Agency has enlisted the support of American
+business in economic warfare against Cuba. Can you think of
+any other such instances?
+
+A Oh, certainly. The Cubans were having an awful time
+with their Maritime fleet, such as it was. These boats were
+powered with Nordberg engines. We simply went to the Nordberg
+people and told them -- asked them to cooperate with us, which
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+NW 50955 DocId:32204971 Page 37

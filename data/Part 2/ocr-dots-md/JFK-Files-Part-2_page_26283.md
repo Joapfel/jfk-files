@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_26283.png
+
+Convert to MarkdownSECRET
+
+Members of the Task Force were asked for their reactions to the paper. There was a rather surprising degree of agreement that something along this line must be done or it will be virtually impossible to deal with the situation in South Viet Nam. (There was no State Department representative present at the time except Cottrell himself.) The ICA member and the representative of Jack Bell's office did raise questions as to whether political and economic action by the Diem regime was not a more important precondition to solution in Viet Nam than military action in Laos.
+
+I made the following points about the proposal: First, I observed that this would seem to me to raise important questions of policy which had been considered and decided in the past at the highest levels of government. I indicated that I would be unable to take a personal stand on the issues raised. I expressed some surprise about the apparent unanimity of view that, unless we undertake military action in Laos, it would be virtually impossible to deal effectively with the situation in Viet Nam. I said that, while I could see no objection to the Viet Nam Task Force raising these questions, it seemed to me that they should be raised much more clearly in the context of the Viet Nam problem. That is, the proposed memorandum should make clear why the present situation in Laos will make it difficult, if not impossible, to carry out an effective program against the Viet Cong in Viet Nam. Cottrell agreed to take account of this suggestion (with which there seemed to be some agreement in the Task Force).
+
+I ~~understand~~ some of the feeling of frustration which has prompted Cottrell to produce his memorandum. I specifically share his doubts with respect to getting the French back into Laos. (I had thought that this proposal had been dropped as a result of adverse reaction from various sectors.) The Cottrell proposals, however, raise very directly the question of U. S. military intervention in Laos. It seems to me inconceivable that his objective could be achieved without such intervention. The proposals also would have the effect, it seems to me, of merging the war in Laos with the war in Viet Nam. I do not think that this would be a good idea.
+
+I think that there is a serious question as to whether the situation in Laos is not deteriorating so critically that any likely political solution will leave it as a serious source of infiltration into both Viet Nam and Thailand. But I wonder whether this question cannot be better reviewed in the context of contingency planning for Laos itself. In this connection, I do feel that the military contingency plan that we have seen for Laos is based upon too narrow a contingency -- i.e., a clear failure to achieve a cease fire or the breaking of a cease fire by the Communists. We need to plan against the
+
+- 3 -
+
+SECRET

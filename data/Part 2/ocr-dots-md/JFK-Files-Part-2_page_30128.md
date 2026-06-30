@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_30128.png
+
+Convert to MarkdownJuly 5, 1978
+
+# NOTICE OF RECEIPT OF FINGERPRINT CARDS
+
+I, William H. Cross, hereby acknowledge receipt from the FBI of twenty-three (23) Applicant Fingerprint Cards (Form FD-258) concerning the following persons:
+
+| Name | Date of Birth | Place of Birth |
+|---|---|---|
+| 1. Basteri, Joseph John | 10-24-22 | U.S.A. |
+| 2. Brown, William | 9-8-28 | New York, New York |
+| 3. Burford, Judith Renee | 9-24-55 | Memphis, Tennessee |
+| 4. Daly, Martin James | 7-1-29 | New York, New York |
+| 5. Day, Clarence Joseph | 1-8-31 | Alexandria, Virginia |
+| 6. Eagle, Marjorie Ann | 10-2-23 | Phoenixville, Pennsylvania |
+| 7. Gcnzales, Albert | 4-22-23 | New York, New York |
+| 8. Grimes, Mary Susan | 11-4-49 | Washington, D. C. |
+| 9. Hornbeck, John William | 1-23-40 | Pennsylvania |
+| 10. Hutton, Elbert McKinley | 9-25-20 | Hampton, Virginia |
+| 11. Locke, Ralph Christopher | 2-10-53 | Boston, Massachusetts |
+| 12. Lopez, Edwin Juan | 5-3-55 | New York |
+| 13. McPherson, Vivian Leigh | 2-4-43 | Norfolk, Virginia |
+| 14. Reeves, Floyd Leroy | 7-25-43 | Tampa, Florida |
+| 15. Resnick, Gina Irene | 4-3-53 | New Jersey |
+| 16. Risinger, Marlin III | 12-8-54 | Louisiana |
+| 17. Rose, Harold A. | 9-28-28 | Baltimore, Maryland |
+| 18. Strickland, Ann Lyon | 8-4-46 | Rocky Mount, N. Carolina |
+| 19. Taylor, Ann Furnald | 12-19-49 | San Diego, California |
+| 20. Thomas, Joseph Aloysious | 10-13-31 | Maryland |
+| 21. Triplett, William Karrol | 8-8-40 | Delano, California |
+| 22. Walker, Robert James | 9-1-23 | Atlanta, Georgia |
+| 23. Wrase, Richard Charles | 6-19-28 | New York, New York |
+
+Signed: William H. Cross.
+
+Title: Assistant Director of Security HSCA
+
+NW 88326 Doctd:32269709 Page 29

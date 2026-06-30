@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_31086.png
+
+Convert to Markdown② State Cables - Nov, Dec. 1977 - Visas for wife & child of Orlando Bosch
+
+③ State Cables - bombings - July 12-13, 1976
+
+④ Remainder sealed envelopes - FBI documents
+
+⑤ 12 Feb. 1976 Cable IN 824723
+CITE: Caracas 29063
+To: Priority director, Santiago Buenos Aires, LA/Miami
+WK SCARLET-3 ( former unilateral asset ) advises he is investigating bombing Cuban ambassador, Caracas + is travelling during week of 15 Feb 20 Santiago, Buenos Aires + Miami.
+Cuban Ambassador Norberto Hernandez Carbelo reported receiving bomb in large manila envelope bearing return address F Dr. Gustavo A. Vollmer WK Scarlet/1, former WK Scarlet chief, is security consultant D Vollmer + has retained WK Scarlet/3 who is operating a commercial investigation service, to determine who used Vollmer's name WK Scarlet/3 maintain contacts with Orlando Bosch
+
+⑥ Frank Castro had knowledge of attempt to assassinate Henry Kissinger a told WK Scarlet/3 In order to give information, Agency afraid they will compromise WK Scarlet/3
+
+18 Feb. 1976 Cable IN 830506 CITE: Caracas 29129
+
+⑦ Frank Castro had knowledge of attempt to assassinate Henry Kissinger a told WK Scarlet/3 In order to give information, Agency afraid they will compromise WK Scarlet/3
+
+19 Feb. 1976
+
+⑧

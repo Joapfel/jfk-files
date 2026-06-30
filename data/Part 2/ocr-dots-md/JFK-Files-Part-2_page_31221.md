@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_31221.png
+
+Convert to MarkdownSECRET
+
+0002266
+
+Ocnville interview with Melvin in May 1963
+
+Additional notes on S.T. JR's SG
+centered in material given next to
+written for review on Sturgis's
+
+Chicago Trip Dec 28, 31, 1973
+
+- Cain
+
+- Fall 1963, contact in Chicago
+
+- Summer 1964, Miller City
+
+- April 1964-2, my call CFB
+
+- 4 June 62, departed
+
+- 19 Aug 63, Chicago
+
+- 26-30 May 63, Instr - re Student
+Directory, Miami-
+
+- 12 sept 63, DRS arms purchase
+
+- to be get out of picture
+
+- 1 May 1972, disappear.
+
+Fair Play met on Feb 63 at 907
+S.S. Speedley anddet S. Michael Croley
+
+- LHO purchased rifle March 63
+
+- Stay superann 2 LHO in Chicago 1963 April.
+
+SECRET
+
+27WW63

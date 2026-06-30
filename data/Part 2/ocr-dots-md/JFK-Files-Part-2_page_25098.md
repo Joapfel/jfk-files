@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_25098.png
+
+Convert to MarkdownTOP SECRET - SENSITIVE
+
+APPENDIX C
+
+Army Report on
+SQUARE DANCE (U)
+
+(See Attachment to JCS 2304/244, beginning on page 6 of the white attachment)
+
+Copy
+
+Lyndon B. Johnson Library
+
+TOP SECRET - SENSITIVE
+
+Appendix C
+
+7
+
+HW 50955 DocId:32423566 Page 159
+
+TOP SECRET

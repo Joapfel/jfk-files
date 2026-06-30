@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32743.png
+
+Convert to Markdown"(4) When fully developed, the operational tactical aircraft will markedly improve the capability of the Tactical Air Command in carrying out its assigned missions, especially in limited war.
+
+"(5) Similarly, the Navy version, when fully developed, and when configured with the new long range air-to-air missile, will markedly improve existing fleet air defense capability."
+
+The Report itself did not express a preference for either proposal, and indicated there was little to choose between the proposals. Both proposals were certified by General LeMay and Admiral Anderson to meet military requirements. My examination of the facts, in consultation with my advisers, convinced me that, as compared with the Boeing proposal, the General Dynamics proposal was substantially closer to a single design, requiring only relatively minor modifications to adapt it to the differing requirements of the Navy and the Air Force, and that it embodied a more realistic approach to the cost problem. Accordingly, I decided to select General Dynamics as the development contractor, since I concluded that it was best qualified to design the most effective airplane that could be produced at the least cost, in the least time, to meet our military requirements. It should be unnecessary to add that no other considerations entered into my judgment, but I wish to make that statement a part of the record.
+
+When I took office in January 1961, President Kennedy instructed me to:
+
+HW 50955 DocId:32424709 Page 124

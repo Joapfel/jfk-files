@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_31904.png
+
+Convert to MarkdownUNITED STATES ARMY INTELLIGENCE COMMAND
+
+EXHIBIT
+COVER SHEET
+
+**SUBJECT:** Manuel MARTI NMN
+
+**FILE NUMBER:** 8240-6019
+093 36 4601
+
+**PREPARING UNIT:** 108th Military Intelligence Group (I-NYFO)
+
+**AGENT REPORT DATED:** 22 November 1968
+
+**DESCRIPTION:** Characterization of <u>HORIZONS for YOUTH</u>.
+
+IC FORM 171
+
+17 NOV 67

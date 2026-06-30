@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_27269.png
+
+Convert to MarkdownA - Memo for the File - Subj: Clandestine Service Regulations, now Directorate of Operations Instructions - 21 Feb 75.
+
+B - Memo for Dir. of CI - Subj: CIA Surveillance Activities Within the U.S. - 15 May 1975 SECRET
+
+C - M/R - Subj: Conversation with Mr. Spiro Agnew on 5 Apr 74. - 13 Apr 74 CONFIDENTIAL EYES ONLY
+
+D. -Ink card - re William O'Connell
+
+E - Memo for Schwarzer from Horton - "The 'Laundering' of Money Via Mexico" 10 Mar 75 SECRET
+
+F - Draft of "B. Name Trace Procedure".
+
+Photocopy from
+G R Ford Library
+
+NW 50955 DocId:32105598 Page 100

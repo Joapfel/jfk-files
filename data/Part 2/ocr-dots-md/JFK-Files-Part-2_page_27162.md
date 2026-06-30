@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_27162.png
+
+Convert to MarkdownJFK Assassination System
+Identification Form
+
+Date: 8/27/201
+
+Agency Information
+
+AGENCY : ROCKCOM
+RECORD NUMBER : 178-10004-10416
+RECORD SERIES : TESTIMONY SERIES
+AGENCY FILE NUMBER : COLBY STATEMENT--APPENDICES
+
+Document Information
+
+ORIGINATOR : CIA
+FROM :
+TO :
+TITLE : THE MIAMI STATION
+
+DATE : 01/13/1975
+PAGES : 7
+
+SUBJECTS :
+* BAY OF PIGS
+* ANTI-CASTRO ACTIVITIES
+* CIA
+* PERIODICAL, RAMPARTS
+* MIAMI, FL
+* CUBAN EXILES
+
+DOCUMENT TYPE : REPORT
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Consulted
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 11/06/1995
+
+OPENING CRITERIA :
+
+COMMENTS : Appendix J to Statement of William Colby to Rockefeller Commission, 13 January 1975.

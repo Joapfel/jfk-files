@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_29452.png
+
+Convert to Markdown# Classification: TOP SECRET
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+-8-
+
+by James Angleton at the time of Scott's death.351/
+This Committee requested access to any relevant
+materials from this safe on July 6, 1978.352/
+Access was granted on October 6, 1978. Two statements
+by Mr. Scott contained in these materials lend
+circumstantial support for Ms. Tarasoff's testimony.
+
+In 1970 Mr. Scott wrote:
+
+During my thirteen years in Mexico, I had many experiences, some of which I can write in detail. One of these pertains to Lee Harvey Oswald and what I know (emphasis in original) of his activities from the moment he arrived in Mexico, his contacts by telephone and his visits to both the Soviet and Cuban Embassies and his requests for assistance from the two Embassies in trying to get to the Crime with his wife and baby. During his conversations he cited a promise from the Soviet Embassy in Washington that they would notify their embassy in Mexico of Oswald's plan to ask them for assistance.353/
+
+In his unpublished manuscript, Scott refers to a conversation in which Oswald gave the Soviet Embassy "his name very slowly and carefully."354/ Although the transcripts available do not bear out Scott's recollections, there are interesting parallels with the testimony of Anna Tarasoff and David Phillips.355/
+
+Classification:
+
+Classified by derivation: 204
+
+204 (J.S.)

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_32307.png
+
+Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+JFK Assassination System
+Identification Form
+
+Date: 6/24/201
+
+Agency Information
+
+AGENCY : ARMY
+RECORD NUMBER : 198-10004-10207
+RECORD SERIES : CALIFANO PAPERS
+AGENCY FILE NUMBER :
+
+Document Information
+
+ORIGINATOR : ARMY
+FROM : JOSEPH A. CALIFANO, JR.
+TO : MR. JOHN H. CRIMMINS
+TITLE : INTERDEPARTMENTAL COORDINATING COMMITTEE OF CUBAN AFFAIRS: REPORT ON THE STATUS OF ACTIONS DESIGNED TO COUNTER SUBVERSION
+DATE : 01/10/1964
+PAGES : 62
+
+SUBJECTS :
+COUNTERINSURGENCY
+CUBAN SUBVERSION
+LATIN AMERICA SECURITY
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : Secret
+RESTRICTIONS : IC
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 10/07/1997
+
+OPENING CRITERIA :
+
+COMMENTS : Califano Papers, Box 6, Folder 10. Army memo from Joseph Califano to Mr. Crimmins on status of actions to counter Cuban subversion in Latin America with other related documents.
+
+Department of the Army EO 13528
+Declassify ☐ Exclude ☐ Exempt Authority ____
+Refer To ____
+Review Date 8/12/2015 By Kite Sliwer, ADA
+
+HW 50955 DocId:32276192 Page 1

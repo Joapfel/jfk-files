@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_30489.png
+
+Convert to MarkdownSECRET
+
+1-64
+
+Mr. Goldsmith. What is the date of that transcript?
+
+2 Mr. Shaw. 28 September 1963 is what is listed on here.
+
+3 Mr. Goldsmith. Do you recall whether you ever saw that
+transcript before?
+
+4
+
+5 Mr. Shaw. I do not recall. I must have seen it after-
+wards, because I know Sylvia Duran was a person who had dealt
+with Oswald.
+
+7
+
+8 Mr. Goldsmith. When was the first time that this trans-
+cript was linked to Oswald?
+
+9
+
+10 Mr. Shaw. I have no idea.
+
+11
+
+12 Mr. Goldsmith. Let us backstep for a moment. The
+transcript that appears at CIA No. 13 contains a notation in
+brackets by the transcriber that this is the same person who
+called a day or so ago.
+
+13
+
+14
+
+15 Mr. Shaw. To the Soviet Embassy.
+
+16
+
+17
+
+18 Oswald also said I was there last Saturday. The trans-
+cript you just looked at, September 28th, was for a Saturday.
+
+19
+
+20 Do you recall whether anyone ever came to you and asked
+you whether you were aware of a contact by Oswald?
+
+21
+
+22 Mr. Shaw. I do not recall that anybody ever came to me,
+and I do not think that they did. This sounds familiar. I
+would have heard about this after the assassination, because
+
+23
+
+24 I remember Sylvia Duran was the person being a Mexican citizen
+inside the Cuban Embassy who I dealt with.
+
+25
+
+SECRET
+
+HW 50955 DocId:32277214 Page 65
+
+ALDERSON REPORTING COMPANY

@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_29747.png
+
+Convert to MarkdownClassification: TOP SECRET
+
+1059/ Cable from Mexico City to the Director, 7/5/67, MEXI 1991; Wx7241, Entry 627, p. 119, CIA #746.
+
+1060/ See Section VI, C.
+
+1061/ See Section VI, D, above.
+
+1062/ See Warren Commission Report, pp. 299-304, 733-736; also, Section I, B, VC and VI A above. Some of the more prominent are Paul Hoch and Peter Dale Scott in the Assassination in Dallas and Beyond and A. T. Weberman in Coup d'état in America.
+
+1063/ See Sections V C, VIA and B respectively.
+
+1064/ Ibid.
+
+1065/ Silvia Duran.
+
+1066/ Eusebio Azcue Lopez, Alfredo Mirabal Diaz, Orestes Guillermo Ruiz Perez, Nilo Otero, Maria Teresa Proenza y Proenza.
+
+1067/ Noe W. Palomares, Pedro Gutierrez Valencia, Silvia Duran, Horacio Duran, Ruben Duran, Lydia Duran, Betty Serratos, Ernesto Lehfeld Miller.
+
+1068/ See Glossary.
+
+1069/ The Handwriting Panel concluded that the signature on the visa application was identical to other samples of Lee Harvey Oswald's handwriting.
+
+1070/ HSCA Interview of Silvia Duran, 6/6/78, JFK Document 011775. Consul Azcue stated that standard operating procedure at the Cuban Consulate did not allow applications to be removed from the office. (HSCA Public Testimony of Eusebio Azcue, 9/18/78, p. 41)
+
+1071/ Ibid., pp. 31-33.
+
+1072/ See Sections II C, III A 1 and III B 2 above.
+
+1073/ See Section III B 2 above.
+
+1074/ Ibid.
+
+1075/ CIA Electronic Surveillance transcript from Soviet Embassy, 9/27/63.
+
+Classification: TOP SECRET
+
+Classified by derivation:
+
+498
+
+20010403
+
+NW 48327 DocId:32263889 Page 395

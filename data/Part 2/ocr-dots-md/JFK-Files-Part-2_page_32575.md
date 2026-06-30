@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_32575.png
+
+Convert to Markdown# S-E-C-R-E-T
+Security Information
+
+the means of shifting the whole radio propaganda war balance in our favor. They would be indispensable in the event of hot war. We, therefore, are impressed with the necessity of developing our capacities in this direction to the utmost and proceeding immediately with the covert procurement of bases and equipment needed for the task.
+
+To recapitulate, it would seem desirable for CIA to limit its present and future conventional radio broadcasting activities to the absolute minimum and that any new undertakings should provide:
+
+1. A maximum transmitter power of 100,000 watts capable of accommodating:
+
+* ties; and
+
+2. Built in jamming evasion capabilities;
+
+3. Built in unconventional broadcasting capabilities.
+
+4. Bases in secure and protected areas which permit the use of the jamming evasion technique without interference with friendly countries. A study of base possibilities is now being made by this office.
+
+## c. Lead Time
+
+(1) (a) Radio broadcasting facilities cannot be created over night. From the time that plans are finally approved, it takes 12 to 18 months to design, construct and install a transmitter. Prior to such approval time is required for the planning cycle, negotiation for bases, the staffing problem, etc.
+
+(b) Deep cover penetration of existing radio stations or systems likewise require time for development.
+
+(2) All in all, it would be prudent to estimate that upwards of two years are required from the conception of a project for broadcasting and its implementation. Hence, the planning must be long-range. It is not possible to improvise broadcasting capabilities for targets of opportunity, such as Stalin's death.
+
+## f. Control and Management
+
+(1) Control by CIA of the substance of broadcast and the management of broadcasting operations should be absolute and through officers directly responsible to agency control.
+
+(2) The doctrine of compartmentalization should be strictly enforced. No one, excepting the handful of technicians required
+
+to operate
+
+-9-
+S-E-C-R-E-T
+
+HW 50955 DocId:32424022 Page 13

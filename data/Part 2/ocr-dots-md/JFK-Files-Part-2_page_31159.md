@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_31159.png
+
+Convert to MarkdownSECRET
+
+00021:1
+
+even below Biancaneri, He had been reduced to a mere "translator" and was needed only to facilitate carers who had been recruited for the actual assassination. Intrepidly, Trafficante and Rosselli 1935 and 1977 Empressial appearance dove tail, well but remain on compadron to the facts are they being reported in 1935 of the principals.
+
+Comment?
+
+The Senate Testimony if Rosselli and Trafficante needs be outlined ~~is~~ is with a view to continuing the "courier is interpretee" role. My memory is that the Senate did not originally mean examine either man on this dis cumpency nor did they. The Preem Report "hint" at the problem.
+
+Once the actor had been assembled for the launching of the entourage, a discussion began as to the method by which to be employed to accomplish the goal. The Agency took the simpler, straight arm and approved it shorting Castro but this plan was rejected.

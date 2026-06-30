@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_26752.png
+
+Convert to MarkdownSECRET
+
+104
+
+the AMOTS engaged in?
+
+A To my knowledge, they didn't engage in any.
+
+Q Any political activity.
+
+Do you know of any other activities that they have conducted within this country, they or any of their members have conducted within this country that we have not already discussed this afternoon?
+
+A No.
+
+Q Any political activities? Any operations?
+
+A No. Not really. Of course, we have used certain select individuals to what we call hand-hold defectors, Cuban defectors. In other words, live with them until they are resettled and this type of thing. And this is another activity they engaged in. But other than that, I can't think of anything else.
+
+Q Do you know of any criminal activities that have been attributed to --?
+
+A I have heard of some allegations which have never been proven.
+
+Q What are the allegations?
+
+A The allegations concern break-ins and surveillances and this type of thing.
+
+Q Have those allegations been made with any frequency?
+
+A Well, I forget who it was. It was during the
+
+Photocopy from
+Gerald Ford Library
+
+HW 50955 DocId:32204971 Page 106

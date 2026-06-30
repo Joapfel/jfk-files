@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_29394.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+-30-
+
+problems in the manual operation during these three
+months.99/
+
+4. Disposition of Production from the Operation
+
+The photographs from the manual camera were
+maintained in a chronological file at the CIA
+station in Mexico City.100, These photographs were
+routinely shown to a penetration agent in the Cuban
+Embassy for identification purposes.101/ After this
+agent left the employment of the Cuban Embassy in
+1965, the photographs were sent to the JMWAVE
+Station in Miami, Florida for review by Cuban
+defectors such as AMMUG/1.102/
+
+The disposition of the pulse camera photographs
+in general, beyond the fact that as of 1965, and
+possibly earlier, the production was routinely sent
+to Headquarters, is unknown.103/ The CIA denies
+that the pulse camera was functioning during the time
+Oswald was in Mexico.104/ If the Committee's belief
+that the pulse camera was functioning on the days that
+Oswald visited the Cuban Consulate is correct, then
+the ultimate disposition of the photographs produced
+on those days remains a mystery.
+
+**Classification:**
+---
+
+146
+
+200893
+
+Classified by derivation:
+
+NW 48327 DocId:32263889 Page 42

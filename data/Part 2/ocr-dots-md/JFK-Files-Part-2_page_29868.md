@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_29868.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+
+XX/HMX# 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+| 08-31-76 | Reference call made by David Knohl to (213) 598-6730; subscriber information lists this number as belonging to Howard Knohl, M.D., 3742 Toland Avenue, Los Alamitos, California. <br> Cpl. M. F. Alban |
+| 09-01-76 | Juvenile Section advises that Johanna Knohl, daughter of David Knohl, has been a runaway since 06-13-76. This incident was not reported to police until 08-31-76. See RD #W 642-832. <br> Detective Al Santoro, NYPD, advises that Caraffa's car was located at Kennedy Airport and same had been there since 07-28-76. <br> Cpl. M. F. Alban |
+| 09-03-76 | Reference Richard Cain, same's real name is Richard Scalzetti. <br> Cpl. M. F. Alban |
+| 09-07-76 | Information received that Richard Arnold Kline, W/M, 01-12-58, was arrested in D.C. driving a stolen vehicle. The vehicle had been repainted twice - originally blue, then white, then black. The vehicle was bearing Maryland dealer tags listed to Kensington Motors - Guy Holcomb's business. <br> Information from J. McH. that it is believed that Giancana was killed by his bodyguard Dominic Blasi (ph.) at the urging of Anthony Accardo. <br> Reference Roselli and Black's call to (507) 282-2581, Rochester, Minnesota, same is to the Kahler Hotel. <br> Reference Henry Susk, the Chicago Crime Commission Report, November, 1969 notes that the following business has hoodlum connections: Henry Susk Pontiac Company, 520 N. Wabash Avenue, Chicago, Illinois. |
+
+PAGE# ____________

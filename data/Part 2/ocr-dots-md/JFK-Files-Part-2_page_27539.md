@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_27539.png
+
+Convert to MarkdownMEMORANDUM
+OF CALL
+
+TO: Donovan
+
+☑ YOU WERE CALLED BY— ☐ YOU WERE VISITED BY—
+
+Margo Jackson
+re: Jim Harper
+
+☑ PLEASE CALL -> PHONE NO.
+CODE/EXT. 331-245-7
+
+☐ WILL CALL AGAIN ☐ IS WAITING TO SEE YOU
+
+☐ RETURNED YOUR CALL ☐ WISHES AN APPOINTMENT
+
+MESSAGE
+
+<table><tr><td>RECEIVED BY</td><td></td><td>DATE</td><td></td><td>TIME</td><td></td></tr></table>
+
+STANDARD FORM 63
+REVISED AUGUST 1967
+GSA FPMR (41 CFR) 101-11 6
+
+GPO : 1969-c48-16-80341-1 332-389 63-108
+
+NWW 88326 Docld:32239457 Page 11

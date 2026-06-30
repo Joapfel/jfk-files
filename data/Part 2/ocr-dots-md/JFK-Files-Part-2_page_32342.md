@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_32342.png
+
+Convert to MarkdownSECRET
+
+Lt Col Haig/78029/29Oct63/md
+
+October 29, 1963
+
+MEMORANDUM FOR MR. JOHN CRIMMINS
+Coordinator of Cuban Affairs
+Department of State
+
+SUBJECT: Interdepartmental Coordinating Committee of Cuban Affairs: Revision of the Paper Entitled "Training of Latin Americans in the United States"
+
+At a meeting of the Subcommittee on Subversion on October 10, 1963, the Department of Defense (DOD) Representative was requested to review and up-date the DOD portions of pages 4, 5 and 6 of subject report. Enclosed herewith is a line in line out revision of the report. A revision has also been made to page 7, which is designed to make the DOD portions of the report current.
+
+Signed:
+A. M. Haig
+Lt Colonel, USA
+Joseph A. Califano, Jr.
+General Counsel
+
+Attachment
+
+As Stated
+
+Mr. Califano
+Lt Col Haig
+ASG
+
+SECRET
+
+EXCLUDED FROM AUTOMATIC REGISTRAR
+DOD DIR 5200.10 DOES NOT CATEGORIZED
+COORDINATION & RECORD OFFICE
+
+SECRET
+
+OSA 353-CUBA
+10/29/63
+FW 1/30/63
+
+HW 50955 DocId:32276192 Page 36

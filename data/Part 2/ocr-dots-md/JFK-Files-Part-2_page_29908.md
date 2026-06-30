@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_29908.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+
+WXXXV # 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE      OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+"The regulations under which we function do not permit us to release any information on a student or former student, without written permission from that individual or from a parent if the individual is under eighteen years of age.
+
+We will release the information on Mr. Knohl if we receive written permission from him. We cannot, however, release information on any of his classmates if he did indeed attend P.S. 44."
+
+Cpl. M. F. Alban
+
+11-17-76
+
+Rhode Island State Police advise that (401) 278-6472 is listed to Industrial National Bank of Rhode Island.* This number was called by Fred B. Black.
+
+Interview with David Knohl revealed, allegedly, that Jay G. Knohl attended Brooklyn College, James Madison High and P.S. 206 in Brooklyn.
+
+Jay G. Knohl's alias is Sidney Firquerson.
+
+Cpl. M. F. Alban
+
+PAGE# _______________

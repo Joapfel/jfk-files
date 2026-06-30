@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_25072.png
+
+Convert to MarkdownTHE EVENING STAR (Washington), Monday, 9 September 1963,
+Four Star Edition, page B 4, Columns 4 - 5
+
+"Goldwater's Toughness Challenged by Castro"
+
+by Daniel Harker, AP Staff Writer
+
+".... Bitterly denouncing what he called recent U.S.
+prompted raids on Cuban territory, Mr. Castro said:
+
+"We are prepared to fight them and answer
+in kind. U.S. leaders should think that if
+they are aiding terrorist plans to eliminate
+Cuban leaders, they themselves will not be
+safe.
+
+'The U.S. is always ready to negotiate
+and make promises which later it will not honor.
+This has happened to promises made during the
+October crisis. They have been broken as can
+be seen with new attacks.
+
+'But I warn this is leading to a very
+dangerous situation that could lead to a
+worse crisis than October's.....'
+
+[From an impromptu interview given by Castro at a Brazilian
+Embassy reception this week.]
+
+RECEIVED
+
+JUL 14 1975
+
+CIA
+
+HW 50955 DocId:32423566 Page 133

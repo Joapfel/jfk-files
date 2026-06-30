@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_27309.png
+
+Convert to MarkdownCONFIDENTIAL
+
+A. Project PYRAMID (SECRET)
+
+B. M/R - Subj: Iden 1 - 29 July 68 SECRET
+
+C. Memo for Chief, Special Activities Div - 17 Sept 68 SECRET EYES ONLY
+
+D. M/R - Subj: Offense - 16 Oct 68 SECRET EYES ONLY
+
+E. Routing and Record Sheet - to DDS/IOS - 28 May 69.
+
+F. Memo for Dir of Security - 28 May 69 SECRET EYES ONLY
+
+G. Memo for Dir of General Intelligence - 14 July 71 SECRET EYES ONLY
+
+H. Memo for Dir of General Intell. - SECRET EYES ONLY
+
+I. Routing and Record Slip - to Exec Dir-Comptroller
+
+J. Memo for Dir of Central Intell. - 8 Sept 71 SECRET EYES ONLY
+
+K. Memo - Subj: Iden 2 SECRET
+
+L. Memo - Subj: Project Pyramid - -8 June 197 ?? SECRET
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library
+
+NW 50955 DocId:32105598 Page 140

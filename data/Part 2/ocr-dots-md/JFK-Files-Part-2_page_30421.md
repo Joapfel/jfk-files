@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_30421.png
+
+Convert to Markdownyou are making, let us say you adduced a number of analysts who examined this thing thoroughly and were in a position of making that kind of judgment, I would say, "I want to have these analysts talk to my analysts because I am not in a position to make that kind of judgment."
+
+Mr. Goldsmith. First of all, I am not making the statement that Nosenko's story on Oswald is inaccurate in any way.
+
+Secondly, even if the story is inaccurate, I don't want to suggest that because of that anyone on this Committee has any feeling that that means Nosenko is not bona fide. My question is really very limited. A, if it were demonstrated that the story on Oswald is inaccurate, what impact would that have on your overall assessment?
+
+Mr. Tovar. You mean demonstrably inaccurate?
+
+Mr. Goldsmith. Yes.
+
+Mr. Tovar. It would have to be examined. It would have to be examined the full panoply of the whole Oswald issue. I would say we will get this team of analysts and we will fight it out. We are talking about hypothesis.
+
+Mr. Goldsmith. Yes. I would prefer to stay away from the term "fighting it out" because there is no one here who is in the posture of making a fighting issue out of it.
+
+I no longer have any questions. I will have questions to ask whoever on your staff participated in the preparation of the memo that we discussed earlier.
+
+TAD SECRET
+
+HW 48331 DocId:32277210 Page 47

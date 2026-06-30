@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_27026.png
+
+Convert to Markdownand all other files or unfiled documentary materials in the office, or storage repositories, of the organizational unit which managed the program or project in question.
+
+The requests also include all such files in the offices or storage repositories of the responsible Division Director, Office Director, and Directorate Deputy Director, in the DCI office, and in any other part of the Agency which had significant involvement or connection with the program.
+
+Where the Committee requests "documents" or "docu- mentary materials", those terms are defined as all corres- pondence, memoranda, notes, working papers, buck slips and routing slips, studies, reports, charts, films, tapes, and all other writings, printings, typings, or drafts, and copies or reproductions.
+
+When files for a specific project or program are re- quested under the best known designation of that project or program, the request includes files of any earlier or later versions of that project. Thus, the request for Project MHCHAOS would also comprehend files for the ante- cedent MHALPHA and MHPASHA projects and for the subsequent MHVAPOR.
+
+When any files, portions thereof, or particular docu- mentary materials are no longer available, the Committee
+
+Photocopy from the Gerald R. Ford Library
+
+NFW 50955 DocId:32112856 Page 8

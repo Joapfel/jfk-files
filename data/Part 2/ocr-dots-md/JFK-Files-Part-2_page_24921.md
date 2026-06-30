@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24921.png
+
+Convert to Markdownof the Administration included intensive efforts to recruit and arm dissidents within Cuba and raids on plants, mines, and harbors.
+
+Discussions at the Special Group and NSC meetings might well have contributed to the perception of some CIA officials that assassination was a permissible tool in the effort to overthrow the Castro regime. At a Special Group meeting in November 1960, Under Secretary Merchant inquired whether any planning had been undertaken for "direct, positive action" against Che Guevarra, Raúl and Fidel Castro. Cabell replied that such a capability did not exist, but might well have left the meeting with the impression that assassination was not out of bounds. One phase of Lansdale's plans, which was submitted to the Special Group in January 1962, aimed at inducing "open revolt and overthrow of the Communist regime", and included in the final phase an "attack on the cadre of the regime, including key leaders". The proposal stated that "this should be a 'Special Target' operation . . . Gangster elements might provide the best recruitment potential against police. . ." Several minutes from Special Group meetings contain language such as "possible removal of Castro from the Cuban scene". Although Lansdale's proposal was shelved, the type of aggressive action contemplated was not ruled out.
+
+On several occasions, the subject of assassination was
+
+HW 50955 DocId:32423539 Page 551

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_31749.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH:ay
+
+in Washington." The report said that an editor of "Ramparts" magazine had visited Prague and held "a long, secret session" with officers of the Communist controlled International Union of Students (IUS).
+
+The article continued by stating that "Ramparts" is the magazine that exposed the fact that the Central Intelligence Agency (CIA) had been financing the National Student Association (NSA), which in turn had worked for several years to prevent IUS from dominating the youth of the world. The article questioned what relationship there was between "Ramparts" and the IUS.
+
+ROWAN telephoned ROBERT SCHEER, Managing Editor of "Ramparts" in San Francisco and SCHEER admitted that he had met with representatives of the National Liberation Front, political arm of the Communist Viet Cong, in South Vietnam, and also with IUS officers in Prague "several weeks ago" for two days. In response to a question as to who controlled IUS, SCHEER replied, "It is essentially an organ of the foreign policy of the Soviet Union." SCHEER emphasized that he had visited IUS headquarters strictly for journalistic reasons and that he was in Europe writing a story for "Ramparts" on Bertrand Russell, "(94 year old British philosopher who plans a Vietnam 'war crimes trial' of President Johnson)", so he continued on to Prague to check the international implications of the "Ramparts" article on the NSA. SCHEER volunteered, "We don't truck with Communism in Ramparts. We compare the U.S. position in Vietnam with the actions of the Soviet Union in Hungary. Both are intolerable and we make no bones about it. Any attempt to smear us at Ramparts is libelous and we'll sue. I warned the same thing when they were muttering about me being a Communist when I ran for Congress."
+
+ROBERT SCHEER traveled to Prague, Czechoslovakia during the first week of February, 1967, to contact the International Union of Students (IUS) and was an official guest of the Czechoslovakian Government with his lodging being furnished at the best hotel in Prague. SCHEER requested and received ~~135~~
+
+SECRET
+
+1313
+
+Copy......1..of.....3 Copies
+Page...71...of/34....Pages
+
+1313
+
+NW 88613
+DocId:34517445 Page 72

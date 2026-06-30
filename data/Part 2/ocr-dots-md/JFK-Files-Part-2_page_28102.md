@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_28102.png
+
+. Here again, as in the Counsel, I had responsibility for a great deal of typing, but less shorthand than before. I learned how to work two kinds of automatic typewriters and was responsible for using them for large-volume mailings. Left staff after this seat turned over after election. Salary approximately $6,500 for a twenty hour week.
+
+PRIOR TO HILL EXPERIENCE:
+
+**March, 1970 - January, 1971-Shering Pharmaceutical Company**
+
+Secretary for two product managers, John Moser and Toby Madison. Had many different responsibilities: filing, typing, shorthand, telephone calling and answering, making reservations for overseas trips and in-country trips, and greating business clients. Enjoyed this job greatly. Salary approximately $6,400.
+
+Personal Information:
+Date of birth--October 26, 1950--Houston, Texas
+Marital Status--Married, no children
+Health--Excellent
+
+References:
+
+Honorable Richard F. Vander Veen Tele: 202-225-3831
+1232 Longworth House Office Building
+Washington, D. C. 20515
+
+Tom Quimby, Administrative Assistant for Mr. Vander Veen
+1232 Longworth House Office Building
+Washington, D. C. 20515 Tele: 202-225-3831
+
+Bill Wilson
+Staff Director for the Office of the Legislative Counsel
+136 Cannon House Office Building
+Washington, D. C. 20515 Tele: 202-225-6060

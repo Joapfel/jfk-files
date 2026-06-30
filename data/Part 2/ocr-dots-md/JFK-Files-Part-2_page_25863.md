@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_25863.png
+
+Convert to MarkdownMiscellaneous John McCone Papers
+
+Tai Pilots
+
+Material used at NSC Exec. Committee Meeting 29 March 63
+
+Large envelop of miscellaneous papers
+
+Briefing Memoranda-1962
+
+President Briefing 22 Dec 1964
+
+1" File 1962
+5" File 1962
+N' file 1962
+
+Air East Trip 2-14 June 1962
+
+Burbell Panel 1963 & 64
+
+PROPERTY OF
+THE WHITE HOUSE OFFICE
+
+02298
+
+HW 50955 DocId:32423630 Page 596

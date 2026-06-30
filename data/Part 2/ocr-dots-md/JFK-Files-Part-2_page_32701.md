@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_32701.png
+
+Convert to MarkdownThe O.A.S. Council met on the morning of October 23. Secretary of State Dean Rusk sitting as the U.S. Representative described the nature of the threat to this hemisphere and the course measures which the United States considered it essential for the inter-American system to take. He stated that "the Soviet intervention in this hemisphere with major offensive weapons challenges as never before the determination of the American Governments to carry out hemispheric commitments solemnly assumed in inter-American treaties and resolutions for the defense of the peace and security of the nations of the hemisphere against extra-continental aggression or intervention." He proposed that under the Rio Treaty the Council, serving as Organ of Consultation, without delay "call for the immediate dismantling and withdrawal from Cuba of all missiles and other weapons of offensive capability and ... recommend ... that the member states of the Organization of American States take the necessary measures to ensure that Cuba does not continue to receive additional offensive weapons ... and if necessary to prevent the offensive capacity already acquired by the Castro regime from being used to destroy the peace and security of the hemisphere."
+
+The Secretary noted that the United States was simultaneously asking the U.N. Security Council to act in the matter. He observed: "The threat is to our hemisphere and we have primary responsibility and duty to act as we are now doing, as a hemisphere. But the threat originates from outside the hemisphere and it is appropriate that the extra-continental power which challenges our inter-American commitments ... be dealt with in the forum in which that power participates. It is therefore fitting in this case that the Security Council of the United Nations be requested to call upon this member
+
+/to refrain
+
+H.W. 50955 DocId:32424709 Page 82

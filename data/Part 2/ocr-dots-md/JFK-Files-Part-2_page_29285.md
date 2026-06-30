@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_29285.png
+
+Convert to MarkdownL. Dominick Bartone
+
+File #A10 190 157
+
+- 10/28/ memo
+
+- DOB: 8/8/13; N.Y.
+Res.: 25 Lansdowne Rd., Toledo, Ohio
+
+- Mentions DB's long record and some specific raps
+
+- "Unconfirmed rumors have circulated for years that during the late 1950's he was involved in some capacity w/the CIA."

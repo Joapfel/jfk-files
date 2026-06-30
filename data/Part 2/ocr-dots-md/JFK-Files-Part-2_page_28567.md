@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_28567.png
+
+Convert to MarkdownMEMORANDUM
+
+JUNE 6, 1977
+
+TO: Louis Stokes
+CHAIRMAN
+
+FROM: Tom Lambeth
+Acting Staff Director
+
+RE: Gina Resnick, document clerk
+
+Please be advised that Ms. Gina Resnick, applicant for a document clerk position, has been interviewed by Mr. Gerald P. Hamilton, Deputy Chief Researcher, MLK, Mr. Donovan L. Gay, Chief Researcher, and by Mr. Stephen J. Fallis, Deputy Chief Counsel. All three have recommended that Ms. Resnick be hired in this capacity at $10,000. per annum.
+
+Ms. Resnick received her MLS from the University of Michigan, December 1976, and served as Reference Assistant with the University's document collection for their Public Health Library. She also was employed with the Congressional Research Service, Library of Congress, and while working with documents, she had the opportunity to research and write published Congressional hearings and reports concerning the Intelligence Community.
+
+If it meets your approval, we would like to have Ms. Resnick report to our Committee on Monday, June 13, 1977.
+
+Thank you.

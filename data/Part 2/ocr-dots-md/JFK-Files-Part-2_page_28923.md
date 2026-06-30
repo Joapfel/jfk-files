@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_28923.png
+
+Convert to Markdown# REPORT OF CONTACT
+(USE INK OR TYPEWRITER)
+
+## OFFICE:
+
+Dallas, Tex.
+
+DATE: 1-10-64
+
+A/N: 433-54-3937
+
+W/E OR S/E PERSON: Lee Harvey Oswald
+
+NAME AND ADDRESS OF PERSON(S) CONTACTED: Mr. Lee, R. Clarke - Office Mgr. - Jaggars Chiles Stovall Inc. 11-1-55 01
+
+CONTACT MADE:
+IN PERSON ☐ TELEPHONE ☑
+PLACE OF CONTACT: Dallas
+
+I asked Mr. Clarke to look at his copy of his 941 for 12/62. He did so and reported that he showed #727,81.
+
+It is obvious that the #636,50 appearing on the 794 for 1962 was another employer and therefore 1962 is one of the highare.
+
+They reason the #727,81 did not get on the wage record is because the Jaggers Corporation used an inaccurate discount number. They showed 433-54-3739 instead of 433-54-3937.
+
+CONTACT MADE BY: Jess H. Carter (SIGNATURE)
+
+Asst. Mgr. (TITLE)
+
+(FOR CONTINUATION OF THIS REPORT, TURN PAGE. KEEP MARGINAL SPACE AT RIGHT FOR BINDING)
+
+U. S. GOVERNMENT PRINTING OFFICE : 1958 O -486513
+
+NW 88326 DocId:32245128 Page 35

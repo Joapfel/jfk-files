@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_30429.png
+
+Convert to MarkdownSECRET
+
+1-4
+
+the performance of the investigative agencies, specifically
+the FBI and the CIA and to evaluate the work of the Warren
+Commission.
+
+Do you understand that as well?
+
+Mr. Shaw. Yes.
+
+Mr. Goldsmith. Prior to coming here today, have you
+discussed what your testimony is going to be with any CIA
+employee?
+
+Mr. Shaw. I haven't, except to tell them that I was
+going to tell the truth when I got over here.
+
+Mr. Goldsmith. In terms of discussing the substance of
+your testimony?
+
+Mr. Shaw. None whatever.
+
+Mr. Goldsmith. Have you discussed with any CIA employee,
+past or present, who either has been interviewed by the
+Committee or has given a statement under oath, to the Committee,
+what questions were asked of him or her?
+
+Mr. Shaw. I have not.
+
+Mr. Goldsmith. Are you here today voluntarily and
+without subpoena?
+
+Mr. Shaw. Yes.
+
+Mr. Goldsmith. Mr. Shaw, how long have you been working
+under State Department cover?
+
+Mr. Shaw. Since approximately the date I came aboard,
+because I was promptly sent to the Department of State for
+
+SECRET
+
+ALDERSON REPORTING COMPANY
+
+306 7TH STREET, S.W., REPORTERS BUILDING, WASHINGTON, D.C. 20024 (202) 554-2345
+
+HW 50955 DocId:32277214 Page 5

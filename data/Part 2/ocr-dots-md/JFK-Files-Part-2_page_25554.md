@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_25554.png
+
+Convert to MarkdownJune 7, 1976
+
+Honorable Michael J. Mansfield
+United States Senate
+133 Russell Bldg.
+Washington, DC 20510
+
+Dear Senator Mansfield:
+
+George Bush's letter to Senator Hugh Scott, with a copy to you, of the 2nd of June is disturbingly ambiguous. In stating that the CIA now believes itself relieved of the responsibility of maintaining data "which were subject to investigation by the Rockefeller Commission and the Select Committee," the Agency failed to make any effort to identify what materials were targeted for destruction and which weren't. Further, the next to last sentence of Mr. Bush's letter, "I trust you (Senator Scott) agree that this action is now necessary and appropriate, and I would appreciate your confirmation of this understanding," has led some observers in the Senate to conclude no destruction will take place until such confirmation has been given. This does not appear to be true. Neither the press office nor the legislative counsel would confirm that destruction of date has not already occurred, or would not occur without acquiescence from the Senate leadership. To the contrary, the legislative counsel's office informed this group that the "process" of destruction has already begun.
+
+The action of the Central Intelligence Agency is wrong. The new Select Committee on Intelligence should have been consulted prior to the destruction of any materials which might be vital to the proper functioning of that committee and which in any case are within the legislative and oversight domain of that committee Chairman Inouye and Vice-Chairman Baker, along with the membership of the Intelligence Committee should have the opportunity to review the data selected for destruction and to determine, in conjunction with the CIA, the propriety of destroying or maintaining such data.

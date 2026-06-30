@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_29591.png
+
+Convert to Markdown# Classification:
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+- 42 -
+
+612/ See Section III, A, 1, above.
+
+613/ Note on Article by Robert S. Allen and Paul Scott, "CIA Withheld Vital Intelligence from Warren Commission," 10/21/64.
+
+614/ The Chief of the Mexico Branch at Headquarters has told this Committee that it is his belief that the tapes were probably still in existence at the time of the assassination. (HSCA Deposition of John Scelso, 5/16/78, p. 76-77.) But the testimony of the persons at the Mexico City Station is consistent in saying that the tapes did not exist at the time of the assassination. (See HSCA Deposition of Robert Shaw, 5/16/78, p. 29; HSCA Deposition of Allan White, 5/18/78, p. 20; David A. Phillips Testimony, 11/27/76, p. 63; David A. Phillips Testimony, 4/25/78, pp. 17, 23; Ann Goodpasture Testimony, 4/13/78, p. 94.)
+
+615/ See Section II, C, 4, b, (c), (e); Tab F Draft, pp. 5-6.
+
+616/ If the 9/28/63 conversation received expedited handling also it is possible that it would have been in the Station prior to the first or second of October.
+
+617/ A. Goodpasture Testimony, 4/13/78, p. 95.
+
+618/ DIR 84886, 11/23/63, para. 2.
+
+619/ MEXI 7023, 11/23/63, para. 2.
+
+620/ MEXI 7025, 11/23/63, para. 4.
+
+621/ MEXI 7054, 11/24/63, para. 3.
+
+622/ See discussion in text above and below.
+
+623/ See Section II, C, 4, above.
+
+624/ Ann Goodpasture Testimony, 4/13/78, p. 94.
+
+625/ Ann Goodpasture Testimony, 4/13/78, pp. 95-96; See also pp. 77, 93, 110.
+
+Classification: ____
+
+Classified by derivation: ____
+20(00)03
+
+HW 48327 DocId:32263889 Page 239
+
+345

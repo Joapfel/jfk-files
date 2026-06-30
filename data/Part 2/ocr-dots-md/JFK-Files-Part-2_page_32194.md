@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_32194.png
+
+Convert to MarkdownSECRET
+
+NSC Action No.
+
+Substance
+Establishment of NSC Executive Committee
+
+Status
+Closed.
+
+CUBA NASAM 1963 10/22/62
+Cuba Overflights. (This Presidential directive approved an attached Guidelines for the Planning of Cuban Overflights, and requested CIA to come up with an estimate of the adequacy of such a system of intelligence collection to meet the criteria set forth, on assumption it is supplemented by energetic collection of information by all other available means.)
+
+Report Submitted.
+
+BYES ONLY
+
+CUBA NASAM 208 12/6/62
+Interdepartmental Organization of Cuban Affairs - with responsibility vested in a Coordinator of Cuban affairs in Department of State.
+
+Closed.
+
+CUBA NASAM 213 1/8/63
+# SECRET
+
+HW 50955 DocId:32276061 Page 12

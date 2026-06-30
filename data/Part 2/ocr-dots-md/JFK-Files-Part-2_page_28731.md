@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_28731.png
+
+Convert to MarkdownDISTRICT ATTORNEY
+
+OF THE
+COUNTY OF NEW YORK
+
+155 LEONARD STREET
+NEW YORK, N. Y. 10013
+RE 2-7300
+
+Neighborhood Complaint Offices:
+
+Harlem Branch
+55 West 125 Street
+New York, N. Y. 10027
+(212) 831-8661
+West Side Branch
+2112 Broadway
+New York, N. Y. 10023
+(212) 595-0760
+
+ROBERT M. MORGENTHAU
+*District Attorney*
+
+October 26, 1976
+
+Richard Sprague, Esq.
+1622 Locust Street
+Philadelphia, PA 19103
+
+Dear Mr. Sprague:
+
+I have enclosed herewith a copy of my resume. I look forward to meeting and speaking with you in the near future.

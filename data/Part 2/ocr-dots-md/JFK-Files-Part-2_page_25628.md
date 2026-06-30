@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_25628.png
+
+Convert to MarkdownSECRET
+
+CABE 24 July '74
+while not directly involved & admittedly unaware
+that are facts & ramifications rep a exposure &
+that after base & opinion / termination at his
+stage, newly only temporary expedient, will have adum-
+erations on his loyalties to nil. He might recent
+termination by c/o for something we not respond
+for.
+
+March 16 OS memos to Macs + Hughes
+
+June-1974
+Family Oprie Special Staff Proposals asbed OS to check
+records in James R. Phelan & Wallace Turrel, both
+of interest in connection with a sensitive SP activity.
+OS record sheet Phelan is a well known Clay Shae
+trial. Phelan wrote several articles re Mahen's deformation
+suit w/ Hughes. Mahen Transferred to be case. Dickett visited
+2 receiving call from RAM in Dec. 1970 complaining
+that CIA embarked on a new Hughes project & had not gone
+from him. (Mahan - Hughe fight reason for termn)
+W/ RAMS
+
+Non OASec. Does in MEHRIG AS FILI
+IFEB 71 Memo from Eric I to DDP - licenses efforts to
+work out a salis. Plan to terminate MIM from RAMA
+cover in a manner that avoids the need for a meeting w/
+RAMA officers
+
+x
+
+SECRET?

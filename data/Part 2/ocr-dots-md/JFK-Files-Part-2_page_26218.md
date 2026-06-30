@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_26218.png
+
+Convert to Markdowndon't think it would have been completely in the Vietnamese context.
+
+O'BRIEN: Yeah, do you get any of this thinking when you get back? Any contingency planning or thinking about the building of troop levels to a more substantial level, maybe linked with the settling of the Laotian question first?
+
+LANSDALE: There might have been, and I might have known some of it. I can't recall now of any that it's someplace in the back of my head, there were some things like that going on. I turned around, just took time off completely from other things and concentrated on this other problem for a time afterwards. Actually, through December of that year, I was sort of holed up and working on some things. My staff would get in and out of some of these other things, and I used to shove them in to take my place in meetings and so on, and I could only then just get very quick briefings on them, but they were essentially supporting whatever McNamara and Gilpatrick were doing so I'd just have them go in and report directly and work with them directly.

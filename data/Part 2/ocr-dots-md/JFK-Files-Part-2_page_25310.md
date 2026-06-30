@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_25310.png
+
+Convert to MarkdownCaptain Hamilton's letter stated:
+
+"This Department has under investigation Arthur Lewis Clark, Sr., FBI 3709258, and a Roger Bauman. These men are representing themselves as officials of the Sunbeam Oil Company, 212 Roosevelt Theater Building, Miami Beach, and both are spending money very lavishly."
+
+"Clark has been arrested several times and has been associated with many confidence men and hoodlums such as James Fratianno, Victor Pereira, Eugene Brading, Clarence Rhodes, Stephen Sambor and the Shaldone brothers of Denver."
+
+As investigator Peter Hoves points out, the men listed with Brading in the letter, represent a virtual "Who's Who" of organized crime leaders between California and the Midwest.
+
+(BRADING AND FRATIANNO)
+
+Of these top Mafia men listed with Brading (Braden) perhaps the most important one is James Fratianno, also widely known as "Jimmie The Weasel." Fratianno was known as perhaps the Mafia's highest ranking executioner in the nation.
+
+In 1959, in his testimony before the Rackets Committee of the California legislature, Captain Hamilton, the Chief of LAPD Intelligence, stated that,
+
+"We have long considered Fratianno to be the executioner for the Mafia on the West Coast."
+
+Captain Hamilton told the Rackets Committee that his Intelligence Division had linked Jimmie Fratianno to at least sixteen Mafia executions.
+
+Fratianno had once been arrested for the attempted assassination of Los Angeles Mafia head Mickey Cohen in 1949. Cohen had survived the bloody shooting which took the life of one of his lieutenants. Fratianno was later released due to insufficient evidence. Fratianno used the alibi that he had been at the home of Mafia associate Nick Licata the night of the shooting. Licata later became the new head of the Los Angeles Mafia, and, perhaps significantly, was later given control of the Mafia in Dallas, Texas.

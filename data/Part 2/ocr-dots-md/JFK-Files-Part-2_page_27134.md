@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_27134.png
+
+Convert to MarkdownSECRET SENSITIVE
+
+By way of explanation, we can illustrate the ineffectual coordination with a case involving a long-term Soviet penetration in the Agency. A very important staff agent was unmasked by virtue of information supplied by the aforementioned defector, but in the process the FBI officially took the position that the candidate who was submitted by the Agency was not the Soviet agent in question, and by memorandum they proposed that we submit all of the data to the Department of Defense on grounds that the penetration agent was more likely a past or present asset of the military.
+
+Subsequently, a high-level source confirmed our original identification, which in turn was accepted by the FBI. The case is illustrative of the inability within this Government to resolve interagency differences in all of those sensitive fields affecting penetration.
+
+The result of the 1973 changes was a decentralization of counterintelligence, a retrogression to the inadequacies of the period 1949 to 1955. Now, as then, counterintelligence in CIA lacks the necessary specialists and the requisite interaction at the Agency's highest levels. Some of the present grave problems are not new, but the recent changes have greatly magnified them. Among our present weaknesses are the following:
+
+- An almost total failure against
+Soviet illegals (intelligence officers under deep, non-official cover). At
+
+23
+
+Photocopy
+from
+Gerald R. Ford Library

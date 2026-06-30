@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_27414.png
+
+Convert to Markdown✓ 7. Undated draft (on white paper), the first words of which are: "Project is approved with the following provision." (one page).
+
+✓ 8. Memo for the Record dated 15 April 1970 by Donald P. Gregg re "Meeting with ADDP on Project MPLODESTAR" (2 pages).
+
+(Items 4-8 are contained in a file labeled "Eyes Only JH & RO - Includes MPLODESTAR; MPDIALECTIC; MPTROIKA; MPSTRUGGLE").
+
+I would appreciate your furnishing these copies to me at the earliest feasible time. Thanks.
+
+JAMES B. WEIDNER
+Counsel
+
+Photocopy
+from
+Gerald R. Ford Library
+
+HW 50955 DocID:32105598 Page 245

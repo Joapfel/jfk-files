@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_29226.png
+
+Convert to MarkdownOswald stated that he has two brothers, who reside, like his mother, in Fort Worth, Texas. He stated that his father, John Lee Oswald, is deceased.
+
+Oswald's mother: <u>Margarette Oswald</u>, resides by herself in
+Fort Worth, Texas.
+
+Oswald's brothers: <u>Robert Oswald</u>, WM, age 27,
+<u>John Oswald</u>, WM, age 32,
+
+Oswald stated he had talked to Major Trosclair about getting a permit for F.F.C.C. and the Major advised him to consult his attorney. Oswald said he never did go and see about a permit at city hall.
+
+Oswald further stated the Cubans came up to him where he was giving out the leaflets and began to tear them up and throw them in the street. Oswald stated that they started to yell that he was a communist and about that time the officers from the First Disteict came up and a crowd had gathered. Oswald stated he joined the Fair Play for Cuba Committee when he found a leaflet on the street one day and read what was on it, and sent $5.00 to the address which was in New York city and after a brief period of time he was sent material through the mail and contacted locally, and he started to attend the meetings, which he stated were held in each others homes. Oswald stated they, the members, get together and talk about how it would be to visit Cuba, life in Cuba, etc..
+
+Oswald denied the organization was communist, or a communist front, when asked by Captain James Arnold, Commanding Officer of the First Police District, who came in during the interview, but Oswald had in his possession and was carrying a piece of cardboard with "VIVA VIVA Fidel" painted on it and the paraphernalia he was handing out was pasted on this cardboard also. Oswald stated he has never been to Cuba, and it appeared as though he is being used by these people and is very uninformed and knows very little about this organization that he belongs to and its ultimate purpose or goal. Oswald stated that the people that attend these informal meetings are working class people, such as clerical, trades, etc..
+
+The three Cubans were interviewed and furnished the following information:
+
+#1. Celso Macario Hernandez, WM, age 47, D.O.B. 1/8/16,
+Social Security number 265-76-8756
+
+Hernandez stated he came to the United States via Miami, Florida, on October 9, 1962, with his family and he was a traveling book salesman in Cuba. He came to New Orleans on January 8, 1963 and resides at 519 Adele Street, New Orleans with his family. He has not had any employment except for a few days of manual labor in Miami, Florida, and is presently on relief or welfare.

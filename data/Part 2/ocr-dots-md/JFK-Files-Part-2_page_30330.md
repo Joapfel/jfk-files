@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_30330.png
+
+Convert to Markdown1 this very quickly, between 1964 and 1969. Certainly you
+2 couldn't have been very pleased with the way you were being
+3 treated by a country that you had defected to and offered to
+4 give information to. So for a period of that '64, to '69,
+5 five years, you went through a rather rough period in your life?
+6 Mr. Nosenko. Yes.
+7 Mr. Dodd. Why did you go to work for somebody who treated
+8 you like that?
+9 Mr. Nosenko. Sir, I, even was five year there, I didn't
+10 consider that it was decision of the whole CIA. I didn't
+11 consider that I didn't blame the whole CIA because it
+12 wasn't the question decided by the whole Agency. It was
+13 decided question by several persons who were I consider simply
+14 in this period of time sick, mentally sick, not ill, but
+15 were simply in fear, in scare, in mania as if KGB penetrated
+16 everything.
+17 Mr. Dodd. Is it your statement to me that for five
+18 years, while you were incarcerated in almost solitary confine-
+19 ment, that you thought that this was the individual acts of a
+20 couple of employees of this Agency?
+21 Mr. Nosenko. Not employees.
+22 Mr. Dodd. Without the approval of the very highest
+23 authority in this Agency?
+24 Mr. Nosenko. Sir, I have seen Chief of Soviet Russia
+25 Division, Mr. David Murphy. He was a high ranking man. It was
+
+HW 50955 DocId:32277209 Page 72
+
+TOP SECRET
+
+TOP SECRET
+
+95

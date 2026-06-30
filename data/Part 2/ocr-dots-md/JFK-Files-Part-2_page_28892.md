@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_28892.png
+
+Convert to Markdown27. Forms OA-C107, Determination of Resumption of Award.
+
+28. Forms OA-C528b, Determination of Termination of Entitlement or Suspension of Payments Based on Supporting Evidence on File.
+
+29. Forms OA-C610, Payee, Address Change, or Hold Check Request.
+
+30. Form OA-C526, Benefit Summary.
+
+31. Form OA-C101, Determination of Award.
+
+32. Form OA-C589, receipt for check.
+
+33. Form OA-C596, 1965 Conversion of Benefit Rates.
+
+34. Form AC-512, Appointment of Representative, completed by Marina N. Oswald and James H. Martin.
+
+35. Form OAC-5002, Report of Contact, with James H. Martin.
+
+36. Form OAC-5002, Report of Contact, re Lee Harvey Oswald's death.
+
+The above-mentioned documents are being sent to you in their entirety. We have withheld only the records of wage and self-employment income maintained under the direction of 42 U.S.C. 405(c)(2). This record is created on the basis of tax return information received from the Internal Revenue Service. Under 26 U.S.C. 6103, this information is given to the Social Security Administration for the administration of the Social Security Act and redisclosure is prohibited. You may request this information directly from the Internal Revenue Service.
+
+I understand that the Dallas Region has already sent you the local folder on Lee Harvey Oswald. We are also checking with the National Archives to determine if it may have further social security records on Lee Harvey Oswald or Marina Oswald. To date, we have found no records under the aliases you provided. We will contact you if further documents are located.
+
+Enclosures
+
+NW 88326 DocId:32245128 Page 4

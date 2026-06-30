@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_27330.png
+
+Convert to Markdownz - Memo for Special Agent in Charge - from Hqs - Undated - Subj: Project RESISTANCE # 533 989 I-SB
+
+a - Memo for Special Agent in Charge - 17 Dec 70
+
+b - Memo for Special Agent in Charge Miami Field Office - 29 Oct 70 ADMINISTRATIVE
+
+c - Memo for Hqs - from Miami Field Office - 19 Oct 70
+
+d - Cable to Dir, FBI - 20 Mar 70 SECRET (No. 079112)
+
+e - Cable to Dir, CIA 003 - from Dir, FBI - 3-25-70 SECRET
+
+f - Cable to SAC CFO - 17 June 69
+
+g - Memo for Special Agent in Charge Los Angeles Field Office - 11 July 1968 ADMINISTRATIVE
+
+h - M/R - Subj: Project Resistance - 8 Dec 67 SECRET
+
+i - Ltr to Chief, - 10/5/70 - (Attachment "E").
+
+j - Memo to General Manager, Arlington - 15 Aug 68
+
+k - Memo for Chief, Special Activities Div - 5 Oct 67 SECRET EYES ONLY
+
+l - Schedule of Projected Expenses for PROJECT CANDLE SECRET EYES ONLY
+
+m - Memo for General Manager, Arlington - 14 Sept 67
+
+n - Memo for Dir. of Security - 12 Sept 67 SECRET EYES ONLY
+
+o - Memo for Deputy Dir of Security (IOS) - 11 Aug 67 SECRET EYES ONLY
+
+P - Memo for General Manager, Arlington - 19 Apr 67 SECRET
+
+q - Memo for General Manager, Arlington - 29 June 67 SECRET
+
+r - Memo for Dir of Security - SECRET
+
+s - Memo for Deputy Dir of Security - 2 Mar 67 SECRET
+
+t - Memo for General Manager, Arlington - 24 Feb 67 SECRET
+
+u - Memo to Dir of Ops, Home Office - 21 Feb 68 SECRET
+
+v - Memo to Dir of Ops, Home Office - 8 Jan 68 SECRET
+
+w - Memo for Chief, Special Activities Div. 27 Dec 67 SECRET EYES ONLY
+
+x - Memo for Chief, Special Activities Div. - 15 Nov 67 SECRET EYES ONLY
+
+y - Reply to message - 1967 Oct 19 - ITT World Communications Inc. SECRET EYES ON
+
+z - Project MERRIMACK - 26 Sept 67
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library
+
+NW 50955 DocId:32105598 Page 161

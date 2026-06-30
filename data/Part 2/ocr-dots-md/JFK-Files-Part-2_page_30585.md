@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_30585.png
+
+Convert to MarkdownSECRET
+
+002371
+
+Christ #14
+for FE Division in
+9/60 in Havana
+"Allotment number
+1137-@7169-5995"
+
+2/16/65
+indicates search request
+
+ENVELOPE:
+
+"Personal Information regarding a third party.".
+I don't know if Christ reproduced.
+Apparently he was
+being entertained by
+a woman in Cuba +
+it may have led to
+his arrest.
+
+12/22/64
+request for Agency IO.
+
+Age: 46
+Height: 6'
+Weight: 185-
+Eyes: Grey
+Hair: Brown
+
+11/2/65
+Clearance certif. to State
+
+SECRET

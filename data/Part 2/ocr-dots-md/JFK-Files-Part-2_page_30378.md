@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_30378.png
+
+Convert to MarkdownTESTIMONY OF HUGH TOVAR
+
+Mr. Goldsmith. State your name for the record.
+
+Mr. Tovar. I sign my name B. Hugh. My full name is Bernard Hugh Tovar.
+
+Mr. Goldsmith. Mr. Tovar, my name is Michael Goldsmith, Senator Staff Counsel of the Select Committee on Assassinations. I have been designated by the Committee to take your deposition today. You are here voluntarily today?
+
+Mr. Tovar. Yes.
+
+Mr. Goldsmith. You have the right to have counsel present.
+
+Do you waive that right?
+
+Mr. Tovar. Yes.
+
+Mr. Goldsmith. Have you read a copy of the Committee's supporting resolution?
+
+Mr. Tovar. Yes.
+
+Mr. Goldsmith. Have you had a chance to read Rule Number 4?
+
+Mr. Tovar. I have.
+
+Mr. Goldsmith. The Committee rules provide for the transcript of a deposition to be made available to a witness and actually be delivered for retention by any witness that gives the Committee a statement. However, by virtue of the arrangement that the Committee has worked out with the CIA, the Agency has asked us to request Agency employees testifying before us to waive the right actually to receive a copy of the transcript.

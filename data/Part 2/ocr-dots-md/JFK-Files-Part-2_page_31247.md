@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_31247.png
+
+Convert to MarkdownSECRET
+
+002294
+
+Publicity has not been course:
+a) Pearson has not yet used the
+pille & flect of State Dept metering
+b) baum has not revealed full case; C/R
+should be primarily displayed when he does
+cf Puerto Rico in History will be exported.
+
+Pearson stay in chair, I detail him for
+arm in Chair to the 3 man team.
+
+Put in it best light - that there is no
+worse nature in Speedy du Stuy,
+P 127. We do not know if he did actually
+ask so suddenly, but we do know
+that pure were such good against Cuba.
+Unhappily, 1 think appears that Cuba
+may die here this
+
+P 129. Muhua says that Tief in jail in Taiwan, Ronald's
+plasma and gratefully in her legg, being required
+register again from his card in form. More of
+them would have compensation what diagay
+on Macs GFA connection in form his war service
+is an enhancement auto test. Procrassus also
+tells him now that within the front warandy
+is born in 1963, and he agreed to stay out of
+his conversation with Mrang and baum.
+
+P 131. March 5 may 1967
+Comment: Red had ear in a barrel

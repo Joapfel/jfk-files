@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_30960.png
+
+Convert to Markdown1111045-1
+
+SECRET
+
+Julio CARCARET
+training crops inuba
+& maybe Fla.
+
+S.F.N.E.
+ Second Naft Farm of the Beagle
+ - guerilla lyfit org.
+ 2 fly Cui TERRAZ Menijo, also H-66 military commado & boats gurnp are joined secretly.
+
+"The unit" in Dr. Jules Z.摩西
+Munoli Ray, SANCTUARY, Henry D. LEE
+
+SECRET
+
+SECRET

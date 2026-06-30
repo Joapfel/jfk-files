@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_27168.png
+
+Convert to MarkdownNational Police Officer in high frequency communications. No communications instructions were provided to the Miami police.
+
+Finance
+
+The First National Bank of Miami has been used by the Monetary Division
+to provide the Office of Finance with essential services in support of operations.
+These included: purchasing foreign currencies; purchasing bank cashier's checks;
+establishing bank accounts, both commercial and individual; providing letters of
+credit; initiating and receiving bank transfers, and placing of home mortgages in
+one or two instances where the individual's cover precluded the normal credit
+investigations.
+
+Medical Services
+
+"Bay of Pigs" Project.
+
+The Project Medical Advisor made two TDY trips to Miami prior to the Bay of Pigs to discuss medical training plans with Cuban medical personnel.
+
+A four-man evaluation team from OMS made at least two TDY trips to the Miami area to medically evaluate Cubans as cadre personnel for the invasion brigade.
+
+The Assessment and Evaluation Staff (A&ES) sent teams to Miami during the same period for psychological evaluations.
+
+A Medical Technician from the OMS was also temporarily assigned to Miami for first aid and medical training for the project activities in the Miami area.
+
+Post-Invasion.
+
+A Medical Technician from OMS was assigned PCS to JMWAVE in Miami from September 1963 to June 1966.
+
+During this same period the A&ES (by then part of the OMS) would,
+on request, occasionally send a psychologist to Miami for psychological
+evaluation for these continuing WH operational activities.
+
+Photocopy
+from
+Gerald R. Ford Library
+
+Secret

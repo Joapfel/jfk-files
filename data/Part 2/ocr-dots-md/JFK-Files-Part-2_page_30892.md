@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_30892.png
+
+Convert to MarkdownSECRET
+
+Betsy Palmer
+May 1, 1978
+
+SERGIO ARCACHA SMITH - Office of Security File Review
+
+April 28, 1978
+
+11:40:17
+
+1. Search Request on 4/6/67
+
+2. Report deleted, dated 7/19/61 - Third Party Information
+
+3. Sergio visits survivors of Cuban exile infiltration of U.S. who landed in New Orleans and were hospitalized because of their weakened condition. He tried to see them on 3 May 1961 but entrance to the hospital was denied until his bona fides could be established. Visited them on 10 May 1961. Arcacha then head of New Orleans chapter of CRC.
+
+4. Washington Start article, dated 1 April 1967 on Garrison proble - warrent issued for Arcacha's arrest on charges of conspiring to burglarize munitions bunker in 1961 with Gordon Novel.
+
+5. Bio memo - undated. Sergio Arcacha Smith one of promoters of Friends of Democratic Cuba in New Orleans, 6 January 1961. Investigation conducted by a reliable Miami Station asset concluded that FRC organized for personal gain.
+
+6. FBI memo on FRD, 1/18/61, New Orleans, deleted.
+
+7. Memo dated 31 May 1967 by Ramond G. Rocca
+Subject: Garrison and the Kennedy Assassination - Gordon Dwane Novel
+
+A. Summary - Novel has both claimed and denied CIA affiliation -- a thorough check of CIA records shows no affiliation. It is possible that NBC is supporting Novel to get a large audience for expose of Garrison. Novel may have exaggerated his presumed relationship with Sergio Arcacha Smith who also is not CIA affiliated.
+
+B. Novel is mysterious -- little information -- 29 year old former owner of bar in French Quarter and an electronics expert.
+
+C. In Columbus, Ohio, Novel is free on $10,000 bond - living in a rent-free apartment and drives a car with dealer tags. Rocca questions where money is coming from.
+
+D. Novel in McLenon, Virginia 25-26 March 1967. Given a polygraph by Lloyd Furr. Furr and Richard L. Bast operate firm Redex -- sell audio and counter audio devices.
+
+E. CIA finds no evidence of ever having an Evergreen Advertising Agency which Novel claims he worked for and was CIA front.
+
+F. Records show CIA never recruited or paid Arcacha directly but since he was associated with FRD in New Orleans, which was created with CIA assistance, guidance and financial support may have been given him through the Miami FRD circa May 1960.
+
+SECRET

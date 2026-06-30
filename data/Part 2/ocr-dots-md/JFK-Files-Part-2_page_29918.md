@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_29918.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+XXXXXXXX OCR 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE      OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+01-13-77  Detective Williams, Crimes Against Property Unit, reports that Knohl's runaway daughter told him that her father, David Paul Knohl, and her mother, were bookmakers in New York prior to moving to Maryland. Knohl is still taking bets according to the daughter over his mobile telephone 855-6500. Knohl's home number is 774-3875. 855-6500 is the same mobile operator used by Policano.
+
+Cpl. M. F. Alban
+
+PAGE# _______________

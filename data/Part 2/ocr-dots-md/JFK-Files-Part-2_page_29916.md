@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_29916.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+XXXXXXXX OCR 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+12-13-76 Reference toll calls made by Fred Black, Detective Long, Baltimore County Police Department, advises the following subscriber information:
+
+(301) 542-8400 - Teamco of Baltimore, Inc.
+4430 Park Heights Avenue,
+Baltimore, Maryland
+
+(301) 276-7555 changed - Teamco of Baltimore to 276-3200
+
+(301) 539-0400 - Seaboard Finance Corp.
+9 Light Street,
+Baltimore, Maryland - dials directly to a
+Mr. Sidney Movens office
+
+(301) 366-1085 - Micro Inc.
+3001 Vineyard Lane,
+Baltimore, Maryland
+
+(301) 542-8800 - American-Bio-physical Corp.
+
+(301) 764-1030 - private residence - Glen Burnie
+
+(301) 367-7800 - Sinai Hospital
+
+(301) 667-6650 - private residence, Timonium area
+
+Washington Star article, 12-09-76, states that Dr. Alberto Garcia Menocal, a prominent Cuban exile, stated that Lee Harvey Oswald met repeatedly with Fidel Castro's diplomats in Mexico before the assassination of President John F. Kennedy.
+
+Cpl. M. F. Alban
+
+PAGE#

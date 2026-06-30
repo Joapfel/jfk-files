@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_26998.png
+
+Convert to Markdown3. <u>Soviet Signal Intelligence Ships</u>
+
+The Group considered an outline plan for "communication" with
+Communist crews. The general consensus was that this plan did not
+fall within the purview of the Special Group. It was referred back
+to JCS for further development. The matter will be discussed at a
+State-JCS meeting to be held in the near future. Mr. Gilpatric also
+expressed interest in seeing a more detailed development of the con-
+cept. Mr. Bundy pointed out that we should be careful where such
+activities are pursued. Generally speaking, they should be limited to
+the high seas or international air space. General Carter raised the
+point that this concept should not be stretched to include defection
+operations on land. This is a highly skilled operation which requires
+special attention and control. The Group took no particular position
+for or against the concept in referring it back to Defense.
+
+4. Chile
+
+The Group reviewed the two Agency papers. Mr. Johnson stressed
+the necessity for concealing U.S. participation in this operation and
+also expressed some concern about the possibility of the Radicals
+pulling out prematurely and bringing the government down. The Agency
+mentioned the desirability of policy-level conversations with suitable
+Chileans so that they would be aware of the future political arrangements
+which it is felt would be to the common interests of Chile and
+the United States. The Group approved the recommendation in paragraph
+5 on page 7.
+
+5. Dominican Republic
+
+The Group noted this paper. General Carter urged the Department
+of State to continue to press the interim government on the desirability
+of holding early elections.
+
+6. Panama
+
+Mr. Johnson said that State concurred in the general thrust of
+this paper, but would like to limit the continuation of the program to
+a three-month period during which time it would be reviewed in detail by
+State and CIA. The Group approved the proposal with this reservation.
+
+7. General Lemnitzer stated that Mr. McCone had called him and posed
+a possible requirement for low-level photography of critical Cuban
+targets. General Lemnitzer said that from the military point of view
+this was feasible, utilizing either RF-101 or FBU aircraft flown by
+U.S. pilots from various bases or carriers in the Caribbean area. The

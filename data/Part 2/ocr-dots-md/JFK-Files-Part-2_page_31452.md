@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_31452.png
+
+Convert to MarkdownSF 100-33836
+
+FTD/1r
+
+The Subject attended a May Day meeting held at 150 Golden Gate Avenue, San Francisco, on May 1, 1962, sponsored by the San Francisco Free Speech Forum. The Free Speech Forum was set up by the SFCCP to hold public meetings.
+
+WALTER STACK, a member of the SFCCP, was chairman of this meeting and spoke on the meeting of May Day as a labor holiday.
+
+ARCHIE BROWN, a member of the SFCCP, discussed his conviction under the Landum-Griffith Act. He said it is a test case to see if the act is constitutional. They noted that he was elected to the Executive Board of Local 10, International Longshoremen's and Warehousemen's Union (ILWU), by members of the local and it would make no difference if he resigned from the CP because the Landum-Griffith Act says a person must not have been a member in the past five years.
+
+RALPH IZARD, a member of the SFCCP, gave a speech on the subject of government and monopolies. He said the government should spend money on the unemployed, the sick, and the ill-housed instead of spending money trying to dominate former colonial countries trying to establish independence.
+
+ELIZABETH GURLEY FLYNN, Chairman, CP of the United States of America (CPUSA), was the featured speaker. She said that things were different today for Communists under indictment than when she was indicted under the Smith Act. She said at that time all doors were shut to them, but now all doors are open. She said that GUS HALL and BEN DAVIS, Communist functionaries, have been speaking to students all over the country. She said that the government knows that she is the Chairman of the CPUSA but so far has not been able to prove that she is a member of the CP. She said that the State Department is trying to take away her passport under the McCarran Act.
+
+She also said that she had visited the Soviet Union as a fraternal delegate to the Congress of the U.S.S.R. and gave the Russians the greetings of the American people. She also visited some of the Social Democracies and found no unemployment there.

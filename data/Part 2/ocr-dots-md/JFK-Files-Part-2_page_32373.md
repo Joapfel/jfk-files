@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_32373.png
+
+Convert to MarkdownSECRET
+
+for dissemination. The most interesting and informative refugee thus far is the brother of Amando Hart, the Cuban Minister of Education and member of the twenty-five man ORI Central Committee. The center is also collecting travel and personal documents which may be used for agent operations.
+
+6. We received valuable data on Cuban trade from the debriefing of a former official of the Ministry of Commerce who defected in Canada at the end of March. He was informed in February by CIA sources that this official was disaffected and wished to work against Castro. We contacted him and attempted unsuccessfully to induce him to return to Cuba as our agent. We have since expedited his travel to Miami where he is being interrogated.
+
+7. We are in contact with Eva Matos, the sister of Huber Matos, former associate of Fidel Castro, who broke with Fidel and has been in jail on the Isle of Pines since 1960. Although there is no practical method of effecting the escape or release of Huber at present, we will continue contact with his sister, who maintains correspondence with Huber through his father and his wife who are in Cuba.
+
+CAG INFORMATION REPORTS
+
+Following are highlights from selected interrogations of Cuban refugees processed through the Caribbean Admission Center (CAC) at
+
+SECRET
+
+E.C. 152 H

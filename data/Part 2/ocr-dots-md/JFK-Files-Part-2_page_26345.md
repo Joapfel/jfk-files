@@ -1,0 +1,101 @@
+# JFK-Files-Part-2_page_26345.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>CLASSIFICATION-DISSEMINATION CONTROLS</td>
+    <td rowspan="2">IN 80437</td>
+  </tr>
+  <tr>
+    <td>C-O-N-F-I-D-E-N-T-I-A-L</td>
+    <td>PAGE TWO</td>
+  </tr>
+  <tr>
+    <td>NO FOREIGN DISSEM</td>
+    <td>TDCS -3/553,724</td>
+  </tr>
+</table>
+
+<table>
+   <tbody>
+    <tr>
+     <td>
+      NAME
+     </td>
+     <td>
+      TITLE
+     </td>
+     <td>
+      DATED
+     </td>
+    </tr>
+    <tr>
+     <td>
+      JACOBSON
+     </td>
+     <td>
+      COLONEL
+     </td>
+     <td>
+      12/13/89
+     </td>
+    </tr>
+    <tr>
+     <td>
+      ATTEMPT TO DEFINE A NEW GVN FOREIGN POLICY IN THE LIGHT OF THE LODGE APPOINTMENT
+     </td>
+     <td colspan="2">
+      2. HEADQUARTERS COMMENT. TDCS-3/552,830 REPORTED THAT BUU HOI, GVN AMBASSADOR TO THE IVORY COAST, MOROCCO, NIGERIA, UPPER VOLTA, AND SENEGAL WAS EXPECTED IN SAIGON ON 15 JULY. CS-3/533,307 REPORTED THAT NGO DINH NHU HAD STATED AT AN INTERMINISTERIAL COMMITTEE ON STRATEGIC HAMLETS' MEETING THAT THE MINISTER OF FOREIGN AFFAIRS HAD FAILED TO ENROLL HIS PERSONNEL IN THE COURSE AT THE THI NGHE STRATEGIC HAMLET CENTER, AND THAT IF NECESSARY, THE MINISTER SHOULD RECALL HIS PERSONNEL FROM EMBASSIES ABROAD IN ORDER TO MEET THIS REQUIREMENT.
+     </td>
+    </tr>
+    <tr>
+     <td>
+      GOVERNOR GENERAL CRICHMY'S END OF MESSAGE (C) MTTI EXTERNAL CONTROL WROK
+     </td>
+     <td colspan="2">
+      3. FIELD DISSEM. STATE ARMY NAVY AIR USMACV MAAG AID USIA 2ND AIR DIVISION 9TH FIELD STATION CINCPAC PACFLT ARPAC PACAFETE Y NEARBY FULEGEMET INDIGENOUS FORUMS VECO 8 MOBILITY 2ND AIR DIVISION 9TH FIELD STATION CINCPAC PACFLT ARPAC PACAFETE Y NEARBY FULEGEMET INDIGENOUS FORUMS VECO 8 MOBILITY 2ND AIR DIVISION 9TH FIELD STATION CINCPAC PACFLT ARPAC PACAFETE Y NEARBY FULEGEMET INDIGENOUS FORUMS VECO 8 MOBILITY 2ND AIR DIVISION 9TH FIELD STATION CINCPAC PACFLT ARPAC PACAFETE Y NEARBY FULEGEMET INDIGENOUS FORUMS VECO 8 MOBILITY 2ND AIR DIVISION 9TH FIELD STATION CINCPAC PACFLT ARPAC PACAFETE Y NEARBY FULEGEMET INDIGENOUS FORUMS VECO 8 MOBILITY
+     </td>
+    </tr>
+    <tr>
+     <td>
+      SOURCE HIGH-TRAIT ATTACHMENTS
+     </td>
+     <td colspan="2">
+      EVALUATE THE PROPOSED ACTION IN LIGHT OF AVAILABLE INFORMATION
+     </td>
+    </tr>
+    <tr>
+     <td>
+      ASSISTANT
+     </td>
+     <td colspan="2">
+      JACOBSON
+     </td>
+    </tr>
+    <tr>
+     <td>
+      DATE ACQ
+     </td>
+     <td colspan="2">
+      12/13/89
+     </td>
+    </tr>
+    <tr>
+     <td>
+      SERVICE &amp; KEY
+     </td>
+     <td colspan="2">
+      ATTEMPT TO DEFINE A NEW GVN FOREIGN POLICY IN THE LIGHT OF THE LODGE APPOINTMENT
+     </td>
+    </tr>
+    <tr>
+     <td>
+      IM'D
+     </td>
+     <td colspan="2">
+      MID-200K TDR3
+     </td>
+    </tr>
+    <tr>
+     <td>
+      DATE GE
+     </td>

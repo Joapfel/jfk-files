@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_28985.png
+
+Convert to MarkdownSchedule C (Form 1040) 1975
+
+SCHEDULE C-2.—Explanation of Lines 7 and 9
+
+<table><thead><tr><th>Line No.</th><th>Explanation</th><th>$ Amount</th><th>Line No.</th><th>Explanation</th><th>$ Amount</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+
+SCHEDULE C-3.—Depreciation (See Schedule C Instructions for Line 6) If you need more space, you may use Form 4562.
+
+Note: If depreciation is computed by using the Class Life (ADR) System for assets placed in service after December 31, 1970, or the Guideline Class Life System for assets placed in service before January 1, 1971, you must file Form 4832 (Class Life (ADR) System) or Form 5006 (Guideline Class Life System). Except as otherwise expressly provided in income tax regulations sections 1.167(a)-11(b)(5)(vi) and 1.167(a)-12, the provisions of Revenue Procedures 62-21 and 65-13 are not applicable for taxable years ending after December 31, 1970. (See Publication 534.)
+
+Check box if you made an election this taxable year to use ☐ Class Life (ADR) System and/or ☐ Guideline Class Life System.
+
+<table><thead><tr><th>a. Group and guideline class<br/>or description of property</th><th>b. Date<br/>acquired</th><th>c. Cost or<br/>other basis</th><th>d. Depreciation<br/>allowed or allowable<br/>in prior years</th><th>e. Method of<br/>computing<br/>depreciation</th><th>f. Life<br/>or rate</th><th>g. Depreciation for<br/>this year</th></tr></thead><tbody><tr><td colspan="7">1 Total additional first-year depreciation (do not include in items below)</td></tr><tr><td>2 Depreciation from Form 4832 .<br/>(See Note above)</td><td></td><td></td><td rowspan="3" colspan="4">SCH</td></tr><tr><td>3 Depreciation from Form 5006</td><td></td><td></td></tr><tr><td colspan="6"></td></tr><tr><td>4 Other depreciation:</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Buildings</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Furniture and fixtures</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Transportation equipment</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Machinery and other equipment</td><td></td><td></td><td></td><td></td><

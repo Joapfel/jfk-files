@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_31239.png
+
+Convert to MarkdownSECRET
+
+that she was taking a vacation,
+0002286
+
+3 8ct 63
+
+Sandy arrives in Paris to meet Cubik who had written Tepiduo on NY but she didn't want it. Conference.
+
+CIA had been meeting with French agents
+
+(What happened were for ongoing discussions, French indirectly heyday Cubik under surveillance. 11 Oct 63 Sandy meets Cubik at RFT; announced Cubik going to try an attempt in Castro even without U.S. support.)
+
+29 Oct 63
+
+Fitzgerald, Guy S&S, gayte Paris got approval from Helms. Guy states he told Cubik that U.S. would make no further attempt on Castro's life;
+Written next from Sandy in Castro
+14 Nov 63
+1969-01-03
+
+Sandy mind states Fitzassano that Cubik should get each of his friends with scopes inside Cuba, on request.
+
+22 Nov 63
+
+SECRET
+
+Sandy arrives in Paris on Nov 22 of the last leg w/ Castro here. Sandy says Cubik accept this plan but stated he would not be able to get it 10-15

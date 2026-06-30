@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_25293.png
+
+Convert to Markdownslogans and initials of yet another group. Among groups
+named in testimony before the Senate Internal Security
+Subcommittee are: Accion Cubana, or Cuban Action; Alpha
+66, a name adopted when victory in 1966 seemed possible;
+FLNC, standing for Frente de Liberacion Nacional de Cuba,
+which means Cuban National Liberation Front, and Pragma-
+tistas, which means what it sounds like—pragmatists.
+
+A group calling itself Zero issued a "death list" of people marked for killing and, according to officials, several persons on the list soon died violent deaths.
+
+Dade County's antiterrorist head, Lieutenant Lyons, says he has stopped trying to keep track of the groups and instead concentrates on trying to solve the crimes that they are suspected of having committed. He has no shortage of business. Here is a sample of the violence attributed to terrorists in the last two years:
+
+* Since February, 1975, there have been at least seven assassination attempts directed against refugee leaders who were viewed as opponents of the terrorists' tactics. Three men were shot to death. One was killed by a bomb. Three other attempted killings failed, but a prominent radio broadcaster lost both legs below the knees when a bomb ripped his car apart.
+* On Dec. 3-4, 1975, bombs blasted the Miami office of the Federal Bureau of Investigation, a Social Security office, a State unemployment office, two post offices, a bank, a State attorney's office and the Miami police-department headquarters. A man accused of those bombings, and also the bombing of the Miami International Airport two months earlier, was acquitted recently in a federal court. He is to be tried again in a State court.
+* A number of bombs have been exploded in New York. One blew out the window of the Venezuelan consulate on Fifth Avenue, across the street from St. Patrick's Cathedral.
+* On Feb. 12, 1976, a Soviet freighter, the *Dzhordano Bruno*, was sitting motionless 35 miles off Cuba's north coast while its tanks were being cleaned. Suddenly a small boat raced close to the freighter and raked it with heavy machine-gun fire. No one was injured.
+* On April 6, 1976, two Cuban fishing boats were attacked and a fisherman was killed.
+* On Sept. 21, 1976, in Washington, D.C., a bomb exploded in a car and killed Orlando Letelier, a former Chilean Ambassador to the U.S. under the Marxist regime of the late President Salvador Allende. Although the crime is officially unsolved, there have been persistent reports that the bomb was planted by Cuban terrorists as a "favor" to the secret police of the present anti-Communist Government in Chile.
+
+NEW TERRORIST STRATEGY
+
+Leaders of the terrorist bands are hard to identify. But one
+can has emerged as an apparent leader: Dr. Orlando Bosch,
+pediatrician. He was caught firing a bazooka at a Polish
+ship in Miami harbor in 1968 and was sentenced to 10 years
+prison.
+
+Dr. Bosch was released on parole after four years, but he
+ kortedly returned to the movement. He is now under
+est in Venezuela, charged along with three other men in
+ection with the Cuban airliner bombing. Dr. Bosch is
+cribed as the-leader of the group calling itself Accion
+ina.
+
+June of this year, Dr. Bosch called a small group of his activists together in the Dominican Republic. They sharply divided on policy and strategy.
+
+he wanted to avoid the risks of further attacks in the
+United States and to concentrate their efforts against Castro
+in this country. Others held out for continuing their
+ies both here and abroad.
+
+a heated argument, a shaky agreement was reached
+
+Automobile bombing that killed a Cuban refugee in Miami is one
+of many unsolved crimes attributed to anti-Castro terrorists.
+
+to focus their efforts outside the U.S. To direct the activities,
+a new group was formed with the initials CORU, which stand
+for Coordinacion de Organizaciones Revolucionaires Unidas
+in Spanish or Co-ordinating Committee of United Revolu-
+tionary Organizations in English.
+
+American law-enforcement officials say that members of
+CORU have the backing of powerful forces, perhaps even
+the governments themselves, in some countries of Latin
+America. The terrorists are described as "at home" in Haiti,
+the Dominican Republic, Nicaragua and Chile. They are well
+armed for terroristic acts, as shown in the box on page 32.
+
+Since the June meeting, a new wave of terrorism has swept
+across the Caribbean and beyond. Bombs have damaged
+Cuban airline facilities in Barbados, Jamaica and Panama.
+Two Cuban officials were kidnaped in Argentina.
+
+On July 23, three men who had flown from Miami carrying three

@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_31546.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mfm
+
+(Information concerning ADJA GOLDFINE GORBACH
+Continued)
+
+Residence 1811 Spruce Street Berkeley, California
+
+Marital status Single
+
+Attends UCB as a limited under-
+graduate student
+
+PAUL IVORY
+
+SF T-8 on July 16, 1965, identified PAUL IVORY as Co-Chairman of the VDC who cooperated with members of the Young Socialist League (YSL) who were trying to influence the VDC.
+
+A characterization for the YSL is contained in the Appendix Section.
+
+PAUL IVORY is a UCB Assistant Professor of Economics.
+
+HOWARD P. JETER
+
+SF T-9 has reported that on September 1, 1964, HOWARD P. JETER in discussing a throwaway leaflet distributed at the Democratic National Convention in Atlantic City, New Jersey, identified himself as President of the 7th Congressional District Democratic Club, Berkeley, and remarked his club had been “kicked out” of the California Democratic Club because of the club’s “extreme left-wing position”.
+
+LAWRENCE ROBERT LOUGHLIN
+also known as
+LARRY LOUGHLIN
+
+A review of the records of the San Francisco
+California Police Department revealed that LAWRENCE
+ROBERT LOUGHLIN was arrested by the San Francisco
+Police Department on August 24, 1965, and charged
+with trespassing and resisting arrest. The charges
+arose from a demonstration against General MAXWELL
+TAYLOR at the Fairmont Hotel, San Francisco.

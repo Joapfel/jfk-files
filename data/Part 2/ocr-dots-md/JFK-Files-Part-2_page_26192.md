@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_26192.png
+
+Convert to Markdownname was Dap Chmuon, and I were in a conspiracy
+to murder him and take over the government of
+Cambodia. And it didn't do any good that I had
+never met him. Chmuon and never had any dealings
+with him, and Cambodia was way outside my
+bailiwick but this is the story that's gone
+on and on and on.
+
+O'BRIEN: Well, there was a little bit of truth to that,
+wasn't there? Some involvement of CIA. . . .
+
+LANSDALE: Yeah. Well, he was a national leader and
+actually had formed the political groupings
+initially that supported Sihanouk and gave
+him his political power—he was the organizer;
+he was the chief political lieutenant of
+Sihanouk. And then apparently, he felt that
+Sihanouk was going sour, and he wanted to get
+the government back into reflecting more the
+will of the people. How far he got, I don't
+know—but this was really something that
+was foreign to me at the time. I got sent
+back into Cambodia afterwards, from Washington,
+with various military assistance groups or
+economic groups of presidential commissions.

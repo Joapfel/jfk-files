@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_25745.png
+
+Convert to MarkdownSECRET
+
+In a Memo for Record dated 19 November, one case officer summarized the actions to be taken at the next meeting with Amlash. Amlash was to be told the U.S. was prepared to give full support to Amlash's coup. He would be shown President Kennedy's speech in Miami of November 18 and told this reaffirmed support for Amlash's proposal. Headquarters had approved giving Amlash scopes and rifles and other equipment. The memo ended by stating that "C/SAS* requested written reports on Amlash operation be kept to a minimum."
+
+Pari 1564 to DIR of 20 November indicated Amlash had been called on the night of November 20 and had agreed to postpone his return to Cuba in order to see case officer O "if it something interesting." The CIA officer said he could not assure it was interesting but that it was to be a meeting which Amlash had requested. (Obviously, CIA wanted to give Amlash the "technical support" he felt he had not been promised in the 29 October meeting.)
+
+Case officer O flew from the U.S. so as to arrive in Paris on the morning of November 22 for this meeting.
+
+Pari 1607 to DIR received at Langley at 6:25 a.m. on 23 November is the only message in Amlash's file reflecting the fact the meeting had taken place. It indicated that Amlash was anxious to return to Cuba and that case officer O was to arrive in Washington at 1810 that day.
+
+The file contains no outgoing cable to Paris on November 23 or any other time telling Paris to break contact with Amlash.**
+
+On 25 November, a contact report was prepared. There is reason to question the authenticity of this document which is three pages and reports the 22 November meeting with Amlash. The first two pages have dark type as though prepared on a typewriter with a new ribbon. The type on the third page is much lighter as though prepared on a typewriter with an old ribbon. It made no mention of the passing of a poison pen to Amlash.
+
+On November 27, Pari 1669 to DIR reports information obtained in October possibly by clandestinely listening devices. A source complained bitterly about official (Cuban) visitors to Paris and how they denigrate the revolution. The source said she wished she had a concealed tape recorder to record these conversations. She named Amlash as one of these visitors.
+
+* Desmond Fitzgerald
+
+** In its 1967 report, the IG stated such a message had been sent but could not be found.
+
+SECRET
+
+HW-50955 DocID:32429630 Page 478

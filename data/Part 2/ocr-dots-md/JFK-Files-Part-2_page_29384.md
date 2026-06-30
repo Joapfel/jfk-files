@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_29384.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 21 -
+
+The cable apologizes for the delay in sending the negatives caused by "consolidation and dating." 52/ The cable suggests that Headquarters retain possession of the negatives and informs Headquarters that the negatives will be forwarded to them on a regular basis. 53/
+
+A transmittal manifest is "unaccountable." 54/
+That means that the document and the material it
+transmits is not made part of the record and is, there-
+fore, unretrievable. 55/
+
+The CIA made the photo-technician's monthly port for December available to the Committee on 16 November 1978. 56/ On the morning of 17 December 1963, a 35 mm Sequence camera was installed in the base house with the VLS-2 trigger device. 57/ The installation of this Sequence camera was probably in response to the request for a replacement camera in HMMA-22433.
+
+On 22 June 1965 the CIA Mexico City Station sent
+a dispatch to Headquarters; to familiarize them with the
+details of the pulse camera operation. 58/
+
+2000597
+
+Classification:
+---
+
+Classified by derivation: 137
+
+NW 48327 DocId:32263889 Page 32

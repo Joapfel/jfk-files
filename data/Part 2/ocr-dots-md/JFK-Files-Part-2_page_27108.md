@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_27108.png
+
+Convert to MarkdownSECRET
+
+Gordon was certain that the shellfish toxin in storage in OTS is the same
+toxin as that listed on the inventory. There is, however, a discrepancy between
+the amount in storage as calculated from the labels and the amount shown on the
+inventory. Since the material in storage is in several different forms and
+complete reliance is placed upon labeling, however, no real discrepancy may
+actually exist.
+
+Discussions with Karamessines have established that he and Helms were
+aware of the disposition question and that a clear decision had been made that
+the Agency stockpile should be destroyed by the Army and that, in accordance with
+Presidential Directives, the CIA should get completely out of the BW business.
+
+The explanation given by Gordon as to how the shellfish toxin came to be
+in Agency storage is fully consistent with other available information. He
+stated that the material was always handled with extreme care. Undoubtedly it
+was simply transferred from one freezer to another and in his view was continually
+under adequate control. He is certain that nothing was done with it subsequent
+to its delivery and prior to his departure from the Agency in 1972. Boston has
+given assurance that it was untouched subsequent to that.
+
+After the discovery of the material, OTS was told to investigate ways in
+which they could safely dispose of it with full documentation. Edgewood Arsenal
+was contacted and arrangements were made to deliver the material to Edgewood for
+disposal on 11 June 1975. The disposal was to be witnessed by a representative
+from the IG's office. On the day prior to the scheduled delivery, these arrangements
+were cancelled, however, because the DD/S&T wished to consider further
+ways of insuring that the destruction of the material could not be later
+
+13.
+
+SECRET
+
+Photocopy
+from
+Gerald R. Ford Library
+
+NW 50955 DocId:32112749 Page 16

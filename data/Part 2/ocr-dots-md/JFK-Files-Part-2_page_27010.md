@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_27010.png
+
+Convert to MarkdownSECRET
+
+Ms. Jeanne W. Davis
+
+(3 pages), by FBI Classification Officer 2996, Exempt from GDS, Categories 2 and 3, Date of Declassification Indefinite. This document should not be delivered but could be made available for review by the SSC Staff on NSC premises.
+
+SECRET
+
+SECRET - 4 -

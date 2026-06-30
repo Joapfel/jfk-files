@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_31283.png
+
+Convert to Markdowntold the HSCA that he specifically requested collecting intelligence regarding the Desk Radio Plant. (HSI, p. 17 - Tetering) of CIA employee, 9/26/78, p.1).
+
+In fact, [Nedelya] claims that during a meeting at the summer of 1962. She received a contact report from representatives of the CIA's New York field office who interviewed a former Marine who had worked at the desk radio plant following his deferral to the USSR (Ibid.) The person, who [Nedelya] believes may have been Oswald, had been working with his family in Moscow. (Ibid. [Nedelya]) advised the committee that the contact report was filed in a volume containing the desk radio plant which should be retrieved from the industrial registry Bureau, which was the component of the Office of Central Intelligence. Is this report? (Ibid.)
+
+The HSCA requested that the CIA provide the committee both the above- described contact report and the volume of material concerning the desk radio plant. (HSI, p. 17 - Tetering) A review of its documents in the volumes in the desk radio plant revealed that no such contact report existed in that file.
+
+(Cited in Committee Report of 10/17/78, pp. 3-5)

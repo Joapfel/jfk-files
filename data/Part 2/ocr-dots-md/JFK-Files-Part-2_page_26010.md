@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_26010.png
+
+Convert to MarkdownGuatemala, and it worked very well there for a time. The Latin Americans became quite enthusiastic, though again jealousies come in.
+
+They thought the Guatemalans were boasting too much about it. So, when I was told that problem, I said, "Well, get them to emulate and try and beat them and get a healthy rivalry going," which is what happened actually.
+
+O'BRIEN: I suspect [Fulton] Freeman is there as ambassador in Colombia when you're there--no, Freeman was in Colombia.
+
+LANSDALE: Yes, he was in Colombia.
+
+O'BRIEN: I can't think of the guy who was in Venezuela that was ambassador.
+
+LANSDALE: Oh, he was from Arizona and was a journalist.
+
+O'BRIEN: Not [Maurice M.] Berlbaum - LANSDALE: No.
+
+O'BRIEN: Well, how is he to deal with, and do you get a chance to see [Romulo] Betancourt or any of the political leaders?
+
+LANSDALE: Yes, I saw political leaders there. I had five days in Venezuela, and I think I got two hours' sleep all the time. I was there. I found our ambassador there at the time very open-minded. I wrote a report, coming back

@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_31016.png
+
+Convert to MarkdownSECRET
+
+# CRYPTOGRAPHY WORLD
+
+SECRET
+
+PROHIBITED
+
+If sleepers who are in pdc - no. 201 file B opus # assigned to him, it is possible that his case officer would prevent opening of a 201 file #.
+
+Infrageny source register exists -> agency during same agent.
+
+SECRET
+
+G001749
+
+PAGE 8 OF 20
+COPY NO. 1

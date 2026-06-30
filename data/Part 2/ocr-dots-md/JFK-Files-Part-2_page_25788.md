@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_25788.png
+
+Convert to MarkdownJanuary 19, 1964
+
+MEMO to Boonstra, co. to COS from LEGAT; Subject: OSWALD - It is to be noted that the White House was in receipt of a paper entitled "Possible Psychological Motivations in the Assassination of Pres. Kennedy" written by Jose I. LASAGA of Miami, Fla. This speculative paper attempted to establish that the motivation of OSWALD in the assassination of Pres. Kennedy was Fidel CASTRO or a CASTRO agent and that OSWALD was motivated during his trip to Mexico between 27 Sept and 2 Oct 63. The paper alleged that OSWALD held an extended interview with the Cuban Emb in Mexico whom he met in a restaurant on the outskirts of Mexico from which restaurant they both later left in the Emb's car for a talk without being overheard. / Source: of this latter info was alleged to be Salvador DIAZ Verson. This individual was interviewed at Miami. He stated that while in Mexico 29-29 Nov 63 attending the Congress of the International Federation of Professional Newspaper Organizations, he was at the offices of the newspaper Excelsior on the night of 25 Nov 63. There he learned through the Mexican press that the Mexican gov. had arrested one Silvia DURAN; that DURAN allegedly had OSWALD as a guest in her house during his visit to Mexico; and that DURAN placed OSWALD in contact with officials of the Cub. Emb. / DIAZ Verson went on to claim that he was told by Dr. BORRELL Navarro, an exiled Cuban newspaperman employed by Excelsior, that OSWALD and DURAN on the day following OSWALD's arrival in Mexico went to a restaurant called the Caballo Blanco or possibly the Caballo Bayo where they met an official of the Cub. Emb. DIAZ Verson claimed that he knows nothing about OSWALD and the Cub official leaving the restaurant together in a car. / It was uncertain if Dr. Eduardo BORRELL Navarro, a former Cuban Cabinet Minister who on occasion writes feature articles for the Mexican Press, excelsior, currently resides at 1503 Homero St., Apartado 501, Mexico, BORRELL Navarro was interviewed on 11 Jan. at which time he furnished the following info: Salvador DIAZ Verson was in Mexico as claimed, and discussed OSWALD with BORRELL and other Cuban exiles. DIAZ Verson also visited BORRELL in BORRELL's home. / BORRELL did not tell the story credited to him by DIAZ Verson concerning the visit to a Mexican City restaurant by OSWALD and Silvia DURAN. BORRELL had never heard this story or any similar story before. / BORRELL knew of no meeting between OSWALD and Cub. Emb officials other than the meetings which occurred at the time OSWALD visited the Cub Con in Mexico. / BORRELL knew nothing concerning any visit by OSWALD to the home of DURAN. / It is to be noted that DURAN was questioned by Mexican authorities
+
+on 23 Nov 63. At that time she confirmed that OSWALD visited the Cub Emb in Mexico during the time he was in Mexico from 27 Sept to 2 Oct. She alleged that the purpose of his visits to the Cuban Emb was to obtain a Cuban visa. She stated she had given him a telephone number to use in calling her concerning the visa, but denied that he had ever visited in her home. On 17 Jan 64 a source... advised that he had been unable to locate a Caballo Blanco restaurant in Mexico, but stated there is a Caballo Bayo restaurant located on outskirts of Mexico. Source went to restaurant, showed photos of former Cub Con Eusebio AZCUE Lopez, who was in charge of Cub Con at the time of OSWALD's visit; there, of Cub. Emb HERNANDEZ Armas, of Silvia DURAN and of OSWALD to employees of restaurant and conducted extensive interviews of these employees. He was unable to find anyone among the employees who could recall any of the persons as having been at restaurant.
+
+CIA
+From C.A.
+Apparated chronology
+
+TOPICS
+SECRETS
+STARTS
+
+GODFREY
+
+GR

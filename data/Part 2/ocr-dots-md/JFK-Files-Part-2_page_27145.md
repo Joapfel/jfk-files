@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_27145.png
+
+Convert to MarkdownSECRET SENSITIVE
+
+IV. RECOMMENDATIONS
+
+The following recommendations are presented for the consideration of the Commission with the sole intent of revitalizing national counterintelligence and enabling it to discharge its assigned responsibilities in furtherance of national security. To this end we propose the following changes:
+
+1. That the Operational Directorate of CIA assign not less than one-tenth of its component to counterintelligence.
+
+2. That of this total about half be assigned to a central counterintelligence unit in Headquarters and that the remaining half be divided among the various Area Divisions and branches in Headquarters and selected Agency stations abroad.
+
+3. That CIA provide this cadre with counterintelligence training in depth.
+
+4. That selected counterintelligence personnel be rotated through Headquarters and field assignments of growing responsibility in accordance with career plans that afford them opportunities for advancement which equal those of their Agency colleagues.

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_29740.png
+
+Convert to MarkdownClassification TOP SECRET
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+941/ Ibid.
+
+942/ Winston Scott superimposed a note to Ann Goodpasture on this memo which read, "Can we send in a report to Headquarters 'dismissing' out cable? Goodpasture responded, Done." The cable Winston Scott wanted dismissed was MEXI 5621 which reported that station was "following up" and cabling results. The new cable was written and sent on December 29, 1965; see text.
+
+943/ Cable from Mexico City to the Director, 12/29/65, MEXI 5741, CIA #575; Wx-7241. Entry #430, p. 94, CIA #721.
+
+944/ Ibid.
+
+945/ Ibid.
+
+946/ Ibid.
+
+947/ Ibid.
+
+948/ Ibid.
+
+949/ Ibid.
+
+950/ Note from Ann Goodpasture to Mexico City Station, Cuban Section, 2/3/66, CIA No. 573; Wx-7241, Entry 428, p. 94, CIA #721.
+
+951/ Ibid.
+
+952/ Ibid. HSCA Staff Summary of CIA Files on LITAMIL-7 and LATIMIL-9.
+
+953/ See Section II,A, 3 above.
+
+954/ Classified Summary of Staff Review of CIA Documents, undated, p. 3, CIA #763.
+
+955/ Memo from Legat to Ambassador, 2/23/66, CIA #571; Wx-7241, Entry #455, p. 95, CIA #722.
+
+956/ Ibid.
+
+2001042
+
+Classification: TOP SECRET
+
+491
+
+Classified by derivation: _______

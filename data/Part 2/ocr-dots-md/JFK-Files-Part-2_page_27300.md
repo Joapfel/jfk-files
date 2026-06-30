@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_27300.png
+
+Convert to MarkdownCONFIDENTIAL
+
+A - M/R - Subj: Iden 1 # 3709 - 4 Feb 75 SECRET
+
+SECRET attaching
+SECRET EYES ONLY
+
+B - CIA Official Routing Slip - To Iden 6 - 12/13/61
+
+Memo for Chief, SRS - Subj: Iden 1 - 12 Dec 61
+
+C - Report of Investigation - 28 Apr 61
+
+D - Memo for Chief, Investigative Div, Subj: Iden 1 - 26 Apr 61
+
+E - Memo for Chief, Investigative Div, 26 Apr 61
+
+F - Report of Investigation - 17 Feb 61
+
+G - Memo on Case No. 240303 - 17 Feb 61
+
+H - Memo on Iden 4
+
+I - Memo for Chief of Ops, DD/P - Subj: Iden 1 - 23 July 61
+
+SECRET EYES ONLY
+
+J - Routing Slip to DC/SRS - 11 Feb 66 SECRET
+
+- Memo - Interesting Cases - Spec. Activities Ops Br, SRS
+
+Re - Iden 1 -- 11 Feb 66 SECRET
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

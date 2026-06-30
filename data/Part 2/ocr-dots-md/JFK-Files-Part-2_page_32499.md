@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32499.png
+
+Convert to Markdownthat France would have been in an even deeper morass if her military forces had managed with the British to occupy Cairo.)
+
+4. How feasible is it to control subversion at the source without destroying the Communist State?
+
+Usually it is infeasible to do so or the costs are prohibitive.
+
+For instance, the costs of a protracted tight quarantine which could prevent the export both of hardware-oriented and idea subversion, would be very high, even if the activity were accepted by Cuba and the Soviet Union. This would mean inspecting every vessel, searching every traveler, forcing planes down for inspection, etc. We submit (a) that ideas would still be exported and (b) that by so doing we would magnify the importance of Cuba beyond imagination. It would become a kind of forbidden fruit. The analogy with prohibition in this country comes to mind. This course involves an increment of prestige and lure to Cuba which would be likely to outweigh the doubtless desirable diminution in the export of trained subversives and associated hardware. Furthermore, given the success of such an effort, the obvious Soviet counter would be to use other channels which we could not surveil without major East-West confrontation. The Cuban subversion export organization might well move to Moscow, Prague and/or even Peiping. Therefore, to take a public stance opposed to Cuban subversion without having resolved on invasion is to be committed to a policy bound to demonstrate US impotence.
+
+5. If we want to control subversion at the source by destroying the Communist State, Cuba, how useful is it for us publicly to emphasize hardware-centered subversion as the reason?

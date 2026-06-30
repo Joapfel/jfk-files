@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_26478.png
+
+Convert to MarkdownSECRET
+
+Florentino Alcantara de Moraes, Pernambuco state leader of the regular Communist Party of Brazil.
+
+Carlos Danielli, Angel Arroyo, Mauricio Grabois, and Joao Amazonas, leaders of the dissident Communist Party.

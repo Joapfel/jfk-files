@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_32305.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NO FOREIGN DISSEM/NO DISSEM ABROAD/CONTROLLED DISSEM/BACKGROUND USE ONLY
+
+- 3 -
+
+CSDB-3/652,924
+
+Buenos Aires. But it is an extremely remote possibility. The countries which could do it do not have the necessary material means. A partial solution would worsen the situation and a definitive solution could be directed only by Washington. I think therefore that only pressure which is accompanied by material strength can obtain results in Cuba.
+
+In conclusion, in judging the Cuban situation it is necessary first to keep in mind the personality and temperament of Fidel Castro, the influence which he has on a part of the population, and finally his deep-rooted hate of the United States. It is useless to say that the Cuban revolutionary regime, purged of some fanaticism, could be a good example for other Latin American countries. This would not take into account the mentality of the Cuban leaders and particularly their chief, who accepts council from no one and intends to imitate no one. Furthermore it is too late to select another path. As Guevara said the other day in an interview for the Daily Worker, "this is a battle to the death with the United States in which the most possible damage must be done to the adversary."
+
+Undoubtedly, after the events of October and November, Fidel Castro is in a descending parabola. But how long this descent will last no one can say today. The only certain thing is that the economic situation is getting worse every day and therefore the revolutionary regime needs the assistance of the whole Communist world. Only last night a commercial mission headed by Carlos Rafael Rodriguez, who heads the most important institution of the country - the Institute for Agrarian Reform - left. The mission will go first to Moscow and then to Peiping. It is evident that new agreements must be negotiated, as well as new credits, to permit the Cubans to last through 1963, which will certainly be the most difficult year.
+
+But economic assistance can permit this country to survive, not resolve its problems. For a definitive solution it would be necessary in the first place for the Cubans to learn to work seriously and to use intelligently the machines which they have. Agricultural production, principally sugar cane, as has been recognized even by the fanatics of industrialization, constitutes the basis of the Cuban economy. But how can they hope for a good harvest if, for example, the tractors furnished by Hungary which should last ten years are unusable after two years?
+
+It is not possible to forecast the fall of the regime solely on the basis of economic factors. The people suffer from an insufficiency of food and clothing. But for another year they will find a way to get by.
+
+Summed up, the decisive and at the same time prudent policy followed by the United States in the recent months is the best and perhaps the only policy. After the danger of strategic weapons has been eliminated, the wisest measure is to let the situation mature. Certainly Fidel Castro will
+
+S-E-C-R-E-T
+
+NO FOREIGN DISSEM/NO DISSEM ABROAD/CONTROLLED DISSEM/BACKGROUND USE ONLY
+
+HW 50955 DocId:32276061 Page 123

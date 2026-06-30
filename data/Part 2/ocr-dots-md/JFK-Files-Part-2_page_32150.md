@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_32150.png
+
+Convert to MarkdownEXHIBIT COVER SHEET
+
+Subject: GRIGGS, Kenneth C.
+PFC, RA 19 772 378
+DPOB: 25 December 1946, Korea
+
+File Number: 8008-9182
+519-46-7994
+
+Preparing Unit: 115th MI Group (IV)
+
+Agent Report Dated: 24 January 1968
+
+Description: Copy of letter dated 16 November 1967 written by SUBJECT's adopted father, Mr. Cecil L. Griggs, 2615 North 30th Street, Boise, Idaho, to Philip LaChapelle, 1724 North Linder, Chicago, Illinois.
+
+EXHIBIT II
+
+965
+
+NW 88613 DocId:34531207 Page 2

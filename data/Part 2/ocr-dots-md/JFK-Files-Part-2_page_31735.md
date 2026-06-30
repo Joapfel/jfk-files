@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_31735.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH:jb
+
+| Function & Location | Date of Activity | Source | Date Furnished | Activity |
+|---|---|---|---|---|
+| Meeting, Berkeley, California | 8/26/66 | SF T-25 | 9/6/66 | Speaker |
+| Meeting, Berkeley, California | 9/21/66 | SF T-35 | 9/23/66 | Participant |
+| Meeting, San Francisco | 10/8/66 | SF T-60 | 10/11/66 | Speaker |
+| Meeting, UCB | 10/15/66 | SF T-61 | 10/24/66 | Speaker |
+| Meeting, Santa Rosa, California | 1/7/67 | SF T-55 | 1/9/67 | Speaker |
+| Meeting, Berkeley | 2/21/67 | SF T-61 | 2/23/67 | Speaker |
+| Meeting, Berkeley | 6/23/67 | SF T-25 | 6/26/67 | Participant |
+| National Convention, Chicago, Illinois | 8/29-9/4/7 | SF T-62<br>SF T-63 | 9/11/67<br>9/11/67 | Speaker, 9/1,2/67 |
+| Meeting, Berkeley | 9/13/67 | SF T-35 | 9/14/67 | Speaker |
+| Meeting, Long Beach, California | 11/3/67 | SF T-64 | 11/6/67 | Speaker |
+| Meeting, Berkeley | 4/11/68 | "Berkeley Daily Gazette" newspaper | 4/12/68 | Speaker |
+
+57-
+SECRET
+
+1299
+
+Copy........of........Copies
+Page..57..of....134 Pages
+
+N\J. 88G13
+
+DocId:34517445 Page 58

@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_31276.png
+
+Convert to MarkdownA 25 November 1963 CIA Memorandum (now located in LHA's file as CIA FOIA #435-173-A) is the only documented evidence of any CIA contact in interviewing Oswald. The memorandum written by Thomas B. Cassavie, stated: "As soon as I had heard Oswald's name, I recalled that as Chief of the 6 Branch I had discussed it with him in summer 1960 - with the then Chief and Deputy Chief of the 6 Reserve Section." The laying on of interviews through [KUTUMT] or other suitable channels. At the moment I don't recall if this was discussed while Oswald and his family were en route to this country or if it was after their arrival". (CIA FOIA Document #435-173-H).
+
+(Cassavie) was interviewed by the HSCA staff on August 17, 1978. In this interview, he stated that he worked as Chief of the 6 Branch from September 1960 until his reassignment in September 1962. He advised that the function of the 6 Branch was to amuse information from defectors concerning details about Soviet life which would

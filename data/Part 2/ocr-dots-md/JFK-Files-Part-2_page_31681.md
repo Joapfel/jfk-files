@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_31681.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:jb
+
+was made final September 23, 1965 by LELAND J. LAZARUS, Judge of the Superior Court for the City and County of San Francisco.
+
+Marriage license records maintained at the Recorder's Office, City Hall, San Francisco, reflect that Book #1433, page 250, shows that ROBERT SCHEER was married to ANNE B. WEILLS on October 22, 1965. In the application, SCHEER stated he was born April 4, 1936 at New York, had been previously married once, which was ended by divorce. His residence was listed as 2546 Geary Boulevard, San Francisco and his occupation as Foreign Editor in the publishing business. His father was listed as FREDERICK SCHEER, born in Germany, and his mother was IDA KURAN, born in Russia. The bride furnished her full name as ANNE BUTTERFIELD WEILLS, born March 14, 1942, in California, and was not previously married. She listed her residence as 108 El Camino Real, Berkeley; occupation - student. Her father was listed as JOHN C. S. WEILLS, III, born in Nebraska, and her mother was AUDREY DAVIS, born in Nevada. Marriage license #5213 was issued October 21, 1965 and the marriage was performed October 22, 1965 by the Honorable LENORE D. UNDERWOOD, Judge, San Francisco Municipal Court.
+
+ANNE WEILLS SCHEER was the recipient of a yearly subscription to the "People's World" (PW) newspaper under her maiden name ANNE WEILLS, 2828 Milvia Street, Berkeley, California. This subscription was due to expire July 31, 1966.
+
+SF T-1
+February 10, 1966
+
+The PW is a west coast Communist weekly newspaper published in San Francisco.
+
+IDA KURAN, born April 26, 1900 in Russia, joined the International Workers Order (IWO) in March 1947 and was a member of Lodge 500, IWO, as of late 1953.
+
+SF T-2
+June 22, 1954
+
+- 3 -
+
+1245
+
+SECRET
+
+Copy ... of ... Copies
+Page ... of ... Pages

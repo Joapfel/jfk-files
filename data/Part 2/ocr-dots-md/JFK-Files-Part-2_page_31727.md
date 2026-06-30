@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_31727.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH:jb
+
+over the district would be involved in this campaign.
+
+SF T-45
+
+January 31, 1966
+
+A meeting was scheduled to be held February 4,
+1966, at 6115 Dover Street, Oakland, California, of the
+East Bay communists who were to work on BOB SCHEER's election
+campaign.
+
+SF T-45
+
+January 31, 1966
+
+A source advised that CARL BLOICE had been released
+from his job on the editorial staff of the PW to work full
+time, on instructions of the CP leadership, in the campaign
+of ROBERT SCHEER for the 7th Congressional District.
+
+SF T-53
+
+March 2, 1966
+
+The "Berkeley Daily Gazette" newspaper, Berkeley, California, issue of June 9, 1966, carried a news article regarding the defeat of ROBERT SCHEER in his campaign as Democratic candidate for U. S. Congressman from the 7th Congressional District of California. This article stated SCHEER received a total of 28,751 votes, while his Democratic opponent, JEFFREY COHELAN, received 35,270 votes. This indicates SCHEER captured 45 per cent of the votes in this primary election. The newspaper quoted SCHEER as stating "From now on I'm the shadow Congressman in this District." He added that he would be a write-in candidate for U. S. Congressman in the November, 1966 election unless Congressman JEFFREY COHELAN stopped supporting the Vietnam war and unless COHELAN faced up to the serious social problems in the U. S. SCHEER added that he and his backers were "building a political movement in this District and this campaign was only the opening wedge."
+
+During the interview, SCHEER said the cost of running
+his campaign had been $35,000 to $40,000, most of it being
+donated by "students, housewives, longshoremen and what-have-you,"
+and none of it coming from his own pocket. He said, "When I
+started this campaign I didn't have a dime."
+
+SECRET
+
+1291
+
+Copy......of.......Copies
+Page......of.......Pages
+
+NW 88613
+DocId:34517445 Page 50

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_26013.png
+
+Convert to Markdown-45-
+
+LANSDALE: Very much so, very much so.
+
+O'BRIEN: Like rural economic development and agricultural development.
+
+LANSDALE: Particularly the oil companies, and I was surprised. Standard [Oil Company] of New Jersey showed me what it was doing because the rigs out in Lake Maracaibo were getting blown up, and their pipelines were getting blown up, by saboteurs coming in who were really expert. I found out later that they were affiliated with communists in Colombia and had come on over; they were really experts at explosives, and they weren't the student type of revolutionaries and so on, who also were present in Venezuela. But, in seeing what they were doing, it went far beyond a company paternalism type of a thing for employees that started credit systems with farm groups and housing projects for people living in the vicinity of their plants—not the employees so much, who also gained a great deal out of this. And then U.S. Steel, in pushing its developments
+
+/

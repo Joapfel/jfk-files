@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_31060.png
+
+Convert to MarkdownSECRET
+
+Betsy Palmer
+
+Volume XV - June 1964
+Page 2
+
+5. Memo for the Record, dtd 9 June 1964, from Alfonso Rodriguez
+Subject: Possible Plans of Ray
+
+Opinion of Rodriguez that Ray will attempt asap to mount another infiltration effort. He is relatively certain JURE has or can procure a small craft capable of making trip from Florida to Cuba. He also thinks that *either* Cisneros/oy Ray "would be willing to publicly give the lie to the TIME magazine article of 12 June 1964.
+
+6. Cable to DIR from JMWAVE, dtd 10 June 1964 - re-canvassing of exile community reveals Ray's prestige at near-absolute low point. Trend is tendency to ignore Ray completely. Information that JURE in considerable dissension. Threats of various factions to withdraw unless Cisneros dismissed and national board reorganized.
+
+7. Memo for Record, dtd 12 June 1964 from Samuel Halpern
+Subject: Information from the British in Answer to Questions Re; Identify of American Who Allegedly Paid Manuel Ray's fine in Nassau.
+
+05
+Chris Phillpotts called 12 June to say Gov. of Bahamas had replied to our query as to the identify of American who allegedly paid Ray's fine in Nassau. (see TIME of 12 June 1964, page 48 -- alleged CIA paid). Governor stated he had seen no such figure and to best of his knowledge, there was no such person. "I of course did not tell Chris Phillpotts that we knew the identity of the American as reported to us by Rogelio Cisneros of JURE." 05
+
+8. Memo-for Record, dtd 12 June 1964 from Alfonso Rodriguez
+Subject: JURE telegram to TIME Magazine
+
+Protest falsity of information published by TIME re: capture of Manuel Ray and his group. False that a CIA ship participated in any phase of operation. Also false that a CIA individual paid fine -- the $84.00 was sent to JURE by an American citizen at request of one of his employees.
+
+9. Cable to DIR from JMWAVE, dtd 27 June 1964: According to AMFAST/6, Ray informed Pepe Catillo (Jose Garcia Valdez) their departure date for Cuba would be July 1. Boat to be used is unnamed Rybovitch rented in Ft. Lauderdale. Ray planning to stay in Cuba about 15 days.
+
+10. Memo for Record, dtd 29 June 1964, from Alfonso Rodriguez
+Subject: Establishment of Base Abroad; Manuel Ray Rivero
+
+On June 22, the Special Group agreed "no monies would be forthcoming, specifically a requested $25,000, until he ceased" all activities from U.S. mainland.
+
+SECRET
+
+UBR

@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_26473.png
+
+Convert to MarkdownSECRET
+
+27 March 1963
+
+ARGENTINA
+
+1. About 500 Argentines are estimated to have traveled illegally to Cuba for training in subversive activities. One training group alone, given guerrilla warfare training over a six-month period in 1962, varied in number from 34 to 50. For the past four months departures from Argentina for Cuba have averaged 35-40 a month. Argentine intelligence says 80 of the 500 are known to have received guerrilla training; the number is probably considerably higher.
+
+2. The federal district around Buenos Aires records no arrests for guerrilla activity. There were 155 arrests and three convictions for sabotage in 1962, and 14 arrests, but no convictions, to date in 1963. Records on terrorist activity show 468 cases, 60 arrests, and 27 convictions in 1962; 121 cases, two arrests and two convictions in 1963. Argentine police also list 628 arrests in 1962 and 1963 on the broader charge of "subversive activity."
+
+3. Altogether police files show 1,285 incidents of sabotage or terrorism, of which 425 were committed by unknown persons. Police have no evidence that any of those arrested or convicted are known to have received training in Cuba.
+
+4. None of the individuals known to have received extensive Cuban training hold influential positions, but the following individuals in position of influence have traveled to Cuba and may have received some training:
+
+Fanny Edelman, former secretary-general of the Argentine Communist women's organization UMA, presently assigned to foreign liaison of the Argentine Communist Party.
+
+Maria Josefa de Mastroberti, prominent member of the Cuban Solidarity Committee for Argentina.
+
+Osaias Leon Schujman, director of the Federation of Communist Youth, national deputy for the Argentine
+
+SECRET

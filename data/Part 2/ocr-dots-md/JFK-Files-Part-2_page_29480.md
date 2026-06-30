@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_29480.png
+
+Convert to Markdownthe Station had available to it one additional telephonic intercept transcript, and one or more surveillance photographs.
+
+This Committee has made an attempt to determine when the available information was linked to Lee Harvey Oswald. The Committee has also made an attempt to determine whether all the intercepted telephone calls were in fact connected with Oswald or involved Oswald. It should be pointed out, however, that this analysis can only be directed at that information now known to have been available to the Mexico City Station. This information will be discussed briefly in the following section. In addition, the question of whether Oswald or an Oswald imposter visited the embassies and made the phone calls, along with the possibility that Oswald was not alone in Mexico City, will be dealt with in greater detail in the final section of this report.
+
+2. Information Available from the Soviet Wiretaps that was Connected with or involved Lee Harvey Oswald.
+
+The Mexico City Station possessed nine intercepted telephone conversations that may have dealt with Oswald. The conversations are summarized below for ease of reference.<u>470/</u> In the following discussion the conversations will be referred to by date and time of occurrence.
+
+Classification: TOP SECRET
+
+Classified by derivation: 232
+
+206152
+
+HW 48327 DocId:32263889 Page 128

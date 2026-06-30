@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_31236.png
+
+Convert to MarkdownSECRET
+
+03 (Waimmyk) Tegedine Cubela
+Cozenhagen Waimmyk used Unassured
+Cubela Insured 05 Reunite
+
+14 - 23 Augt 62
+
+03 Cubela, Tegedine, (Waimmyk). Farla William from Maled; met in Paris. Cubela given S/W France & supplies; shown a new letter demmentat. Reported to be groगçrègèl.
+
+(Wimm) cubela that we plyceil
+elimination mission he given as a
+regiment but he might do it on his
+own in future. Headquarter' Strongly consider that no physical elimination mission he given Cubela,
+
+5 - 8 Sept 43
+
+Brayel - met lg (Waimmyl)
+Tepedino & Nefor Sandy was there
+else after.
+
+Cubela clouded 2 S/W menag but
+off 1 record. Apeal & portal censныslyp.
+That light by Ramon Guin dry
+AMTRANT-10 who was lucky Miguel
+DIAZ Isalyne/ AMIE 141 who did him
+bem sent to recent full
+
+SECRET
+
+14 Sept 63
+
+From Brayel Cubela plants to Parna
+was going to tell Castro after the past
+
+G/PV

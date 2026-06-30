@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_27239.png
+
+Convert to MarkdownB-G-G (II-U)
+
+A - Memo from Lloyd A. Free - "Potential Informants" - 6 Jan 74
+
+CONFIDENTIAL
+
+B - Potential Witnesses (Outside CIA) - List dated 3/11/75 CONFIDENTIAL
+
+C - Commission Witnesses; dates and list (Apr 7 - May 19)
+
+D - Potential Witnesses (outside CIA) (Belin's copy - marked in pencil)
+
+E - Memo to the Legal Staff - from Gray - 11 Mar '75 CONFIDENTIAL
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 70

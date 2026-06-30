@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32706.png
+
+Convert to MarkdownAmbassador Stevenson's opening speech put the issue in the perspective of Soviet post-war aggressive expansionism. He traced the "vast plan of piecemeal aggression" and "the basic drive to abolish the world of the Charter" which had characterized Soviet policy in the post-war years and which had not been altered by the present Soviet Government. Contrasting the history of Soviet expansionism and rejection of the principles of the Charter with the United States record of loyal support for the Organization and "the world of the Charter," Ambassador Stevenson regretted that some members "seemed to believe that the cold war is a private war between two great super powers." "It is not a private struggle," he insisted, "it is a world civil war -- a contest between the pluralistic world and the monolithic world -- a contest between the world of the Charter and the world of Communist conformity."
+
+"The Castro regime," he pointed out, "has aided and abetted an invasion of this hemisphere" and "has given the Soviet Union a staging area in this hemisphere" by inviting "an extra-continental, anti-democratic and expansionist power into the bosom of the American family" and by making itself "an accomplice in the communist enterprise of world domination." The Soviet Union, he continued, had secretly transformed Cuba into a formidable missile and strategic airbase, armed with the deadliest, most far-reaching modern nuclear weapons, in an attempt to put all the Americas under a "nuclear gun" and to intensify the "Soviet diplomacy of blackmail." The day of forbearance is past, he concluded.
+
+"If the United States and the other nations of the Western Hemisphere should accept this new phase of aggression, we would be delinquent in our obligations to world peace." He could not believe that the Soviet leadership had deluded itself into supposing the United States lacked the nerve and will to use its power, and he voiced the hope that the Soviets would call an end "to this new
+
+/phase of
+
+HW 50955 DocId:32424709 Page 87.

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_25555.png
+
+Convert to MarkdownHon. Michael Mansfield
+
+June 7, 1976
+
+We urge you, Senator Mansfield, to take whatever steps necessary to immediately halt the unilateral act undertaken by the CIA of destroying possibly critical and irreplaceable government documents.
+
+HW 50955 DocId:32423630 Page 288

@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_32360.png
+
+Convert to MarkdownSECRET
+
+-9-
+
+press for a break when the evidence of Cuban intervention
+did not prove to be as conclusive as originally reported.
+
+## 8. Other Special Actions
+
+### Department of State
+
+a. Obtained action by the COAS on July 3 on the Lavalle Committee Report transmitting the document to the governments and urging them to implement the specific and general recommendations contained therein as soon as possible.
+
+b. Through Embassy Managua informed the Nicaraguan Government of the matters which we wanted to have considered during the informal meeting of the Ministers of Security and Interior of the Isthmian countries held in Managua, August 26-28 in preparation for the second formal meeting of the Managua Security Conference countries later this year.
+
+c. Explained in detail the nature of the Cuban threat and the related policy objectives of the U.S., during conversation in London and in Washington with Mr. Adam Watson, newly appointed British Ambassador to Cuba.
+
+### United States Information Agency
+
+a. The Agency's press service during the reporting period transmitted 12 articles, commentaries, and backgrounders on its wireless file service to USIA posts throughout Latin America for placement in the local newspapers and the Voice of America Spanish broadcasts to Latin America carried a total of 28 commentaries and features on the subject of Cuban-based subversion. These stories were designed to alert people in Latin America to the dangers of this subversion.
+
+b. In response to standing Agency instructions to give special attention to developments related to Cuba-based subversion, USIA posts in Latin America were prompt in reporting incidents and in providing editorial comments from
+
+SECRET

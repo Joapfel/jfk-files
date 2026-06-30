@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_29204.png
+
+Convert to Markdown**Agency Information**
+
+AGENCY : HSCA
+
+RECORD NUMBER : 180-10076-10105
+
+RECORD SERIES : NUMBERED FILES
+
+AGENCY FILE NUMBER : 008269[PT.11]
+
+**Document Information**
+
+ORIGINATOR : NEW ORLEANS DISTRICT ATTORNEY
+FROM : LOISEL, LYNN
+TO : IVON, LOUIS
+
+TITLE :
+
+DATE : 01/11/1967
+PAGES : 2
+
+SUBJECTS :
+FERRIE, DAVID
+LEADS AND INFORMATION
+JOHNSON, JIMMY
+
+DOCUMENT TYPE : MEMORANDUM
+CLASSIFICATION : Unclassified
+RESTRICTIONS : 3
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 05/04/1996
+
+OPENING CRITERIA :
+COMMENTS : Box 151.
+
+<table><tr><td>Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#: NW 88326 Date: 2025</td></tr></table>
+
+v9.1
+
+NW 88326 DocId:32247047 Page 1

@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_30600.png
+
+Convert to MarkdownSECRET
+
+002396
+
+11 TBI0
+
+12 B10
+
+13 Z/5-63 files cancelled.
+C # 100985.
+
+14. 5-13/66 memo re: investi by Customs "Jerry Mullane, WH/ Security Officer, R.L. 1459, reported subject's salary is being paid by the WAVE station and association began in 1961 and it is continuing to date". file # 27665-6 (C) and 4832469 (O). - Jack says first is now in one # m examining.
+
+15 5/3-66 now SAIC - Key West memo re: investi.
+
+16 5/18/66 - report of investi.
+
+SECRET
+
+SECRET

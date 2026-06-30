@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_29900.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+
+XX#D 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+| | * (301) 641-0936 Harry Elmer Arthur, Jr.<br>W/M, 07-24-05<br>Rt. 1, Box 187,<br>Whaleysville, Maryland |
+| | *(301) 289-3106 Tides Motel,<br>7100 Coastal Highway,<br>Ocean City, Maryland |
+
+Reference Irvin Kovens above: Kovens has been indicted along with Md. Governor Marvin Mandel, W. Dale Hess, Harry W. Rodgers, III, William A. Rodgers, and Ernest N. Cory, Jr. on political corruption charges. Mandell, for gifts and a hidden interest in Marlboro (Md.) Race Track attempted to pass legislation lengthening Marlboro's racing days. Kovens and the above mentioned subjects owned Marlboro, and Kovens also has an interest in Charles Town (W.Va.) Race Track.
+
+Reference Fred B. Black's long distance calls to Maryland -
+
+1. (301) 585-5426 G. P. Price
+1512 East-West Highway,
+Silver Spring, Maryland
+
+MVA reports Gerald Patrick Price, Sr., W/M, 11-07-09, 6'1", 220, and Gerald Patrick Price, Jr., W/M, 01-30-50, 6'2", 169, at the above address.
+
+2. (301) 229-4711 Beverly Peters Heurich
+W/F, 11-27-19; 5'4", 135 lbs.,
+4940 Sentinel Dr.,
+Bethesda, Md.
+
+3. (301) 299-8098 (NON PUB) Harry Turner Gilbert
+W/M, 02-27-12; 5'8", 145 lbs.,
+11301 South Glen Rd.,
+Potomac, Maryland
+
+Cpl. M. F. Alban
+
+PAGE# ____

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_25619.png
+
+Convert to MarkdownADRIAN MARSHALL
+WADDEN, WALL & RUDY
+
+9601 Wilshire Boulevard, Suite 400
+Beverly Hills, California 90210
+
+272 9211
+
+Attorneys for Defendant
+
+UNITED STATES DISTRICT COURT
+CENTRAL DISTRICT OF CALIFORNIA
+
+NO. 1175- PH
+
+MOTION FOR REDUCTION
+OF SENTENCE AND
+REQUEST FOR EVIDENTIARY
+HEARING
+
+UNITED STATES OF AMERICA,
+
+Plaintiff,
+
+vs.
+
+FILIPPO SACCO, also known
+as JOHN ROSSELLI,
+
+Defendant.
+
+Defendant FILIPPO SACCO, also known as JOHN ROSSELLI, by his attorneys,
+ADRIAN MARSHALL and WADDEN, WALL & RUDY, requests this Court
+to grant a hearing for the presentation of oral testimony and other evidence
+in support of defendant's Motion for Reduction of Sentence entered in this
+case. As grounds therefor defendant alleges:
+
+1. Defendant was convicted of six counts of violation of Title 8 U.S.C. Sections 1302 and 1306 (a) and Title 8 U.S.C. Sections 1305 and 1306 (b) and sentenced to six months on Count 1 and thirty days on Counts 2 through 6, all to run concurrently.
+
+2. On January 18, 1971, the mandate was spread and defendant was ordered to surrender to the United States Marshal at noon on January 25, 1971, for direct delivery of defendant to Terminal Island for service of his sentence.
+
+3. On January 18 and 19, 1971, there appeared in newspapers throughout the country nationally syndicated articles of columnist Jack Anderson alleging that defendant had assisted the Central Intelligence Agency in an
+
+HW 50955 DocId:32423630 Page 352

@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_30367.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Nosenko. Sir, I do not remember dates, but --
+Mr. Fithian. It was between February and April?
+Mr. Nosenko. Right, right.
+Mr. Fithian. The information we have is that it was early
+March, the first week in March. Is that about right?
+
+Now have you talked to the FBI about that testimony at any time since then?
+
+Mr. Nosenko. Gentlemen, on many, many times I have seen
+FBI, many, many questions raised. I cannot -- about this testi-
+mony, no, no.
+
+Mr. Fithian. About the Oswald testimony?
+
+Mr. Nosenko. About Oswald were asked questions, but not about
+this testimony. I do not remember about this testimony.
+
+Mr. Fithian. My question is, there is a written transcript
+summary of your testimony to the FBI taken on March 5th, 1964.
+
+Mr. Nosenko. Right.
+
+Mr. Fithian. My question is, have you at any time since
+then visited with the FBI about this testimony?
+
+Mr. Nosenko. No, sir, no, sir.
+
+Mr. Fithian. Now, next, when -- what is your understanding
+as to when Oswald first offered to defect, when you first knew,
+when the KGB first knew he was interested in defecting?
+
+Mr. Nosenko. I cannot give you a date.
+
+Mr. Fithian. All right.
+
+Well, he filled out an application —
+
+ALDERSON REPORTING COMPANY, INC.
+
+300 7TH STREET, S.W., REPORTERS BUILDING, WASHINGTON, D.C. 20024 (202) 554-2345

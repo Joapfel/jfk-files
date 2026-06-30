@@ -1,0 +1,105 @@
+# JFK-Files-Part-2_page_25738.png
+
+Convert to MarkdownCLASSIFIED MESSAGE
+
+<table>
+  <tr>
+    <td>UNIT: WH/3/Mexico</td>
+    <td><input type="checkbox"/> INDEX</td>
+    <td rowspan="2">D7 SECRET</td>
+  </tr>
+  <tr>
+    <td>EXT: 5040</td>
+    <td><input type="checkbox"/> NO INDEX</td>
+  </tr>
+  <tr>
+    <td>DATE: 26 Nov 69</td>
+    <td colspan="2"><input type="checkbox" checked/> FILE IN CS FILE NO. 200-8-5</td>
+  </tr>
+</table>
+
+<table>
+   <thead>
+    <tr>
+     <td colspan="3">ROUTING</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>L</td>
+     <td></td>
+     <td>4</td>
+    </tr>
+    <tr>
+     <td>2</td>
+     <td></td>
+     <td>5</td>
+    </tr>
+    <tr>
+     <td>3</td>
+     <td></td>
+     <td>6</td>
+    </tr>
+   </tbody>
+  </table>
+
+TO : FEDERAL BUREAU OF INVESTIGATION
+FROM : BRASS CENTRAL INTELLIGENCE AGENCY
+CONF : WH 8
+INFO : DDP, CI, CI/OPS, SR 7, SAS 8, VR
+
+29 Nov 69 15 23:
+
+CITE DIR
+
+85676
+
+TO FBI
+
+SECRET/NO FOREIGN DISSEM
+
+SUBJECT: TRAVEL OF SOVIET DIPLOMATIC COURIERS
+
+1. REFERENCE IS MADE TO YOUR TELETYPE OF & NOVEMBER 1963 CONCERNING THE TRAVEL TO MEXICO OF SOVIET DIPLOMATIC COURIERS VALENTI GERNANOVICH PONOMAREV AND ALEKSEY NIKOLAYEVICH POPKOV.
+
+2. ACCORDING TO OUR REPRESENTATIVE IN MEXICO CITY, PONOMAREV AND POPKOV LEFT MEXICO CITY FOR CUBA ON 12 NOVEMBER VIA CUBANA 465 AND RETURNED TO MEXICO CITY ON 18 NOVEMBER VIA CUBANA.
+
+3. A USUALLY RELIABLE AND SENSITIVE SOURCE REPORTED THAT THEY PROBABLY LEFT MEXICO CITY FOR NEW YORK ON 23 NOVEMBER VIA AERONAVES FLT 451. THE SAME SOURCE REPORTED THAT ONE "ANANYEV" (PHONETIC) OF THE SOVIET CONSULATE IN NEW YORK CONTACTED THE SOVIET EMBASSY IN MEXICO CITY ON 23 NOVEMBER AND REQUESTED INFORMATION ON WHICH FLIGHT THE COURIERS WERE TAKING. ASSISTANT CONSUL VALERIY VLADIMIROVICH KOSTIKO PROVIDED THE INFORMATION ON BEHALF OF THE SOVIET EMBASSY IN MEXICO CIT
+
+RECEIVED FROM
+
+JAN 23 1976
+
+CIA
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+<table>
+   <tr>
+    <td>
+     SECRET
+    </td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>
+     GROUP 1
+     <br/>
+     Excluded from automatic
+     <br/>
+     downgrading and
+     <br/>
+     declassification
+    </td>
+   </tr>
+  </table>
+
+AUTHENTICATING
+OFFICER
+
+REPRODUCTION BY OTHER THAN THE ISSUING OFFICE IS PROHIBITED.
+
+Copy No.

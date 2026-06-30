@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_30598.png
+
+Convert to MarkdownSECRET
+
+0002386
+
+Christ + 2
+s17/62 - negotiations for
+release underway.
+
+9/13/63 - Christ "Indoctrinated
+for Special Intelligence".
+
+Personal History Statement
+can above left eye - on
+right forearm, left foot
+tambile
+
+Last address: 6212 Maiden
+Lane, Bethesda, Md.

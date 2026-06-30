@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_29230.png
+
+Convert to Markdown6/6/63 A. Hi Selle
+social security # 433-54-3937
+Lee Harney Donald
+
+in USMC #1653230
+24 Oct. 1956 to 11 Sept 1959
+
+W/M 28 Oct 18, 1939. Born N.O.
+59" 146s Mechanic
+
+Married - Maria Prose w/F 21 20 Wks
+1 Child - 17 months.
+
+Worked at La. Cepain & 3 milhs.
+at Work Tegane worked for several milhs.
+
+Attended to Mija about filing a permit. But he was转移 from Celia Marony.
+
+Calvin came up with stone again
+
+Ridet A pureld w/427 Jack Wine
+John Donald Jun 32 Belanger

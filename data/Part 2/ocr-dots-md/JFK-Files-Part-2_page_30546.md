@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_30546.png
+
+Convert to MarkdownNOTIFIED THE INTERVIEWING COMPONENT THAT THE FBI HAD NO OBJECTION TO THE INTERVIEW.
+
+of Posada claims that he joined JURE at some point during this year.
+
+1964. Posada left the U.S. Army in March with the rank of 2nd lieutenant. In September he claims he was employed by the Pan Am Esterminating Co. 275 S.W. 6th St., Miami. He also claims to have been representing JURE in the Dominican Republic in 1964 and 1965.
+
+1965. In April Posada is in Miami working as an autobody repairman when he is recruited as a training instructor. A name check returned positive from FBI, ONI, I+NS, the Adjunct Generals Office and the Army Chief STAF.F FOR Intelligence. The FBI reportedly has evidence
+
+STAFF FOR SECRET"}]

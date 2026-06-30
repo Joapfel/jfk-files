@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_30769.png
+
+Convert to MarkdownMr. Patrick Carpentier
+
+March 8, 1978
+Page 2
+
+7) E. D. BREWER - Approximate date of birth: 1932.
+Last known employment: Dallas Police Department - Motorcycle (joined approximately 1953). In U. S. Coast Guard three years.
+
+8) V. J. BRIAN - Last known employment: Dallas Police Department/Criminal Intelligence (joined in 1955).
+
+9) MRS. EARLE CABELL - 1964 address: 5338 Drane, Dallas, Texas. Wife of former Dallas Mayor.
+
+10) WARREN CASTER - Date of birth: 7/15/18. 1964 address: 3338 Merrell Road, Dallas, Texas. Last known employment: Southwestern District Manager.
+
+11) MALCOLM V. COUCH - Approximate date of birth: 1939. 1964 address: 4215 Live Oak, Dallas, Texas. Master of Theology, Dallas Seminary, 1964. Worked as part-time news cameraman with WFAA-TV and Keitz and Herndon Film Studios.
+
+12) JAMES N. CRAWFORD - Last known employment: Dallas County Deputy Clerk (joined Dallas County about 1953).
+
+13) J. C. DAY - Approximate date of birth: 1914. Last known employment: Dallas Police Department/Lt., Crime Scene Search (Joined approximately 1940).
+
+14) C. N. DHORITY - Date of birth: 8/23. Last known employment: Dallas Police Department/Detective (joined August 1946).
+
+15) JACK EDWIN DOUGHERTY - Date of birth: 8/12/23 in Dallas, Texas. 1964 address: 1827 South Marsalis Street, Dallas, Texas, phone WH6-7170.
+
+16) CAPTAIN GEORGE DOUGHTY - Last known employment: Dallas Police Department/Crime Lab.
+
+17) ROBERT E. (Bob) EDWARDS - aka: Bobby Gene Edwards. Date of birth: 2/4/43, Dallas. 1963 address: 821 South Nursery, Irving, Texas. Last known employment: Dallas County Auditor's Office. Social Security #: 467-64-6793. Navy #: 5848308. FBI #: 484 594H
+
+NW 88326 DocId:32272575 Page 3

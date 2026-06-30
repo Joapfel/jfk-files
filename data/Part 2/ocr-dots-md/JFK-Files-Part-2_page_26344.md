@@ -1,0 +1,84 @@
+# JFK-Files-Part-2_page_26344.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>C-O-N-F-I-D-E-N-T-I-A-L</td>
+    <td>CLASSIFICATION - DISSEMINATION CONTROLS</td>
+    <td colspan="3"></td>
+    <td>NO FOREIGN DISSEM</td>
+   </tr>
+   <tr>
+    <td>COUNTRY</td>
+    <td>SOUTH VIETNAM</td>
+    <td>REPORT NO.</td>
+    <td>TDCS -3/553,724</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>SUBJECT</td>
+    <td>POSSIBLE CHANGE IN GOVERNMENT OF VIETNAM FOREIGN POLICY IN LIGHT OF APPOINTMENT OF AMBASSADOR LODGE</td>
+    <td>DATE DISTR.</td>
+    <td>17 JULY 1963</td>
+    <td>PRECEDENCE</td>
+    <td>ROUTINE</td>
+   </tr>
+   <tr>
+    <td>DATE OF INFO.</td>
+    <td>MID-JULY 1963</td>
+    <td>REFERENCES</td>
+    <td></td>
+    <td></td>
+    <td>IN 80437</td>
+   </tr>
+   <tr>
+    <td>PLACE & DATE ACQ.</td>
+    <td>VIETNAM, SAIGON (15 JULY 1963)</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>APPRaisal</td>
+    <td>SEE BELOW</td>
+    <td>FIELD REPORT NO.</td>
+    <td>FVS-9314</td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="6">THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.</td>
+   </tr>
+   <tr>
+    <td>SOURCE</td>
+    <td>A HIGH-LEVEL VIETNAMESE SECURITY OFFICIAL (C) WITH EXTENSIVE CONTACTS AMONG GOVERNMENT OFFICIALS.</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>APPR</td>
+    <td>IT IS PROBABLY TRUE THAT THE GOVERNMENT OF VIETNAM HAS RECALLED SOME OF ITS FOREIGN REPRESENTATIVES; HOWEVER, WHETHER THE REASON IS TO DEFINE A NEW FOREIGN POLICY IN LIGHT OF AMBASSADOR LODGE'S APPOINTMENT IS UNKNOWN. SEE HEADQUARTERS COMMENT, PARAGRAPH 2. MAX VIB 10NACA NVC0 MID NAVY LIST DIGIT GUNTER</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td>SWD</td>
+    <td>THE DESIGNATION OF HENRY CABOT LODGE, JR. AS AMBASSADOR TO THE GOVERNMENT OF VIETNAM (GVN): THE APPOINTMENT SUGGESTED TO THE PRESIDENT THAT THE UNITED STATES PLANNED TO WIELD "A BIG STICK," AND THE GVN RECALLED A NUMBER OF ITS SWD DEPLONATS FOR CONSULTATION." AMONG THEM WERE THE REPRESENTATIVES IN KUALA LUMPUR AND SINGAPORE, NEW DELHI, DJAKARTA, TOKYO, RANGOON, AND SENEGAL AND SWH SEVERAL OTHER AFRICAN NATIONS. THE REPRESENTATIVES WERE RECALLED OSTENSIBLY SO THAT THEY COULD ATTEND A SEMINAR ON THE STRATEGIC HAMLET PROGRAM WHICH WOULD ENABLE THEM TO EXPLAIN THE PROGRAM ABROAD; HOWEVER, THE GVN ACTUALLY</td>
+    <td></td>
+    <td></td>
+    <td></td>
+    <td></td>
+   </tr>
+   <tr>
+    <td colspan="2">CLASSIFICATION - DISSEMINATION CONTROLS THE FORCE C-O-N-F-I-D-E-N-T-I-A-L</td>
+    <td colspan="3"></td>
+    <td>NO FOREIGN DISSEM</td>
+   </tr>
+   <tr>
+    <td>STATE/DIR</td>
+    <td>DIA ARMY/ACS NAVY AIR JCS SECDEF NSA NIC AID US

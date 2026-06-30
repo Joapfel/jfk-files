@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_31651.png
+
+Convert to Markdown7
+
+SF 14-207
+
+FSP:mb
+
+Sergeant CARL DAHL had related on January 10, 1966, that according to his previously described source in the VDC, the "soldier's leaflet" was primarily the work of MARVIN GARSON and JACK WEINBERG, and had been proofread by ROBERT SCHEER.
+
+SF T-11 reported during April 1963, that MARVIN THOMAS GARSON had been active in the Young Socialist Alliance (YSA) in Berkeley, while attending UCB, and had served as an officer of the organization.
+
+SF T-11 further reported that GARSON had become dissatisfied with the YSA over a factionalist dispute and had resigned from the YSA in Berkeley in February, 1963.
+
+The December 12, 1961, issue of "The Daily Californian", UCB Campus Publication, contained an article captioned, "Fair Play For Cuba," which was signed by two individuals, one of whom was "Bob Scheer, Grad Student, Econ., member, Fair Play Exec. Comm."
+
+In the May 22, 1965, issue of the "San Francisco Examiner", a San Francisco, California, daily newspaper, there appeared an article captioned, "The 'Camp' Meeting at Cal." Among other things, the article identified ROBERT SCHEER as Research Director for the FPCC and informed SCHEER had visited Cuba in the summer of 1964 in defiance of a U.S. State Department ban.
+
+ROBERT SCHEER is the Foreign News Editor for "Ramparts".magazine.
+
+"Ramparts" is self-described as the "catholic journal of political opinion."
+
+The February 23, 1966, issue of the "Berkeley Daily Gazette", a Berkeley, California, daily newspaper, informed among other things, that "SCHEER, an outspoken critic of the JOHNSON
+
+982 20

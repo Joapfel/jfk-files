@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_27569.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+Elizabeth Berning, Chief Clerk
+
+FROM: I. Charles Mathews, Special Counsel
+
+DATE: February 13, 1978
+
+RE: Mr. Gene Johnson
+
+This is to inform you that effective February 10,
+1978, Mr. Gene Johnson has been promoted from Assistant
+Deputy Chief Counsel/King Investigation to Deputy Chief
+Counsel. His starting salary will be $42,500.00 effective
+February 1, 1978.
+
+If you have any questions, please contact me at
+your convenience.
+
+ICM:j

@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_31680.png
+
+Convert to MarkdownSF 100-46832
+WEH:jb
+
+# I. BACKGROUND
+
+## A. Employment
+
+ROBERT SCHEER is employed as Editor-in-Chief of "Ramparts" magazine, 495 Beach Street, San Francisco, California.
+
+May 1969 issue of "Ramparts"
+
+## B. Residence
+
+ROBERT SCHEER resides with his wife ANNE and infant son at 6468 Benvenue Avenue, Oakland, California.
+
+Mrs. GEORGIA GWILLIAM
+6480 Benvenue Avenue,
+Oakland, California
+
+April 14, 1969
+
+## C. Marriage Record
+
+The San Francisco "Examiner" newspaper, issue of October 23, 1965, contained a marriage notice for ROBERT SCHEER, age 29, 2546 Geary Boulevard, San Francisco, and for ANNE WEILLS, age 23, Berkeley, California.
+
+Records of the County Clerk's Office, City Hall of San Francisco, reflect that suit #539250 was filed January 7, 1964 in behalf of ROBERT SCHEER, who was bringing suit for divorce against SERENA SCHEER, to whom he was married September 14, 1957 at Brooklyn, New York. The Plaintiff alleged that he and his wife were separated about December 1, 1961 and that they had no community property. SCHEER charged his wife with extreme cruelty and grievous mental suffering. SERENA SCHEER was served with notice of divorce proceedings February 7, 1964 and failed to appear to answer charges. ROBERT SCHEER was granted an interlocutory judgment of divorce September 14, 1964 and decree
+
+SECRET
+
+Copy Q of 13 Copies
+Page 1 of 18 Pages
+
+1244
+
+NW 88613
+DocId:34517445 Page 3

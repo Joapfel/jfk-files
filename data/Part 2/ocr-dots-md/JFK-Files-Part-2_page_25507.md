@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_25507.png
+
+Convert to MarkdownML: Yeah.
+
+FS: And I believe we met at the Riviera Hotel in the lobby?
+
+ML: Yes.
+
+FS: That's where, when I saw...
+
+ML: That's what I said, a couple months...
+
+FS: Right.
+
+ML: right after that.
+
+FS: In April, right. And this is where we made contact and so forth and then we saw each other a few times after that...
+
+ML: In the coffee shop.
+
+FS: In the coffee shop and this is when you were recruited to go ahead and spy for the United States and so forth and, were you ever introduced or, to Colonel Nickels?
+
+ML: Yes.
+
+FS: Do you know who Colonel Nickels is, right. He was the Colonel who was military attache with the American Embassy in Havana, Cuba at that time, right?
+
+ML: Yes.
+
+FS: Okay. Then you started your spy thing and so forth and so forth, alright?
+
+ML: Um hum.
+
+FS: We'll go ahead and jump a little bit and so forth. There were several meetings that Fidel had in the Hilton with some of the people of the staff. I was present at the meeting, right?
+
+ML: Right.
+
+FS: And, one of the time that Fidel was talking to the staff concerned the gambling casinos and American business interests in Cuba, right?
+
+ML: Right.

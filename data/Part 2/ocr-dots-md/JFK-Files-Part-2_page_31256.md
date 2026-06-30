@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_31256.png
+
+Convert to MarkdownSECRET
+
+0002303
+
+14 March 1974
+Mutiny in Terry Penyngton's Mullen Crew.
+
+Frank O'Malley referred Hunt to Bob Mullen of the Mullen Crew.
+O'Malley then suggested that Mullen, who was on ainformations pulled up from
+cause of an ended relationship between
+O'Malley & Mullen in early 1965 in his crew with Frank O'Malley as co-pilot.
+Hunt & Mullen met in Paris during
+Michael Plan
+when Mullen declined his offer. Hunt
+possible assignment on film placement and
+establishment.
+
+- Hunt applied for O'Malley's approval to be allowed to join a group of men under command during a military operation.
+
+- Thomas C. Amato opposed giving him a job.
+
+- Houston
+- Frank is interested in Walter Farrell and ENS real name (poor) department and background
+- auf dem Weg where he will go after leaving Pincus
+Osborn, Angleterre, Rocca, & Houston

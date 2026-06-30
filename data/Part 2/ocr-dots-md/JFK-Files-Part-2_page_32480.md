@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_32480.png
+
+Convert to MarkdownOFFICIAL USE ONLY
+
+The company executives attributed the pro-communist sentiment as revealed, mainly to the economic difficulties experienced by low-income families as a result of the rampant inflation. They said their labor relations were good, that while their pay scales were not as high as those in some other industries, some popular fringe benefits were provided, and that to the best of their knowledge there had been no communist agitators at work among their employees.
+
+Not long before this visit I was lunching one day at the Jockey Club with Sr. Paulo Ayres Filho, a Brazilian banker and pharmaceutical manufacturer who is the spark-plug of IPES (Instituto de Pesquisas Economicas e Sociais), the principal democratic action group in the local business world. Looking around him at the other tables, occupied by a good many well-known figures of São Paulo's conservative upper classes, Sr. Ayres said to me, "Apart from the two of us, there isn't a man in this dining room who is seriously concerned over the communist danger in Brazil."
+
+No conclusions, obviously, should be drawn from such slender indications. It has been my observation, however, that most Brazilians either believe that a communist take-over would be impossible in Brazil, or believe that even if it occurred, it would take a relatively mild form with which they could live. The Brazilian's boasted calm, which is genuine and in most circumstances a virtue, could in the present state of affairs be the cause of his undoing.
+
+Daniel M. Braddock
+Minister Consul General
+
+OFFICIAL USE ONLY

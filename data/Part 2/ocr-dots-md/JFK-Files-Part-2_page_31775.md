@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_31775.png
+
+Convert to MarkdownSF 100-46832
+WEH/dp
+
+The article said SCHEER stated "We invoke the devil theory of communism to explain the reality of desperate social revolution." SCHEER concluded "Vietnam is only the extension of this unhealthy American characteristic, not an isolated example of mistaken policy. It is an integral part of a policy of corrupt self-seeking deception." After explaining that ROBERT SCHEER visited South Vietnam twice, the article quoted SCHEER as saying, "I think we have to realize that the Vietnamese are indeed fighting for their freedom - but their freedom from us. They are nationalists trying to create a national revolution, and they can't be explained away with a label."
+
+SCHEER alleged that the United States was in the Vietnam war to make a profit. He called for staged withdrawal of U.S. troops over a period of years.
+
+In reference to the domestic scene, SCHEER warned that sterner measures against dissent were coming and that President JOHNSON's talk about peace was a "con job."
+SCHEER said people were rioting in America because "they have no legitimate avenue of dissent." In summary, SCHEER urged concerned youth not to become complacent but to remain aware of the problems and refuse to conspire with liberal politicians who try to make dissent irrelevant.
+SCHEER told the group, "Block the halls and block the airports. This may be one of the times when to behave reasonably is to behave irresponsibly."
+
+November 21, 1967
+
+The "University of Washington Daily" newspaper, Seattle, Washington, issue of November 21, 1967, carried an article announcing that ROBERT SCHEER, editor of "Ramparts" Magazine, would speak at the Hub Auditorium, November 21, 1967, under sponsorship of the Political Union. The article said that SCHEER, who is leading proponent of the New Left, served on the Board of Directors of the National Conference for New Politics, which held its convention in Chicago. It stated that SCHEER was currently collaborating with WARREN HINCKLE, also on the "Ramparts" staff, in writing a book about the "Vietnam lobby".
+
+Copy 1 of 3 Copies
+Page 97 of 134 Pages
+
+1339
+
+SECRET
+
+LEROY S.
+
+N W 88613
+DocId:34517445 Page 98

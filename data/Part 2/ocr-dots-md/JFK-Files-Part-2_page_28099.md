@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_28099.png
+
+Convert to MarkdownSelect Committee on Assassinations
+
+U.S. House of Representatives
+
+WASHINGTON, D.C. 20515
+
+Mr. Sprague:
+
+Edith, Rick, and I have interviewed Giulia (Julie) Mainieri and we all recommend her pending your final approval.
+
+Present salary $12,800.00.

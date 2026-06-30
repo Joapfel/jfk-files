@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_25422.png
+
+Convert to MarkdownMM 105-1742
+
+organization Armed Forces of Cuba in Exile, stated that about a month ago, LUIS SOMOZA told EMILIO NUNEZ PORTUONDO, former Cuban delegate to the United Nations (UN), that he (SOMOZA) had talked to United States Attorney General (AG) ROBERT KENNEDY.
+
+AG KENNEDY reportedly said it was necessary for SOMOZA to work out the Cuban problem and to unite Cuban exiles. SOMOZA recommended that MANUEL ARTINE BUESA be designated as the leader of the Cuban exiles.
+
+DE LEON advised that there was later a meeting in Miami at the home of Nicaraguan Army Captain JOSE ALEGRETT between SOMOZA and a number of Cuban exile leaders. At this meeting, SOMOZA said there was a possibility of Nicaraguan support for the Cuban exile anti-CASTRO movement, but first the exiles would have to accept ARTINE as their leader. There was considerable opposition to this suggestion by the exile leaders attending the meeting.
+
+On September 12, 1963, PAULINO SIERRA MARTINEZ, former attorney and textile mill operator in Cuba, advised he had recently visited Nicaragua and conferred with LUIS SOMOZA concerning help to Cuban exiles.
+
+SIERRA said there are no training camps in Nicaragua or Central America for Cuban exiles, and all the proposed aid and backing has progressed no further than the talking stage. SIERRA said it seems to him that everyone is waiting for the United States Government to give the "green light".
+
+On September 12, 1963, MM T-3 advised that nearly all top-political leaders among Cuban exiles have conferred with SOMOZA and now agree that the SOMOZA Plan is too big for MAY 7 1978
+
+DOJ
+
+9.

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_32446.png
+
+Convert to MarkdownSECRET
+
+EXCERPT FROM DRAFT NIE 85-63, 4 FEBRUARY 1963
+
+18. Cuban overseas military capabilities remain severely limited by lack of the requisite air or sea lift. The Cubans could probably not undertake an overseas operation on a scale larger than one battalion. For political as well as military reasons, the Castro regime is most unlikely to undertake military operations of this nature.
+
+It would prefer to concentrate on rendering clandestine support to local insurgents.

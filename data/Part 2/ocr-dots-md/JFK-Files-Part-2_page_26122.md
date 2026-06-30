@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_26122.png
+
+Convert to Markdownand let him do that.
+
+We have some wonderful Americans, and this
+was what I was trying to do. We were to find out
+which Americans have not only our interests
+at heart but were enough interested in foreign
+affairs to be willing to understand and have
+contact.
+I really would be serving the best
+interests of other countries in things. I'd
+far rather see one man get in on something
+like that than send a whole team in with all
+sorts of things, and sort of aggravate a
+situation rather than do something rather simple.
+
+O'BRIEN: Almost sensitivity training . . . O
+
+LANSDALE: Incidentally, along these lines,
+I've got a good story for your account.
+
+O'BRIEN: Great.
+
+LANSDALE: About the time of the Cuban Missile Crisis,
+McNamara came back from a meeting at the
+White House one day and asked me to provide
+the means for President Kennedy to talk to
+the Cuban people on TV. How the hell did I
+know how to do that? He told me that he
+wanted to do it within the next twenty-four

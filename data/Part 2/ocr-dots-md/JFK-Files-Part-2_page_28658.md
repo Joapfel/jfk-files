@@ -1,0 +1,114 @@
+# JFK-Files-Part-2_page_28658.png
+
+Convert to MarkdownN
+J
+I
+F
+M
+Y
+S
+D
+O
+B
+H
+K
+
+EXHIBIT I
+
+EXHIBIT I
+
+This record will be forwarded to the Clerk of the House at the end of each calendar year, or in case of termination, along with the request for termination. Upon approval, the record will be filed in the employee's official personnel folder.
+
+EXHIBIT I
+
+NW 88326
+DocId:32244096 Page 6
+
+[ ] = 0.5 day annual leave
+[ X ] = 1.0 day annual leave
+[S] = 0.5 day sick leave
+[S/S] = 1.0 day sick leave
+[A] or [A/A] = 1.0 day administrative leave
+[U] or [U/U] = 1.0 day unauthorized absence
+[ ] = 0.5 day leave without pay
+[ ] = 1.0 day leave without pay
+
+CERTIFIED CORRECT:
+
+Employee's Signature      Date      Chief's Signature      Date
+(If employee refuses to sign, state reason below.)
+
+Approved: Clerk of the House Date
+
+Date
+
+Date
+
+| Day | Month | Year |
+| :--- | :--- | :--- |
+| 1 | Jan | 1978 |
+| 12 | Dec | 1978 |
+| 23 | Mar | 1979 |
+| 24 | Apr | 1979 |
+| 25 | May | 1979 |
+| 26 | Jun | 1979 |
+| 27 | Jul | 1979 |
+| 28 | Aug | 1979 |
+| 29 | Sep | 1979 |
+| 30 | Oct | 1979 |
+| 31 | Nov | 1979 |
+| 1 | Dec | 1979 |
+
+| Day | Month | Year |
+| :--- | :--- | :--- |
+| 1 | Jan | 1978 |
+| 12 | Dec | 1978 |
+| 23 | Mar | 1979 |
+| 24 | Apr | 1979 |
+| 25 | May | 1979 |
+| 26 | Jun | 1979 |
+| 27 | Jul | 1979 |
+| 28 | Aug | 1979 |
+| 29 | Sep | 1979 |
+| 30 | Oct | 1979 |
+| 31 | Nov | 1979 |
+| 1 | Dec | 1979 |
+
+| Day | Month | Year |
+| :--- | :--- | :--- |
+| 1 | Jan | 1978 |
+| 12 | Dec | 1978 |
+| 23 | Mar | 1979 |
+| 24 | Apr | 1979 |
+| 25 | May | 1979 |
+| 26 | Jun | 1979 |
+| 27 | Jul | 1979 |
+| 28 | Aug | 1979 |
+| 29 | Sep | 1979 |
+| 30 | Oct | 1979 |
+| 31 | Nov | 1979 |
+| 1 | Dec | 1979 |
+
+| Day | Month | Year |
+| :--- | :--- | :--- |
+| 1 | Jan | 1978 |
+| 12 | Dec | 1978 |
+| 23 | Mar | 1979 |
+| 24 | Apr | 1979 |
+| 25 | May | 1979 |
+| 26 | Jun | 1979 |
+| 27 | Jul | 1979 |
+| 28 | Aug | 1979 |
+| 29 | Sep | 1979 |
+| 30 | Oct | 1979 |
+| 31 | Nov | 1979 |
+| 1 | Dec | 1979 |
+
+| Day | Month | Year |
+| :--- | :--- | :--- |
+| 1 | Jan | 1978 |
+| 12 | Dec | 1978 |
+| 23 | Mar | 1979 |
+| 24 | Apr | 1979 |
+| 25 | May | 1979 |
+| 26

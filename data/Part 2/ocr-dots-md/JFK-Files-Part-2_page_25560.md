@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_25560.png
+
+Convert to MarkdownUniversity of Montana
+Missoula, Montana 59801
+
+(406) 243-0211
+
+January 8, 1976
+
+Senator Mike Mansfield
+United States Senate
+Washington, DC 20510
+
+Dear Senator Mansfield:
+
+Thank you for your letter of December 15th in which you state that you would contact Mr. Miller and ask him to respond to my request. I am sorry to bother you again but I have had no word from Mr. Miller. As you know, I feel that the matter is of sufficient importance that it deserves a reply or at least an acknowledgement of a receipt of my letter from Mr. Miller.
+
+E. W. Pfeiffer

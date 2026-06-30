@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_25844.png
+
+Convert to Markdown## 7. Oswald, New Orleans, Garrison Case
+
+Rocca said that the CI/R and A stayed on top of the Garrison case and "summarized overt developments." Rocca identified the analyst for the Garrison material as Donald Pratt. Rocca said that by NSA intercepts and associated relationships, the CIA believed Garrison was operating (unwittingly) under KGB manipulation. (Rocca briefly described Soviet technique of misinformation. He recalled an interview that Drew Pearson had with Kruschev in Cairo in 1964 or 1965. Kruschev told Pearson that his "gut feeling" was that American right-wing extremists and capitalists were responsible for the President's assassination. Rocca said this typified KGB disinformation.)
+
+Rocca characterized Oreste Pena's allegations as "absolute fabrication." Rocca said CIA files revealed that Clay Shaw was a contact of the DCD until 1956.
+
+Rocca said that he was never informed in 1962 or 1963 about a revolutionary training camp around Lake Pontchartrain. He believes that the GIA did not know of its existence. Rocca said there is evidence that messages from the Lake Pontchartrain camp were going to a drop in Mexico City.
+
+## 8. GPFLOOR Period
+
+GPFLOOR was the crypt used to describe the investigation conducted by CIA following the President's assassination (11/23-1/12-15/63.) The Mexico City aspect of GPFLOOR was controlled by WH: J. C. King, Chief; Jack Whiten, Desk Chief, and Win Scott, COS, Mexico City. Rocca said that Whiten would report Mexico City developments to Helms who would then inform McCone.
+
+## 9. End of GPFLOOR: Warren Commission
+
+With the formation of the Warren Commission, the GPFLOOR period ended. Rocca explained that Helms served as the major liaison between the CIA and WC. Rocca served as chief of research for matters of interest to the WC -- mostly concerning Oswald's defection to Russia. Rocca's staff included: Thomas Hall, Arthur Dooley and Paul Hartman. Hall conducted research on Soviet service in DDO. Dooley followed all Bureau developments forwarded to CIA. Hartman was responsible for exploration of overt references and Soviet service." Additionally, Hartman researched DeMohrenschildt's relationship to the Oswalds.
+
+Rocca reported his research staff's findings to Angleton; Rocca had no contact with Helms. Rocca explained that he had some liaison with Slawson of the WC staff. Rocca said that any negotiation between the CIA and WC was conducted by Helms, Dulles, and Rankin. Rocca said he had no knowledge of any CIA assassination attempts against Castro.
+
+Rocca emphasized that the FBI was the investigative arm for the Warren Commission. Rocca said that Sam Papich, Dick O'Niell (sic) and Jim Hunt were the Bureau personnel involved with the WC.
+
+TOP SECRET

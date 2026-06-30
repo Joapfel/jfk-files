@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_29655.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA-controlled documents.)
+
+TOP SECRET
+210
+
+City Station cabled the information to Headquarters the following day, June 11, 1964. 1056/
+
+The Committee has determined that the Central Intelligence Agency's main interest in Oscar Contreras was "to confirm that several of Garrison's allegations about involvement of anti-Castro Cubans, the CIA, etc. are false." 1057/ After the CIA Mexico City Station official's interview with Contreras 1058/ revealed nothing that could be useful to the agency, it decided to allow the FBI to follow the story through. 1059/ Nonetheless, the Agency's Mexico City Station interviewed the key witness, reviewed pertinent files and records about the witness in the Mexican government's possession, and reported all the information to Headquarters expeditiously.
+
+# VII. Analysis of Lee Harvey Oswald's Activities in Mexico City
+
+## A. introduction
+
+After the Warren Commission published its report two very important allegations related to Lee Harvey Oswald's activities in Mexico City came to the attention of the United States investigative agencies. In 1964, Elena
+
+200353
+
+Classified by classification: -403
+
+NW 48327 DocId:32263889 Page 303

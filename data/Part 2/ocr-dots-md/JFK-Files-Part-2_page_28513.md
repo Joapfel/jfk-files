@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_28513.png
+
+Convert to MarkdownRESUME
+
+Dominick Kevin Giangrasso
+7902 Wallace Road
+Baltimore, Maryland 21222
+(301) 285-2826
+
+PERSONAL
+
+**Born:** October 26, 1942 - Baltimore, Maryland
+
+**Health:** Excellent; last physical taken
+
+**Appearance :** Height 6' 4"; Weight 188 lbs.
+
+**Marital Status:** Married - Lorraine M. nee Novak
+
+Date of Birth Sept. 11, 1942
+
+Three Children - Dominick Anthony - June 6, 1967
+Lisa Ann November 24, 1968
+Derek Joseph February 11, 1974
+
+Religious Affiliation Roman Catholic
+
+EDUCATION
+
+Baltimore Public School system until 12th grade
+
+High School equivalency received July, 1967
+
+At present, I have earned 45 credits towards an Associate of Arts Degree in Criminal Justice at Essex Community College, Baltimore County, Md.
+
+EXPERIENCE
+
+January 10, 1964 sworn into the Baltimore City Police Department - finishing 3rd in standing of 27 graduates. Thereafter assigned to the Southeastern District in uniform patrol that covered high crime areas. During this assignment I handled all types of felony and misdemeanor investigations and arrests.
+
+December 1967 transferred to the Criminal Investigation Division and assigned to the Vice Control Unit. In this capacity was assigned to undercover work in the areas of prostitution and gambling violations. While in this assignment, I kept a low profile and learned to develop sources of select confidential information.
+
+In May 1968 was promoted to Detective Patrolman and re-assigned to the Crimes Against Persons Unit - Homicide Squad, which is my present assignment. While in this division, I have personally investigated in the excess of 225 homicides and have been actively involved with another 150 homicide investigations. I have also conducted hundreds of investigations into the areas of questionable death, suicide, serious assault, kidnapping, armed robbery, extortion, threats of death and hostage situations. For a period of about four years, have also investigated numerous sex related offenses such as rape, perverted practices, etc. ✓
+
+NW 88326
+
+DocId:32243321 Page 9
+
+RECEIVED
+
+1977 AUG -8 PM 2:58
+
+U.S. HOUSE SELECT
+COMMITTEE ON ASSASSINATIONS
+
+EVANS
+
+APRIL 22, 1977
+
+DATE SUBMITTED FOR CONSIDERATION
+
+SUBJECT TO APPROVAL BY THE CHIEF OF POLICE AND THE MINISTER OF HEALTH AND HUMAN SERVICES
+
+THE following person(s) has/has had authority to act on behalf of the State of Maryland:

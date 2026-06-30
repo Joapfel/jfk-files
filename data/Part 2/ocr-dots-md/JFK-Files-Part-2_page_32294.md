@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_32294.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE NATIONAL SECURITY COUNCIL'S EXECUTIVE COMMITTEE
+(Prepared for the Meeting of Thursday, January 24, 1963, at 10 a.m)
+
+FROM : Coordinator of Cuban Affairs
+
+SUBJECT: Cuban Brigade
+
+PROBLEM
+
+To determine the future of the <u>Cuban</u>
+<u>Brigade</u> (participants in the Bay of
+Pigs invasion recently released from
+Cuban prisons), and other Cubans who
+participated in or trained for the
+invasion. To determine the future of
+existing Cuban training programs.
+
+DISCUSSION
+
+Approximately 1500 Cubans participated in the Bay
+of Pigs invasion (known as Brigade 2506), the great
+majority of whom were captured. In December 1962 over
+1100 were released,
+
+A decision on the future of the Cuban Brigade and
+other Cubans trained militarily by the U. S. must logically
+proceed from whatever over all policy the U. S. adopts
+toward Cuba.
+
+A trained Cuban Brigade would be of relatively
+marginal military value because of its quantitative
+limitations and restricted military capability, but its
+
+SECRET
+
+HW 50955 DocId:32276061 Page 112

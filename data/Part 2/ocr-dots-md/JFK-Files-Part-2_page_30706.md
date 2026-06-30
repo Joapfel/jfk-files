@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_30706.png
+
+Convert to MarkdownSECRET
+
+Betsy Palmer
+
+File Review - Manuel Ray y Rivero Volume III of XVIII
+
+March 30, 1978
+
+December 1960 - January 1961
+
+11/1/827
+
+1. Cable 12/6/60 to Director from Gold Ray contacted by Weisinger and made statement that Isle of Pine's operation failed in his opinion because Bender failed to forward paper to Havana with key to operation.
+
+2. 12/8/60 Cable to Director from WAVE
+
+Ray advised Weisinger he is departing for Washington same day to visit ERNESTA BEVANCOURT of OAS and others. In New York on 12/9 to contact Raul Chibas. Return Miami about 12/11/60.
+
+3. 12/23/60 Cable to Director from Havana indicates Ray wishes return to Cuba as soon as possible and asks that OLÍEN make arrangements through his official channel. Doesn't want Cubans in WAVE or Cuba to know of his return.
+
+* 4. 12/22/60 Information report from U.S. citizen, free-lance writer and part-time sugar broker (DONALD HOGAN)
+
+Says Miro Cardona has accepted teaching position in Puerto Rico effective early January 1961. Is disgusted with bickering among anti-Castro Cubans and will sit on sidelines for time being. Is particularly opposed to Ray -- program is too Marxist and Ray is an opportunist.
+
+* 5. 1/16/61 Information Report from U.S. national in a U.S. government agency. Source had contact with DR. GUILLERMO SALAZAR SANCHEZ, former Cuban ambassador to Switzerland and DR. SERGIO ROJAS SANTAMARINA, former Cuban Ambassador to United Kingdom. Salazar said he had heard from a reliable source that Ray was not a bona fide defector and still acting on behalf of Castro and is a member of the "Blue Legion". (no further explanation.)
+
+Dr. Salazar mentioned group called "The Ten Unknowns" who are key figures in making Communist policy in Latin America. (Ray not implicated as one of these).
+
+SECRET

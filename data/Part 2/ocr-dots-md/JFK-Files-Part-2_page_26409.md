@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_26409.png
+
+Convert to MarkdownCAMBODIA
+
+Current Situation Evaluation
+
+Cambodia's differences with neighboring Thailand and South Viet-Nam continue, but they have so far not significantly affected the presently generally satisfactory relations between the United States and Cambodia. Thai moves concerning Preah Vihear temple are being watched closely, and it appears likely that if the announced decision to respect the World Court's award is not implemented by September the matter may be brought by Cambodia to the attention of the UNGA. The dispute between Cambodia and Viet-Nam over the ownership of islands off the Cambodian shore has come to the fore again, with the GVN rejecting a Cambodian protest against Vietnamese naval movements near them on the grounds that they belong to Viet-Nam. Organization of a new Cabinet has been postponed pending religious rites celebrating the World Court decision. New evidence of anti-Sihanouk plotting in Bangkok has developed.
+
+Progress on Action Program
+
+1. RKG-GVN Border Commission (Pol. 8). The GVN reply to the RKG's pro-test against the June 16 border violations is not entirely satisfactory, but Phnom Penh believes it may allow progress on the border commission proposal and has raised this possibility with the Foreign Ministry.
+
+2. Force Increase (Mil. 1). The initial reaction of the RKG to approval of the request for a force increase of 3,184, for MAP support only, is one of disappointment that military budget support was not included.
+
+3. New Aircraft (Mil. 5). Four T-28 aircraft, first increment of six-teen, have arrived in Cambodia. Formal turnover awaits the arrival of Ambassador Sprouse.
+
+4. Highway Repairs (Econ. 9). Invitations to bid have been sent out, and the repair contract is scheduled to be awarded by August 15. Contractors would be scheduled to commence work November 1, under the proposed contract.
+
+SECRET

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_31306.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Tom Howarth, Budget Officer
+FROM: I. Charles Mathews, Special Counsel
+DATE: November 17, 1977
+RE: Barbara Jean Robinson
+
+This is to advise you that Barbara Jean Robinson has accepted a position as a researcher on the Martin Luther King Task Force, effective November 21, 1977, at an annual salary of $15,000.
+
+Please extend every possible assistance to Ms. Robinson.

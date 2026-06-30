@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_25481.png
+
+Convert to MarkdownFW: Right.
+
+ML: And I wrote up the 61.
+
+FS: Go ahead. Now let me ask you this here.
+
+ML: The 61 - complaint report.
+
+FS: Alright, let me ask you this here. You say you were working for this police department in this precinct. What was your job with them?
+
+ML: Auxiliary volunteer. Photos, translations, rape cases, interrogation.
+
+FS: And at that time you were answering phone calls that were coming in?
+
+ML: And typing, and doing other things but I don't really want to get those guys involved because they...
+
+FS: No, I just wanted, wanted them to know what you were doing in the police department.
+
+ML: I was an auxiliary sergeant.
+
+FS: Answering the phones. Okay.
+
+ML: Auxiliary is a volunteer police.
+
+FS: Right, good enough. Now what other entries did you make with them. That's two -- that you specified.
+
+ML: Two. The rest I didn't want to go along with because I was a little afraid so my...
+
+FS: Things were getting a little hot for you.
+
+ML: Yes, because we had too many Russians, we had the Albanians, we had the Red Chinese.
+
+FS: All living in that building?
+
+ML: All living in the same building. There was, it was comical. The Albanians wouldn't talk to the Russians, the Russians ignored the Albanians, the Red Chinese went down the service entrance and to avoid the Russians and the Al-, it was just, the Secret Service in the garage and in the front door. The narcotics
+
+HW 50955 DocId:32423630 Page 214

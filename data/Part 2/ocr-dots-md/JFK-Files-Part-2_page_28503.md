@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_28503.png
+
+Convert to MarkdownEmployment (continued)
+
+Assistant Chaplain, 1961-1962
+Berks County Prison
+Reading, Pa.
+
+Laborer/Clerk/Assembly Line Worker, summers 1957 through 1960
+Ford Motor Company
+Chester, Pa. and Pennsauken, N.J.
+
+Apprentice Electrician, summers 1955 and 1956
+H. B. Frazer Company
+Philadelphia, Pa.
+
+References:
+
+Honorable A. Leon Higginbotham, Jr.
+United States District Judge
+United States District Court
+Eastern District of Pennsylvania
+Philadelphia, Pa.
+
+Professor Norman Dorsen
+New York University School of Law
+New York, N. Y.
+
+Professor Charles Lyon
+New York University School of Law
+New York, N. Y.
+
+S. Stephen Rosenfeld, Esq.
+Chief, Government Bureau
+Office of the Attorney General
+Boston, Mass.
+(on leave as Associate Professor of Law
+New York University School of Law
+New York, N. Y.)
+
+Richard A. Givens, Esquire
+New York Regional Director
+Federal Trade Commission
+New York, N. Y.

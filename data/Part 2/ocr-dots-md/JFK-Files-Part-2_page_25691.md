@@ -1,0 +1,57 @@
+# JFK-Files-Part-2_page_25691.png
+
+Convert to MarkdownOctober 5, 1964
+
+Mexican Communists who had contact with Oswald,
+as has not appeared in Warren Commission write-ups in press:
+
+not around recalling details:
+of their having been in a group with Oswald here last fall.
+during the day that he was in Mexico. The write-ups of the
+Warren Commission report in the newspapers sparked this
+discussion, and they apparently had never really set around
+determined to piece it all together, although all three were
+deeply affected by Kennedy's assassination, seemed literally
+to adore the Kennedy family image, still follow Robert Kennedy
+career with great interest and admiration.
+
+The main points:
+
+Horacio is the husband of SYLVIA DURAN, the Mexican girl who was arrested for questioning about Oswald because she had been in touch with him at the Cuban embassy when he went there looking for a visa. (She is or was also a ringleader at the Cuban-Mexican Institute on Tokio, I remember).
+
+While Oswald was here last fall the Duran cousins invited the home of Rubén Durán mid-week. A few Communists they knew
+
+Source
+
+and a number of people who struck the
+as very peculiar at the time, were there. AND OSWALD FASTHERE
+WITH TWO OTHER BEATnik LOOKING BOYS, ONE OF HEM WAS
+VERY TALL AND ALL THREE OF THEM THEY REMEMBER QUITED WELL.
+When they began asking questions about the Americans, who
+were standing together all evening and didn't dance at all,
+they were shifted to another room. However
+they were intrigued because
+
+said he didn't know
+who they were, except that Sylvia Duran had brought them, and
+none of the other guests made any attempt to approach them.
+Also, when the
+
+SOSARE WAS so insistent about meeting them,
+
+the Durans replied that the boys were leaving town v
+early the next morning. The next day, well along in the day,
+saw all three
+boys together on Insurgents. In other words, they had not le
+town. At the time, they remarked about it.
+
+Source
+
+As soon as Oswald's picture was printed in the newspapers
+clearly remembered him. And of course the arrest of
+Sylvia Duran almost immediately afterward, underlined their
+certainty.
+
+Source
+
+HW 50955 DocId:32423630 Page 424

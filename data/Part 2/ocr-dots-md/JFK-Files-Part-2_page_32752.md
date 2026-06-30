@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_32752.png
+
+Convert to MarkdownThe Air Force Council, chaired by the Deputy Chief of Air Staff for Operations, in the absence of the Vice Chief of Staff, with the concurrence of the Deputy Chief of Naval Operations for Air, also supported the Evaluation Group, and recommended that study contracts be issued to both companies for continued competition for another 60 to 90 days. The Council recognized that neither the Boeing nor the General Dynamics proposal, as submitted, would meet the established military requirements. The Council felt that by extending the competition for an additional period "time and dollars are thereby more apt to be saved than lost in the long run." It considered that competition should produce realistic cost estimates, further assurance of the validity of the eventual choice, and, in all probability, an earlier final design.
+
+Agreeing with the Air Council's proposal, the Secretaries of the Navy and Air Force recommended to me that study contracts be awarded to both Boeing and General Dynamics. They pointed out that:
+
+a. The proposals of these two companies were markedly superior to the others and offered the best chance of being brought up to stated Service requirements.
+
+b. The Services were unanimous in rejecting the General Electric engine (on which the Boeing design had been based) because of the low probability of its development in the time required, since not even a prototype existed at the time.

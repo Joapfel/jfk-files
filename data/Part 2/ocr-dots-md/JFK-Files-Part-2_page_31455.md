@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_31455.png
+
+Convert to MarkdownSF 100-33836
+
+FTD/1r
+
+LAURENT FRANTZ, introduced as an expert in constitutional law and a writer and publisher, spoke on the Walter McCarran Act and said that the security of the nation is hampered by this act.
+
+The "New York Guild Lawyer", volume 20, March and April, 1962, a self-described publication of the National Lawyers Guild, lists LAURENT FRANTZ as a member at large of the National Executive Board, National Lawyers Guild (NLG). (See Appendix Page for NLG).
+
+ROSE CHERNIN, introduced as the Executive Director of the Committee for the Protection of the Foreign Born from Los Angeles, said that the committee is fighting the Walter McCarran Act and will not register as a communist front group.
+
+Other speakers who spoke in favor of a repeal of the McCarran Act included ROSCOE PROCTOR, HERBERT PHILLIPS, and FRANK WILKENSON.
+
+WILKENSON also urged for the abolishment of the House Committee on Un-American Activities and the defeat of Proposition 24 on the California ballot..
+
+HERBERT PHILLIPS is Chairman of the CCL.
+
+(SF T-4, 9/25/62)
+
+ROSCOE PROCTOR attended meetings of the CPUSA National and District Leaders held in New York City June 22 to 24, 1962.
+
+(SF T-9, 6/29/62)
+
+FRANK WILKENSON, according to an article in the "San Francisco Examiner" of March 20, 1961, was convicted of contempt of congress and refusing to state before the House Committee on Un-American Activities whether or not he had ever been a member of the CP. His sentence of one year in jail was upheld by the United States Supreme Court,
+
+(SF T-6, 9/24/62, SF T-10, 9/25/62,
+SF T-4, 9/25/62, SF T-5, 10/3/62,
+SF T-11, 10/1/62)

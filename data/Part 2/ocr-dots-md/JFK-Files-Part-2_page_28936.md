@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_28936.png
+
+Convert to Markdown5010-107
+
+UNITED STATES GOVERNMENT
+Memorandum
+
+CONFIDENTIAL - ADMINISTRATIVE
+
+TO : Kansas City Payment Center
+
+FROM : Jess C. Carter, Assistant Manager
+Dallas, Texas
+
+SUBJECT: Lee Harvey Oswald - A/N 433 54 3937
+
+DATE: June 3, 1965
+
+Our newspaper has reported the re-marriage of the wage earner's
+widow. Since the language barrier is still a problem with her
+it is possible she will overlook making a proper report.
+Reportedly the marriage took place on Tuesday June 1, 1965.
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88326 DocId:32245128 Page 48

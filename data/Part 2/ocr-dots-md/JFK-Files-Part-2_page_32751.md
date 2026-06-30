@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_32751.png
+
+Convert to MarkdownElectric engine which was found to be unacceptable. The senior
+Navy member of the Evaluation Group stated that none of the designs
+was acceptable without very substantial change.
+
+A different view was expressed by the Source Selection Board
+which recommended that further work to achieve a satisfactory
+design be conducted exclusively with Boeing. It recognized that
+substantial changes had to be made to the Boeing design: a different engine
+was required, the means of stowing missiles was unsatisfactory, the
+radar equipment required revision, and feasibility of substituting
+capsules for ejection seats had to be explored. The Source Selection
+Board proposed that a letter contract be issued to Boeing for the
+limited purpose of refining a design specification which would be
+acceptable to the Navy and the Air Force. The Board's recommenda-
+tion was concurred in by the Tactical Air Command, the Air Force
+Logistics Command and the Navy Bureau of Weapons. The Air Force
+Systems Command, however, which would have the over-all responsi-
+bility for development of the aircraft, recommended against the selection
+of Boeing, and proposed the award of study contracts to both Boeing and
+General Dynamics, as suggested by the Evaluation Group.

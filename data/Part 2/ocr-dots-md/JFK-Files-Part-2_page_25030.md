@@ -1,0 +1,61 @@
+# JFK-Files-Part-2_page_25030.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Baron. And this document refers to the election of Joseph Ileo to the Presidency of the Senate of the Congo, and recounts a report by General Cabell that the US assisted Ileo financially and "may have secured some influence with this potentially useful individual."
+
+Did you ever see these minutes at the time they were made?
+
+Mr. Dillon. No, I don't think I ever did.
+
+Mr. Baron. Do you recall having a report of this meeting from Mr. Merchant who would have been State Department representative at the meeting?
+
+Mr. Dillon. No, I don't recall. I don't think I would have, because this wouldn't have seemed to me to be important enough to necessarily have been brought to my attention.
+
+Mr. Baron. Were you aware that Joseph Ileo was a significant figure in Congo politics?
+
+Mr. Dillon. I don't recall him at all now.
+
+Mr. Baron. Let me represent to you, to refresh your recollection, that in September of 1960, after Lumumba was taken out of power by Kasavubu and Mobutu, he was replaced as Prime Minister of the Congo by Joseph Ileo.
+
+Mr. Dillon. I didn't realize that.
+
+Mr. Baron. Do you have any refreshed recollection now of the relationship between the US and Joseph Ileo?
+
+Mr. Dillon. No.
+
+Mr. Baron. Generally speaking, would you have been
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32423566 Page 91
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

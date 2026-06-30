@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_27393.png
+
+Convert to MarkdownA. Memo for Mr. Knoche from Weidner - Request for Files - 13 May 75
+SECRET - SENSITIVE
+
+B. Memo from Knoche to Weidner - 3 June 75
+
+C. Memo for Chief, East Asia Div, Operation MKSOURDOUGH, 6 June 73
+SECRET SENSITIVE EYES ONLY
+
+D. Memo for the Files - signed CIA Officer - Subj: Meeting with
+Deputy Chief Postal Inspector on Chicom Mail Survey — 15 Sept 69
+SECRET
+
+E. Memo to File - Subj: Survey of Chicom Airmail to U.S. - 26 Aug 69
+SECRET
+
+F. Partly handwritten - partly typed - Oct 69 - May 70 - Chron log of activities.
+
+G. Memo for Record - Subj: Summary of Feb 70 San Francisco Mail
+Intercept Operation SECRET SENSITIVE
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

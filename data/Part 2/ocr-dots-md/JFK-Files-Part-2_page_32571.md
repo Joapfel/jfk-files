@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_32571.png
+
+Convert to MarkdownSECRET
+
+Security Information
+
+(3) The best cover is afforded by covert penetration of friendly systems, (a Western European nation talking back to USSR etc., as discussed in 2.d. above).
+
+(4) Commercial broadcasting cover presents some possibilities in the free world but none for broadcasting to the Soviet Orbit.
+
+b. Bases
+
+(1) Because governments object to providing bases for aggressive psychological warfare which they do not influence or control, it is difficult to find bases in areas suitable for broadcasting to the Orbit. Furthermore, adequate broadcasting facilities take time to plan, build, and staff and long tenure is therefore important. However, the political climate of a country can change abruptly, with resulting uncertainty as to length of tenure. Munich, for instance, which once furnished an excellent base for a variety of broadcasts targeted to the Orbit, appears to be becoming less and less satisfactory.
+
+Cover and control problems are closely related to this. A base for a secure and competently managed operation should be less difficult to obtain than for a loosely organized one.
+
+(2) Seaborne transmitters offer much in mobility but, antenna limitations restrict their effective power. As in the case of the VOA COURIER, stationary antennas on land are required for maximum effectiveness. Thus, the political problem becomes the same as for land transmitter bases, and costs in investment and maintenance are considerably higher than land based operations. Moreover, the difficulties of providing credible cover for a covert seaborne operation are manifest. While this office will continue to study VOA experience in this field, it sees no prospect of any agency use for it.
+
+(3) The VOA presently controls numerous broadcasting bases and are developing additional bases, in areas of the world suitable for our purposes. The necessary agreements with host countries have already been negotiated; power, housing, transportation and other logistics have been provided. The present management of VOA are sympathetic to sharing these bases with CIA. In addition to the saving in cost, this would furnish us secure areas for transmitters with the minimum of housekeeping problems. If the difficult but not insurmountable problem of cover can be resolved, such locations would be ideal for our purposes.
+
+c. Information Support
+
+(1) To supplement available normal news sources, broadcasting to Orbit countries is dependent for program material upon intelligence
+
+SECRET
+
+HW 50955 DocId:32424022 Page 9

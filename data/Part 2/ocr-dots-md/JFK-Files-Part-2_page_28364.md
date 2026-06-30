@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_28364.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>18. SIGNATURE OF WITNESS</td>
+    <td>19. DATE (Mo., day, year)</td>
+  </tr>
+</table>
+
+Rev. May, 1973
+
+CA-1 & 2
+
+DISABILITY BENEFITS FOR EMPLOYEES UNDER THE FEDERAL
+EMPLOYEES' COMPENSATION ACT
+
+The Federal Employees' Compensation Act administered by the Office of Federal Employees' Compensation (OFEC) provides the following basic disability benefits for employment related injuries or occupational diseases:
+
+1. Full medical care.
+
+2. Payment of compensation for wage loss.
+
+3. Payment of compensation for permanent impairment of certain members or functions of the body (such as loss or loss of use of an arm, loss of hearing, etc.) or for serious disfigurement of the head, face or neck.
+
+4. Vocational rehabilitation and related services where necessary.
+
+Medical care must be obtained from United States medical officers and hospitals when available and practicable. Otherwise, from any duly qualified private physician or hospital of the employee's choice. Qualified physicians may be used only if U.S. or designated medical facilities are not available, or if an emergency exists.
+
+Compensation is paid by check sent to the employee's home mailing address. Compensation for wage loss is payable only for periods when an employee is in a non-pay status. The first three days in a non-pay status are waiting days and no compensation is paid for these days unless the period of disability exceeds 21 days or the employee has suffered a permanent disability. Compensation is generally paid at the rate of 2/3 of an employee's salary if he has no dependents, or 3/4 of his salary if he has one or more dependents.
+
+Compensation is not paid automatically—an employee or someone acting on his behalf must claim it by filing OFEC form CA-4. This form may be obtained from the employing establishment or the OFEC. In practically all cases medical reports are required before compensation may be paid, therefore arrangements should be made to have medical reports submitted to the OFEC at the earliest possible date.
+
+If an employee stops work as a result of an employment related injury or occupational disease, he may:
+
+1. Use sick and/or annual leave, or
+
+2. Receive compensation from the OFEC.
+
+Before compensation may be paid, the OFEC must receive form CA-1 & 2; form CA-4; and medical evidence concerning the nature and causal relationship of the injury. Medical reports must cover initial examination and the employee's condition at the time claim for compensation is filed. In addition, if a case involves some complication or conflicting information, it may be necessary to obtain supplemental information.
+
+An employee or someone acting on his behalf must complete the front of the form CA-1 & 2 and file it within one year after the injury or disease occurs. However, under certain circumstances, the OFEC may waive the one-year requirement if the front of the CA-1 & 2 is completed and the form filed within five years.
+
+If an employee is in doubt about his compensation benefits, he may write to the Office of Federal Employees' Compensation servicing the employing establishment. (Obtain the address of the OFEC office from the employing establishment).
+
+GPO: 1973-O-499-070
+
+NW 88326
+DocId:32243303 Page 10

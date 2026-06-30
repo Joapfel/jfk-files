@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_31684.png
+
+Convert to MarkdownSF 100-46832
+
+WEH::jb
+
+"My Country Right or Wrong." SCHEER also stated that he was qualified and fit for military service and had never done anything to render himself ineligible for military service.
+
+# SF T-4
+October 31, 1961
+
+The LYL has been designated by the Attorney General of the United States pursuant to Executive Order 10450.
+
+The Fair Play for Cuba Committee (FPCC) is characterized in the Appendix.
+
+## G. Birth of a Child
+
+Records of the Department of Health, Alameda County Courthouse, Oakland, were checked on April 29, 1968 by IC ROBERT L. GIBSON and a record was found of a birth of a son named CHRISTOPHER WARREN SCHEER, born September 8, 1967 at Berkeley, California to ANNE BUTTERFIELD WEILLS SCHEER and ROBERT SCHEER, 6468 Benvenue Avenue, Oakland, California.
+
+## H. Marital Discord
+
+ROBERT SCHEER has been living at his home, 6468 Benvenue Avenue, Oakland, California, since about September 7, 1968. On September 26, 1968, Mrs. ANNE SCHEER told some of the neighbors that she and ROBERT SCHEER were separating because they live different kinds of lives. ANNE SCHEER said she was moving to an apartment somewhere near the Oakland-Berkeley border where she planned to live with a man named TOM, not further identified, whom she expected to marry eventually. Mrs. SCHEER was busy removing her belongings from the residence at 6468 Benvenue Avenue, Oakland, on September 26, 1968.
+
+# SF T-5
+September 26, 1968
+
+1248
+
+SECRET
+
+Copy of 3 Copies
+Page of 134 Pages

@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_26498.png
+
+Convert to MarkdownSECRET
+
+to have received training in Cuba. Some of the
+arrests were made to forestall subversive activity.
+
+7. Panamanians in positions of influence known to have received training in Cuba include:
+
+Narcisco Cubas Perez and Cesar Jose Dubois,
+leaders of the Vanguardia de Accion Nacional (VAN)
+which hopes to take part in 1964 elections.
+
+Peasant leaders Leovilgildo Barrias de Garcia
+and Leonidas Alveo.
+
+Leftist student activists Rolando Ernesto Carrasquilla, Jose Modesto Herrera, and Herminio Garrido.
+
+Eliseo de la Hoz, Communist student leader.
+
+Labor leaders Lacides Ceballos, Andres Galvan, Inocencio Garibaldi, Victor Manuel Lombardo, Jack White, and Jose del Carmen Serracin, the latter a leader of Chiriqui Province banana workers.
+
+Jorge Pena and Felix Gonzalez, Communist lead-
+ers among the San Blas Indians.
+
+Ezequiel Rios, municipal leader of La Chorrera.
+
+8. In addition, the following are believed to
+have received training or guidance in Cuba:
+
+Thelma King, national assembly deputy, who boasts of close personal friendship with Fidel Castro and has visited Cuba five times in the past year.
+
+Senior VAN leader Jorge Enrique Turner Morales.
+
+Miguel Porcell and Ruperto Luther Thomas,
+Communist leaders at the national level.
+
+Alvaro Menendez Franco, member of the municipal council of Panama.
+
+SECRET

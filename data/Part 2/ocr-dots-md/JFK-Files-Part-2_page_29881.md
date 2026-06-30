@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_29881.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+### CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+
+6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+|  | Sharon Kohler, U.S.F. & G advises that on October 4, 1975 Jay Knohl reported that his 1933 Rolls Royce was stolen from a motel where he was staying in Lancaster, Pa. Vehicle was valued at $35,000 and J. C. Taylor Insurance Agency paid this claim in December of 1975. |
+
+Some articles recovered from Mrs. Carrafa are as follows:
+
+1. Florida registration card for a '29 Cadillac Convertible, serial #335770; same registered to Lewis E. Iandoli, P. O. Box 2735, Pompano Beach, Fla.
+
+2. Scraps of paper or memo's with the following notations:
+   a. Bob Hajack, dealer, (312) 298-1610, Chicago
+   b. Mr. Losie, Utah
+   c. Dan Tierce, 14431 Harris Place, Miami Lakes, Florida
+   d. Jeffery Quist, (213) 726-0303, 1207 Wash., Ave., Santa Monica, Calif.
+   e. Albert L. Horley, 7107 Fulton St., Chevy Chase, Md. (301) 654-3286, Wash. (202) 245-1891
+   f. Jay Knohl (315) 736-9902, Utica
+   g. Frank Gaeta, 1 Marc St., Hazlet Keypont, N.J.
+   h. Charles Payne, 125 Orienta Dr., Altamonte Springs, Fla. (305) 831-3525 & (305) 339-3967
+   i. Rolwski (312) 649-1414
+   j. Burton Friedman, 111 Imperial House, 35 S. Whitehorse Ave., Audubon, N.J. (609) 547-0773
+   k. Bruce Nole (213) 826-0116
+   l. John Campo (602) 959-9682
+   m. Manuels (212) 342-0248
+
+3. An old Washington Post news clipping (1975) reference the seizure of a tractor-trailer loaded with 613 cases of Coors Beer and the body of Robert Louis Hamilton, 32, 5500 Holmes Run Parkway, Alexandria, Va. Hamilton had been found dead on 8/8/75 in an apartment in Claremont, Calif., from a "possible drug overdose." Hamilton had driven the truck to California prior to overdosing and the below named were arrested with the truck. The body was taken to a local funeral home by the men prior to their arrest. The men are: Claude J. Hill, Walter F. Riggin, and Nicholas C. Scandone.
+
+PAGE=
+
+Cpl. M. F. Alban
+
+NW 88326 DocId:32266807 Page 93

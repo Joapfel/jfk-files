@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25574.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+WASHINGTON, D.C. 20505
+
+Review Staff: 76-0229/1
+23 February 1976
+
+Mr. William G. Miller
+Staff Director
+Select Committee To Study Governmental
+Operations With Respect To Intelligence
+Activities
+Room G-308
+Dirksen Senate Office Building
+Washington, D. C. 20510
+
+Attn: Mr. Ralston
+
+Dear Mr. Miller:
+
+In response to your recent request about allegations of Agency involvement in Cambodia, please be advised that Mr. Ralston was given a copy of a 1971 letter from Senator Church to Professor Pfeiffer and a copy of a memorandum for the record reflecting a conversation between Senator Church and our Legislative Counsel about the specific allegation concerning the use of herbicides in Cambodia in 1969.
+
+These memoranda were furnished Professor Pfeiffer in response to his FOIA request.
+
+RECEIVED FROM
+FEB 24 1976
+CIA

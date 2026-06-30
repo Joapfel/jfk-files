@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_30621.png
+
+Convert to MarkdownSECRET
+
+0002419 MW 16
+
+6/29/76 memo re FBI inquiries of Letter Bowl extort ion. B.R. F OX / M A C K E M
+
+worked out of MW's CIA DC office
+
+5/19/76 Ed Marger WAS usd DPER mid-60's
+
+Marger OS # 760 184 201760-184
+DOB 18 March 1928 NY, NY
+9/16/64 Provisional
+Current Security approval.
+CSA granted 2/17/65
+
+1967 case (Haiti) against Werbell was dropped due to illegal FBI Surveillance
+WerBell, Bethel, & Charles Hall tried to get WACKENKET involved in ABACO-
+UNSUCCESSFUL.
+
+SECRET
+
+SECRET

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25100.png
+
+Convert to MarkdownTOP SECRET — SENSITIVE
+
+21 July 1975
+
+MEMORANDUM FOR SENIOR STAFF
+
+INVENTORIED:
+
+ON 3/31/77
+
+BY BC
+
+SUBJECT: Inspection of Classified Documents at LBJ Library Related to Convert Actions Against Cuba
+
+FROM: Loch Johnson
+
+Among the many documents which I examined at the Johnson Library in Texas this past week is one that I find particularly alarming. I wish to draw it to your attention.
+
+The document in question is from the JCS to the Secretary of Defense, dated 30 October 1964. The subject is a proposed covert action against Cuba, with the code name SQUARE DANCE.
+
+On 21 March 1964, the JCS responded to a Presidential request for new ideas relative to Cuba by advising the White House that any new promising courses of action to undermine the Castro regime would be brought to the President's attention. Apparently their first bright new idea was SQUARE DANCE, outlined in the 30 October document (attached). The proposal envisioned the destruction of the Cuban economy by introducing aerially from off-shore a sugar cane plant parasite called Bunga. The program would begin with a 30 per cent reduction of anticipated Cuban sugar production (see page 6) and within three-to-six years the ruination of the sugar industry would be achieved. "The economic and political disturbances caused by this attack could be exacerbated and exploited," continues the JCS memo, "by such measures as spreading hoof-and-mouth disease among draft animals, controlling rainfall by cloud seeding, mining canefields, burning cane, and directing other acts of conventional sabotage against the cane milling and transportation systems" (6, emphasis added). In sum, SQUARE DANCE "would furnish another option to the United States in bringing about the collapse of the Castro regime" (7).
+
+In Appendix A of the SQUARE DANCE proposal, the memo notes that the approval for implementation of the program "would introduce a new dimension into cold war methods and would require a major change in national policy." Indeed it would—or at least one hopes we have not used such methods before! The proposal is nothing less than a variant of germ warfare which would have had serious consequences for the civilian population.
+
+At this point we do not know what happened to the SQUARE DANCE concept. It may never have been implemented at all, even partially. (The covering memo written by Bowman, an NSC staffer, to Bundy suggests that the White House was skeptical toward the idea.) To me, though,
+
+HW 50955 DocId:32423566 Page 161

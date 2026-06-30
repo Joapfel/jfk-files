@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_27812.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+Elizabeth Berning, Chief Clerk
+
+FROM: I. Charles Mathews, Special Counsel J.C.M.
+
+DATE: October 18, 1977
+
+RE: Mr. Robin David Lindley
+
+Mr. Robin D. Lindley has accepted the position of Researcher with the Martin Luther King Task Force. His effective starting date will be October 18, 1977, and his starting salary will be $15,000.00.
+
+Your co-operation in familiarizing Mr. Lindley with staff procedures will be appreciated.
+
+ICM:jl
+
+NW 88326
+DocId:32239479 Page 7

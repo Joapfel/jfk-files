@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_26476.png
+
+Convert to MarkdownSECRET
+
+Student and youth leaders Andres Soliz Rada, Dulfredo Rua, Walter Quisbert Barrios, and Alberto de la Barra.
+
+PCB leading members Mario Manje and Hilario Claure.
+
+Alcides Monasterios, national deputy of the left-wing sector of the governing National Revolutionary Movement (MNR).
+
+6. In January 1963, there were 60 Bolivian scholarship students in Cuba who had attended compulsory 20-day courses of military instruction. The Cuban charge in Bolivia reportedly said last month that Cuba expected to give more than 80 scholarships to Bolivians in 1963.
+
+7. The Bolivian government in June 1961, published documents purporting to prove that left extremists had been corresponding with the Cuban Embassy in an effort to obtain arms and instruction for pro-Castro "combat groups." While Bolivia has had extensive paramilitary formations ever since the MNR defeated the armed forces and seized control, and while the extreme left of the MNR in particular has strong militia units, we know of no paramilitary formations linked directly with Cuban subversion.
+
+8. We assume, however, that some proportion of the 500 legal travelers received indoctrination while in Cuba.
+
+-11-
+
+SECRET

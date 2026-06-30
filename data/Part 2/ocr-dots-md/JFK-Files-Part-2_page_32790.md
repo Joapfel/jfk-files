@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_32790.png
+
+Convert to MarkdownIncident at Guantanamo occurred 26 May when a light Cuban aircraft landed there. Three Cubans had forced the pilot, at pistol point, to land them at our Naval Base. With State's con- currence, Defense acted: the Cuban pilot flew home, the 3 Cuban escapees stayed on the base.
+
+Fracturing the Perime has been given priority attention by CIA. A senior case officer has been assigned full-time to this specific action, and has preferential use of CIA assets. Of 24 desirable deflection targets, CIA has found several who seem vulnerable (including the Minister of National Economy, Leon Eot)
+
+Priority Operations Schedule of 21st day, seeking some positive actions in behalf of our project during the next several weeks, has brought a very healthy response from CIA and USA. The CIA determination to meet the challenge has surfaced four policy-type questions which I note for you on behalf of CIA:
+
+1. Task 7, "Voice of Free Cuba," is almost immediately feasible, if the Group will approve CIA arranging with Navy for use of a submarine. CIA has firm plans for worrying the Communist regime through broadcasts which would appear to come from local dissident groups actively planning to harass the regime.
+
+2). Task 19, CIA is prepared to disseminate leaflets on Castro's failure to the Cuban population via balloon with a view of increasing instability of the Communist machine. The technique is tested and CIA has plans to operate from a surface ship in international waters. The Group is asked to approve the idea, including Navy support. This could be operating in time to exploit the 26 July anniversary of Castro's attack upon government forces at Santiago de Cuba in 1953, for "the revolution" he has now betrayed.
+
+3). Task 19. CIA believes it can recruit some 20-man teams for possible use in beating up resistance groups within Cuba. Group approval is asked for; defense support in training, holding, logistics. The 'noise level' hazard is none, but this special project could be almost unnoticed if it need with proposed U.S. military enlistment of Cubans.

@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_32083.png
+
+Convert to MarkdownDA FORM 1 APR 52 341
+
+REPLACES WD AGO FORM 341, 1 JUN 47, WHICH MAY BE USED.

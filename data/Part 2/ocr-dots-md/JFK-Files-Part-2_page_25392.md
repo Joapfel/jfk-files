@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_25392.png
+
+Convert to Markdown1961
+
+**After the Bay of Pigs (April 1961)**
+Rosselli felt "sorry for the poor bastards left on the beach." Rosselli felt indirectly responsible for their deaths since he had encouraged many of them to participate in the invasion. Two or three weeks after the invasion, Rosselli was contacted in Los Angeles by O'Connell, a meeting was arranged for at the airport hotel in Miami. Rosselli went there and was introduced to Harvey. O'Connell said Harvey was now in charge of the Cuban project. Harvey told Rosselli he was to cease all contact with Maheu and Giancana. Further, Harvey stated that the government was still interested in using Rosselli for intelligence-gathering operations. Rosselli would report information from the Cubans to Harvey about personalities and events in Cuba. Rosselli would also relay on to his Cuban contacts requests for specific information from the CIA.
+
+Sometime between the Bay of Pigs invasion and the Cuban missile crisis, Harvey gave Rosselli six poison capsules. Rosselli, in turn, gave them to his Cuban contacts who were to take them to Cuba, where another Cuban or Cubans would use them to assassinate Castro. Rosselli never learned the details of what happened, but the project obviously failed. At one point, Rosselli remembers hearing over the radio that Castro was very ill. A short time later, he recovered.
+
+Sometime before the missile crisis, Rosselli arranged, pursuant to Cuban #1 request, for a van loaded with rifles and ammunition to be delivered in Florida. O'Connell and Rosselli watched the Cuban contact pick up the van and return it empty. Rosselli assumed that these guns were going to be used by the two or three-man raiding parties in Cuba to assassinate Castro and overthrow the government.
+
+During the Cuban missile crisis, Rosselli was in Chicago. He contacted Harvey at Harvey's mother's home in Indianapolis and left his number in Chicago. Harvey then called him, told him to go to Washington, D.C. From Washington, D.C., Rosselli traveled to Florida where he stayed for the duration of the Cuban missile crisis. He, at times, would, through his Cuban contacts, attempt to verify the location of the Russian missiles in Cuba. Rosselli claimed that this had been successful. After the Cuban missile crisis, Harvey called Rosselli and told him to stop all contacts with any and all persons involved in past Cuban missions. Harvey never stated why the missions were being called off.

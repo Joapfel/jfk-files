@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_32612.png
+
+Convert to MarkdownSECRET
+
+- 10 -
+
+VI. Exchange of Intelligence on Cuban Subversion
+Department of Defense
+
+Engineering installation work continued on radio stations for Managua, Nicaragua and Tegucigalpa, Honduras. No further progress has been made in reaching agreements with Colombia and Ecuador for rights to establish radio stations in those countries. Installation of the new trans-isthmian commercial cable in Panama is nearing completion.
+
+Central Intelligence Agency
+
+CIA Stations continued their exchange of intelligence information with local intelligence agencies. The following actions are of special significance:
+
+a. The CIA Station in Buenos Aires furnished the Argentine State Intelligence Service (SIDE) with information on the travel of Argentines to Cuba, and requested that SIDE provide name traces and debrief these travellers on their return whenever feasible. SIDE provided the traces, but did not conduct any debriefings. The Station has not felt it feasible to try to remedy this omission in view of the personnel changes expected within SIDE after the new government is installed on HW 50955 DocId:3120Outage 13 SECRET b.

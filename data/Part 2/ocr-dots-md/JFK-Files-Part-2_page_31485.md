@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_31485.png
+
+Convert to MarkdownSF 100-50836
+FTD/mbl
+
+The June 8, 1962, issue of the "New York Times" contained an advertisement revealing that the World Peace Council sponsored the World Congress on General Disarmament and Peace held in Moscow, on July 9 - 14, 1962.
+
+The June 15, 1963, issue of the bulletin of the World Peace Council reported that the Continuations Committee of the WCGDP had been founded by U.S. delegates to the 1962 Congress in Moscow,
+
+See appendix for characterization of
+World Peace Congress.
+
+## II. Committee To Uphold the Right to Travel (CURT) (See appendix)
+
+At a meeting of the Steering Committee of CURT held in San Francisco, on August 12, 1963, the list of sponsors of CURT was announced and included among the names of sponsors was IRVING PROWPER.
+
+SF T-14 - 8/14/63
+
+On September 21, 1963, the Subject attended a demonstration held at the Civic Center Plaza in San Francisco, honoring students who had recently returned from Cuba. The demonstration was sponsored by CURT and several students spoke protesting the government's curtailment of the right to travel to Cuba. One of the students spoke and said the government should send troops to Birmingham instead of trying to prevent people from going to Cuba. He also noted that the capitalistic press had lied about Cuba, and the conditions were different than had been reported.
+
+SF T-1 - 9/24/63
+
+- 9 -
+
+324
+
+NW 88613 DoCId:34528578 Page 52

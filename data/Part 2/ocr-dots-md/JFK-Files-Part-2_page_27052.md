@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_27052.png
+
+Convert to Markdown(December 26th - Continued)
+
+CONFIDENTIAL
+
+| ITEM | TIME | SUBJECT |
+| :--- | :--- | :--- |
+| 11. | 7:00 - 8:30 | Lunch - Room 21, Executive Office Building |
+| 12. | 8:30 - 9:30 | McVay's Report and Status of Implementation of Prior-Board Recommendations |
+| 13. | 9:30 - END | Mr.-Russell-Ksh-- Resume Discussion of Report on the Clean Airs Buildup and Complete Preparation of Report to the President. |
+
+CONFIDENTIAL.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_31002.png
+
+at USIS. The secretary was a member of the House of Representatives, and as such, was subject to regular background checks by HSCA.
+
+A picture taken of Secretary Lee at the Office of HSCA in March 1974. A channel of the TV feed is visible on the right side of the image. This suggests that a charge was made against Secretary Lee in 1962 + his knews life.
+
+Box Ister - WFAU - advanced through a Cubran had reported that he had met with a CUA agent named Marrero Bishop + LHO in the 505 N. Erway Building approx a month before assay. & at that time the CUA agerie had offered $ to LHO to buy FHC. Ister paid what was common knowledge that CUA had offered in 505 N Erway at time of assasn. Bishop = alias for used by
+
+Server in Dallas as overt employ in 1954 - continuously excepted 1972-73 when served at DCO Redgts
+
+Cantley - Record Sheet - refers to JN as a former contact of the Dallas offer, or whom there is a heads up file. Periability that NY office wanted copy of security check on De M.
+
+SECRET

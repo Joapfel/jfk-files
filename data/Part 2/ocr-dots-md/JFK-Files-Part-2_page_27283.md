@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_27283.png
+
+Convert to MarkdownOFFICE OF SECURITY - FILES MATERIAL
+
+A. Administrative Files (undated) SECRET
+
+B. Open Literature Files on Dissidence and Terrorism - UNCLASSIFIED]
+
+B. Glossary of Office of Security File Holdings Containing Information on U.S. Citizens and Companies - SECRET
+
+C. Glossary of Office of Security File Holdings Containing Information on U.S. Citizens & Companies (Exhibit A) - SECRET
+
+D. CIA Library Open Literature File on Dissidence and Terrorism - ADM USE ONLY - 24 Jan 75
+
+E. Care and Use of Official Data - CONFIDENTIAL - 14 Nov 69
+
+F. Types of U.S. Citizens Who Might be the Subject of a Security File - SECRET - Undated
+
+G. Retention and Disposition of Security Files and Records - SECRET - Undated
+
+H. Description of Central Intelligence Agency Polygraph Files - SECRET - Undated
+
+I. Glossary of Office of Security File Holdings Containing Information on U.S. Citizens and Companies - SECRET - Undated
+
+J. DDA Glossary of Files Containing U.S. Citizens and Companies
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 114

@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_29592.png
+
+Convert to Markdown# Classification
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 43 -
+
+✓626/ B. Tarasoff Testimony, 4/12/78, pp. 12, 13.
+
+✓627/ HSCA Deposition of Herbert Manell, 4/28/78, p. 28.
+
+628/ See discussion above.
+
+629/ See footnote 614 above.
+
+630/ Ann Goodpasture Testimony, 4/13/78, p. 96.
+
+631/ HSCA Deposition of Robert Shaw, 5/16/78, p. 29; HSCA De-
+position of Allan White, 5/18/78, p. 20; David A.
+Phillips Testimony, 11/21/76, p. 63; David A. Phillips
+Testimony, 4/25/78, pp. 17-23; Ann Goodpasture Testimony,
+4/13/78, p. 94.
+
+632/ HSCA Deposition of John Scalso, pp. 76-77.
+
+633/ B. Tarasoff Testimony, 4/12/78, pp. 12, 13.
+
+✓634/ See Ann Goodpasture Testim ony, 4/13/78, pp. 94-95, 77.
+
+✓635/ HSCA Deposition of H. Manell, 4/28/78, p. 28.
+
+636/ H. Manell and B. Manell Interview, 3/28/78, pp.14-15; 'HSCA
+Deposition of Allan White, 5/18/78, pp. 33-34; ✓HSCA
+Deposition of B. Manell, 4/28/78, pp. 88-89, 84-86;
+✓HSCA Deposition of H. Manell, 4/28/78, pp. 38-39, 46.
+
+637/ Ann Goodpasture Testimony, 4/13/78, p. 75. Emphasis added.
+
+✓638/ Routing and Record Sheet for DIR 74830, 10/11/63.
+
+✓639/ MEXI 6534, 10/15/63.
+
+P
+15
+640/ HSCA Deposition of B. Manell, 4/28/78, p. 96.
+
+641/ H. Manell and B. Manell Interview, 3/18/78, p. 14-45, HSCA
+Deposition of Allan White, 5/18/78, p. 33-34; HSCA De-
+position of B. Manell, 4/28/78, pp. 84-86, 88-89; HSCA
+Deposition of H. Manell, 4/28/78, pp. 38-39, 46; Ann
+Goodpasture Testimony, 4/13/78, p. 75. See also Sec-
+tion III, B., above.
+
+Classification:
+
+Classified by derivation: 344
+
+NW 48327 DocId:32263889 Page 240,

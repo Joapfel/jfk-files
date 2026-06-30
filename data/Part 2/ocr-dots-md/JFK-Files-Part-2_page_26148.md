@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_26148.png
+
+Convert to Markdownlike that the next morning, and somebody there
+Among the Americans should have been sensitive
+enough to have said, "Well, aren't you feeling
+well for something, you know, and had gotten
+some feeling on it. But this sort of getting
+in bed with people socially and saying, He's
+a good fellow," and "he's my friend," and excusing
+everything is a common blindness, and this had
+worried me in Laos quite a bit.
+
+O'BRIEN: Well, I get the impression from reading of
+this period that there really is some lack
+of coordination in the various efforts that
+are there; another words, the ambassador is
+not completely privy to what the Agency is
+doing, and the Agency is not completely privy
+to what DOD is doing through the PEO office.
+Do you get that feeling? Maybe in regard
+to the Parsons-Irwin-Reilly mission that
+goes out there, do you get any feeling over that
+at all?
+
+LANDSALE: Yes, I'm trying to recall. . . . We hit a
+crisis at that point, and the group that went
+out--Parsons was on home leave, and we had a

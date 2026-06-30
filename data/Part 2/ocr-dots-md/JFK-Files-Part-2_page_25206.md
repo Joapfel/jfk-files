@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_25206.png
+
+Convert to MarkdownMW 50955
+
+DocID:32423615 Page 95
+
+PERSONS/ENTITIES:
+
+CONEIN
+GENERAL DON
+DIR74228
+LODGE, HENRY CABOT
+
+DATES:
+
+Oct 23,1963
+
+CATEGORIES:
+
+DIEM
+
+OCCURRENCE:
+
+In a October 23, 1963 entry into the Saigon stations, "History of the Vietnamese Generals Coup", it was noted that a meeting with CONEIN requested by General DON, DON said the Generals had decided to try to stage a coup within a week following 26 October. CONEIN under instructions passed the substance of DIR74228 to DON. DON promised he would seek permission of the coup committee to give CONEIN their political plan for the Ambassador's eyes only.
+
+SOURCE:
+IG Report 1967 (CIA) p. 33
+FILE:
+
+STAFF:
+DATE: Dawson
+6/27/75
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Lt. Col. PHAM NGOC THAO</td><td>Oct. 24, '63</td><td>DIEM ✓</td></tr></tbody></table>
+
+TOP SECRET
+
+OCCURRENCE:
+
+A resort was received at approximately 1230 hours that Lt. Colonel Nguyen Thao was planning a coup scheduled for 1300 hours; the coup failed to materialize. Later, Thao admitted that the coup forces lacked transportation, otherwise the coup would have begun as reported.
+
+SOURCE: Hearings, S.S.C.I., June 20, 1975, Conein, Exhibit 1, page 7.
+
+STAFF: Dawson
+
+DATE: 
+
+FILE.

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_28643.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: T. Howarth, Budget Officer
+FROM: G. Robert Blakey, Chief Counsel and Director
+DATE: August 25, 1977
+RE: Mr. Jan Schlichtmann
+
+This is to inform you that Mr. Jan Schlichtmann has accepted the position of Law Assistant/Legal Unit with the Committee staff. Mr. Schlichtmann's effective starting date will be August 25, 1977, starting salary will be $19,500.
+
+Your co-operation in familiarizing him with the operation of the staff will be greatly appreciated.

@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_26052.png
+
+Convert to Markdowntype of fiber grown or this type of crop or
+something, and the land will produce it up
+there, and so they should do that. So he
+was only circumventing the law for the
+greater good, in his own mind, in his own
+extent.
+
+O'BRIEN: This centralization brings about a reaction,
+though, doesn't it?
+
+LANSDALE: Yes.
+
+TAPE II SIDE I
+
+LANSDALE: You asked about the falling out between
+Ladejinsky and Diem. I know there was
+something of that nature, but just what it
+consisted of, or why, I don't know. I
+remember that the American ambassador . . .
+
+O'BRIEN: It would have been [Elbridge] Durbrow?
+
+LANSDALE: Durbrow was mindful of the fact that
+Ladejinsky was having breakfast with Diem
+and was close to him, and, in a rather general
+way, to bring up thoughts of corruption in

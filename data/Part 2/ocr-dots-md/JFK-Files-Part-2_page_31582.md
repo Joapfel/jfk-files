@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_31582.png
+
+Convert to MarkdownSF 100-55462
+FSP:nb
+
+Special Agents of the FBI on December 10, 1965, observed at approximately 11:30 AM, December 10, 1965, Secretary of State RUSK addressed the 6th Biennial Convention of the AFL-CIO at the San Francisco Civic Auditorium. During Secretary of State RUSK's speech, approximately 30 individuals, who were seated in the balcony, held signs which were critical of the U.S. foreign policy in Vietnam. Following Secretary of State RUSK's speech, the demonstrators were escorted from the audience by union members.
+
+The demonstrators then commenced to march in front of the San Francisco Civic Auditorium. After the morning session, the demonstrators proceeded across the street to the San Francisco Civic Center Plaza where an impromptu rally was held.
+
+At approximately 2:30 PM, December 10, 1965, Vice President HUMPHREY spoke before the 6th Biennial AFL-CIO Convention. During Vice President HUMPHREY's speech, 6 Demonstrators marched outside the auditorium.
+
+Assistant Inspector CECIL PHARRIS, Intelligence Unit, San Francisco Police Department, informed on December 10, 1965, there were no arrests or other incidents on December 10, 1965, nor were there any demonstrators at the San Francisco International Airport when Secretary of State RUSK departed or when Vice President HUMPHREY arrived or departed.
+
+**F. Demonstrations at Offices of U.S. Congressman**
+
+**JEFFERY CONELAN, Oakland, on the following dates:**
+
+**1. January 31, 1966**
+
+ROBERT HULL, UCB Campus Police, informed on January 31, 1966 that on January 31, 1966 a noon-time rally sponsored by the VDC was held at Sproul Hall Plaza, UCB. At approximately 1:30 PM, some 200 individuals, some of whom carried signs reading, "Impeach JOHNSON" and "Fight JOHNSON Madness," began marching from UCB to Oakland, California, where they intended to picket the offices of U.S. Congressman JEFFERY CONELAN (Democrat), 16th and Telegraph Avenue, Oakland. The demonstrators marched to Latham Square Building, 508 - 16th Street, Oakland, where Congressman CONELAN's offices are located. Approximately 100 of the marchers picketed outside the building while another 100 went upstairs to Congressman CONELAN's offices on the 8th floor
+
+913

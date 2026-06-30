@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_25877.png
+
+Convert to MarkdownMemorandum A. Rosen to A. H. Belmont
+
+Re: THE PRESIDENT'S COMMISSION
+
+The Commission had noted in reviewing the notebook in question that Agent Hosty's name appeared in the book along with the office telephone number and a license number. It had been noted that this information did not appear in the Dallas investigative report and members of the Commission wondered why this item did not appear. Mr. Rankin stated that prior to any question being raised concerning this item, the Bureau in one of its letters to the Commission (dated 1/27/64) set forth full information for the Commission's information explaining the appearance of Agent Hosty's name in the Oswald notebook. As a result of this information being furnished by the Bureau, the members of the Commission were fully aware that there had been no effort on the part of the Bureau not to make this information available. Mr. Rankin stated that after some discussion concerning this item, the members of the Commission directed Mr. Rankin to request the Bureau for an explanation so that the record of the Commission would show the exact circumstances by which this item was omitted from the Dallas report of 12/23/63 by Special Agent Gemberling.
+
+ACTION:
+
+Attached is a letter to J. Lee Rankin setting forth the reasons why Agent Hosty's name was omitted from the Dallas report of 12/23/63. We are enclosing for the Commission affidavits from Special Agent Robert P. Gemberling and John T. Kesler wherein they set forth their explanations in handling the Hosty entry in Oswald's address book. Both affidavits are excellent and should satisfy the Commission that our handling of the Hosty entry was sound.
+
+RECEIVED
+
+FEB 10
+
+FBI
+
+HW 50955 DocId:32423630 Page 610

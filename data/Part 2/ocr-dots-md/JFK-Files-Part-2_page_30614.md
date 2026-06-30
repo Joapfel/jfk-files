@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_30614.png
+
+Convert to MarkdownSECRET
+
+002411
+
+21 memo to Ch of Sec. 1/9/68 - same as in File #1.
+
+22 memo to Office of Org. 1/11/68 summarize MW.
+
+23 1/9/68 memo re State Dept interest in MW. *no CIA interest or Business contact*
+
+24 1/11/68 memo to B D S. SUMMARY + TRUE Art.
+
+25 computer print
+
+26 3/14/68 Bruce Aiman Baker 11379 President Drive NE Blaine Village Minn.
+keeps calling CIA requesting clearance that MW tells him he needs to work @ him on gun running.
+
+SECRET

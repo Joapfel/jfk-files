@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_29936.png
+
+Convert to Markdown# JFK Assassination System
+## Identification Form
+
+Date: 10/13/20
+
+Agency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10120-10150
+RECORD SERIES : NUMBERED FILES
+AGENCY FILE NUMBER : 015081
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM :
+TO :
+TITLE :
+
+DATE : 02/24/1978
+PAGES : 3
+
+SUBJECTS :
+CAISON, LARRY F.
+DOD, FILES
+USAF
+GOBEL, RUDOLPH
+STANLEY, WILLIAM C.
+FISCHER, CHARLES
+
+DOCUMENT TYPE : SUMMARY
+CLASSIFICATION : Unclassified
+RESTRICTIONS : 3
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 05/09/1993
+
+OPENING CRITERIA :
+
+COMMENTS : Box 292.
+
+Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#: NW 88326 Date: 2025
+
+v9.1
+
+NW 88326 DocId:32268020 Page 1

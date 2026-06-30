@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_31555.png
+
+s at UCB in support of the FSM.
+
+The FSM was an organization which evolved at UCB out of a disagreement between students and UCB administration of UCB policy regarding campus organizations.
+
+WEISSMAN, according to his academic file at Tampa University, December 9, 1964, has a history of self-admitted emotional instability for which he had been under psycho-therapy treatment from October, 1958 - January, 1960. His father informed in April, 1965 that his son was not a Marxist; had no communist leanings whatsoever and considered the United States the best country in the world but one which still needed improvement.
+
+Review of the records of the Registrar's Office, UCB, revealed the following description for STEPHAN MARK WEISSMAN:
+
+*   **Race:** White
+*   **Sex:** Male
+*   **Date and place of birth:** March 22, 1940, Tampa, Florida
+*   **Height:** 5'10"
+*   **Weight:** 160 lbs.
+*   **Eyes:** Hazel
+*   **Hair:** Auburn
+
+PHILIP HUMBERT WHITE,
+also known as
+Phil White
+
+A review of the records of the Registrar's Office, UCB, revealed the following description for PHILIP HUMBERT WHITE:

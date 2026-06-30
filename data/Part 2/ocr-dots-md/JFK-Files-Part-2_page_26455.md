@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_26455.png
+
+Convert to Markdown<table>
+  <tbody>
+    <tr>
+      <td colspan="3">CLASSIFICATION - DISSEMINATION CONTROLS<br/>NO FOREIGN DISSEM/NO DISSEM ABROAD/<br/>CONTROLLED DISSEM/BACKGROUND USE ONLY TDCSDB-3/658,469</td>
+      <td>IN 79459</td>
+    </tr>
+    <tr>
+      <td></td>
+      <td>SECRET</td>
+      <td>(When Filled In)</td>
+      <td>PAGE 2</td>
+    </tr>
+    <tr>
+      <td colspan="4">DOCUMENTS ON THE PREMISES," AND TO BE ON GUARD AGAINST HOSTILE PROVOCATIONS.<br/><br/>2. ONE CHIEF OF MISSION, WHO, FOLLOWING HIS USUAL PRACTICE, REQUESTED BY TELEPHONE PERMISSION TO ACCEPT A LONG-STANDING INVITATION TO VISIT A COUNTRY FRIENDLY TO CUBA, WAS TOLD THAT HE MUST FORMALLY SUBMIT HIS REQUEST BY CABLE. HE DID SO ON 29 NOVEMBER, BUT IT WAS NOT UNTIL 6 DECEMBER THAT HE RECEIVED THE AUTHORITY TO QUIT HIS POST.</td>
+    </tr>
+    <tr>
+      <td colspan="4">3. AS OF 9 DECEMBER THERE HAD BEEN NO INDICATION FROM HAVANA THAT THE ALERT ORDER WAS TO BE CONSIDERED REVOKED.</td>
+    </tr>
+    <tr>
+      <td colspan="4">4. FIELD DISSEM: CINCLANT.</td>
+    </tr>
+    <tr>
+      <td colspan="4">END OF MESSAGE</td>
+    </tr>
+    <tr>
+      <td colspan="4">CLASSIFICATION - DISSEMINATION CONTROLS<br/>NO FOREIGN DISSEM/NO DISSEM ABROAD/<br/>CONTROLLED DISSEM/BACKGROUND USE ONLY</td>
+    </tr>
+    <tr>
+      <td colspan="4">SECRET</td>
+    </tr>
+  </tbody>
+</table>
+
+HW 50955 DocId:32282901 Page 3

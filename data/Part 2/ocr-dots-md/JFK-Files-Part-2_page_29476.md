@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_29476.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 112 -
+
+Q: Did you ever tell Joe Smith or Phillip Agee that you had found a photograph of Oswald or someone you thought to be Oswald?
+
+A: I did not know Joseph Smith in Mexico City. I had never seen Joe except at the station in Mexico City and Phil I only saw when I was in Mexico, and so I thought I would have no reason to say that.
+
+Q: So your answer to the question is no?
+
+A: I don't recall it and I don't see that I would have any reason.
+
+Q: I guess for the purpose of clarification I would like to ask the question one more time. Did you ever tell Phillip Agee or Joseph Smith that you found a picture of Oswald or someone whom you thought to be Oswald?
+
+A: Not that I can recall. 462/
+
+At the time of the assassination the CIA's 201 personality file on Lee Harvey Oswald was in the possession of the Mexico City Desk. 463/ That desk had had possession of the file from 10 October 1963 when it had received a report that a man claiming to be Lee Oswald had been in contact with the Soviet Embassy in Mexico City. 464/
+
+Fortunately, Ms. Scareti's supervisor had a better memory of the events that transpired at CIA Headquarters on the day that President Kennedy was assassinated. He said:
+
+A: ...I do not know how long after the actual shooting it was that Oswald's name became
+
+**Classification:** TOP SECRET
+
+2010773
+
+Classified by derivation: 228
+
+NW 48327 DocId:32263889 Page 124

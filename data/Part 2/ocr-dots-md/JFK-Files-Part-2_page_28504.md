@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_28504.png
+
+Convert to MarkdownFERDINAND FARMER RESIDENCE
+
+4520 Chester Avenue
+Philadelphia, Pa. 19143
+
+November 29, 1976
+
+Richard A. Sprague, Esq.
+1622 Locust Street
+Philadelphia, Pa. 19103
+
+Dear Mr. Sprague:
+
+When we talked the other week, you asked that I write
+to you to state formally my interest in working on the
+staff of the House Select Committee on Assassinations,
+and to tell you when I would be ready to go to work.
+
+As I told you during the interview, I am extremely
+interested in working as a member of the committee's
+staff. I look forward with enthusiasm to such an
+opportunity.
+
+I spoke with Judge Higginbotham last week, and it appears
+that my duties in connection with my appointment as a
+special master will be essentially over within the next
+two weeks. I have also inquired about living arrangements
+in Washington, D.C. While nothing is definite yet, I
+am confident that I can find a room in one of the Jesuit
+communities there--most probably at Georgetown University--
+within the next two weeks as well. As a result, I can
+assure you that I will be ready to go to work in
+Washington, D.C., on Monday, December 13, 1976.
+
+One last item--in accordance with your suggestion, I
+have been doing some background reading on the scope of
+the investigatory powers of Congressional committees.
+
+Thanks again for taking time out of your busy schedule
+to see me. With every best wish, I am
+
+NW 88326
+DocId:32243318 Page 17

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_29125.png
+
+Convert to MarkdownJFK ASSASSINATION COLLECTION
+IDENTIFICATION FORM
+
+Agency: HSCA
+Record Number: 7310093
+Record Series: NUMBERED FILES
+Agency File Number: 004876
+Originator: Citizen Ruby, Samuel
+From: Ruby, Samuel
+To:
+Title:
+
+Date: 1-24-78
+Pages: 169
+Subjects:
+
+Document Type : Other Textual
+Classification: U C S T
+Restrictions: Open 1A 1B 1C 2 3 4 5 D
+Current Status: O P X
+Date of Last Review: / /93
+Opening Criteria:
+Comments: w cover letter
+
+Box #: 102
+
+Folder Title: Reference copy, JFK Collection: HSCA (RG 233)

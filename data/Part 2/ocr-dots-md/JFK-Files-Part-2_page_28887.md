@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_28887.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10071-10459
+
+RECORD SERIES : NUMBERED FILES
+
+AGENCY FILE NUMBER : 010088
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM : MORIARTY, JOHN
+TO : FENTON, CLIFFORD
+
+TITLE :
+
+DATE : 07/20/1978
+PAGES : 1
+
+SUBJECTS :
+BERTUCCI, MARY C.
+
+DOCUMENT TYPE : MEMORANDUM
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Open in Full
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 06/18/1998
+
+OPENING CRITERIA :
+
+COMMENTS : Box 186.
+
+<table><tr><td>Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#: NW 88326 Date: 2025</td></tr></table>
+
+v9.1
+
+NW 88326 DocId:32244901 Page 1

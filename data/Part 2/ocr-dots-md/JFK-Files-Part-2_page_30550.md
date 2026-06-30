@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_30550.png
+
+Convert to Markdown-7-
+
+6002336
+
+SECRET
+
+Worrell's POA was cancelled because the CIA determined he was trying to use the agency for personal reasons (more detail in 201 summary)

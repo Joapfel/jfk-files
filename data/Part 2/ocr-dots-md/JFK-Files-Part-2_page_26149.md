@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_26149.png
+
+Convert to Markdownmeeting in the Pentagon in the secretary of
+Defences office, and there were a mob of
+people there. There were... I can't
+quite recall now what prompted the meeting,
+but there was a crisis of some sort in Laos.
+And the JCS gave a briefing, that's right, as
+part of the thing, and it was on the Pathet Lao
+positioning, and they suddenly discovered that
+there were passes over the mountains that
+had some importance to the Ho Chi Minh trail,
+and this great discovery was being lectured
+on at this meeting. And at the time, the
+Secretary of Defense--I didn't think, I wonder,
+that might have been [Thomas] Gates [Jr.] at
+the time,--might have been, but whoever it was--
+asked if I had a comment to make, and I said,
+"Take a look at that map that the JCS was
+showing us of Pathet Lao and the other situa-
+tions on the thing," and I said, "it should
+tell everybody here just one thing. You've
+got an ambassador who is on home leave here;
+he doesn't belong here; he belongs out in
+Vientiane right this moment, and the rest of

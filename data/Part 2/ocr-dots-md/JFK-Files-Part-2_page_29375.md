@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_29375.png
+
+Convert to Markdown**Classification:** U S I L B A
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+A. Photographic Surveillance Operations Aimed at the Cuban Diplomatic Compound
+
+1. Introduction
+
+The Mexico City Station of the Central Intelligence Agency maintained photographic surveillance on the Cuban diplomatic compound during September and October of 1963. 3/ The purpose of this operation was to get identifiable photographs of all individuals who visited the Cuban diplomatic compound. 4/
+
+2. Physical Positioning of Surveillance Bases and Targets
+
+The Cuban diplomatic compound covered one city block in Mexico City between Tacubaya, Francisco Marquez and Zamora Streets. The entrance to the Cuban Embassy was located on the corner of Tacubaya and Francisco Marquez. 5/ Next to this entrance on Francisco Marquez Street was another entrance for automobiles. 6/ The entrance to the Cuban Consulate,
+
+Classification: ___________
+
+200870
+
+128
+
+Classified by derivation: ________

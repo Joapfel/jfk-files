@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_26551.png
+
+Convert to Markdownb. A clandestine source identifies Prime Minister Hafiz as the leading figure on the side of moderation. General Umran heads the doctrinaire extremists.
+
+c. It was a split along the same lines that brought about the Baath Party's fall from power in Iraq.
+
+6. Italy
+
+a. Premier-designate Moro expects that the program for a "center-left" coalition government will be approved today by the four parties involved.
+
+b. Details of the foreign policy planks are not yet available, but they were drafted with the thought that the death of President Kennedy makes it more important for Italy to play an active role within the Western alliance.
+
+c. After the program has been approved, the final selection of a cabinet can be undertaken. This could take the rest of the week.
+
+For The President Only - Top Secret

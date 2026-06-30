@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_27367.png
+
+Convert to MarkdownA - Ltr from Knoche to Gray - 30 Apr 75
+
+B - Requirements 1 - 4 SECRET
+
+C - Clandestine Service Instr. 110-3 17 July 72 SECRET
+
+D - HET 110-1 Dispatches - 30 Sept 63 SECRET
+
+E - Logistics - Shipment of Govt Property - SECRET
+
+SECRET
+
+Photocopy from
+G R Ford Library
+
+NW 50955 DocId:32105598 Page 198

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_25341.png
+
+Convert to MarkdownLiebengood Rough Notes from U. S. v. Veciana, et al con't.
+
+foreign passports belonging to several subjects were seized.
+Swiss bank account deposit slips were seized and are to be
+followed by IRS. Veciana claims to be an anti-Castro fund
+raiser. FBI confirms this.
+
+A July, 1973 TWIX from DEA in New York to DEA headquarters Washington (attention: Daniel P. Casey, Acting Chief) referenced as subject: G1-73-X093 (presumably Veciana) and states "during debriefing of the defendant in New York on July 25, 1973, it was learned that Antonio Carlos Veciana, 811 North Southwest 30th Court, Miami is a member of an anti-Castro group which he has stated intends to blow up a number of Cuban properties and/or embassies in foreign nations, i.e., Spain, Mexico, Peru and France. Bombings originally scheduled for July now delayed until August."
+
+Subpoena of August 14, 1973 exists for a telegram billed to Veciana at 649-1226 and sent to Barcelona, Spain on 5/26/73.
+
+Barres implicates a Paraguyan diplomat formerly assigned to LaPaz, Bolivia and reassigned to Spain in the drug traffic. DEA is discretely checking his identity. A follow-up cable from DEA indicates that they have failed to identify the Paraguyan diplomat sent to Spain but do indicate that a Pedro P. Medina, a Paraguyan assigned to LaPaz, is believed to be involved in Cocaine smuggling.
+
+Barres admitted that he was responsible for bringing Pomares,
+an employee of his, into illegal drug activity,
+
+Veciana claimed to be without funds and destitute and was
+not fined. The U. S. Attorney was concerned that he posted a
+$100,000 bail immediately. However, after initial concern being
+shown in the file by the U. S. Attorney, the U. S. Attorney later
+writes the Judge that $80,000 of the $100,000 bond was furnished
+by Veciana's cousin, Dr. *Pablo Zalduendo*, a physician from Detroit,
+Michigan. The remainder of the bail money was furnished by Veciana's
+uncle and other family members and friends who cashed insurance
+policies, closed children's savings accounts, etc. U. S. Attorney
+concluded that Veciana was possibly telling the truth when he advised
+the Court that he was destitute.
+
+Jose Lopez is a character reference for Barres on appeal.

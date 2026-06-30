@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_31366.png
+
+Convert to Markdown07D18-1
+
+DETAILS
+
+1. On 20 September 1969, Mr. GERALD T. CARTA, Staff Operations Officer, U.S. Embassy, Saigon, Republic of Vietnam (RVN), was interviewed with the assistance of SA RONALD A. CUNDIFF and provided the following information:
+
+During early January 1969, a Mr. MITCHELL WERBELL, a senior officer in an American firm (NFI), came to his office requesting assistance in shipping one or two cartons of captured automatic weapons to Bangkok, Thailand. WERBELL stated that he was a weapons expert and was in the RVN on invitation from the U.S. Government to demonstrate some of his new weapon accessory inventions to the military services of the RVN and Thailand. WERBELL indicated that he had just spent the last 2-4 weeks in various northern sectors of the RVN, with U.S. Army Airborne and Special Forces units. During this period WERBELL had collected various captured enemy automatic weapons. He advised that he needed these weapons for examination, in that he was in the process of designing a new automatic weapon that would far surpass the capabilities of the best foreign made automatic weapon. WERBELL produced an Invitational Travel Order, issued by the USAF Air Attache, Bangkok, Thailand. This travel order was approved by the Counselor for Administration (CFA), U.S. Embassy, Bangkok, Thailand. This travel order authorized WERBELL to travel, on a space available basis, from Thailand to the RVN and return. The travel order did not reflect a funding citation, which is necessary to ship any large items aboard a military aircraft. WERBELL stated that he had attempted to ship these weapons aboard military aircraft stationed at Tan Son Nhut AB (TSNAB), RVN, however, because his orders did not reflect the necessary funding citation, he was sent to the U.S. Embassy. WERBELL indicated he was going to use these captured weapons in a fire power demonstration, to be held for the King of Thailand on his birthday, which was on the following Saturday. WERBELL stated he was a personal friend of the King and Queen of Thailand and numbered among his friends many high ranking military and civilian officials of the Thai government. CARTA placed a long distance call to the CFA, U.S. Embassy, Bangkok, Thailand. The CFA advised that WERBELL was expected in Thailand by the King for a weapon demonstration, to be held on the King's birthday. The CFA was informed that WERBELL wanted to ship one or two heavy cartons to Thailand. The CFA then gave CARTA the Bangkok U.S. Embassy funding citation, with instructions to have same added to WERBELL'S travel orders. He then asked the CFA: "Do you know what he wants to ship?" and the CFA replied: "Yes, it's okay". After this conversation the weapons were packed, along with some items of official equipment, as identified by WERBELL. Transportation Control and Movement Documents were executed and signed by CARTA. The U.S. Embassy, Bangkok, Thailand, funding citation was reflected on these documents. At no time did CARTA examine the contents of the boxes. CARTA identified the Transportation Control and Movement Documents reflected as attachments 1 and 3, ROI, D07, 2 Sep 69, as the ones executed and signed by him. CARTA could provide no explanation as to why one of the Transportation Control and Movement Documents (Atch 1) reflected the contents as antique arms. CARTA stated that he knew of no other shipments of firearms that had been processed by WERBELL. He concluded that he does not know SUBJECT, nor has he ever processed any shipments under SUBJECT's name or for SIONICS, INC.
+
+Reviewed By AFOSI
+For Public Disclosure
+In Accordance With
+JFKARCA, 1992
+
+14 AUG 95
+
+2
+
+1439

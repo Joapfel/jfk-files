@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_29396.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+TACUBAYA
+
+CHICONTEPEC
+
+200603
+
+Classified by derivation: 148
+
+HW 48327 DocId:32263889 Page 44

@@ -1,0 +1,49 @@
+# JFK-Files-Part-2_page_29552.png
+
+Convert to Markdown# Classification:
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+- 4 -
+
+who takes exception to that characterization of Mr. Shaw's role in the project: is Mr. Shaw. (See: Phillips Testimony, 11/27/76, pp. 107-108; Goodpasture Testimony, 4/13/78, pp. 45-46; Zambernardi Interview, 6/3/78, p. 6. But see: Deposition of Robert Shaw, 5/16/78, p. 34.)
+
+32/ HMMA 22307, 10/18/63, para. 5, c.
+
+33/ Ibid.
+
+34/ Ibid.
+
+35/ Ibid. The Committee declines to assume that there had been no production by the time of this dispatch in October. The handling of the production, i.e., when it was picked up and taken to the Station, when it was developed, etc., is not known. But as the following analysis will show, there is a strong likelihood that the pulse camera was operating in late September and early October 1963.
+
+36/ HMMA 22433, 11/7/63.
+
+37/ Ibid.
+
+38/ Ibid., para. 1.
+
+39/ Ibid., para. 2.
+
+40/ Ibid., para. 3.
+
+41/ Ibid., attachment B.
+
+42/ Ibid., para. 3.
+
+43/ Ibid.
+
+44/ Ibid., Attachment C.
+
+45/ HMMA 22307, 10/18/63, para 5, c.
+
+46/ HMMA 22433, 11/7/63, para. 3.
+
+47/ Ibid.
+
+Classification:
+
+Classified by derivation:
+
+30A
+
+HW 48327 DocId:32263889 Page 200

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_26285.png
+
+Convert to MarkdownFinally, I raised the question of what planning was being done to internationalize the border problem. In response Cottrell simply referred to his plan for dealing with the situation in Laos. Today I talked with Bob Cleveland in State about the same point. He referred to the arrangements that are being made for a meeting of MAAG and USOM Chiefs of countries in the area sometime in July at which the border problem, among others, will be discussed. He also referred to the fact that Ben Wood is currently working on a counter insurgency plan to cover all of Southeast Asia. Defense had earlier been asked to prepare such a plan but had failed to do so. (I find a great inertia, apparently rooted in a basic lack of sympathy, whenever I attempt to raise the question of finding some means to involve the international community in the border question. Neither Cottrell nor the State Department representatives seem very much interested. Have you ever discussed this question with Alexis Johnson? I think it might be useful to do so.)
+
+Following the meeting I followed up with Cottrell on the conversation you had had with him in the morning, asking him whether he didn't think it would be desirable to send General Taylor to South Viet Nam to consider the request for a 100,000 man increase and also to make sure that our military activities in South Viet Nam were really being reoriented. He reacted negatively to this proposal, taking the view that it was undesirable to continue sending missions out to inspect the work of people in the field. In a later conversation with someone else in State I got a much more favorable reaction to this idea. The more I think about it the more I am convinced that it would be highly desirable. I very much share your uneasy feeling about the situation.
+
+SECRET! (2)
+
+- 5 -
+
+SECRET

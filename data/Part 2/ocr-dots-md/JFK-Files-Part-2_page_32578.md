@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_32578.png
+
+Convert to MarkdownS-E-C-R-E-T
+Security Information
+
+and (d) generally backstop the operation.
+
+(5) Establish machinery for evaluating the substance, coverage, impact and management of radio operations.
+
+(6) Proceed with the development of capabilities to electronically intrude upon and otherwise exploit the Communist radio broadcasting to their own and foreign audiences. It is important to have these facilities ready at the earliest possible date for possible use in the cold war—Not to have them available at the outbreak of hot war would be a tragic mistake.
+
+* * * * * * * * * *
+
+\*Note: Recommendations with respect to specific targets have been transmitted to the appropriate divisions.*
+
+(10) A small staff element should be created to supervise CIA planning and operations in covert radio broadcasting. This staff should be instructed to expedite the implementation of the above recommendations and provide a continuing review of CIA Policy and Program for the use of this Media.
+
+/s/ C. Lloyd Egner
+
+C. LLOYD EGNER
+
+15 May 1953
+
+-12-
+
+S-E-C-R-E-F

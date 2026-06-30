@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_29915.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+XV-17RD # OCR 76-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+| | It appears that Riverside County may be in for several changes due to influence by outside elements. Since Levinson entered the area, Lake Elsinore has amended its ordinance to allow the Lake Elsinore Sands to serve liquor in its card room. Robert Willis Wilson, another newcomer to Riverside County, has proposed an initiative to legalize gambling. (For further information, see June 1974 Criminal Information Bulletin). With the new gambling interests in Riverside County, it may in time become the Las Vegas of California. |
+
+Dade County Homicide advises that one Samuel Ray Calabrese, AKA Whole, W/M, 02-22-33, FBI #577 794 J1, S.S. #554-42-0214, may have information relative to the Roselli homicide.
+
+Virginia State Police advise that Calabrese was recently arrested with the following subjects in Richmond, Virginia:
+
+1. Sanford E. Rafsky, W/M, 43
+
+2. Thomas Francis Regan
+W/M, 10-09-28
+
+3. Joseph Charles Palumbo
+W/M, 08-01-29
+of 338 Ednam Drive, Charlottesville, Va.
+(804) 295-5880
+Office: 2307 Commonwealth Dr.,
+Charlottesville, Va.
+(804) 973-3306
+
+On 12-20-76 NYCPD, Det. Scarpati, (212) 946-3311, sent a TTY to this jurisdiction reference ascertaining whether one William Thompson, 15221 Manor Lake Drive, Wheaton, Maryland purchased a certain shotgun from the Sportsman Shop in Bethesda, Maryland; and whether Thompson knew Jay Knohl. Officer Packard, Wheaton-Glenmont, determined that Thompson purchased two shotguns and sold both about 1 1/2 years ago to David Knohl; and Thompson understood that the shotguns had been given to Jay Knohl. Thompson further stated that he knew Gino Carrafa.
+
+Vehicle parked at Thompson residence had Maryland vanity tag PEACE, and same listed to Bish Thompson's Restaurant, 7935 Wisconsin Avenue, Bethesda, Maryland. PAGE# _________

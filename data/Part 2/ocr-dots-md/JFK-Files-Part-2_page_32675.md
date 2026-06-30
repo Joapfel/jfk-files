@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_32675.png
+
+Convert to MarkdownSECRET
+
+- 21 -
+
+V. SITUATION FROM OCTOBER 22, 1962, TO TIME OF REMOVAL OF IL-28 BOMBERS
+
+A. **_Intelligence Activities and Operations Generally_**
+
+On the day following the President's statement, that is, on October 23, 1962, low altitude flights over Cuba were commenced and there was a concerted effort to obtain detailed information both about the entire island and selected targets.
+
+During the period from October 22 to December 6 the Strategic Air Command flew a total of 82 high altitude sorties, and from October 23 through November 15, when the low level flights over the island were discontinued, the Air Force and Navy flew a total of 162 low altitude sorties.
+
+B. **_Identification of Organized Soviet Ground Combat Units_**
+
+As has already been mentioned, photographs obtained on October 25th provided the first confirmation of the presence of Soviet highly mobile armored task groups in Cuba. The information obtained as a result was first distributed to the operational military commands on October 30th. Up to that time, it was thought that the Soviet ground equipment arriving in Cuba was to be utilized by the Cuban forces.
+
+C. **_Removal of Missiles and IL-28 Bombers_**
+
+To a man the intelligence chiefs believe that, following the October crisis and quarantine, the Soviets removed from Cuba 42 medium range ballistic missiles and related equipment, intermediate range ballistic missile equipment, and 42 IL-28 jet light bombers.
+
+A comprehensive and concentrated aerial reconnaissance and fleet observation program endeavored to cover every aspect of the exodus of this equipment. This program involved high and low altitude flights over Cuba, accompanied by intensive sea and aerial surveillance of the departing ships over Cuba and Caribbean waters and continued surveillance across the Atlantic.
+
+SECRET
+
+HW 50955 DocId:32424709 Page 56

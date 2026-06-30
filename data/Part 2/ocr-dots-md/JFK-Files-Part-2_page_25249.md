@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_25249.png
+
+Convert to Markdown# TOP SECRET
+
+## OCCURRENCE:
+
+General Don approached Ambassador Lodge at Baolat Airport on the occasion of the departure of President Diem and Ambassador Lodge for their return to Saigon and asked if Conein was speaking for the Ambassador; Ambassador Lodge replied in the affirmative.
+
+Don told the Ambassador that the USG should not interfere or try to stimulate any action by the Ambassador. The Ambassador agreed, the USG wanted no satellites and the USG would not thwart an attempt.
+
+## SOURCE:
+Hearings, S.S.C.I., 6/20/75, Conein, Exhibit One,
+
+FILE: Page 7-8
+
+## STAFF:
+Dawson
+DATE: 6/30/75
+
+## PERSONS/ENTITIES:
+
+SMITH, DAVID MCCONE
+HARKINS, GENERAL HELMS
+TRUEHARD, WILLIAM COLBY
+KENNEDY, ROBERT
+KENNEDY, JOHN F.
+
+## DATES:
+
+Oct. 29, 1963
+
+## CATEGORIES:
+
+TOP SECRET
+
+## OCCURRENCE:
+
+In a Presidential meeting on Vietnam on October 29, 1963 with MCCONE, HELMS, AND COLBY in attendance. The following record by HELMS and COLBY shows that it was suggested that in the Ambassador's absence, HARKINS, TRUEHART, and DAVID SMITH act as a committee to direct a coup operation. MCCONE countered with the view that SMITH should not be involved in such a policy making function, although he would be in a position to provide technical advise to HARKINS and TRUEHART as well as carry out their instructions in the operations field. The President stated that if the forces in Saigon were not clearly in favor of the coup we should discourage its launching. The Attorney General felt the U.S. was risking too much based on flimsy evidence. The DCI stated his view that even a successful coup would create a period of interregnum, confusion which might only be solved by a second or third coup.
+
+SOURCE: STAFF:
+
+MW 50955 DocId:32423615 Page 138

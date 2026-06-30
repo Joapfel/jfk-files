@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_31358.png
+
+Convert to MarkdownMr. WerBell said he told Lt. Col. Marriott he could pick out any of the weapons he wanted for the museum, and that he could take any that he had picked from the shipment when it arrived at Eglin Air Force Base. Mr. WerBell stated he wanted the firearms for research purposes, except for the Chinese Rocket Launcher, which he wanted for company display purposes. He stated some of the fighting units of Thailand are being furnished with captured enemy weapons, and that officials of Thailand had expressed an interest in Sound Suppressors for some. Mr. WerBell showed us an AK-47 which had a Sionics Sound Suppressor attached. Mr. WerBell stated before Lt. Col. Marriott returned to the United States, he advised him that he would attempt to obtain other captured weapons which he would give to Lt. Col. Marriott for the purpose of displaying in a museum, and that Lt. Col. Marriott told him he thought the museum would be grateful for them. He said he was hopeful at the time that arrangements could be made to transfer any of the weapons not used by the museum to Sionics, but he could not recall if this had been discussed with Lt. Col. Marriott.
+
+Mr. WerBell stated he collected numerous captured enemy weapons during the next few months, and during that time he sent them in two cases to Eglin Air Force Base in care of Lt. Col. Marriott. He stated he sent those shipments through ARPA, and that Col. Patterson authorized the shipments after WerBell told him they were for Air Force museum purposes.
+Mr. WerBell again stated he thought there was nothing wrong with this procedure at the time because of the military involvement, and for that reason did not make application for importation of the firearms. Mr. WerBell was shown a list of firearms currently under seizure by the OSI, and asked to identify any belonging to Sionics. He stated weapons listed were the ones sent by him to Lt. Col. Marriott and that all the listed noise suppressors belonged to Sionics with the exception of the one marked MELE 4A, which is one he picked up that has been shot out, manufactured by a competitor. He also stated the .22 caliber Winchester M-52, serial number 69494B, with Scope, serial number 31411, belonged to Sionics. He stated the noise suppressors were manufactured by Sionics and either taken or sent to Vietnam by him. He stated he could not explain why one had no serial number without examining it, however, some of the earlier models had the serial number on a front part which may have been removed. He stated the Winchester rifle was also either taken or sent to Vietnam by him. Mr. WerBell stated as far as he was concerned, all the other firearms were the property of the United States Air Force, although he had hoped any that weren't used by the Air Force would be transferred to Sionics. Mr. WerBell further stated he left many firearms and suppressors in Thailand, which are in the custody of Major Stevens, 46th Group, Special Forces.
+
+Reviewed By AFOSI
+For Public Disclosure
+In Accordance With
+JFKARCA, 1992
+
+14 AUG 95
+
+NWW 88613 DocId:34530443 Page 9

@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_31766.png
+
+Convert to MarkdownSF 100-46832
+WEH/dp
+
+September 7, 1966
+
+The "Stockton Record" newspaper, Stockton,
+California, issue of September 8, 1966, carried a news
+article headlined, "Editor Attacks U. S. Policy in Vietnam;
+Sees National Peril." In this article it was stated that
+ROBERT SCHEER had delivered a speech at the Raymond College
+High Table, University of the Pacific, Stockton, California,
+on September 7, 1966. SCHEER maintained that the concept
+of an international communist conspiracy was false and the
+U. S. is mistaken in considering it a unified, ever-growing
+force that can only be contained by force. He stated that
+the communist conspiracy is a movement that does not hold
+together because of nationalistic interests. He cited
+the Sino-Soviet dispute and the international squabbling
+between satellite countries and the major communist powers.
+He said the Vietnam conflict began as an internal dispute
+and if the U. S. withdrew from the conflict this withdrawal
+would reaffirm the communists' confidence in the possibility
+of peaceful co-existence.
+
+He concluded that if anyone is genuinely concerned about American security, he is going to have to work to reverse American foreign policy.
+
+October 18, 1966
+
+"The Guardsman," weekly student newspaper at City
+College of San Francisco, in its issue of October 19, 1966,
+carried a news article headlined, "Scheer Lectures on Involvement
+in Southeast Asia." The article stated ROBERT SCHEER spoke at
+the College Theater to a capacity audience. He was reported
+to have reviewed the historical changes in Vietnam, the French
+role in Vietnam affairs, and the limited policy set by President
+KENNEDY of only sending 30,000 advisors as "technical aid only
+for a limited period of time to prevent a colonial posture."
+The article stated further, "In a summary conclusion SCHEER
+said that if there is an international communist movement, it
+should cease to exist, that there are hardly two communist
+countries that coexist, that communism is in truth a form of
+nationalism and that practically speaking, 'it does not exist.'"
+
+1330
+
+SECRET
+
+Copy of Copies
+Page of Pages

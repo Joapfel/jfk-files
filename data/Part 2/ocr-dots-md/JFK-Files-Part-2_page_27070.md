@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_27070.png
+
+Convert to Markdown23. One additional item was picked up by the 5 September mission, the presence of an assembled MIG-21 at Santa Clara airfield, along with several others still in crates. This was not reported by CIA in the Checklist, but was reported in the Central Intelligence Bulletin of 8 September. Actually, these MIG-21 crates (readily identifiable from photographs) had arrived in Cuba about 1 September aboard a Soviet ship which had been photographed en route, but the photographs were not received in Washington for several weeks. Upon the arrival of these and photographs of other ships carrying MIG-21 crates, an item was published in the Central Intelligence Bulletin of 27 September--with DIA withholding concurrence (see para. 6)--that between 22 and 30 MIG-21s had been delivered to Cuba. This information was also reported in the Checklist of 27 September.
+
+-11-
+
+TOP SECRET DINAR CHESS RUFF IDEALIST
+
+Photocopy
+from
+Gerald R. Ford Library

@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_30631.png
+
+Convert to Markdown0002458
+
+SECRET
+
+201, mainly bio - try hard
+not to run operations out
+of 20's.
+
+reason for opening
+necessarily in it.
+would be a reference to a
+cable or document.
+
+201 assigned chronologically
+as the name comes in.
+
+would have his picture if
+he one could be gotten - not
+required. - would go right in.
+
+-> there should be a table of
+contents list on a 201-
+computerized.
+
+- green list - info on subject
+compiled as a result of
+signal / communications
+intelligence.
+
+[State cover can go from "fig leaf" to fully integrated.]
+
+project files - policy coordi-
+nation staff - coord. @W
+other agencies - may also be
+a project file on desk if
+serious agency involvement
+
+graphics file. - do obtain a
+great deal of photos of things
+like ships. - DOT if positive

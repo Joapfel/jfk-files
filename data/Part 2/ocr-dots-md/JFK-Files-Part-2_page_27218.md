@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_27218.png
+
+Convert to MarkdownG-C-H Files
+
+VII. Miscellaneous Files
+
+A. Gellhorn Memos
+Misc. memoranda and correspondence
+
+B. Advisory Committee Act
+Memo, Act and Regulations
+
+C. U.S. Activities to Support Foreign Covert Operations (Seven Memos) Including Accusations,
+
+D. Liaison with the FBI
+CIA Memos (10 Memos--- 8 SECRET)
+
+E. Correspondence
+
+Photocopy from
+G R Ford Library

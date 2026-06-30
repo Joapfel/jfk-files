@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_29505.png
+
+Convert to MarkdownClassifications
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+would make such an oversight mistake and not discover
+it until 1976. <u>558/</u> This Committee thinks that the fact
+that the mistaken date of the photograph was not dis-
+covered for so long is especially suspect in light of
+the fact that on the day after the assassination CIA
+Headquarters sent a cable to Mexico which said:
+
+"(FBI) says that photos of man entering
+Soviet Embassy which MEXI sent to Dallas
+were not of Oswald. <u>Presume MEXI has
+double-checked dates of these photos and
+is also checking all pertinent other
+photos for possible shots of Oswald.</u>
+
+Headquarter's presumption was evidently mistaken. No
+record exists that would indicate a reply to this cable
+by the Mexico City Station.
+
+The likelihood that a photograph of Oswald was
+indeed obtained makes the "explanation," proferred by
+Goodpasture, et al., even more implausible. <u>560/</u> At
+this time the Committee can not conclude why the original
+mistake was made even though it does find the explanation
+offered by Goodpasture, et al., to be highly implausible.
+
+Regardless of why the mistake was made, Oswald's
+contact with the Soviet Embassy and the mistaken photo-
+graphic identification of him were reported to Headquarters.
+The 10/8 cable was received at Headquarters on 9 October
+
+Classification:
+---
+
+257
+
+Classified by derivation:

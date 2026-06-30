@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_30623.png
+
+Convert to Markdown180-10143-10100
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+CREAT
+05/20/00
+
+metricus files.
+memo to Hegat at same time as cable.
+
+SECT:
+
+10143-10100
+
+10143-10100

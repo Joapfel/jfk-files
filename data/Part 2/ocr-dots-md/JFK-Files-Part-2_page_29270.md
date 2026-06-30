@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_29270.png
+
+Convert to MarkdownJFK Assassination System
+Identification Form
+
+Date: 10/1/201
+
+Agency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10096-10448
+RECORD SERIES : NUMBERED FILES.
+AGENCY FILE NUMBER : 009555
+
+Document Information
+
+ORIGINATOR : UNIV. OF NEW MEXICO, SCHOOL OF MEDICINE.
+
+FROM :
+TO :
+
+TITLE:
+
+DATE : 06/21/1978
+PAGES : 1
+
+SUBJECTS :
+HSCA, ADMINISTRATION.
+
+DOCUMENT TYPE : STATEMENT.
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Open in Full
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 07/06/1993
+
+OPENING CRITERIA :
+
+COMMENTS : Box 175.
+
+Released under the John F. Kennedy
+Assassination Records Collection Act of
+1992 (44 USC 2107 Note). Case#: NW
+88326 Date: 2025

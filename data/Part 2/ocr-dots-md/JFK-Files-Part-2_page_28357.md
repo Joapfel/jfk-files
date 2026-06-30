@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_28357.png
+
+Convert to MarkdownOFFICE OF THE CLERK
+U.S. HOUSE OF REPRESENTATIVES
+PERSONAL LEAVE RECORD
+
+BALANCE BROUGHT
+FORWARD FROM
+PRECEDING YEAR
+
+<table><tr><td></td><td>Annual Leave</td><td>Sick Leave</td></tr><tr><td>-</td><td></td><td>-</td></tr></table>
+
+**Name of Employee**
+
+**Address**
+
+**Phone Number**
+
+**Position Title**
+
+**Date OF APPOINTMENT**
+12-14-76
+
+**ANNUAL LEAVE**
+**CATEGORY**
+
+1.0 ☐
+
+1.5 ☐
+
+2.0 ☐
+
+| Position Number | Level | Step | DAY OF MONTH | ACCRUED THIS MONTH | AVAILABLE THIS MONTH | USED THIS MONTH | BALANCE AT CLOSE OF MONTH | EMPLOYEE INITIALS |
+|---|---|---|---|---|---|---|---|---|
+| Month | 1 | 2 | 3 | 4 | 5 | 6 | 7 | 8 | 9 | 10 | 11 | 12 | 13 | 14 | 15 | 16 | 17 | 18 | 19 | 20 | 21 | 22 | 23 | 24 | 25 | 26 | 27 | 28 | 29 | 30 | 31 | Annual Leave | Sick Leave | Annual Leave | Sick Leave | Annual Leave | Sick Leave |
+| Jan. | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | | |

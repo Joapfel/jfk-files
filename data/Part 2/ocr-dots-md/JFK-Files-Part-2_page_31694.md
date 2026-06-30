@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_31694.png
+
+Convert to MarkdownFED-302 (Rev. 4-15-64)
+
+# FEDERAL BUREAU OF INVESTIGATION
+
+Date 7/10/68
+
+The College Avenue Branch of Bank of America, 6201 College Avenue, Oakland. California, maintains a Commercial checking account for ANNE W. SCHEER or ROBERT SCHEER, 6468 Benvenue Avenue, Oakland. This account bears account number 5440 03178 and was opened September 18, 1967.
+
+On June 19-21, 1968, an examination of bank records pertaining to items deposited in this account during the period March 6, 1968 to June 21, 1968, were made available. Among the checks deposited during this period were the following checks payable to ROBERT SCHEER:
+
+| Date | Maker | Amount |
+|---|---|---|
+| 2/29/68 | "Ramparts" Magazine | $423.80 |
+| 3/15/68 | "Ramparts" Magazine | $423.80 |
+| 3/8/68 | Albion College, Albion, Michigan, drawn on City Bank & Trust Co., Albion, Michigan | $277.20 |
+| 3/29/68 | California Intercollegiate Press Association, Hayward, California | $350.00 |
+| 3/29/68 | "Ramparts" Magazine | $423.80 |
+| 4/1/68 | Check from IDA SCHEER, 2868 Bronx Park East, New York City, drawn on Manufacturers Hanover Trust Co., New York City | $15.00 |
+| 4/10/68 | University of California, Irvine, Calif., drawn on United California Bank | $336.00 |
+| illegible | Bank of Province, city unknown, Canada, account # 00059-010-00-02003 (check believed issued to "Ramparts" Magazine) | $700.00 |
+| 4/17/68 | "Ramparts" Magazine | (exchangerate $644.00) |
+| 4/15/68 | "Ramparts" Magazine | $350.00 |
+
+16
+
+On 6/27/68 at Oakland, California File # SF 100-46832
+
+by SA WILLIAM E. HUGHES/mcn Date dictated 7/8/68
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+1258 SECRET
+
+Copy of Copies
+Page of Pages

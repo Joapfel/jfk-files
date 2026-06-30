@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_25290.png
+
+Convert to MarkdownU.S.News
+&WORLD REPORT®
+
+THE UNITED STATES NEWS ®
+
+WORLD REPORT ®
+
+Cuban Extremists in U.S.
+A GROWING
+TERROR
+THREAT
+
+MIAMI
+
+CUBA
+
+HOW NEW TAX LAW
+HITS BUSINESSMEN
+
+DECEMBER 6,1976
+
+$1.00

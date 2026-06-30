@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_32687.png
+
+Convert to MarkdownIsland by the Soviet air defense and missile system, and the island-wide
+evidence of impressive, powerful, armored Russian troop units, all apparently
+immune from attack, has been and will be an increasing psychological damper
+to the fires of revolt. We can only expect, under present circumstances,
+that whatever capacity and will to resist communism may exist among the peo-
+ple in Cuba, will wither and shrink. The communization of the younger ele-
+ment creates simultaneously an increasingly militant communist nation.
+
+The withdrawal of the Soviet forces from Cuba would remove a primary
+psychological prop of Castroism, and remove what is presently being used as
+a physical shield against any overt effort to keep alive the fires of free-
+dom in Cuba. As mentioned before, the ability of Castro's native Cuban forces
+standing alone, to withstand any insurrection, depends upon the support the
+Cuban people give to the insurgents, and the effective outside help given to
+insurgent forces.
+
+SECRET
+
+SECRET

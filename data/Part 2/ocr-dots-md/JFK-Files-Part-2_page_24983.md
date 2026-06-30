@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_24983.png
+
+Convert to Markdownrevision for circulation to the NSC members for approval.
+
+6. If extremely sensitive matters were discussed at an NSC meeting, it was sometimes the practice that the official NSC minutes would record only the general subject discussed without identifying the specially sensitive subject or the discussion. In highly sensitive cases, no reference to the subject would be made in the NSC minutes.
+
+According to my recollection at this time, there was no fixed procedure for recording the discussions of these sensitive matters which were usually discussed in a very limited attendance. Some of these discussions were of a general nature which did not need to be recorded. Others were of such importance that a full record was drafted by me and my deputy, as he attended, and circulated by highly classified memorandum to each of the NSC members for approval. In some cases, only a record of the conclusions and decisions, if any, were similarly drafted and approved. As approved by the NSC members and finally the President, the record of these extremely sensitive matters were circulated on a very strictly controlled distribution.
+
+Prepared by me on this 8th day of September, 1975.
+
+Frederick D. Baron
+Special Assistant to the Chief Counsel
+Senate Select Committee to Study
+Governmental Operations With Respect
+to Intelligence Activities
+
+HW 50955 DocId:32423566 Page 44

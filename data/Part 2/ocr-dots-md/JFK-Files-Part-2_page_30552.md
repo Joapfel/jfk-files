@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_30552.png
+
+Convert to MarkdownSECRET
+
+0002338
+
+- Hunt
+OS withdrew denial when it learned that Hunt would be reassigned to Latin America.
+
+1954 travelling in Europe! JAPAN
+
+1957 assigned 3/1/57 to Monterrey, Uruguay - some kind of stir before assignment - re: lost cables. Hunt was polygraphed.
+
+SKIPS TO:
+
+6/18/65 assigned to Madrid as an IO.
+
+1966 working @ NATO intelli.
+
+1970 memo on Give us this Day Bill Buckley was pushing it. Holt, Rhinehart declined to publish coz "too controversial." ibid Arlington House
+
+SECRET

@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_30362.png
+
+Convert to MarkdownTOP SECRET
+
+1 knowledge about him. He never was before in the Soviet Union.
+
+2 In judging by the question —
+
+3 Mr. Sawyer. Why weren't they asking, why wouldn't they
+4 ask, that's the question. Why wouldn't they ask?
+
+5 Mr. Nosenko. They are not –
+
+6 Mr. Sawyer. Apparently they knew he could speak Russian.
+
+7 Mr. Nosenko. — asking Americans approaching.
+
+8 Judging by the questionnaire, they decided, the KGB decided,
+9 Seventh Department, he is not an interesting target.
+
+10 Mr. Sawyer. Well, why would a person like this not even
+be interesting for something like the Tokyo Rose, on some kind
+11 of propaganda program where he could say how bad things were
+12 in the United States, and why he didn't want to stay there
+13 anymore and how great they were in Russia, like these
+14 propagandists do?
+
+15 Mr. Nosenko. Sir, I am telling you why it was decided,
+16 and how KGB was thinking about him.
+
+17 Mr. Sawyer. I yield back the balance of my time.
+18 The Chairman. The time of the gentleman has expired.
+
+19 Mr. Fithian...
+
+20 Mr. Fithian. Mr. Chairman, I just now got this report.
+
+21 I wonder if I could let Mr.Edgar go ahead of me?
+
+22 The Chairman. The Chair will recognize Mr. Edgar.
+
+23 Mr. Edgar. Thank you, Mr. Chairman.
+
+24 I have a series of questions which I hope most of which
+
+25
+
+TOP SECRET

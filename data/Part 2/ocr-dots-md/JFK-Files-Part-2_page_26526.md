@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_26526.png
+
+Convert to MarkdownSECRET
+
+But when fundamental issues are at stake we have usually found him understanding and willing to be helpful--controlling travel of Castro agents, non-recognition of Red China, offering help on Panama.
+
+Lopez Mateos has chosen his successor, Gustavo DIAZ Ordaz, who will take office in December 1964 after elections in July. Power is therefore drifting toward Diaz Ordaz.
+
+Enclosed is a paper on points which it is suggested you raise at the meeting, and those which it is believed Lopez Mateos will raise.
+
+Enclosure:
+
+Paper on points to be raised at the meeting
+
+SECRET

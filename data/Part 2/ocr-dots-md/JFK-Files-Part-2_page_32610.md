@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_32610.png
+
+Convert to MarkdownSECRET
+
+- 3 -
+
+V. Strengthening of Counter-Insurgency Capabilities
+Department of Defense
+
+a. Thirteen Latin American officers graduated from the counter-insurgency Operations Course of the U.S. Army School for Latin America in the Panama Canal Zone on 20 September. During the month, a total of 91 Latin American officers enrolled in courses stressing counter-insurgency at the Army Canal Zone school.
+
+b. Eight U.S. Army counter-insurgency mobile training teams were providing training to the Armed Forces of five Latin American countries during the period. U.S. Air Force counter-insurgency training teams were in two countries.
+
+c. In the Canal Zone, 15 students from five countries were under instruction in the operation of coast guard utility patrol craft used for coastal surveillance. Six students from two countries were undergoing similar training in the United States
+
+d. A U.S. Navy counter-insurgency training team is in Venezuela to assist in improving the security of oil installations in Lake Maracaibo.
+
+e.

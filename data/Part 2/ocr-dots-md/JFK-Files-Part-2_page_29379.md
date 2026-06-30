@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29379.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+trig. device was activated by changes in light
+intensity. The spotting scope was trained on a very
+narrow area of the door latch of the Cuban Consulate
+entrance. The camera itself covered a much broader
+field than the spotting scope. The camera was set up
+so as to make sure that a person triggering the camera
+by passing between the spotting scope and its target,
+the door latch, would be photographed from the waist
+up.<u>22</u>/<u>1 b/c</u>.
+
+The technician stated that the agent in the
+photographic basehouse serviced his own cameras, and
+developed the film and made contact prints in the
+basehouse.<u>23</u>/ The agent covering the Embassy entrance
+kept a log corresponding to the photographs taken.<u>24</u>
+
+The project files for this operation bear out
+the technician's recollections. An examination of these
+files by the House Select Committee on Assassinations
+revealed several of the technician's monthly reports.
+An examination of the chronological file of dispatches
+passing between CIA Headquarters and the Mexico City
+Station turned up one additional monthly report that
+was not located in the project file. A third relevant
+
+**Classification:**
+
+20/0852
+
+| Classified by derivation: 132 |

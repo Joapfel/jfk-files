@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_29206.png
+
+Convert to MarkdownJimmy feels that they may have taken a smaller
+airplane and flew to this island today to look at a possible
+landing spot.
+
+End of Communication
+
+LYNN LOISEL
+
+LL/bb

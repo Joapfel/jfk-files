@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_27405.png
+
+Convert to Markdown2 pages, both front and back,
+
+21. Book cable dated 4 July 1968 (Director #13667) (5 pages)
+
+22. Book cable dated 2 November 1967 (Director #49260) (5 pages)
+(Items 18-22 are contained in a file labeled "MHCHAOS Policy (Operational & Liaison) V.I.)]
+
+23. Memo of 15 March 1968 to DDP from Joseph W. Smith, Acting Chief Far East Division re "Authorization for Operations in the New Left in the United States. (3 pages)
+
+24. Memo of 3 April 1968 to the DC/CI from Richard Ober re "FE Division Memorandum on Operations..." (2 pages)
+
+25. Memo of 4 April 1968 to the DDP from James R. Hunt re
+Memorandum for the DDP from Acting Chief FE Division..." (4 pages).
+
+(Items 23-25 are contained in a file labeled "DDP Correspondence - 1968")
+
+26. Memo of 2 June 1970 for the DDP from Richard Ober (2 pages - please provide a copy of the original, which shows handwriting.)
+
+27. Memo of 9 June 1970 to DDP from Richard Ober, plus the handwritten note also dated 9 June 1970 attached to the memo. (2 pages).
+
+28. Memo of 27 July 1970 to DDP from Richard Ober re "MHCIDER"
+(2 pages - we do not need the 3 x 5 card attached to the memo).
+
+29. Memo for the Record dated 19 October 1970 by Richard Ober re Committee on Kidnapping (1 page).
+
+(Item 26-29 are contained in a file labeled "DDP Correspondence - 1970")
+
+30. "Meeting Agenda for 15 April (water soluble paper)" (one page - copy both sides).
+
+31. Memo dated 17 April 1971 re "MHYLEED Movement to WDC (one page)
+
+SECRET - SENSITIVE
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 236

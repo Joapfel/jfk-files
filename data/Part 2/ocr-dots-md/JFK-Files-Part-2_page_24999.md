@@ -1,0 +1,75 @@
+# JFK-Files-Part-2_page_24999.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+# TOP SECRET
+
+important that I be fully aware of everything that went on at National Security meetings. And they took place as you know, at that time on a regular basis every Thursday, I think it was morning.
+
+Mr. Baron. And where did they take place?
+
+Mr. Dillon. In the Capitol Room at the White House.
+
+Mr. Baron. Were you in a position as Under Secretary of State to be aware of every major CIA operation against a foreign leader or a foreign government?
+
+Mr. Dillon. I think if there were any such things I would assume that I would have been aware of them.
+
+Mr. Baron. Would you have also have been aware of any communications or orders running from the President to the Director of Central Intelligence?
+
+Mr. Dillon. Only if they had been given in my presence and I had heard of them. I wouldn't necessarily be aware of them otherwise. If the President had wanted the State Department to be aware of it, -- and they usually did, there was pretty good coordination there, Gordon Gray was his Special Assistant and would keep everybody notified. But that wouldn't necessarily mean that we knew of every particular thing.
+
+Mr. Baron. In what manner were you made aware of major CIA covert activities?
+
+Mr. Dillon. I think if they were major they were all
+
+HW 50955 DocId:32423566 Page 60
+
+TOP SECRET

@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_30656.png
+
+Convert to MarkdownNOTE: C's MEAN OF 11/25/63 PRESUPposes A LOT OF EARLY INFO ON O'S ACTIVITIES IN MINGK.

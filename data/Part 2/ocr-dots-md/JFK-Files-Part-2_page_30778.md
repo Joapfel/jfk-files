@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_30778.png
+
+Convert to MarkdownHoward Leap
+31 March 1978
+
+James E Wood
+DOB 2-Feb-28
+SNW 502-16-6806
+
+CIA
+
+78 Apr. 5-7
+
+ Wash
+
+Present
+Record mg. Officn
+Jul 73
+
+15-9
+Italy - Rome
+July, 1944
+
+RS

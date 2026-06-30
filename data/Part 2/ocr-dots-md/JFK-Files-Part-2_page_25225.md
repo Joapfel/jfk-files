@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_25225.png
+
+Convert to Markdown## TOP SECRET
+
+**PERSONS/ENTITIES:**
+
+**DATES:**
+
+**CATEGORIES:**
+
+### OCCURRENCE:
+
+CONT. FROM LAST CARD
+ participating in the actual planning of the units that would participate in the coup, stated that from the meetings of the coup committee he knew of the following units: One-half of the Airborne Division, 3 Battalions of Marines, all of the Air Force with the exception of Colonel Euchren Huyah Huen, the outlying 8th, 7th, and 21st Divisions, half of the 30th Division, and elements of the 9th Division.
+(j) The Command Post for the coup would be Joint General Staff Headquarters.
+
+**SOURCE:** P. & c.o./4.
+**FILE:**
+
+**STAFF:**
+**DATE:**

@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_29243.png
+
+Convert to MarkdownHEADQUARTERS
+UNITED STATES ARMY SECURITY AGENCY TRAINING CENTER & SCHOOL
+
+Fort Devens, Massachusetts
+
+SPECIAL ORDERS
+
+NUMBER 175
+
+EXTRACT
+
+27 Aug 1962
+
+15 TC 221. Fol reassignment dir. TDN. WP: 4 Sep 62 -1363 P1513 S99-999.
+
+FRISEY, CLARENCE R RA13658275 PFC E3 058.10 Co A USASATR (9322) this sta.
+Asg to: 303rd USASA Bn, Camp Wolters, Texas.
+Rept Date: 7 Sep 62
+PPSC: B
+PCS (MDC): AD
+Nr Depn: 1
+ADC: 3 yrs
+Last FST & Tvl Sta: Z
+BFED: 11 Dec 61
+DROS: NONE
+ETS: Dec 64
+DMOS: 058.10
+Lv Data: DDALVAHP-NONE
+FSAC: 6
+EDCSA: 11 Sep 62
+Auth: Aloc CUSASA, Aug D101-10
+Sety Clnc: Interim TS & Crypto
+Grad date: 22 Aug 62
+Sp Instr: TO will detm & furn nec TR & AMT fr this sta to Camp Wolters, Texas only.
+Govt tvl fr N Sta to S Sta or Logan Airport Boston, Mass is auth.
+
+GINCLEY, KENNETH E RA13750222 PVT E2 058.10 Co B USASATR (9322) this sta.
+Asg to: 303rd USASA Bn, Camp Wolters, Texas.
+Rept Date: 7 Sep 62
+PPSC: A
+PCS (MDC): AD
+Nr Depn: 1
+ADC: 3 yrs
+Last FST & Tvl Sta: Z
+BFED: 22 Dec 61
+DROS: NONE
+ETS: Dec 64
+DMOS: 058.10
+Lv Data: DDALVAHP-NONE
+FSAC: 6
+EDCSA: 11 Sep 62
+Auth: Aloc CUSASA, Aug D101-10
+Sety Clnc: Final TS & Crypto
+Grad date: 22 Aug 62.
+Sp Instr: TO will detm & furn nec TR & AMT fr this sta to Camp Wolters, Texas only.
+Govt Tvl fr N Sta to S Sta or Logan Airport Boston, Mass is auth.
+
+GLYNN, PETER C Jr RA11396679 PFC E3 058.10 Co E USASATR (9322) this sta.
+Asg to: 303rd USASA Bn, Camp Wolters, Texas.
+Rept Date: 7 Sep 62
+PPSC:A
+PCS (MDC): AD
+Nr Depn: 0
+ADC: 3 yrs
+Last FST & Tvl Sta: Z
+BFED: 18Sep61
+DROS: NONE
+ETS: Sep 64
+DMOS: 058.10
+Lv Data: DDALVAHP- NONE
+FSAC: N
+EDCSA: 11 Sep 62
+Auth: Aloc CUSASA, Aug D101-10
+Sety Clnc: Final TS & Crypto
+Grad date: 22 Aug 62.
+Sp Instr: TO will detm & furn nec TR & AMT fr this sta to Camp Wolters, Texas only.
+Govt Tvl fr N Sta to S Sta or Logan Airport Boston, Mass is auth.

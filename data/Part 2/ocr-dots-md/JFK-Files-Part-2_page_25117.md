@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_25117.png
+
+Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>MC CONE, JOHN<br/>DIEM</td><td>5 Oct 1963</td><td>DIEM</td></tr></table>
+
+**OCCURRENCE:** On October 5, 1963, MC CONE sent, to some locations, including SAIGON the following message: "Believe assassination discussions most careful handling. In general best line is no line so that it is clear that we are sticking to position of having no responsibility for actions of any of various contending Vietnamese groups. We certainly cannot be in the position of stimulating, approving, or supporting assassination, but on the other hand, we are in no way responsible for stopping every such threat of which we might receive even partial knowledge. We certainly would not favor assassination of DIEM. We believe in gaging ourselves by taking position on this matter opens door too easily for probes of our position re others, re support of regime, etc. Consequently, believe best approach is hands off. However, we naturally interested in intelligence on any such plan.—This message has been cleared with State Department."
+
+**SOURCE:**
+Hearing held before Senate Select Committee Intelligence,
+June 6, 1975, McCone, p. 60.
+FILE:
+
+**STAFF:**
+
+R. DAWSON
+
+**DATE:** 29 June 1975
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MINH, GENERAL<br/>CONEIN<br/>NGO DINH CAN<br/>NGO DINH NHU</td><td>October 3-4<br/>1963</td><td>✓ DIEM TOP SECRET</td></tr></tbody></table>
+
+**OCCURRENCE:** On October 3-4, 1963, CONEIN was asked to contact BIG MINH and did so by himself at MINH's headquarters. "At that time, BIG MINH explained to me that they had had, that there was going to be a coup d'etat, that they didn't want this to be an American sponsored coup d'etat, they wanted to be assured of American backing, specifically in the part where it comes to military and economic aid after the coup had been successful." p. 24 "What the GENERAL meant, he actually did not want U.S. participation in the coup d'etat. He did not want the U.S. government to start the coup d'etat. He also outlined three general ideas, this was the first time that a leader had mentioned the possibility of assassination. This assassination was not of DIEM. This was -- if they could not do anything, it would be the elimination of NGO DINH CAN, who was the war lord in central Vietnam and NGO DINH NHU. At that time GENERAL MINH did say that one of the alternative means was to eliminate CAN and NHU and keep DIEM." That was one of the alternatives. p. 25
+
+**SOURCE:**
+Hearings, SSCI, June 20, 1975, Conein
+
+**STAFF:**
+
+R. DAWSON
+
+**DATE:**
+
+10/1/66-10/3/66 Page 6

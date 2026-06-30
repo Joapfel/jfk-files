@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_26133.png
+
+Convert to Markdownin dealing with some of the dissident areas and so on. All I had done was, not planning as much as coming in with sort of a shopping list of what people might look for, and individuals in these countries they might talk to to get information on what was happening.
+
+O'BRIEN: Well, are you in Colombia in the Kennedy administration at all as ...
+
+LANSDALE: No. No, the most I did was--I went to Venezuela during the Kennedy administration, and Bolivia. No, by that time folks were highly sensitive about my showing up in foreign countries--that is, Americans, not foreigners--and I really wasn't permitted, or I was stopped really at policy levels from going back into Vietnam or the Philippines or anyplace in Asia. I begged to be permitted to go down and take a look in Latin America, and Gilpatric was the one that told me the decision had been made...
+
+BEGIN SIDE II TAPE I
+
+O BRIEN: Did you get to any other countries?

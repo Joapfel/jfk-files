@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_25352.png
+
+Convert to Markdown# I. Carry-over from Church report
+
+## A. Relationship between agencies and Warren Commission
+
+1. Warren Comm. staff has never been interviewed in depth. Many have not been interviewed at all. The Commission had particular staff assigned to (a) Cuba and (b) organized crime. They, especially, should be fully debriefed about everything that happened in their contacts with the agencies, their frustrations, unfulfilled leads, inability to get access, questionmarks, and what they knew, heard, or suspected about contacts at high-level between Commission members and top agency officials. This would include leads to additional documents, memoranda and people, and is especially important in the time-frame just before the Commission issued its report, i.e. as final drafts being written, when staff learned for the first time about Castro's threat. (Willens, staff director, said there were staff pushing hard to re-open this subject, but pressure of getting the report out prevailed.)
+
+2. Look for all other memoranda of contacts between McCone and CIA re how to structure questions, etc.
+
+3. We now know that Ruby was contacted several times by FBI to inform on various "criminal element" in Dallas area. All we've seen is the summary memo in which Warren Commission was so informed. Get each memorandum of contact between FBI agents and Ruby, i.e. underlying materials which "support" the summary memo.
+
+## B. The inter-agency committee which met to develop contingency plans in the wake of Castro's threat.
+
+1. Numerous documents were sought from FBI, CIA, Defense, State, etc., but never received by Church Committee before our final report was issued. Must follow-through, and then go deeper into it.
+
+2. What else was known besides Castro's retaliation threat? What facts went into the assessment that Castro might retaliate against U.S. leaders in Latin America, but not U.S. leaders in the U.S.? Precisely what accounted for the original inclusion of a concern about retaliation in the U.S., but the subsequent deletion of that prospect? Who was responsible for the deletion, and what impact, if any, did that have on the later withholding of info from the Warren Commission and on the agencies' failure to investigate retaliation?
+
+3. We must find out exactly who was on this Committee at each meeting, get all back-up materials, and interview.

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_29073.png
+
+Convert to Markdown## Part II
+
+### Ordinary Gains and Losses
+
+<table><thead><tr><th></th><th>a. Kind of property and how acquired<br>(If necessary, attach statement of descriptive details not shown below)</th><th>b. Date acquired<br>(mo., day, yr.)</th><th>c. Date sold<br>(mo., day, yr.)</th><th>d. Gross sales<br>price</th><th>e. Depreciation allowed (or allowable)<br>since acquisition</th><th>f. Cost or other basis,<br>cost of subsequent improvements (if not purchased, attach explanation) and expense of sale</th><th>g. Gain or (loss)<br>(d plus e less f)</th></tr></thead><tbody><tr><td>5 Amount, if any, from line 2(a)(2)</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>6 Amount, if any, from line 4(a)(2)</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>7 Gain, if any, from line 21</td><td></td><td></td><td></td><td></td><td></td><td></td><td>12248</td></tr><tr><td>8</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>9 Combine lines 5 through 8, enter here and also on the appropriate line as follows</td><td></td><td></td><td></td><td></td><td></td><td></td><td>12248</td></tr><tr><td colspan="8">(a) For all returns, except individual returns: Enter the gain or (loss) shown on line 9, on the line provided for on the return (Form 1120, etc.) being filed—see instruction E, for specific line reference.</td></tr><tr><td colspan="8">(b) For individual returns:</td></tr><tr><td colspan="8">(1) If the gain or (loss) on line 9, includes losses which are to be treated as an itemized deduction on Schedule A (Form 1040) (see instruction E), enter the total of such loss(es) here and include on line 29, Schedule A (Form 1040)—identify as loss from line 9(b)(1), Form 4797</td></tr><tr><td colspan="8">(2) Redetermine the gain or (loss) on line 9, excluding the loss (if any) entered on line 9(b)(1). Enter here and on line 30, Form 1040</td></tr></tbody></table>
+
+16-82348-1
+
+NW 88326 DocId:32245535 Page 119

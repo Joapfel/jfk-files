@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_29636.png
+
+Convert to Markdown# Classification: ____
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+TOP SECRET
+
+- 221 -
+
+Oswald case closed and had heard all the rumors before. 934/
+
+Thomas forwarded (the same day) a copy of his memorandum to the Central Intelligence Agency's Mexico City Station to aid in its investigation of the John F. Kennedy assassination. 935/ On the first page of the memorandum of conversation, Winston Scott wrote, "Shouldn't we send to Headquarters?" Someone responded, "Of course." 936/
+
+The Mexico City Station sent a cable to Headquarters on December 12, 1955, reporting that it was "following up" and would cable the results. 937/
+
+7. **December 27, 1965 Legal Attache Memo to the United States Ambassador re Elena Garro**
+
+On December 27, 1965 Nathan Ferris wrote a memo to the Ambassador reporting that Elena and her daughter were interviewed on 17 and 24 November 1964 by the Legal Attache's office in Mexico City. 938/ The memo recorded that Elena and her daughter had furnished information similar to the information reported in Thomas' 12/10/65 memo. 939/ The memo further stated,
+
+"Inquiries conducted at that time (November 1964), however, failed to substantiate the Classification: ____
+
+205033-1
+
+Classified by derivation: ____
+
+HW 48327 DocId:32263889 Page 284

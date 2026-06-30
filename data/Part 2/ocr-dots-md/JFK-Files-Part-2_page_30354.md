@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_30354.png
+
+Convert to Markdown1968
+IUP SECRET
+
+119
+
+Mrs. Burke. I see. I thought --
+Mr. Nosenko. Interpreter, I never mentioned.
+Mrs. Burke. You never mentioned the interpreter?
+Mr. Nosenko. No. I do not remember her name.
+Mrs. Burke. It was just this officer Rastrusin?
+Mr. Nosenko. Officer, yes.
+Mrs. Burke. He was -- but he was the one that found --
+wasn't he the one that found Oswald?
+
+Mr. Nosenko. No, this is the officer who reported about
+him.
+
+Mrs. Burke. He reported it, but he didn't find him?
+Mr. Nosenko. No, no, interpreter found him with
+administration of the hotel where Oswald was staying.
+
+Mrs. Burke. Oh, I see.
+
+Mr. Nosenko. You see, interpreter has come in the
+morning to take him or has come to take him to city, to show
+him, as interpreter on a guide, on a tour. And she was waiting
+about 20, 25, 30 minutes and was concerned.
+
+The Chairman. Time is up. One more.
+
+Mrs. Burke. All right, just one more question.
+
+When Oswald arrived, then, he didn't speak very much
+Russian, is that right?
+
+Mr. Nosenko. No. I didn't hear that he spoke in Russian.
+
+Mrs. Burke. I see. Were there any notations at all in the
+file -- what is your understanding of his fluency in Russian
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 96
+
+25

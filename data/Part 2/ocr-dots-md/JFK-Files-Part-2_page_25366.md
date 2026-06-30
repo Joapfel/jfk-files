@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_25366.png
+
+Convert to MarkdownThere were four more assassination attempts, the plotters were smuggled into Cuba with high-powered rifles. The last assassination squad, Roselli heard, made it to a Havana rooftop before they were caught.
+
+This was around March 1, 1963. Then the project was abandoned. Roselli saw Harvey for the last time in June, 1963. Five months later, Lee Harvey Oswald gunned down President Kennedy in Dallas. Oswald had been active in the pro-Castro movement. Shortly before that dreadful day in Dallas, Oswald had made a mysterious trip to Mexico where he visited the Cuban embassy. The Warren Commission found no evidence, however, that Oswald was in the hire of Havana.
+
+Yesterday, Roselli made no apology for his CIA role. U.S. authorities call him a mobster. He regards himself as a patriot.

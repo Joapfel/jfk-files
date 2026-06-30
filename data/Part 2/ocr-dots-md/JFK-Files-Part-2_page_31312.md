@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_31312.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+Elizabeth Berning, Chief Clerk
+
+FROM: I. Charles Mathews, Special Counsel H.C.M.
+
+DATE: 23 March 1978
+
+RE: Mr. Thomas W. Sacco
+
+Please be advised that effective Monday, March 27, 1977, Mr. Thomas W. Sacco has accepted the position of Research Attorney with the Martin Luther King Task Force/HSCA. His effective starting salary will be $18,000.00.
+
+If you have any questions concerning this matter,
+
+please contact me at your convenience.
+
+ICM:j

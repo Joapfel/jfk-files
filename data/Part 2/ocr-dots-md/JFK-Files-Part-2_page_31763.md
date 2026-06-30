@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_31763.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH·ay
+
+taking essential revolutionary action." In reference to the six day Arab-Israel war the article stated "the Soviets were clearly unprepared to assess its implications," in reference to withdrawal of UN troops from Gaza and Aqoba. It added "The Soviets continuously underestimated the emotional depth and political intensity of the Arab-Israeli conflict." It added that Russia began immediately to rearm Eghpt and Syria after the defeat, specifying only that their weapons be better used.
+
+The article stated "The Central Thesis of this essay is that the Great Powers cannot be expected to be concerned, on any consistent basis, with the interests and needs of the Arabs and Jews who live in the Mideast," but are preoccupied with their own prestige and security needs. It added that both the Arabs and the Jews identify their opposition with the nation of imperialism supported by the American oil companies.
+
+The article added that "The Arab denial of legitimate Jewish nationhood as the basis of Israel is the subject of deserved ridicule. But that the mainstream of Zionism has, in like fashion, denied the existence of a legitimate Arab quest for nationhood is not commonly admitted. This factor has been of great significance in the formation and sustaining of Arab hostility towards Israel. The Arabs will never be able to turn their energies from opposing Israel to the development of an Arab nation so long as the Israelis hold the existence of an Arab nation to be a threat." The Israelis viewed the drive toward Arab unity and independence as a threat to them. ABBA EBAN conferred upon Israel the very nationhood that Israel denied to the Arabs. The Arabs find this position most difficult to accept when the Jews deny them the same position. The article stated that "Israelis must come to accept the fact that nationhood is an aspiration which some Arabs hold without being conned into it by NASSER; and that an Arab State - if it became a reality (as a confederation or a nation) - is not necessarily a threat to Israel."
+
+The article concluded that "The Arab Nation and the Jewish Nation are both legitimate concepts which can survive together only if they exist as part of the same social revolution to meet the needs of the people of the Mideast."
+
+327
+
+Copy of 3 Copies
+Page of 134 Pages
+
+SECRET
+
+NW 88613
+DocId:34517445 Page 86

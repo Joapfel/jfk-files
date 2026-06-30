@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_31203.png
+
+Convert to MarkdownUJUNCI
+
+002339
+
+Sen Levy Mahan
+S. Shenker, Long's general and, forlorn
+that Mahon would do Aegy.
+
+7 June 66
+Mahon reported by Morgan in daily
+w/ St. Louis Art, a joint fund by Lry,
+in Mahon's appearance.
+
+3. Foustierwald. She identified Sam
+Onam, etc. by name to O'Connell.
+COL. Rewards,
+
+En the case of Sam, Ed Dubois
+& a couple of his technicians new arose
+of Mihul tie-in w/ Francine.
+
+31 May 1946
+Mahan asked if "Sam himself" was in
+plus well.
+
+17. Morgan had arrived Mahon that the
+Hans Long's joint fund who expects great
+influence on Long. They plan St. Louis
+to start the 3 mm flow D.C. & nil
+w/ Long's Foustierwald. Foustierwald
+won't Mahon unless he in the future
+on that Mahon clients there great appeal
+for T. V. Has that Mahon and Agent put
+enough to hold behind. Mellen Lry says
+m. Foustierwald would precede
+
+13. Mahon client Jan. 1961 B.O.
+
+SECRET

@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_28736.png
+
+Convert to MarkdownAlphonse Indelicato for the crime of perjury in the first degree.
+Dominick Trinchera for the crime of criminal contempt in the first degree.
+Jerry Langella for the crime of criminal contempt in the first degree.
+Vic Orena for the crime of perjury in the first degree.
+
+**Dispositions:**
+
+1. Peter Diapolous - conducted trial resulting in conviction 9-28-72.
+
+2. Vincent Aloi - conducted trial resulting in conviction 6-26-73.
+
+3. Joseph Gorgone - pleaded guilty.
+
+4. Phillip Gambino - pleaded guilty.
+
+5. John Arcaro - pleaded guilty.
+
+6. Jerry Langella - pleaded guilty.
+
+7. Dominick Trinchera - pleaded guilty.
+
+8. Vic Orena - pleaded guilty.
+
+3. Trial and Conviction of Robert Bongiovi, reputed bodyguard of Joe Gallo, for the gangland murder of Samuel Wuyak that occurred on 3-11-73 inside the Broadway Pub at 133 West 45th Street. Jury Verdict: May 10, 1973.
+
+4. Trial and Conviction of Fritz Montalalou for the revenge double murder of East Village folk singer's wife, Marilyn Mackey and her 9 year old son, Shaw Mackey, that occurred on 5-10-72. Jury Verdict: December 20, 1973.
+
+5. Trial and Conviction of Hosie Turner for the felony murder of Roberta Herbert that occurred at 1:00 p.m. in front of 494 Hudson Street on 8-8-73 in the Greenwich Village section of Manhattan. Jury Verdict: October 25, 1974.
+
+6. Investigation and Conviction (after extensive pre-trial hearings defendant pleaded guilty to the indictment - Murder) of Charles Yukl for the ligature strangulation of Karin Schlegel who answered an advertisement placed by the defendant in Show Business newspaper seeking young actresses for movie appearances. Pleaded Guilty: April 20, 1976
+
+7. Investigation and Grand Jury Presentation of the case involving five self-proclaimed Croatian Nationalists for the bomb blast death of Police Officer Brian Murray that occurred on September 11, 1976.
+
+**Public Activities:**
+Organizer and Coordinator of District Attorney's Office Staff and volunteers during District Attorney Frank Hogan Primary Campaign '73.
+
+**Lecturer:**
+1. National College of District Attorneys, Houston, Texas, April 1976 - Voir Dire + Opening Statement

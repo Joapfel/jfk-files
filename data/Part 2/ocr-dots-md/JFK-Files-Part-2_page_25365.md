@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_25365.png
+
+Convert to MarkdownAccording to Roselli, the murdered mobster, Sam Giancana, never became involved in the assassination plot. He knew about it; he may even have suggested a Cuban contact; nothing more.
+
+Roselli identified the CIA project officer, in charge of the Castro assassination, as "Big Jim" O'Connell. Maheu put Roselli in contact with O'Connell, as Roselli remembers it, in New York City on September 14, 1960.
+
+Thereafter, Roselli flew to Miami and recruited the assassination squads. At first, they plotted to poison Castro. Poison pellets were supplied by the CIA. They were delivered to the plotters in a Miami hotel room, according to Roselli, by Maheu. He dramatically opened his briefcase, revealing $10,000 in cash and the fatal pellets.
+
+The money was distributed to the Cuban plotters. Roselli swore he never took any money from the CIA, except for some incidental expenses. He paid the big expenses, he said, out of his own pocket.
+
+The poison pills were supposed to take three days to work. Supposedly, this would give the poison time to work its way out of Castro's system before he died, and his death would be attributed to natural causes.
+
+Roselli never found out what happened to the plotters or the pellets. But they tried again later with a stronger dose of poison. Not long afterward, reports reached them that Castro was desperately ill. Roselli doesn't know whether the illness was caused by the poison or a virus. But Castro survived, and the plotters apparently did not.
+
+Roselli said he also picked up intelligence, which he submitted to the CIA both during the Bay of Pigs planning and the later Cuban missile crisis. After the Bay of Pigs, Roselli said, Maheu was cut out of the plot. Thereafter, Roselli reported to a CIA agent named William Harvey.

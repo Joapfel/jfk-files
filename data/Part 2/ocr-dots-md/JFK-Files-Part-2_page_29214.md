@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_29214.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10086-10257
+
+RECORD SERIES : NUMBERED FILES
+
+AGENCY FILE NUMBER : 009046
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM : BROWN, JUANITA
+TO :
+TITLE :
+
+DATE : 06/01/1978
+PAGES : 8
+
+SUBJECTS :
+
+BROWN, JUANITA, ASSOCIATION WITH OSWALD
+WILLIAM REILLY COFFEE CO.
+OSWALD, LEE, POST RUSSIAN PERIOD, EMPLOYMENT
+
+DOCUMENT TYPE : SUMMARY
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Open in Full
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 06/18/1993
+
+OPENING CRITERIA :
+
+COMMENTS : Box 164.
+
+<table>
+  <tr>
+    <td>Released under the John F. Kennedy<br/>Assassination Records Collection Act of<br/>1992 (44 USC 2107 Note). Case#:N'W<br/>88326 Date: 2025</td>
+  </tr>
+</table>
+
+v9.1

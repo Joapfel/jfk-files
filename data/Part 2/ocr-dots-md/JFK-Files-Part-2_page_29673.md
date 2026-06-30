@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_29673.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for materials extracted from CIA-controlled documents)
+
+TOP SECRET
+
+58-
+
+It is possible that after Oswald's attempts to obtain a visa by the first method were frustrated on Saturday, September 28, that he made one final effort to locate someone trusted by the Cuban Consulate to vouch for him.
+
+There is no direct evidence about how Oswald could have learned of the pro-Castro group at UNAM. There is a possibility that Ernesto Leffeld Miller, a friend of the Durans who borrowed Horacio's car often took Lee Harvey Oswald to the campus of the National Autonomous University. On the days when Lee Harvey Oswald allegedly visited the Consulate, Mr. Miller did also. It is possible that Silvia Duran asked him to escort Oswald to the campus. Mr. Miller denied having ever met Oswald. 1174A/ Oscar Contreras says that Oswald first contacted him as he was leaving a round-table discussion at the school of philosophy. 1174/ It is known that, in 1963, the Durans were close friends with the Chairman of the Philosophy Department at UNAM, Ricardo Guerra, who held seminars on Kant, Hegel and Marx in the Durans' home. 1175/ It is possible, if Silvia Duran had more than just a purely business relationship with Oswald,
+
+200371
+
+Classification:
+
+1175
+
+- 1-38
+
+Classified by derivation:

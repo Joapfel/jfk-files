@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_29365.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+B. Differences Between the Warren Commission Investigation of Lee Harvey Oswald's Activities in Mexico City and the House Select Committee on Assassination's Investigation.
+
+The approach taken by this Committee's investigation differs from that of the Warren Commission primarily in terms of scope. The Warren Commission and the investigative agencies at its disposal went to great lengths to establish Oswald's travel to and from Mexico, but devoted minimal effort to evaluating Oswald's contacts with the Cuban and Soviet Consulates. It is the conclusion of this Committee that the Warren Commission correctly established that Oswald had traveled to Mexico City. Hence, this Committee has chosen not to reinvestigate Oswald's travel to and from Mexico City. Instead, the Committee's approach has been to focus narrowly on Oswald's contacts with the Soviet and Cuban diplomatic missions in Mexico City and on evidence that was not available to the Warren
+
+**Classification:**
+
+20.0653
+
+118
+
+Classified by derivation: _______________

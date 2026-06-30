@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_26474.png
+
+Convert to MarkdownSECRET
+
+Communist Party, reportedly a supplier of false passes for travel to Cuba.
+
+Jorge Francisco Timossi, former Argentine representative for Prensa Latina.
+
+Hector Villalon, prominent Peronist close to Peron.
+
+5. Argentine guerrilla training units in Cuba have been mixed, including Peronists, Communists, and Vanguard Socialists. There are indications that the most active recruitment is carried on by the Argentine Communist Party and by the Communist-influenced left wing of the Peronist movement, under the direction of John William Cooke in Cuba. His wife, Alicia Cooke, lives in Montevideo, Uruguay, which is the principal center providing funds and forged documentation for the recruits.
+
+6. An Argentine taking a six-month course received training in weapons, marksmanship, explosives, ballistics, communications, strategy, tactics, sanitation, closed and open order drill, and construction of defenses. Weapons used included Mauser and Garand rifles, Brownings, Thompson submachineguns, bazookas, 81-mm mortars, and a 57-mm recoilless cannon.
+
+SECRET

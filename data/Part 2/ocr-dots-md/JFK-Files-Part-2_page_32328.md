@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_32328.png
+
+Convert to MarkdownIII. Control of Clandestine Movement of Guerrillas and arms
+
+Department of State
+
+Made the necessary arrangements through Embassy Tegucigalpa with the Government of Honduras for the dispatch of three U.S. helicopters to give logistical assistance to the Honduran Army in its effort to locate and eliminate the band of guerrillas allegedly operating in the Patuca River area along the Honduran-Nicaraguan border.
+
+Department of Defense
+
+Three CH-13 helicopters from USSOUTRACON supported Honduran armed forces conducting counter-insurgency operations in the Patuca River area. A total of 27 sorties were flown resulting in delivery of 3928 pounds of supplies, evacuation of 12 sick Honduran soldiers, airlift of 19 passengers to points in the operational area, and recovery of 400 pounds of supplies from the operational area.
+
+IV.
+
+SECRET
+
+HW 50955 DocId:32276192 Page 22

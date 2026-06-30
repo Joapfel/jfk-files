@@ -1,0 +1,82 @@
+# JFK-Files-Part-2_page_26754.png
+
+Convert to MarkdownSECRET
+
+Photocopy from
+Gerald Ford Library
+
+410 First Street, S.E., Washington, D.C. 20003
+
+W A R D & PAUL
+
+16
+
+said -- the instructor could have said two hours later tell me what is in that outer office? What is the layout of it?
+
+This is just for observation.
+
+9
+
+Q You stated earlier none of those allegations have been proven. Have any of them been proved to your satisfaction?
+
+6
+
+A No. I think we disproved them to my satisfaction.
+
+8
+
+Q I take it you do not believe they took place other than the training exercise?
+
+10
+
+A Oh, no. No. I don't believe they did.
+
+11
+
+Q Do you know of any instances where members of that group have broken in, made any other type of illegal entry in this country?
+
+12
+
+13
+
+A No.
+
+14
+
+Q Have you ever been present at any discussions of the legality or illegality of maintaining stations like the Miami Station within this country?
+
+15
+
+16
+
+17
+
+A Legality? No.
+
+18
+
+Q How about the propriety?
+
+19
+
+A Well, to my knowledge, that really never came up.
+
+20
+
+No one to my knowledge, has ever questioned the legality or the propriety of having the Station.
+
+21
+
+22
+
+23
+
+Q There have been some allegations in the press and elsewhere about possible misuse of Cuban exiles, members of that community, by the CIA. Are you aware of those?
+
+24
+
+25
+
+SECRET
+
+NW 50955 DocId:32204971 Page 108

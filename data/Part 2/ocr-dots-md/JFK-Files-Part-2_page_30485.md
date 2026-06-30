@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_30485.png
+
+Convert to MarkdownSECRET
+
+1-60
+
+the initials up top.
+
+Mr. Goldsmith. There are no writings or notations on that
+one, however.
+
+Would you please read CIA 177, which is a cable from
+Mexico City station dated October 8th?
+
+(Pause)
+
+Mr. Shaw. Yes, this is typical where they try to identify
+somebody that was in the Embassy at the same time. Of course,
+that does not sound like it.
+
+Mr. Goldsmith. This was the famous cable that has given
+rise to some of the issues that the Committee was concerned
+with. My first question is, did you have anything to do with
+the writing of this cable?
+
+Mr. Shaw. No; I did not. I would not have had.
+
+Mr. Goldsmith. Do you know how the photograph referred
+to in paragraph number two of that cable was in some way linked
+to Oswald?
+
+Mr. Shaw. I would assume, my answer to your question is
+no. I would assume that this was an effort on the part of
+the person drafting the cable to help Headquarters identify
+Lee Oswald, the man who had made the call.
+
+Mr. Goldsmith. Do you know how she made that conclusion
+that the photograph reflected Oswald?
+
+Mr. Shaw. No. I do not think she did. I think she
+merely says that we got a guy who looks like he might be an
+
+SECRET
+
+ALDERSON REPORTING COMPANY
+
+HW 50955 DocId:32277214 Page 61

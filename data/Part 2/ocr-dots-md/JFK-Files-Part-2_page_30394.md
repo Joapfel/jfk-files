@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_30394.png
+
+Convert to Markdownof activity, would be the SC Division. On this I think the CI staff could be considered as speaking for the Directorate.
+
+Mr. Goldsmith. Is the Domestic Contact Division part of the CI Staff?
+
+Mr. Tovar. No, part of the Directorate of Operations.
+
+Mr. Goldsmith. The response of the Agency dated April 20, 1978, which appears in CIA Number 1818, indicates that contact seems to be based on opportunity and circumstance. Then it goes on to say only ten of the 117 persons have had any contact with CIA. Would it be possible for you to go into more detail on what is meant by opportunity and circumstance?
+
+Mr. Tovar. In the absence of a policy, of a guideline, a procedure, internal instruction which says you will debrief Americans who return from having resided in the USSR, in the absence of that, this thing is left to chance obviously. I cannot explain to you how the names of these 11 passed the desk of whoever was in charge at the time, but assuming they did, my guess, and it is really only a guess, would be that the person who read that, whatever document it was, would say, "Hmmmph! He looks like he might be interesting", and perhaps would then get in contact with CCD and suggest if they get in contact with a person, let us say he is known to be living in New York, suggest that they might want to seek out his location and if possible interview him.
+
+TOP SECRET
+
+N#W 48331 DocId:32277210 Page 20

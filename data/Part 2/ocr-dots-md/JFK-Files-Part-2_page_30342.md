@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_30342.png
+
+Convert to MarkdownTOP SECRET
+
+or correspondence. I could maybe something miss, you see,
+when I mentioning. I do not have such a brilliant, brilliant
+mind that immediately like photographic memory, immediately
+return word and word. I simply was describing that it wasn't
+active work, that there wasn't planned recruitment, there
+wasn't planned approachment, contact. There was type of
+passive work which is called in KGB to watch him and what is it,
+agents, control of correspondence, and explaining this, I
+simply, I could miss that he was under surveillance.
+
+You can return to this and tell me, uh-huh, you told in '67
+you didn't mention that he was under surveillance. It is not
+a contradiction.
+
+The Chairman. The time of the gentleman has expired.
+
+Mr. Nosenko, in reply to Mr. Sawyer's question, you
+indicated you were paid for the period of time that you were
+under arrest, that it was a lump sum payment I suppose?
+
+Mr. Nosenko. Yes, sir.
+
+The Chairman. What amount of money was that?
+
+Mr. Nosenko. Something about, oh, about $80,000.
+
+The Chairman. About $80,000?
+
+Mr. Nosenko. Yes.
+
+The Chairman. Any other sum in addition to that were
+you paid?
+
+Mr. Nosenko. I think I received about $15,000 or $20,000
+when I started on my own to live, to buy furniture. I received,
+
+HW 50955 DocId:32277209 Page 84
+
+TOP SECRET

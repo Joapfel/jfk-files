@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_30868.png
+
+Convert to MarkdownSECRET
+
+1110543
+
+SECRET
+
+SECRET
+
+547 A form = request to put document into central file
+very sensitive operations have very limited access, person paralleling would make decisioner unable to put documents into system
+there can be operations for which files do not exist
+it is possible that 201 file would not reflect a particular operation
+
+cryptonym may exist for project, for when no 201 would exist
+operation file are separately maintained by desk in charge

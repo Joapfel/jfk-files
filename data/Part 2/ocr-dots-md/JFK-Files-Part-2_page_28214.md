@@ -1,0 +1,85 @@
+# JFK-Files-Part-2_page_28214.png
+
+Convert to MarkdownDUCB 146
+Rev. 8/71
+
+DISTRICT UNEMPLOYMENT COMPENSATION BOARD
+
+MAIL CLAIM
+
+S. S. No.
+
+Claimant's Name
+
+PART ONE
+
+1. I claim unemployment insurance benefits for the calendar week which began Sunday, Dec. 26, and ended Saturday, Jan. 1, 1977.
+
+For the calendar week shown above:
+
+a. I was available for and actively seeking work (✓) Yes ( ) No
+
+b. I was physically able to work (✓) Yes ( ) No
+
+c. I claimed or was receiving education, training or subsistence allowance from the Veterans Administration ( ) Yes (✓) No
+
+d. I claimed or was receiving unemployment insurance benefits under another Federal or State Law ( ) Yes (✓) No
+
+e. I claimed or was receiving a retirement pension or annuity ( ) Yes (✓) No
+
+f. I was totally unemployed ( ) Yes (✓) No
+
+(If your answer to item (f) is "Yes," do not complete item (g) below.)
+
+g. I worked (✓) full time ( ) part time and earned, before deductions, $ ~~83.33~~ 83.33
+
+2. This claim is filed by mail because:
+
+[ ] a. I became employed. Date of employment Dec. 29, 1976
+
+Employer's Name U.S. House of Representatives, House Select Committee on Assassinations
+
+Employer's Address 3342 H.O.B.#2, Washington, D.C. 20515
+
+[ ] b. Other than employment. Reason
+
+IMPORTANT: If you started to work during the calendar week claimed in item 1, you must have your employer complete Part Two below.
+
+I certify the above statements are true. I am aware that the law imposes penalties for false statements made in connection with this claim.
+
+Clare L. Brown
+Claimant's Signature
+
+5021 Seminary Rd #1104, Alexandria, Va.
+Address 1
+
+1/27/77
+Date
+
+# PART TWO
+
+## LOW EARNINGS REPORT—To be completed by the employer and delivered to the claimant at his request.
+
+1. During the CALENDAR WEEK beginning SUNDAY Dec. 26, 1976 and ending SATURDAY Jan. 1, 1977 (NOT your payroll week, if different), this employee worked [x] FULL TIME [ ] PART TIME
+
+2. His gross earnings payable before deductions, which include tips, cash value of meals, lodgings, and all other remuneration for that week were $83.33
+
+3. If separated, enter date Explain reason for separation
+
+4. Employer's Name U.S. House of Representatives, Select Committee on Assassinations and Address Washington, D.C. 20515
+
+(Signature of authorized official)
+
+Jan. 27, 1977
+
+Rebecca W. Martin
+
+225-2980
+
+2720
+
+(Date)
+
+(Person who may be contacted)
+
+(Phone No.)

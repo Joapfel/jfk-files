@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_32165.png
+
+Convert to MarkdownDA, FORM 2823 JUL 72
+
+SUPERSEDES DA FORM 2823, 1 JAN 69, WHICH WILL BE USED.

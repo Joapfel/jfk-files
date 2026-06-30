@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_30638.png
+
+Convert to MarkdownVOLUME II, DEVELOPMENT AND PLANS.
+
+**π** Memorandum for DD Pre:
+"Request for Renewal of
+the LIENVOY Project," from
+J.C. King, C/WHD (signed by
+R.W. Herbert, 1/21/64). This
+memo states the objectives
+of the operation as being A)
+the provision of a joint
+CIA/BOM sponsored
+telephone link unit and
+b) provision for a next
+officer's liaison with
+the highest level Mexican
+government officials."
+
+Under "Effectiveness" the memo says: "This center records an average of 5-25 reels per month, from which
+
+**π** HMMA-22679, 12/31/63 transmitting Mexi copy of B project Renewal request.
+
+**π** HMMW 12220, 12/30/63 trans-
+mitting paper on LIENVOY/
+
+95

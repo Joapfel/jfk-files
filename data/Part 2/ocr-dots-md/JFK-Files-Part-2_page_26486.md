@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_26486.png
+
+Convert to MarkdownSECRET
+
+8. We estimate that there are at present about 200 men in paramilitary units. Four corroborative reports establish that the regular Communist Party of Ecuador is forming a paramilitary command of 10 squads of 10 men each scattered throughout the country.
+
+9. Cuban travel does not show in Ecuadorean passports, and is primarily by way of Mexico. There are seven recorded cases of travel via Prague, and two via Paris.

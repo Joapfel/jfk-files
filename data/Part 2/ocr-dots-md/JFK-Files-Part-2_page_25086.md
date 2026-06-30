@@ -1,0 +1,63 @@
+# JFK-Files-Part-2_page_25086.png
+
+Convert to MarkdownTOP SECRET - SENSITIVE
+
+JCS 2304/244-1
+
+30 October 1964
+
+Pages 2 - 8, incl.
+
+COPY NO.
+DISTRIBUTION G
+
+REPORT BY THE J-5
+to the
+JOINT CHIEFS OF STAFF
+on
+SQUARE DANCE (U)
+
+Reference: JCS 2304/244
+
+DECISION
+
+1. At their meeting on 6 November 1964, after making amendments, the Joint Chiefs of Staff approved the recommendations in paragraph 12 of this report.
+
+2. This Decision replaces page 2. Holders are requested to substitute the additional revised page 7, and revised white pages 3 and 5, incorporating the amendments, and to destroy the superseded pages in accordance with security regulations.
+
+3. The memorandum in the Enclosure, together with its Appendices A, B, and C, was forwarded as JCSM-942-64, dated 9 November 1964, to the Secretary of Defense.
+
+4. In that the Commandant had expressed direct concern of the Marine Corps in this matter, the provisions of Title 10, US Code 141 (c) applied and were followed.
+
+**DISTRIBUTION:**
+
+Gen. Wheeler (C/JCS)
+Gen. Johnson (CSA)
+Adm. McDonald (CNO)
+Gen. LeMay (CSAF)
+Gen. Greene (CMC)
+Gen. Palmer (DC/S. OPS)
+Adm. Jackson (CNO-P&F)
+Gen. Blanchard (DS/3 R&O)
+Gen. Euson (DC/S-2/MO)
+
+Gen. Burchinal (D/JS)
+Gen. Manhart (VD/JS)
+Adm. Davis (DD/JS)
+Adm. Mustin J-3)
+Gen. Emrick (J-5)
+Gen. Anthis (SACSA)
+
+COPY
+
+Lyndon M Johnson Library
+
+TOP SECRET - SENSITIVE
+
+JCS 2304/244-1
+
+HW 50955 DocId:32423566 Page 147
+
+19
+
+20

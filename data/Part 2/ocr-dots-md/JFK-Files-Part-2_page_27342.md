@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_27342.png
+
+Convert to MarkdownA - Memo for All Staff Attorneys, from Roethe - 18 Feb 75
+
+B - Memo for the File - from Gray - 21 Feb 75 SECRET
+
+C - Outline - Hearings on Privacy and Related Civil Liberties.
+
+D - Outline - Background Paper
+
+E - Ink notes. (On white paper)
+
+F - Telephone Memo - 2/5/75
+
+G - Ink notes. (On yellow paper)
+
+Photocopy from
+G R Ford Library

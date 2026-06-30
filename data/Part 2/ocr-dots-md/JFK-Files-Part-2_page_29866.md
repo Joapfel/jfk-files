@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_29866.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+XXXX V-1/RD# 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE      OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+1. Reference Janice Mae Piccerelli's employer, the Millionaire's Club - president of the club is Chris C. Carson, 154 Kenilworth Ave., Kenilworth, Illinois. Carson has associated with the late Sam Giancana, the late Ned Bakes, and Hy Brody.
+
+2. Reference credit card of Frank J. Nenning in J. Piccerelli's possession - no record in Chicago files.
+
+3. Reference name Ruggles and telephone number of (312) 642-3353 found in Janice Piccerelli's personal telephone book - same is an unlisted number to John Cofoid, 745 N. Dearborn St., Chicago, Illinois. Subject has one arrest for disorderly.
+
+4. Reference Roselli's call to (312) 943-1155 to Louis J. Lederer, 860 N. Lake Shore, Chicago, Illinois- same identified as a gambler with hoodlum connections.
+
+5. Reference number of. (312) 321-0110 in J. Piccerelli's telephone book same is to the Little Corporal Restaurant 1 East Wacker Drive, Chicago, Illinois.
+
+6. Reference notation in Jan Piccerelli's personal phone book of the name Vincent A. Gesumaria (301) 656-2332 - Gesumaria resides at 5609 Old Chester Road, Bethesda, Maryland.
+
+Toll calls from Gino's Classic Cars reveal the following numbers called:
+
+(301) 840-9425
+(301) 948-9490 Taylor Insurance Agency
+
+David Knohl's tolls reflect the following unknown numbers called:
+
+(305) 731-7692
+(213) 598-6730
+
+Pfc. M. Alban
+
+PAGE# ____________

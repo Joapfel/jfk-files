@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_25170.png
+
+Convert to MarkdownPERSONS/ENTITIES:
+
+NSC EXECUTIVE COMMITTEE
+HELMS, Richard
+HARKINS
+CIA
+
+KENNEDY, John F.
+
+DATES:
+
+29 Aug. 1963
+
+CATEGORIES:
+
+DIEM
+
+TOP SECRET
+
+OCCURRENCE:
+
+At a NATIONAL SECURITY COUNCIL EXECUTIVE COMMITTEE meeting on Vietnam on August 29, 1963, with a record taken by DD/P HELMS, shows that
+
+"The consensus was that HARKINS should confirm to the generals that the approaches from CIA were bona fide and represented the views of the US government. There was agreement that better information was needed on what the generals were in fact planning to do and whether it was militarily feasible. A telegram giving the sense of the meeting was drafted for PRESIDENTIAL approval." (12)
+
+(Other CIA participants were not identified.) (12)
+
+SOURCE: I.G. REPORT 1967, Part C., p. 12
+
+FILE:
+
+STAFF: Dawson
+
+DATE: 28.6.75
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>KENNEDY, JOHN F.</td><td>BUNDY, McGeorge</td><td rowspan="4">DIEM</td></tr><tr><td>RUSK, Dean</td><td>NSC Exec. Com.</td></tr><tr><td>MCNAMARA, Robert</td><td>LODGE, Henry Cabot</td></tr><tr><td>TAYLOR, Maxwell</td><td>HARKINS, John</td></tr></tbody></table>
+
+OCCURRENCE:
+
+On August 28, 1963, the PRESIDENT met privately with RUSK, MCNAMARA, TAYLOR, and McGEORGE BUNDY. He reported to the rest of the NSC EXECUTIVE COMMITTEE merely that three telegrams were being sent to Saigon: a personal message to LODGE from the PRESIDENT, a general message from the DEPARTMENT to the AMBASSADOR, and a telegram from TAYLOR to HARKINS. (11)
+
+(This is reflected in notes taken by HELMS (DD/P) of the NATIONAL SECURITY COUNCIL EXECUTIVE COMMITTEE meeting on Vietnam. Other CIA participants are not identified.) (11)
+
+SOURCE: I.G. REPORT 1967, Part C., p. 11
+
+FILE:
+
+STAFF: Dawson
+
+DATE: 28.6.75

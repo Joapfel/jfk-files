@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_25651.png
+
+Convert to MarkdownJimmie Fratianno was also suspected of complicity in the murders of two men in 1951. Two men who made the mistake of robbing the Mafia's Flamingo Hotel in Las Vegas were found dead in a parked car following the robbery. Both of their skulls had been shattered by bullets fired behind the ear, apparently in true Mafia fashion.
+
+Fratianno had also been linked to the famous murder of Harry "Hooky" Rothman, who had been another close associate of Mickey Cohen, the Los Angeles Mafia head. Also, Fratianno was also linked to the disappearance of another top member of the Mickey Cohen gang, Frank Niccoli. Niccoli had mysteriously vanished following a late dinner at Fratianno's home one night.
+
+Fratianno was also linked to the brutal murder of a businessman in northern California in 1952. Thomas Keen, a wealthy gambler, had apparantly welched on a $80,000 gambling debt that he owed the Mafia, and was blown to bits from a dynamite charge hidden under the hood of his car.
+
+Fratianno later served a six year prison term (1954-1960) for extortion. In later years Fratianno became the central figure involved in LOOK magazine's "expose" of San Francisco Mayor Joseph Alioto's alleged Mafia connections. LOOK alleged that Fratianno had become a close friend of Mayor Alioto and that the Mayor had arranged for Fratianno to receive loans of over $105,000 from a bank where Alioto served as Chairman of the Board. Alioto admitted that Fratianno was a "casual acquaintance" of his, but denied that he had used any influence in the loans. The Mayor also said that he had not known that the notorious Fratianno was a member of the Mafia.
+
+(BRADING AND MELTZER)
+
+While in Los Angeles, Brading (Jim Braden) also became connected with top Mafia leader Harold "Happy" Meltzer. The LAPD Intelligence Division had originally become aware of Brading's close relationship with Meltzer when Brading's name was found on Meltzer's Christmas card list. Meltzer was widely known as one of the most powerful Mafia leaders in the entire nation.
+
+The U.S. Senate Rackets Committee identified Brading's friend Meltzer as a top Mafia boss in the areas of union racketeering and narcotics.

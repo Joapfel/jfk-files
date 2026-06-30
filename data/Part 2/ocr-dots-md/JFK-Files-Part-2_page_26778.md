@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_26778.png
+
+Convert to MarkdownSECRET
+
+Q Was he ever hired to do any piecework for the Agency?
+
+5 A Not to my knowledge.
+
+4 Q Do you know whether or not Mr. Sturgis ever participated in any type of paramilitary or other operation against Cuba?
+
+6
+
+7 A On his own behalf he did, not on behalf of this Agency.
+
+8
+
+9 Q How did you learn of those operations?
+
+10 A Through the newspaper. And through FBI reports.
+
+11 Q Now, are these recent FBI reports?
+
+12 A Oh, no. These go back -- I know at one time, the thing that comes to mind, I think he made a leaflet drop over Cuba and this was subsequently reported in the press and by the Bureau office in Miami.
+
+13
+14
+15
+
+16 Q Do you know who financed his activities?
+
+17 A I have no idea.
+
+18 Q Is it possible that Mr. Sturgis' activities were indirectly financed by the Agency through —
+
+19
+
+20 A I don't see how. Frank Sturgis is a soldier of fortune; has been. He has constantly tried to associate himself with the Agency. When I went through his file they wanted me to classify the file and the way I classified it was "don't destroy it, he is an intelligence nuisance."
+
+21
+22
+23
+24
+
+25 Q Off the record.
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+HW 50955 DocId:32275518 Page 15

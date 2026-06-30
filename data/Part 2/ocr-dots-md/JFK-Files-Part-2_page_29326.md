@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_29326.png
+
+Convert to MarkdownCOMMITTEE SENSITIVE
+
+Phillips, page 3.
+
+Bill Kent was running "if Bill Kent got to the point where he felt he would like a little weight," Sometimes he went down to Miami on a "trouble shooting" mission, as when problems developed with a commercial radio station the Agency was funding,
+
+Mr. Phillips stated that he had had no recent contact with Mr. Kent relating to anything being done by this Committee, He did state that, approximately a month ago when Mr. Kent retired from the CIA, he received a call from Mr. Kent. He said that Mr, Kent said that he was setting up an executive employment agency and had asked for Mr Phillips help in finding jobs for former employees of the agency as well as referring people for specific skilled jobs. They did not discuss the HSCA at all, according to Phillips,
+
+Mr. Phillips stated that it would be accurate to state that there were two "sets" of propoganda activities during the Bay of Pigs; one that was run out of the Miami offices coordinated by Bill Kent and a second set that he personnally ran without coordinating with Mr. Kent. Most of Mr. Phillips prior established assets were in the second set of propoganda operations.
+
+Mr. Phillips said that even after he became Chief of Cuban Operations in Mexico City he still worked very closely with the propaganda shop, and his successor as head of that shop, James Flannery, in propaganda operations.
+
+Mr. Phillips said that his "Cuban shop" covered the activities of the Cuban Embassy and that a special group covered the airport. He said that a good deal of time was
+
+COMMITTEE SENSITIVE
+
+HW 50955 DocId:32263505 Page 9

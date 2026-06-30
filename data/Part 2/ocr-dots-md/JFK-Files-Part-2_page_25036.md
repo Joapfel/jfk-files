@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_25036.png
+
+Convert to MarkdownTOP SECRET
+
+-- you would read that sentence to indicate that an assassination was within the bounds of the kind of activity that might be used to get rid of Lumumba?
+
+Mr. Dillon. Yes, I would.
+
+Mr. Baron. And you were commenting before that Mr. Dulles might be expected by, say, some members of the Special Group, to return to the Special Group if an assassination were being mounted?
+
+Mr. Dillon. Not only that, but anything being mounted, I mean whatever action to get rid of Lumumba, I think he would probably come back and say what we are doing.
+
+Mr. Baron. But it is also your statement that, due to the mode of operating of Allen Dulles, and his character, it is quite conceivable that he wouldn't have returned to the Special Group with such an operation?
+
+Mr. Dillon. That might be, although it is more likely that what he really said was that he wouldn't return to the President.
+
+Mr. Baron. In order to protect the President?
+
+Mr. Dillon. In order to protect the President. I think he had looked on other officials in the Government as quite different from the President, all of the, in other words, as expendable, and he probably would be less likely to go and do things totally on his own. And his whole idea was to protect the President as the public representative of the US
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32423566 Page 97

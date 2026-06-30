@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_30484.png
+
+Convert to Markdown1-59
+
+and we sat and stood around that radio and I believe it was
+in Pat Johnson's office -- her name was something else in
+those days. I can't remember her married name.
+
+And they said something about the police said it was Lee
+Harvey Oswald, or something. I do not remember. That was the
+first time that it came to my attention.
+
+Mr. Goldsmith. I would like you now to take a look at
+CIA No. 13 which is a transcript of the conversation allegedly
+involving Oswald, a conversation taking place on 1 October '63.
+Would you please read through that?
+
+(Pause)
+
+When was the first time that you saw that transcript, if
+you have ever seen it before?
+
+Mr. Shaw. I do not know whether I have ever seen it or
+not, but I may well have. I was aware that he had called the
+Soviet Embassy, was made aware after the notoriety of the man
+was established, but I do not recall ever seeing this before
+that.
+
+Normally, I would not.
+
+Mr. Goldsmith. Prior to the assassination, did you see
+it?
+
+Mr. Shaw. No. If I did, I did not pay any attention.
+I do not believe that it was on a Cuban line.
+
+Mr. Goldsmith. No, it was not.
+
+Mr. Shaw. Sometimes you can tell who saw these things by
+
+SECRET
+ALDERSON REPORTING COMPANY
+
+HW 50955 DocId:32277214 Page 60

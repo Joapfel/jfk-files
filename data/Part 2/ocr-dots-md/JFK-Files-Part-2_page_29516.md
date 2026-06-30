@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_29516.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+gative steps. Dissemination would only be taken
+if another agency requested it, either specifically
+in that case, or unless it were a part of standard
+operating procedure, which would have been agreed
+upon with another agency.
+
+Q: Was any follow-up action contemplated by (the 10/10) cable?
+
+A: Yes. "Please keep Headquarters advised of any further contacts or for positive identification of Oswald."
+
+Q: That would be considered follow-up?
+
+A: Yes. They were instructed to stay alert and report any further evidence of this man's presence. Therefore, Mr. Karamessines had to sign off on it.
+
+Q: Mr. Karamessines had to sign off on it because follow-up action was contemplated?
+
+A: With regard to a U.S. citizen abroad.
+
+Q: For purposes of clarification, I think you said that there were two situations where Mr. Karamessines would have to sign off. One would be where another agency requested the dissemination?
+
+A: Yes. No--not the question of the dissemination. It is a question of operational action being taken.
+
+Q: A request for operational action. What is the second example?
+
+A: Well--
+
+Q: Would the Agency itself decide to take operational action?
+
+A: Ordinarily, operational action in an ordinary case would not require Mr. Karamessines approval at all. It was only because an American citizen was involved. That interest in an American citizen might come about because of a specific statement of interest about
+
+268
+
+**Classification:** TOP SECRET
+
+Classified by derivation;

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_29489.png
+
+Convert to Markdown# Classification: TOP SECRET
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+Later that same day, the Soviet Consulate returned Ms. Duran's call. **502**/ Under normal procedures, these transcripts would have been in the CIA Station by the first of October and Ms. Goodpasture brought these transcrip- ts into the Station on that morning and put them on Ms. Manell's desk. **503**/ Ms. Manell recognized the transcripts as containing information of a possible coun- terespionage or counter-intelligence interest and routed them to Mr. Shaw, Ms. Goodpasture and Win Scott (in reverse order.) **504**/ Mr. Scott wrote, at the top of the 9/27/4:26 call, "Is it possible to identify?" **505**/ This was the first interest in Oswald recorded by the Mexico Station even though the caller was as yet uniden- tified. It indicates a routine interest in an American who is in contact with the Soviet Embassy. After the transcripts were routed they were filed in a general subject file. **506**
+
+The 9/28/ call was probably received at the CIA Station on Monday, 30 September 1963. The routing and filing instructions indicate that it was handled in much the same way as the 9/27 conversations.
+
+On 1 October 1963 a conversation in which an En- glish speaking person identified himself to the Soviet
+
+Classification:
+
+Classified by derivation: 241
+
+2009.01.01
+
+2009.01.01
+
+HW 48327 DocId:32263889 Page 137

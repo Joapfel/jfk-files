@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_31391.png
+
+Convert to MarkdownPhotograph of the weapons contained in packing crate Nr 1.
+
+Reviewed By AFOSI
+For Public Disclosure
+In Accordance With
+JFKARCA, 1992 NBS
+14 AUG 95
+
+1471
+
+NW 88613 Docld:34530447 Page 18

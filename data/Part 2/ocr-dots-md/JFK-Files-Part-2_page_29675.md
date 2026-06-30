@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_29675.png
+
+Convert to MarkdownClassification: 
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+TOP SECRET
+
+alone. Although the American authorities did not handle the Elena Garro allegation properly, the Committee does not believe that it can readily dismiss Ms. Garro's allegation that Oswald had a companion in Mexico in light of: 1) the corroboration of details of Ms. Garro's story; 1181/ 2) the possibility that someone impersonated Oswald in Mexico 1182/ and 3) the similarity in the description of Oswald by Ms. Duran and Mr. Azcue and the description of Oswald's companion by Ms. Garro. 1183/
+
+423
+
+Classification TOP SECRET
+
+200973
+
+Classified by derivation:
+
+NW 48327 DocId:32263889 Page 323

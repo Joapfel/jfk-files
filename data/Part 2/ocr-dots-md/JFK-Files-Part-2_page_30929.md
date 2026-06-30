@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_30929.png
+
+Convert to MarkdownFile Review - Manuel Ray y Rivero - Volumes I - XVIII
+
+May 2, 1978
+
+Volume XVI - July 1, 1964 - August 28, 1964
+
+1. Draft on Manuel Ray by Alfonso Rodriguez dtd 6 July 1964
+
+After his failure to reach Cuba during May 1964, Ray believes he must go into Cuba as soon as possible. Within JURE, according to Ray, his detention by the British is viewed as an unfortunate incident. Ray said some JURE members considering demonstrations before British embassies and consulates.
+
+2. Memo for the Record dtd 7 July 1964 from Alfonso Rodriguez
+Subject: Tad Szulc Relationship with Manuel Ray
+
+Rodriguez questioned Ray's using newspaper correspondents as emissaries to departments of the U.S. gov't. Ray stated that Szulc took it upon himself to speak about matters related to assisting Ray. Rodriguez says it would be wrong to assume that Ray is controlled by Szulc but Ray "undoubtedly knows that Szulc has worked hard, first with President Kennedy and now, for him and his interest. This cannot but influence Ray."
+
+3. Memorandum for Director of Central Intelligence, dtd 9 July 1964
+From: Dismond Fitzgerald, Chief/WH Division
+Subject: Chronology of Concept of Autonomous Operations and Summary of Financial Support to Manuel Artime
+
+Attachment A is listing of origin, briefings, discussions, and approvals by appropriate policy levels of the concept of autonomous operations and specifically support to Artime. Chron clearly shows that from the very beginning the problems inherent in autonomous operations were clearly stated at all times by the Agency and that appropriate policy levels were kept fully and regularly informed of the status of autonomous operations.
+
+Attachment B contains summary and breakdown of financial support for Artime.
+Summary states that, "From June 1963 through 30 June 1964 the Agency spent $4,933,293 in support of the Artime operation." Fixed monthly subsidy is $225,000.
+
+SECRET
+
+11110855
+
+SECRET

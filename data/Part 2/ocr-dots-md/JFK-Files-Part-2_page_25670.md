@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_25670.png
+
+Convert to Markdownprofess to have seen his death as a grave setback to
+more hopeful relations between the two countries.
+The John Kennedy of 1963 was not, in their judgment,
+the same man who was inaugurated in 1961, but a
+more mature, poised and forward-looking leader with
+whom they could have done business.
+
+With this frame of reference, Cuban officials specu-
+late that the real origin of the assassination lies in an-
+ti-Castro circles, with which Oswald also was in touch.
+They emphasize that assassination is incompatible
+with their own revolutionary doctrine and that they
+never contemplated it even against Batista, the pre-
+vious Cuban ruler. And they volunteer the suspicion
+that the recent murders of Sam Giancana and Johnny
+Rosselli, the Mafia figures who consorted with the
+CIA to kill Castro, surely have some connection with
+Cuban exile politics and the Kennedy murder.
+
+Castro has said publicly that he has no proof "counter-revolutionary elements" planned the assassination, but that is clearly the consensus in Havana. Further investigation may still be inconclusive, but, far from seeing it as an impediment to Cuban-American relations, the Castro regime welcomes such an inquiry. Their curiosity seems greater than their complicity.

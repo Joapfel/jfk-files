@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_27540.png
+
+Convert to Markdown# MEMORANDUM
+OF CALL
+
+TO: Donovan
+
+☑ YOU WERE CALLED BY— [x] YOU WERE VISITED BY—
+Maeqo Jackson
+
+OF (Organization)
+
+☐ PLEASE CALL -> PHONE NO.
+CODE/EXT.
+
+☐ WILL CALL AGAIN ☐ IS WAITING TO SEE YOU
+☐ RETURNED YOUR CALL ☐ WISHES AN APPOINTMENT
+
+MESSAGE
+
+<table><tr><td>RECEIVED BY</td><td>Mary</td><td>DATE</td><td>5-18</td><td>TIME</td><td>1:45</td></tr></table>
+
+STANDARD FORM 63
+REVISED AUGUST 1967
+GSA FPMR (41 CFR) 101-11.6
+
+GPO:1969-048-16-80341-1 332-389 63-108

@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_30502.png
+
+Convert to MarkdownSECRET
+
+# CERTIFICATE OF REPORTER
+
+I, Rosemary C. Tascione, the officer before whom the foregoing deposition was taken, do hereby certify that the witness whose testimony appears in the foregoing deposition was duly sworn by the Notary; that the testimony of said witness was taken by myself, stenomask reporter, and thereafter reduced to typewriting under my direction; that I am neither counsel for, related to, nor employed by any of the parties to the action in which this deposition was taken, and further, that I am not a relative or employee of any attorney or counsel employed by the parties thereto, nor financially or otherwise interested in the outcome of the action.
+
+REPORTER
+
+HW 50955 DocId:32277214 Page 78
+
+SECRET
+ALDERSON REPORTING COMPANY

@@ -1,0 +1,10 @@
+# JFK-Files-Part-2_page_32110.png
+
+Convert to Markdown# AGENT REPORT
+(AR 381-130; FM 30-17)
+
+mg
+
+<table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT<br/>TRINKALA, Victor Lee<br/>DPOB: 28 November 1950; Rochester, Pa.<br/>PVT - 186 42 1155</td><td>2. DATE SUBMITTED<br/>25 February 1970<br/><br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>9321 - 6006</td></tr><tr><td colspan="2">4. REPORT OF FINDINGS<br/>(SUBJECT INTERVIEW) On 19 February 1970, Victor Lee TRINKALA, Unemployed, address of residence, 127 West 43d Street, Room 301, Manhattan, New York 10036, was interviewed under oath at Region I, 108th Military Intelligence Group, Room 1332, 26 Federal Plaza, New York, New York 10007, concerning HIS character, suitability, and unswerving loyalty to the United States. TRINKALA, after indicating HIS complete and full understanding of the purpose and necessity of the interview, consented to be interviewed, allowed the interview to be tape recorded, and was duly sworn. TRINKALA furnished a Sworn Statement (DA Form 2823), a copy of which is attached hereto as EXHIBIT ______, containing the information disclosed by HIM during the interview of which HE signed on 24 February 1970 at 206 West 43d Street, Manhattan, New York 10036. SUBJECT requested and receipted for a copy of HIS Sworn Statement, copy of Receipt of Statement attached hereto as EXHIBIT ______.</td></tr><tr><td colspan="2">AGENT'S NOTES: SUBJECT was reluctant to answer questions. It is the opinion of the undersigned Agent that TRINKALA was evasive throughout the interview. Special Agent James H. Raymond, Region I, 108th Military Intelligence Group, was present throughout the interview and concurs with the above remarks.</td></tr><tr><td colspan="2"><div style="text-align:center;">502</div><div style="text-align:right;">JAN 10 1970</div></td></tr><tr><td>5. TYPE<br/>T<br/>6. SIGNATURE OF SPECIAL AGENT<br/>T. G. PHENIX, 108th MI Gp (I-CIE)</td><td>Organization of special agent<br/><br/></td></tr></tbody></table>
+
+NW 88613 DocId:34529655 Page 2

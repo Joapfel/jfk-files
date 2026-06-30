@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_26655.png
+
+Convert to MarkdownSECRET
+
+Phone (Area: 202) 544-6000
+
+1. Station running any operations against Cuba?
+
+2. A You mean prior to the Bay of Pigs?
+
+3. Q Yes.
+
+4. A I really don't know. It was a small -- it was a
+    forward base and it was more or less as I recall, a support type
+5. thing.
+
+7. Q Well, after the Bay of Pigs when Task Force W was
+8. established, did it have sole responsibility for Cuban
+9. operations?
+
+10. A Yes.
+
+11. Q Or was that shared with the Miami base, Miami
+12. Station?
+
+13. A No. The Miami Station was under Task Force W.
+
+14. Q All right. Would that also be true of the Special
+15. Activities Staff, the Cuban Operations Group?
+
+16. A Right, except that at the present time the Station
+17. has no Cuban operations.
+
+18. Q I understand that. When were Cuban operations termi-
+19. nated?
+
+20. A At the Station? Let's see. Sternfield went down
+21. there in 1972. It was during fiscal year '72. I think it was
+22. in early 1973. It was a gradual reduction.
+
+23. Q And have those operations been terminated entirely
+24. or are they now run out of the Washington area?
+
+25. A All Cuban operations are run out of Washington.
+
+SECRET
+
+Photocopy from
+Gerald Ford Library
+
+410 First Street, S.E., Washington, D.C. 20001
+
+NW 50955 DocId:32204971 Page 9

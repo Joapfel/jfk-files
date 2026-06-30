@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_26599.png
+
+Convert to Markdownb. Comments by Goulart, that "social disaster" is sure if his program is not passed soon, have drawn sharp rejoinders from moderate and conservative figures and have fed rightist coup plotting.
+
+c. Strains are also growing in the military following the arrest of a young officer who refused last month to execute an order to arrest Governor Lacerda, a leading conservative spokesman and likely presidential candidate.

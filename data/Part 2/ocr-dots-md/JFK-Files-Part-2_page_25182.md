@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_25182.png
+
+Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DATES:</td></tr><tr><td>Richardson, John<br/>Weede, General<br/>CIA Station Siagon</td><td>11 Sept 1963</td><td>CATEGORIES:<br/>DIEM</td></tr></table>
+
+**OCCURRENCE:** In a September 11, 1963 CIA cable from Saigon (SAIG0797) Richardson reported that the country team attempted to agree on a six page summary cable to answer a cable from the department requesting views. The team was unable to agree even on the first three pages of the summary. Weede and Richardson dissented on the basis of the draft summary was too sweeping and too negative including definitively about the country on an inadequate basis of data. He said: "in some ways we seem to have reached the point in the official American community, where if you think we can win with the present government, you are simply not running in the right direction with the majority."
+
+<table><tr><td>SOURCE:</td><td>IG Report 1967 (CIA) p. 20</td><td>STAFF:</td><td>Dawson</td></tr><tr><td>FILE:</td><td></td><td>DATE:</td><td>6/27/75</td></tr></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>McCone Lodge<br/>Colby Nhu<br/>Rusk<br/>Bundy</td><td>11 Sept 1963</td><td>DIEM</td></tr></tbody></table>
+
+**OCCURRENCE:** In a September 11, 1963 meeting of the National Security Council Executive Committee meeting on Vietnam, the record taken by Colby (with McCone also being present for the CIA) the following appears: "Rusk said he believed that we were not likely to achieve an independent Vietnam unless we could eliminate Nhu. At the same time he was not willing to say that Diem should go, he saw no alternative. Rusk commented that we should work with Lodge on Diem to take over the real leadership and become the real President. McCone suggested also the desirability of negotiating with Diem. Bundy read off a CIA suggestion for a process of negotiating with Nhu.
+
+<table><tr><td>SOURCE:</td><td>IG Report 1967 (CIA), p.</td><td>STAFF:</td><td></td></tr><tr><td>FILE:</td><td></td><td>DATE:</td><td>Dawson</td></tr></table>

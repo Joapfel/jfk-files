@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_30809.png
+
+Convert to MarkdownSECRET
+
+11/10/84
+
+Classified message
+
+Date: 3 May 58
+To: Director
+From: [16-4 Paris]
+[Redesign]
+
+1. Subj reports fes received four-month tourist Soviet via and plans depart with reft two users. Lipor arrival Moscow will explore job possibilities. Plans take boat via Riga.
+
+2. Subj. fes agreed "Embassy" briefing prior departure. ExpRESSED writing press do what could during time Moscow matter not pursued since subject not yet cleared.
+
+3. Subj. has sor friends whom will contact upon arrival, all from ir-rectal and artistic circles. Believe after careful briefing Subj. could act as spotter and might contact appropriate sons & interest Kuban. Also letter railing.
+
+SECRET
+
+1/MC

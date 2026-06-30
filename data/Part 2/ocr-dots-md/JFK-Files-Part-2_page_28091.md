@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_28091.png
+
+Convert to MarkdownMay 3, 1977
+
+Mr. Al Lewis
+Acting Staff Director
+Select Committee on Assassinations
+Washington, D. C. 20515
+
+Dear Mr. Lewis:
+
+I regret to inform you that May 15th, 1977, will
+have to be my termination day as an employee on your
+committee.
+
+I have conveyed my situation and reasons behind
+my decision to Joan Thornell but would be glad to talk
+with you if you would like.
+
+I wish you the greatest of luck both for this
+committee and all your own personal endeavors.
+
+N\i\J 88326
+Docld:32243269:g4

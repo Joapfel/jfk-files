@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_26101.png
+
+Convert to Markdownstage. I remember General [Lyman L.]
+
+Lemnitzer was sitting in the meeting
+
+He was chairman of the JCS (Joint Chiefs of Staff) at the time, and he backed up my urging them to get some military planning in on that.
+
+After the meeting, we discussed among our people of that, and then the JCS set up a special section to plan along with the Central-Intelligence Agency on that. And who the hell headed that?
+
+O'BRIEN: This is yet in the Eisenhower administration.
+
+LANSDALE: This is all back in 1960. This was still in the early planning stages. This was before training or anything like that was put forward.
+
+When the JCS got into the act, I asked to be disassociated with the project. I was rather critical of the concept, and it wasn't just too clumsy and overt, and a poor-planned feeling (don't they? throughout government)
+
+O'BRIEN: A lot of people have knowledge of this, by the end of the Eisenhower administration?
+
+LANSDALE: I don't know how widespread it was. There were key executives that were knowledgeable, there was a small group in the JCS that was

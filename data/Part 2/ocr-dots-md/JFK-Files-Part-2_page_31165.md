@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_31165.png
+
+Convert to MarkdownSECRET
+
+0002198
+
+Rosselli, bencena, or "Traffickers" appear as "copy" as he would lead one to believe.
+
+It is also apparent that Shinny was a source for Jilly's column of Jerry, of which he later told the passage of the poem at the Fornanblad as March 13, 1967, and entered the airport that night. Castro became ill a few days later.
+
+the real problem put Shinny stayed at the c.f.A. for a few more days because Orta could not, attempt the composition, a fact apparently unknown to Shinny before his "leak" to Andlem and his Senate Risenny.
+
+Comment
+
+One additional fact concerning Orta's inability to comply with the mission this on with the film this of this report. Orta last his position in Castro's office on 26 January 1961, while Jerry went to the operation in order to meet him. It would seem though, that the generator did ship that Orta had already lost his accure to Castro. IFF 1967--Report p.275

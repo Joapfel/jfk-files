@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_26411.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+<table><tr><td>SECRET<br/>(When Filled In)</td></tr></table>
+
+<table><thead><tr><th>COUNTRY</th><th></th><th>BELK</th><th>REPORT NO.</th><th>TDCS-3/566,658</th></tr></thead><tbody><tr><td>SUBJECT</td><td>COMMENTS OF YUGOSLAV AND BLOC DIPLOMATS ON THE PROBABLE EFFECT OF KENNEDY ASSAISTANMENT ON SINATION ON EAST-WEST RELATIONS</td><td>BRUBECK<br/>GASSE<br/>SYNMAN</td><td>DATE DISTR.</td><td>6 DECEMBER 1963</td></tr><tr><td>DATE OF INFO.</td><td>25-29 NOVEMBER 1963</td><td>DUNCAN PRECEDENCE</td><td>Routine References</td><td>JW74578</td></tr><tr><td>PLACE & DATE ACQ.</td><td>GREECE, ATHENS (28 NOVEMBER, 2 DECEMBER 1963)</td><td>ECKEL<br/>FORRESTAL<br/>JOHNSON</td><td></td><td>Virginia</td></tr><tr><td>APPRaisal</td><td>2 (THAT STATEMENTS ARE ACCURATELY REPORTED)</td><td>FIELD REPORT NO.</td><td>EKA 4230</td><td></td></tr></tbody></table>
+
+<table><tr><td colspan="14">THIS IS UNEVALUATED INFORMATION. SOURCE GRADING IS DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.</td></tr><tr><td>SOURCE</td><td>A GREEK POLITICAL OBSERVER (B) WITH CONTACTS AMONG BLOC DIPLOMATS IN ATHENS, FROM THE DIPLOMATS MENTIONED BELOW. SMITH, WM. Y.</td></tr></table>
+
+FOLLOWING ARE EXAMPLES OF *(PORTION GARBLE-D-BEING SERVICED)* BEING TAKEN BY SOVBLOC AND YUGOSLAV DIPLOMATS IN GREEK CIRCLES:
+
+1. ON 25 NOVEMBER 63, YUGOSLAV AMBASSADOR TO GREECE PEKO DAPCEVIC EXPRESSED HOPE THAT ASSASSINATION OF KENNEDY WOULD NOT CHANGE THE INTERNATIONAL ATMOSPHERE, ADDING THAT HE IS CERTAIN SOVIET UNION IS WELL DISPOSED TO CONTINUE FRIENDLY CONTACTS WITH WEST. DAPCEVIC SAID THERE HAS BEEN "A GREAT PSYCHOLOGICAL CHANGE" ON PART OF SOVIET PEOPLE IN PAST FEW YEARS FROM EARLIER ATTITUDE THAT ALL AMERICANS AND PARTICULARLY AMERICAN GOVERNMENT ARE WAR MONGERS TO CURRENT THINKING THAT AMERICANS, LIKE SOVIETS,
+
+<table><tr><td>STATE/INR</td><td>DIA</td><td>ARMY/ACSI</td><td>NAVY</td><td>AIR</td><td>JCS</td><td>SECOEF</td><td>NSA</td><td>NIC</td><td>AID</td><td>USIA</td><td>OCI</td><td>ONE</td><td>OCR</td><td>ORR</td><td>DO</td><td>EXL</td></tr><tr><td>STATE/DIR</td><td colspan="18"></td></tr></table>
+
+<table><tr><td>TELEGRAM</td><td>INFORMATION REPORT</td><td>TELEGRAM</td></tr></table>
+
+FORM 10-62 1K OBSOLETE PREVIOUS EDITIONS. DEC - 6 1969
+
+(15-)

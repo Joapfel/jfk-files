@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_29381.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+The technician discussed this problem with the case officer for the project, Robert Shaw.31/ Mr. Shaw asked the technician to add additional photographic coverage to the basehouse so as to cover the Consulate door.32/ On 26 September the technician tested equipment for use in the basehouse.33/ The dispatch goes on to say:
+
+On the morning of 27 September, PARMUTH installed the VLS-2 Trigger Device at the LIERODE basehouse and used the 500 mm lens issued with this system, one 400 mm Telyt, one reflex housing to be used with the Telyt adapted to fit the Robot Star camera, one Robot Star Camera, one solenoid release for mounting and triggering the Robot Star camera, one Kodak K-100 adapted for single or burst type exposure, one solenoid release to be used with the K-100... one 152 mm f/4 Cine Ektar Lens, and two additional tripods.34/
+
+The photography agent was instructed to test each camera for four days. The report says that the results of these test days will be forwarded to the Technical Services Division at Headquarters as soon as they become available.35/
+
+On 7 November 1963 the Mexico City Station filed a report on the functioning of the pulse camera.36/ This dispatch is referenced to
+
+Classification: ___________________________
+
+200058-1
+
+UL
+ULS
+Classified by derivation:
+_______
+134
+
+NW 48327 DocId:32263889 Page 29

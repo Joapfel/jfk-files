@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_30644.png
+
+Convert to Markdown50-8-10
+Soviet Official Representation in Mexico.
+
+100-5-1
+Soviet Intelligence Services
+in the USA.

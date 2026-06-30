@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_26085.png
+
+Convert to Markdown-115-
+
+minister and some of the others, and invited me to look at their defense system in Israel. I was quite enthusiastic about going and had everything arranged and was to leave on a Saturday, when about on a Wednesday or Thursday, I was asked to go to Vietnam with the other mission and stuff, and unfortunately, had to cancel out everything and never got into see what I wanted to see there.
+
+O'BRIEN: Well, you end up working on border --actually, sealing the border, then, don't you? That's on the Taylor-Rostow thing?
+
+LANSDALE: Yes. Yes.
+
+O'BRIEN: What about that preoccupation? Where does that idea come from? Is that Rostow's?
+
+LANSDALE: Well, Taylor was the one that charged me with it. Taylor said, "Well, if you folks, this is a flight which started yesterday each of you write down some of the things you think we should look into and what you might like to look into." So I gave him a list of about twenty things, I'd like to look into, none of them being this, of course.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_30632.png
+
+Convert to Markdown0002459
+
+SECRE
+
+intelligence value + many be disseminated. might be photos of individuals graphics file not in DDO biographies registry in DDI OCR - Office of Central Reference System PART OF POL - compartmentation referred to cable traffic opened buy one of lap officers in DDO.
+
+cryptography can't be assigned to a ZDI.
+
+If got into an intelligence handling a defector is then that is automatic criteria for opening A report of fact of defection alone would be enough
+
+5-47A form /1896 form.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_25766.png
+
+Convert to Markdown- 3 -
+
+These recent developments have provided the upward political and psychological thrust Castro's regime badly needed. He now has a firmer base for his repeated claims that Cuba has survived the full brunt of a major United States effort-to destroy the Cuban revolution, claims likely to impress many Latin Americans as well as Cubans. In addition, Castro now has the possibility of producing some tangible evidence that his regime can restore forward momentum in the economy. Consequently, the general position of the Castro regime is much improved over that of three or four months ago.
+
+## II - Current U. S. Policy and Prospects
+
+The ultimate U.S. objective is the replacement of the present government in Cuba by one fully compatible with the goals of the United States.
+
+To attain this objective, we are trying, by exerting maximum pressure through all means short of the use of military force, to create a degree of disorganization, uncertainty and discontent in Cuba which will (a) predispose elements in the military and other power centers of the regime to bring about the overthrow of the Castro/Communist group and the elimination of the Soviet presence in Cuba; (b) weaken the base for subversion in the hemisphere; and (c) assist in convincing the Soviets that they are backing a losing and expensive horse.
+
+In order to create the optimum situation just described, we have been carrying out a program of integrated, mutually reinforcing and mutually dependent courses of action. These comprise:
+
+### A. The economic, political and psychological isolation of Cuba from the free world
+
+1. Denial of free-world markets and sources of supply to Cuba: We have undertaken a variety of overt and covert activities designed to reduce free-world trade with Cuba and, especially, to deny Cuba access to commodities critical to its
+
+SECRET-SENSITIVE
+
+Copy
+
+Lyndon B. Johnson Library
+
+HW 50955 DocId:32423630 Page 499

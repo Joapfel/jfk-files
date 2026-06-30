@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_25343.png
+
+Convert to MarkdownLiebengood Rough Notes on U. S. v. Veciana, et al, con't.
+
+In Veciana's appellate brief he references transfers of drugs through the government's "APO System". He indicates that the first transaction he was involved in took place in April, 1972.
+
+Also involved is someone known as "the midget".

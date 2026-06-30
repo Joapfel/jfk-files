@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_29796.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+### CONTINUING INVESTIGATIONS REPORTS
+
+XXXXXXXX OCR #6-32
+XXXXXX
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+| DATE | OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES |
+|---|---|
+|  | driveway of the residence was a late model Monte Carlo, Michigan reg. MDH 710 and a Continental D.C. dealer tag D1546. |
+
+It was larned from Mrs. David P. Knohl (maiden name Camille NMN Saviano, W/F 12-24-39) that Jay Knohl was her brother-in-law; and he rarely lived there. Her husband, David P. Knohl, W/M, 07-10-41, was not at home at the time of the interview; however a visitor was present and he is as follows:
+
+Louis Anthony Piccerelli
+W/M, 05-04-39, approx. 6'2", 200 lbs.
+32402 Barclay Square
+Warren, Michigan 48093
+(313) 979-4777
+
+Mrs. Knohl stated that she last saw Gino CARRAFA on 07-26-76 at her residence for dinner. Piccerelli stated that he too was present at the dinner. Mrs. Knohl stated that the family went to Ocean City, Md. on August 1 and on August 2 one Guy Sullivan, (301) 768-4331 notified her that CARRAFA was missing. Mrs. Knohl also stated that she talked to Jay Knohl on 08-05-76 and Jay stated that he gave CARRAGA some money when he saw him in New York.
+
+Writer had a discussion with Piccerelli and it was learned that up until a few weeks ago he was a bouncer at Fran O'Brians Anthony House. Piccerelli stated that he knew Richie McCaleb, McGowan, Joe Nesline, Becky Sutton; and without any prompting Charlie Tourine. Piccerelli stated that the aforementioned were only gamblers and McGowan was too dumb to be a "hit man" as reported in a media article - The Washingtonian.
+
+When I inquired of Piccerelli what he was presently doing, he stated that in two weeks he and two partners were going to open a bar in Detroit called "The Three of Us". When I remarked that Joseph Zerelli might be around, Piccerelli stated that Joe was too old and his brothers, Tony (Anthony), and another name, were in jail. Writer commented that some of Zerelli's family appeared to be moving to New York and he replied, yeah, they all married into the New York families. He further stated that the police were trying to pin Hoffa's murder on Tony Jackalone.
+
+Mrs. Knohl also stated that her mother was questioned years
+
+PAGE# _________

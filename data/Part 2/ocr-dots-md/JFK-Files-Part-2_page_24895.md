@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_24895.png
+
+Convert to MarkdownTOP SECRET
+
+attention of the DCI, he directed that the United States
+would have no part in such activity, and this information
+was relayed to the coup leaders.
+
+b. Schneider
+
+We find that neither the President nor any other
+official in the United States Government authorized the assas-
+sination of General Rene Schneider. The CIA, and perhaps the
+White House, did know that coup leaders contemplated kidnap-
+ping, which, as it turned out, resulted in Schneider's death.
+but was the possibility of death n aillou
+c. Trujillo
+
+The Presidents and other senior officials in
+the Eisenhower and Kennedy Administrations sought the overthrow
+of Trujillo and approved general actions to obtain that end.
+
+The DCI and the Assistant Secretary of State for Inter-
+American Affairs knew that the Dominican dissidents intended
+to assassinate Trujillo, but the date at which the dissidents'
+intent to assassinate was communicated to higher levels of
+the government responsible for formulating policy is less
+clear. The record does establish that in the Spring of 1961
+senior American officials, including the President, learned
+that the dissidents intended to assassinate Trujillo and that
+they desired machine guns for that purpose. The Special Group
+disapproved passage of those weapons and the President himself,
+in a telegram, reaffirmed that decision, indicating that the
+
+HW 50955 DocId:32423539 Page 525

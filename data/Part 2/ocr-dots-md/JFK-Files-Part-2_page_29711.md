@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29711.png
+
+Convert to MarkdownClassification TOP SECRET
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 236 -
+
+photographic surveillance base targeted
+against the Cuban Consulate and Embassy in
+Mexico City during 1963;
+
+c) an essay entitled "Imperialism's Political,
+Economic, and Military Organizations and
+Agencies of Crime, such as the CIA" and
+
+d) an article entitled "Finally We Have Eliminated That Pinto in the White House, said Bob, When He Heard About JFK's Assassination"
+
+The final work session ended at 11:00 a.m.
+
+At 1:00 p.m., the Cuban delegation escorted the Com-
+mittee's representatives to the airport. At the airport
+they were bid farewell by the Minister of Justice, Armando
+Torres Santrayll, Senen Buergo, Juanita Vera and Nellie
+Ruiz de Zarade.
+
+At 3:30 p.m., the HSCA representatives and Washington
+Consul, Ricardo Escartin, departed Cuba.
+
+Classification TOP SECRET
+
+Classified by derivation: ____
+
+2001000
+
+HW 48327 DocId:32263889 Page 359

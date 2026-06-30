@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_31126.png
+
+Convert to MarkdownClassification: SECRET
+
+(This form is to be used for material extracted from CIA—controlled documents.)
+
+1967-68 - Concentration worker
+1968-72 Student German Minsky State Pedagogical Inst.-of-foreign lang.
+1972-74 Radio worker at Byelorussian State Univ. Faculty Game Tim & Student EVG. Gagarin Historical
+1974-76 Propaganda at Photo Center
+
+SU and a no. of prisoners who expressed their KGB Berliners, Minsk,
+
+* SU INFO Soviet interpreters traveling abroad + KGB officers in Minsk
+
+# Classification: SECRET
+
+11112314
+
+Classified by derivation: ________

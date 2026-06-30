@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_31520.png
+
+Convert to MarkdownSubject was observed participating in a picket line of the VDC engaged in picketing General MAXWELL TAYLOR at the Fairmont Hotel, San Francisco, on August 25, 1965.
+
+Observation by
+Special Agents of
+FBI on 8/25/65
+
+Subject was in attendance at a rally sponsored by the VDC protesting U. S. intervention in Vietnam which was held at Civic Center Plaza, San Francisco, on October 17, 1965.
+
+Observation by
+Special Agent of
+FBI on 10/17/65
+
+He was also observed present at another demonstration of the VDC held in protest of U. S. policy in Vietnam at DeFremery Park, Oakland, California, on November 20, 1965.
+
+Observation by
+Special Agent of
+FBI on 11/20/65
+
+Subject acted as chairman of the Haight-Ashbury Vietnam Committee meeting which was held at 22 Parnassus Street, San Francisco, on December 1, 1965. Subject did most of the talking at this meeting and explained how the war in Vietnam started. He claimed that the U. S. had offered the French the atomic bomb to use against the Vietnamese during the French-Vietnamese War. FROMER stressed that if the war had not ended in six months it would lead to World War III and involvement of China and the U. S. He said that it is up to individuals to bring pressure on the government to stop the war in Vietnam.
+
+SP T-1, 12/2/65
+
+The Haight-Ashbury Vietnam Committee has headquarters at Number 3, Rivoli Street, San Francisco, and is self described as a neighborhood organization with the purpose of opposing U. S. involvement in Vietnam.

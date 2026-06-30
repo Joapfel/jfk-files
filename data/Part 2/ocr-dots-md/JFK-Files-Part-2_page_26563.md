@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_26563.png
+
+Convert to Markdown22 OCTOBER 1963 ICBM FIRING FROM PLESETSK
+
+<table><tr><td>TOP SECRET DINAR<br/>631027</td></tr></table>
+
+52809 8-83

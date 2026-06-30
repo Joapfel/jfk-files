@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_29627.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controllec documents.)
+
+- 212 -
+
+returned from living in France. <u>850</u>/ He was unable to fix the date of the party but felt it was probably early in September because of a heavy rain which occurred as they were leaving the party about 2:00 a.m. <u>851</u>/<br>
+Lavagnini said that 10 Americans were present at this party. <u>852</u>/ He was familiar with the physical description of Lee Harvey Oswald because of publicity following the assassination of President Kennedy, but otherwise had no knowledge of him and had never seen him except for news photographs following the assassination. <u>853</u>/<br>
+Lavagnini was the only person interviewed by the Legal Attache representatives who attended parties at the Duran house in the September-October time frame.<br>
+There is no indication in the FBI document that this information was given to the Central Intelligence Agency's Mexico City Station. <u>854</u>/<br><br>
+
+5. Charles Thomas' first meeting with Elena Garro where Lee Harvey (Oswald is discussed)<br><br>
+On 12/10/65, Charles Thomas, a political officer at the American Embassy, wrote a memorandum about a conversation with Elena Garro de Paz. <u>855</u>/ The meeting with Elena had been about other matters. <u>856</u>/ but she men-
+
+2001035
+
+Classified by derivation:
+
+484

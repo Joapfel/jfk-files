@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_25309.png
+
+Convert to Markdown7.
+
+The Smaldone brothers, who were also known as "Checkers and Flip Flop," were the Mafia leaders in charge of the syndicate's vending-machine market which stretched from the Rockies all the way to Chicago. Police records show that at one time, the Smaldones virtually controlled the entire Pueblo area of Colorado.
+
+The Smaldone brothers were notorious for the brutal brand of violence they practiced in their operations. Brading (Braden) became involved in many transactions with the Smaldones and became a close personal friend. Several years later, after Brading finally went to jail for the embezzlement of the Texas widow, the Smaldone brothers regularly wrote to him in prison, seeking his advice on various financial matters.
+
+(BRADING AND CLARK AND BAUMAN)
+
+Brading and his friend Pereira later moved to Beverly Hills in California. Shortly thereafter, Brading inevitably came under investigation by the Los Angeles Police Department Intelligence Division's Mafia specialists.
+
+In particular, the LAPD interest in Brading was focused on his close association in Beverly Hills with two "oil speculators" from Miami, Arthur Clark and Roger Bauman. Clark and Bauman were notorious Mafia figures with long police records.
+
+Brading's friend Clark had been one of the top leaders of the famous Purple Gang of the Mafia, which had operated out of Detroit and Youngstown. The Los Angeles police had placed Clark and Bauman under tight surveillance and had compiled extensive information on their friendship with Brading.
+
+In 1956, the Chief of Intelligence of the LAPD, Captain James Hamilton, sent a letter to the Crime Commission of Greater Miami seeking information about Clark, Bauman, and Brading.
+
+Captain Hamilton, who was known as one of the foremost experts on the Mafia in the nation, asked the Miami Commission (which was conducting extensive investigations of the Mafia) to inform him as to the involvement of several associates of Clark and Bauman.
+
+Among those named was Eugene Brading.

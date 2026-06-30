@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_29484.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+The 10/1 10:45 call is clearly relevant because the caller identifies himself as "Lee Oswald" The 10/1 10:31 conversation is probably relevant due to the similarity with the 10/1 10:45 call and the marginal notations about the quality of the Russian spoken by the caller, The 9/28 11:51 call is clearly relevant, again due to the marginal notations and the involvement of Silvia Duran. Duran's calls on 9/27 clearly related to Oswald due to the substantive information discussed in those calls.
+
+In summary, the above listed calls contain the substance
+of the information available to the CIA MCS prior to the
+assassination from the Soviet electronic intercept operation.
+The first three calls on 9/7/63 and the one on 10/3/63,
+if they were indeed Oswald, add little of substance to the
+information that was available from the other calls.
+
+3. When were the Intercepted Conversations Linked to Lee Harvey Oswald.
+
+HSCA staff researchers reviewed the transcripts from
+the liaison wiretaps on the Soviet Embassy. The chronological
+production from this operation is on microfilm at CIA
+Headquarters.480/ In addition to the chronological file,
+numerous copies of the transcripts that pertain to Oswald were
+found throughout the CIA's files on Lee Harvey Oswald.
+
+It is obvious that the Mexico City Station linked the
+
+**Classification:** _________________________
+*Classified by derivation:* _________________
+
+236
+
+N° 48327 DocId:32263889 Page 132

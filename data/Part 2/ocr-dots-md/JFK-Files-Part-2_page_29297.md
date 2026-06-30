@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_29297.png
+
+Convert to Markdown* Mr. William Abbott, Civilian, Assistant to the Head, Counter-intelligence Branch, during the entire period of 1959 through 1963;
+
+* Mr. Prosser W. Palmer, Civilian, assigned to the Programs Section (Op-921E2) during the entire period of 1959 through 1963; and
+
+* Mr. Donald R. Paschal, Civilian, assigned to Programs Section (Op-921E2) in 1963.
+
+The three junior naval officers have been more fully identified as follows:
+
+* LTJG George Marsh Fredrickson, USN
+  Military Service Number (MSN): 559112
+  Social Security Account Number (SSAN): 503-28-3599
+  Year of Birth (YOB): 1934
+  Last Known Address (1966): 91 Reed Street
+  Lexington, Mass.
+
+* LTJG Peter Charles LeSourd, USNR
+  MSN: 638384
+  SSAN: 538-34-2364
+  YOB: 1938
+  Last Known Address (1971): 1222 East Crockett
+  Seattle, Washington
+
+* ENS John Anthony Hazelton, USNR
+  MSN: 662076
+  DOB: 15 December 1938
+  Last Known Address (1972): 6333 Shoreham Drive
+  Madison, Wisconsin
+
+The addresses of the other officers are as follows:
+
+* Vice Admiral Rufus L. Taylor, USN (Retired)
+  Current Address: 90 N. Lakeview Drive
+  Whispering Pines, North Carolina
+
+* Captain Robert P. Jackson, Jr., USNR (Retired)
+  Current Address: Street Address Unknown
+  Metairie, Louisiana
+
+* Captain Jack O. Johnson, USN (Retired)
+  Current Address: 195 East Stanford Street
+  Bartow, Florida
+
+* Commander William H. Clark, USNR (Retired)
+  Current Address: 740th Street, Unit 209
+  Ocean City, Maryland

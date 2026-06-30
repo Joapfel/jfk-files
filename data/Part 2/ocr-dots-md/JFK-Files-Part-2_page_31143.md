@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_31143.png
+
+Convert to MarkdownSECRET
+
+5-4-78
+
+no contact with A people's consular section
+mil. intel. Paul Adams Nav.
+Ted Hoffman Arm
+Munson
+Mundson Nav.
+Dulacki Mar.
+
+would have been contacted
+
+Korengold - no contacts
+Johnson - asked for interview after his PNG
+Moody - no contacts
+Goldberg - didn't know
+
+Davison - doesn't know if agency not involved in Pent, to his knowledge
+
+dip. personnel could not be used for intel. without prior approval from State.
+
+Provocations
+Harmstone
+
+11112589
+
+Naval aviator
+Atsugi - 53-55
+
+SECRET
+
+11112589

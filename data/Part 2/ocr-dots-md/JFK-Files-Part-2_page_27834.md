@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_27834.png
+
+Convert to Markdown# MEMORANDUM
+
+JULY 7, 1977
+
+TO: Tom Howarth
+FROM: Donovan Gay
+RE: New Research Employees
+
+Please be advised that on Monday, July 11, 1977, four researchers will be reporting to duty. The four new employees for the Research/Document Unit are: Thomas Mark Flanagan, Jr.; Edwin Juan Lopez; Dan L. Hardway, and Leslie Wizelman.
+
+All four will be joining our staff as Researchers, and are to be compensated at the rate of $12,000 per annum.
+
+The above has been authorized per the instructions of Bob Blakey.
+
+Thank you.

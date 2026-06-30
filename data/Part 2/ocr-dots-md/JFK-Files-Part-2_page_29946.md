@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_29946.png
+
+Convert to MarkdownDATE      02/04/79      U. S. HOUSE OF REPRESENTATIVES
+REPORT ID D01.00.00   CERTIFICATION REPORT
+ACCOUNTING PERIOD 01/01/79 TO 01/31/79
+
+OFFICE 83000 SELECT COMMITTEE ON ASSASSINATIONS
+TYPE ALLOWANCE LUMP SUM SALARY LIMITS: MIN 1,200.00 MAX 47,500.00
+
+| SOC SEC NUM | EMPLOYEE NAME                     | ANNUAL SALARY | GROSS PAY EARNED | PERIOD FROM | PERIOD TO | REMARKS |
+|------------|-----------------------------------|---------------|-----------------|--------------|-------------|---------|
+| 109-20-5111 | MAXWELL.ALBERT                  | 26.300.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | STAFF INVESTIGATOR               |               |                |              |             |         |
+| 301-46-2531 | MCHARGH.KENNETH S                | 27.000.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | STAFF ATTORNEY                   |               |                |              |             |         |
+| 214-42-6489 | MILLER.DAWNE C                   | 23.000.00     | 1,916.67✓      | 01-01-79 01-31-79 | APPOINTMENT | 01-03-79 |
+|            | ADMINISTRATIVE ASSISTANT          |               |                |              |             |         |
+| 132-24-7659 | MISITA.ANNE B                    | 16.100.00     | 1,341.66✓      | 01-01-79 01-31-79 | APPOINTMENT | 01-03-79 |
+|            | SECRETARY                        |               |                |              |             |         |
+| 579-24-3862 | MORIARTY.JOHN J                  | 32.100.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | STAFF INVESTIGATOR               |               |                |              |             |         |
+| 403-36-7980 | MORRISON.ROBERT C                | 22.500.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | DIRECTOR OF SECURITY             |               |                |              |             |         |
+| 129-36-3080 | OPPENBERG.GALE LYNN              | 19.000.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | RESEARCH ATTORNEY                 |               |                |              |             |         |
+| 215-66-2714 | ORR.PATRICIA M                   | 19.700.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | SENIOR RESEARCHER                |               |                |              |             |         |
+| 219-64-3205 | ORR.PHOEBE CURTIS                | 17.000.00     | 1,416.66✓      | 01-01-79 01-31-79 | APPOINTMENT | 01-03-79 |
+|            | RESEARCHER                       |               |                |              |             |         |
+| 508-22-0421 | PALMER.ELIZABETH J               | 19.300.00     | 0.00            |              | TERMINATED | 12-31-78 |
+|            | RESEARCHER/DOCUMENT CLERK        |               |                |              |             |         |
+| 211-38-9707 | PURDY.DON

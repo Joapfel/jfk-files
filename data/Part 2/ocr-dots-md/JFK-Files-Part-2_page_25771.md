@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_25771.png
+
+Convert to MarkdownSECRET-SENSITIVE
+
+- 3 -
+
+CIA's integrated covert action program consists of the following interdependent courses of action:
+
+1. **Covert collection of intelligence** to meet U.S. national security requirements and to support current and planned covert operations. It should be noted that clandestine maritime operations are an integral part of intelligence collection.
+
+2. **Propaganda actions to stimulate low-risk simple sabotage and other forms of active and passive resistance against the regime.**
+
+3. **Economic denial actions in support of government-wide overt official U.S. economic isolation measures.**
+
+4. **Exploitation and stimulation of disaffection in the Cuban armed forces and other major centers of the regime** to encourage these elements to carry out a coup against the Castro/Communist factions. CIA is identifying, contacting and attempting to establish channels of communication with these individuals.
+
+5. **General sabotage and harassment as an economic weapon** and as a stimulus to internal resistance. As an economic weapon, it is designed to supplement and support the overall economic denial program by damaging economically important installations and to add to Castro's economic problems by forcing him to divert money, manpower and resources from economic to internal security activities. As a stimulus to resistance, sabotage and physical harassment operations provide visible and dramatic evidence of the existence and capability of organized resistance against the regime. To the extent that these operations are successful, they also demonstrate to the Cuban population and elite groups the vulnerability of the regime to militant action. It is recognized that no single act of sabotage by itself can materially affect the economy or stimulate resistance, but we believe that the
+
+SECRET-SENSITIVE
+
+Copy
+
+Lyndon B. Johnson Library
+
+HW 50955 DocId:32423630 Page 504
+
+7

@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_31449.png
+
+Convert to MarkdownEXHIBIT COVER SHEET
+
+Exhibit Number: VII
+SUBJECT:
+FROKER, David Reed
+SSVC Registrant
+DFOB: 21 July 1942, Chicago, Illinois
+
+File Number: 7129-6003 564-58-8137
+Preparing Unit: 115th MI Group ( I )
+Agent Report Dated: 31 May 1967
+Description: Report, SFO FBI dated 29 March 63 re SUBJECT'S father
+
+REVIEWED BY FBNJFK TASK FORCE
+ON 10/15/91 d of
+
+✓ PUBLISHED IN FULL
+
+FISCAL IN PART
+
+TOTAL DENIAL
+
+DECLASSIFIED BY 566.8 SLP/KSL
+ON 4-19-96 (JK10)
+
+Classification
+
+ICGP-F Form 2-25
+(Rev 25 Mar 66) 288
+
+NW 88613 DocId:34528578 Page 16

@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_32300.png
+
+Convert to MarkdownSECRET
+
+- 8 -
+
+Our programs should be designed to encourage the Brigade members to melt back into the exile community and engage in constructive pursuits pending the liberation of Cuba. We should offer them some special assistance but not to the extent that they become a perpetual privileged class within the community. Presidential action on their behalf would single them out unnecessarily.

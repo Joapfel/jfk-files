@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_32405.png
+
+Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+
+- 2 -
+
+00-B-3,247,344
+
+5. In the last elections Jagan ordered some of his (Indian) Peoples Progressive Party (PPP) supporters to join the United Front Party (UFP) in order to impress the world in general and the US in particular that democracy in British Guiana was working. By virtue of the fact that the UFP membership was "growing," it was "obvious" that Jagan was not a dictator. I was told this by two Indian Guianese who were working for Jagan.
+
+6. I was in British Guiana for about 12 months on my latest trip. Since much of this time was devoted to geological surveying in the hinterland, I was accompanied by an Indian Guianese doctor. A well-educated man of the upper-middle class, he told me that arms were being smuggled into the country from Cuba. He did not go into any detail on the subject, but he did mention that his sons, who were members of the Progressive Youth Organization (PYO) frequently brought arms into their home, kept them for a while, and then disposed of them. The doctor was so much concerned -- and pessimistic -- about the situation that he emigrated from the country shortly after I departed.
+
+7. Malaria is not a factor now. Even well into the interior there is less than 1 percent incidence. But anywhere away from the coast filariasis presents a problem. At first I did not believe it when my Indian Guianese doctor said that mosquito bites incurred in the daytime were harmless but mosquito bites at night would infect with filariasis. After several months in the back country I believed him. The disease seems to affect women more than men, causing women's legs to swell. But the disease's affect on men's sexual organs was not exactly encouraging. I never did understand why, but my doctor said that to be effective in detecting the disease a blood test must be made at night (preferably between 11 p.m. and 1 a.m.), and analyzed quickly. If filariasis is treated promptly, a man's sexual prowess can be saved. We found that the disease is very common throughout the country.
+
+end-
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+CONTROLLED DISSEM
+
+NO DISSEEM ABROAD
+
+NO FOREIGN DISSEM
+
+HW 50955 DocId:32423736 Page 29

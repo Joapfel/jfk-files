@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_30265.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Klein. Without giving particular names, how many
+Americans would you say asked permission to defect in 1959?
+
+What would the number be?
+
+Mr. Nosenko. These two were known to me -- Oswald and
+Webster.
+
+Mr. Klein. From 1955 to 1960, what would be your best estimate as to how many Americans asked permission to defect to the Soviet Union?
+
+Mr. Nosenko. As far as I heard, there I think was one
+only.
+
+Mr. Klein. One other, meaning three altogether.
+
+Mr. Nosenko. One besides Oswald and Webster; what I know.
+
+Mr. Klein. Three?
+
+Mr. Nosenko. Three.
+
+Mr. Klein. Of the three, was Oswald the only one turned down because he was uninteresting?
+
+Mr. Nosenko. Right.
+
+Mr. Klein. Do you know any other defector who was ever turned down because he was uninteresting?
+
+Mr. Nosenko. No.
+
+Allow me to tell, as you have seen, and you told yourselves, how many Americans are defected. It is a very rare occasion and KGB prefers defection when they are planning, they want, these types of defectors, they like and invite those people who can
+
+TOP SECRET

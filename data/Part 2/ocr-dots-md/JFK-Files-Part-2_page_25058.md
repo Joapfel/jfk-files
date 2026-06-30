@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_25058.png
+
+Convert to Markdown# TOP SECRET
+
+of foreign policy?
+
+Mr. Dillon. The only thing is, -- I don't know just what institutional changes are really necessary, but there should be the clarification that the Special Group, or whatever name it is given for the Committee, would have to approve any action by the CIA, whether it is assassination or military action or anything else, in writing. I think that would be fine. I think it is naive to have the idea that the President has to approve anything like that. I tend to agree with Mr. Dulles that you should not get the President personally involved in details of operations that might be on the edge of what is right. I am not judging just about assassinations, but in any covert operation. The law now is that the President has to approve any covert operation. I think that the result now will be that there wouldn't be any. I think there may be times when we will need them, but not violent ones. I have in mind such things as financial help and such things as that. But I don't think the President ought personally to sign the checks.
+
+Mr. Baron. Thank you again.
+
+(Whereupon, at 5:15 p.m., the Committee was adjourned, subject to the call of the Chair.)
+
+end lynch
+
+HW 50955 DocId:32423566 Page 119
+
+# TOP SECRET

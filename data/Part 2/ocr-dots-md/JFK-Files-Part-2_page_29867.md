@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_29867.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+## CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+WAKD= 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+<table><thead><tr><th>DATE</th><th>OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES</th></tr></thead><tbody><tr><td>08-27-76</td><td>Information received from Wolf, Dade County, that Lederer and Roselli were well acquainted and Lederer is in the process of opening gambling casino's in various foreign countries. Lederer was allegedly involved in the murder of Richard Cain, an ex-cop who went bad and had mob connections.<br/><br/>Roselli's toll records reveal that he called Fred Black on July 27, 1976 - the day before he disappeared - at 1738 hours; and he talked for four minutes.<br/><br/>It was also learned that a call was made to Black from Roselli's residence on 8-1-76, and a call from Roselli's residence was made to Lederer on 07-31-76 - three days after Roselli's disappearance. Roselli's sister and brother-in-law deny making the calls.<br/><br/>It was also learned that on 08-27-76 an ex-CIA agent was called by a subject whom identified himself as Dade County Detective Robinson, and an interview was requested. This CIA agent was involved in an attempt on Castro's life. The CIA agent told the subject named Robinson that he would call him back, and the ex-agent then checked with Dade County and learned that they had no one in Washington by that name. The CIA has moved the agent and his family from their residence for safety factors.<br/><br/>Information received from Mrs. Caraffa that September's issue of Hemmings magazine notes two '32 Lincolns for sale on page 2859. The advertisement gives Jay Knohl's home telephone number - as opposed to Gino's Classic Cars as previously done - and the ad, in writing and paid for, had to be in prior to August 8, 1976. It is noted that Caraffa's body was recovered on 08-04-76, and no one knew of this until 08-05-76. Jay Knohl was arrested on 08-06-76 and remained in jail until at least 08-09-76. Thus Knohl, when placing the advertisement, knew that Caraffa would not be around to answer calls at Gino's Classical Cars, Inc.</td></tr><tr><td>08-30-76</td><td>NYPD advises that Jay G. Knohl failed to appear in court and forfeited $90,000.00 bond. Robert White still has not been found as of this date.<br/><br/>Cpl. M. Alban<br/><br/>Cpl. M. Alban<br/>PAGE#</td></tr></tbody></table>
+
+NW 88326 DocId:32266807 Page 79

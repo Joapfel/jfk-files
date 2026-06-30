@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29120.png
+
+Convert to MarkdownSCHEDULE D
+(Form 1040)
+
+U.S. Treasury Department
+Internal Revenue Service
+
+Gains and Losses From Sales or Exchanges
+of Property
+
+Attach this schedule to your income tax return, Form 1040
+
+Name as shown on page 1 of Form 1040
+
+Social Security Number
+
+322 | 12 | 7997
+
+Part I—CAPITAL ASSETS—Short-term capital gains and losses—assets held not more than 6 months
+
+a. Kind of property. Indicate security, real estate, or other (Specify)
+1
+b. Description (Examples: 100 sh. of "Z" Co., 2 story brick, etc.)
+c. How acquired. Enter letter symbol (See instr.)
+Schedule Attached
+d. Date acquired (mo., day, yr.)
+e. Date sold (mo., day, yr.)
+f. Gross sales price
+g. Depreciation allowed (or allowable) since acquisition
+h. Cost or other basis, cost of subsequent improvements (if not purchased, attach explanation) and expense of sale
+i. Gain or loss (f plus g less h)
+5,036.22
+
+2 Enter your share of net short-term gain (or loss) from partnerships and fiduciaries . . . . . . . . . .
+3 Enter unused short-term capital loss carryover from preceding taxable years (attach statement) . . . . . . . . . .
+4 Net short-term gain (or loss) from lines 1, 2, and 3 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

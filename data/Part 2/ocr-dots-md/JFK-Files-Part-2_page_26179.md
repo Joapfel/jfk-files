@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_26179.png
+
+Convert to Markdownthe government and subjects beyond anything
+like land reform. And I suspect that
+
+Ladejinsky had started getting very political
+in his talk, as a result of this, with Diem,
+and that Diem had resented it. But beyond
+this, there was a very deep affection between
+the two. When I was there in '59 or '60,
+
+Ladejinsky had wanted to go someplace, and
+I forget where it was. . . . I know one
+of the places was Indonesia, but there was
+another country he wanted to go to, and Diem
+hadn't wanted him to go, and he suggested
+that he attend a conference--I think in
+
+Latin America finally, they had agreed
+between the two of them, and Ladejinsky had
+gone on to do these other things that taken
+sort of a sabbatical leave to do that. But
+this was a very personal thing between two
+men, and it was two friends rather than a
+president and his consultant working. I
+know Ladejinsky is very sentimental about

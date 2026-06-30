@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_27205.png
+
+Convert to MarkdownCONFIDENTIAL
+
+FF. Project MOCKINGBIRD
+(8 documents) (SECRET)
+
+GG. Project MUDHEN (3 documents) (SECRET)
+
+HH. Project CELOTEX I
+(6 documents) (SECRET)
+
+II. Surveillance Activity (Philip Agee and
+Project DISCREET) (SECRET)
+
+JJ. Relationship with Police (4 documents)
+(CONFIDENTIAL)
+
+KK. Surveillance, Wiretap, and Entry
+(Some SECRET)
+
+LL. Relations with Local Police (Some SECRET)
+
+MM. Draft Legislation (Secrecy Act)
+
+NN. Review of Tax Returns (Some SECRET)
+
+OO. Liaison with Local Police (Some SECRET)
+
+PP. Domestic Surveillance
+Master Summary - Update - 12 May 1975 (SECRET)
+(Tabs A,B, and C missing)
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

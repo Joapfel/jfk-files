@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_30566.png
+
+Convert to MarkdownSECRET HUNT
+
+CCS memo to DDP, apperorval noted + Signed by O Karamessines
+10/14/70
+
+evidently the plan
+was that Hunt would
+take over management
+of Mullen & Co from
+Mullen.
+
+8/30/71 DDP requested
+summary Hunt bio
+after joining WH staff.
+---
+
+Hunts novels were
+sponsored by the CIS.
+CCS has asked ID of
+David St. John - from OS.
+---
+
+Inasmuch as Subject
+hard written under the
+guidance of CI Staff,
+Sayle advised against
+identifying him by
+name.... He suggested
+
+5/10/72
+M F.R.
+Holograph.
+
+SECRET
+
+SECREI

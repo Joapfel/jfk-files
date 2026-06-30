@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_32315.png
+
+Convert to MarkdownSECRET
+
+17 DEC 1963
+
+MEMORANDUM FOR MR. JOHN H. CRIMMINS
+Coordinator of Cuban Affairs
+Department of State
+
+SUBJECT: Interdepartmental Coordinating Committee of Cuban Affairs: Report on the Status of Implementation of Actions Designed to Counter Subversion
+
+Enclosed herewith is the Report on the Status of Implementation of Actions Designed to Counter Subversion for the period 1 November- 1 December 1963. The format of this report adheres to the topic outline disseminated at the meeting of the Subcommittee on Subversion, September 13, 1963.
+
+It is requested that this office be provided with 12 copies of the final report. It is assumed that each of the representatives will have an opportunity to consider the final report before it is forwarded.
+
+Enclosure
+As Stated
+
+Mr. Califano
+Lt Col Haig
+ASG
+
+FILE
+
+SECRET
+
+DOD DER 5800.10
+
+OSA, ASG Control No. 2975E

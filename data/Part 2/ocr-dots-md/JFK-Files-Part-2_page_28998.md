@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_28998.png
+
+Convert to Markdown# PART I — Renter's Credit — All questions must be answered
+
+35 Did you, on March 1, 1975, live in rented property which was your principal residence? [ ] Yes [x] No If no, you may not claim this credit
+36 Was the property you rented exempt from property tax? [ ] Yes [ ] No If yes, you may not claim this credit
+37 Did you live with any other person who claimed you as a dependent for income tax purposes? [ ] Yes [ ] No If yes, you may not claim this credit
+38 Did you or your spouse claim the homeowners' property tax exemption or receive public assistance? [ ] Yes [ ] No If yes, see page 6 of instructions
+
+# PART II - Other Income
+
+<table><tr><td>39 Business income (or loss) (attach Schedule C(540))</td><td style="text-align: right;">●</td><td style="text-align: right;">39</td></tr><tr><td>40 Net gain (or loss) from sale or exchange of capital assets (attach Schedule D(540))</td><td style="text-align: right;">●</td><td style="text-align: right;">40</td></tr><tr><td>41 Net gain (or loss) from supplemental schedule of gains and losses (attach Schedule D-1(540))</td><td style="text-align: right;">●</td><td style="text-align: right;">41</td></tr><tr><td>42 Pensions and annuities</td><td style="text-align: right;">●</td><td style="text-align: right;">42</td></tr><tr><td>43 Rents and royalties</td><td style="text-align: right;">●</td><td style="text-align: right;">43</td></tr><tr><td>44 Partnerships</td><td style="text-align: right;">●</td><td style="text-align: right;">44</td></tr><tr><td>45 Estates and trusts</td><td style="text-align: right;">●</td><td style="text-align: right;">45</td></tr><tr><td>46 Farm income (or loss) (attach Schedule F(540))</td><td style="text-align: right;">●</td><td style="text-align: right;">46</td></tr><tr><td>47 Miscellaneous income<br>(a) Fully taxable pensions and annuities (not reported on Schedule E(540))</td><td style="text-align: center;"></td><td rowspan="3" style="vertical-align: middle; text-align: center;">47a<br>47b<br>47c<br><span style="font-size: smaller; float: left;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span><span style="font-size: smaller; float: right;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span><span style="font-size: smaller; float: right;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span><span style="border: 1px dotted #000; padding: 1px 3px; vertical-align: middle;">&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</span></td></tr><tr><td>(b) Alimony</td><td style="text-align: center;"></td></tr><tr><td>(c) Other (state nature and source)<br>Enter total of lines 47(a), 47(b), and 47(c)</td><td style="text-align: center;"></td></tr><tr><td>48 Total (add lines 39 thru 47). Enter here and on line 13</td><td style="text-align: right;">●</td><td style="text-align: right;">48</td></tr></table>
+
+# PART III — Adjustments to Income
+
+<table><tr><td>49 "Sick pay," if included in line 10 (see instructions — attach statement)</td><td style="text-align: right;">●</td><td style="text-align: right;">49</td></tr><tr><td>50 Moving expenses (see instructions — attach statement)</td><td style="text-align: right;">●</td><td style="text

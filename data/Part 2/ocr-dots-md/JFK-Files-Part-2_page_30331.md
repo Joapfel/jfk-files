@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_30331.png
+
+Convert to MarkdownTOP SECRET
+
+his decision, decision of Mr. Angleton, decision of Mr.
+Murphy, and when they are coming to Director, and I know, from
+my life, they can report in the way how they will report it, and
+the Director will accept because they are responsible people,
+they are sitting in this place. He is not going into details,
+he is not going and studying, he is not going himself visiting.
+
+The Chairman. The time of the gentleman has expired.
+
+Mr. Sawyer?
+
+Mr. Sawyer. First, have you received any compensation
+for the period during which you were held in jail?
+
+Mr. Nosenko. I received in several years later, I put
+the question, I want to be paid for every year which I was
+unlawfully arrest, the amount of money which we have agreed,
+with taken taxes and whatever American citizens are paying.
+
+Mr. Sawyer. Did you get that?
+
+Mr. Nosenko. Yes, and on this sum of money I bought
+the house.
+
+Mr. Sawyer. I see.
+
+I will tell you what bothers me about your testimony, very
+frankly. You stated that they would be very interested in a
+member of the American intelligence community that they could
+even compel to defect. Here you had a willing defector, a guy
+who said that undoubtedly that he didn't like America, and
+that he did like Russia, and he wants to defect, and nobody
+even interrogates him, according to you, as to what exposure or
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 73
+
+TOP SECRET

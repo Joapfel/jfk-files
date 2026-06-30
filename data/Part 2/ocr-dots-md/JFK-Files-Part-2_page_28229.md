@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_28229.png
+
+Convert to MarkdownOct. 30, 1978
+
+Dear Tom:
+
+I recieved your letter of Oct. 16, 1978 and agree with
+your last figures which indicate my base pay as $1,273.00
+per month. The W-2 form includes overtime and uniform al-
+lowances that are not subject to Committee Consideration.
+This still leaves me paid until Feb. 15, 1979. This is not
+accurate due to insufficient data given to you.
+
+The following will explain my present position.
+
+The City of New Orleans allows employees to accrue annual leave at the rate of 21 days per year (1 3/4 per month). This annual leave can be accumulated for a maximim of 90 days and be carried from one year to the next. In 1977 I ended the year with 102 days of which 12 days was dropped from the rolls due to committee employment. These are all working days, for each five totaled I recieve 2 days off, similar to a week end. In 1978 I will lose 21 days (working) from the rolls. This is 33 working days or 6 weeks and 3 days (33 ÷ 5 = 6 X 7 + 3 =45).
+
+The 33 days from the City amounts to $1,937.66 at $7.34 per hour. This amount does not take into account the number of weeks nor the 14 days annual leave that the committee would allow. The total consecutive days would be 45 + 14 = 59. This would be one day short of two months at $2,000.00 per month from the Committee. You can see that this could get into an accountant problem.
+
+I am suggesting that the Committee not pay me anything further in salary but that I be given the above stated time off. I would like to be off from Nov. 15 thru Dec 31, 1978. I would still be avialable to get needed information to help write the report (if the Committee continues my phone service)
+
+I am not an accountant and would rather not get into the
+dollars and cents involved. The time off would be practical
+solution in my opinion.
+
+I will talk with you and Cliff further about this matter.
+
+Sincerely In Christ
+
+Robert Buras
+Staff Investigator
+
+NW 88326
+DocId:32243285 Page 6

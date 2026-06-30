@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_32277.png
+
+Convert to MarkdownSECRET
+
+-4-
+
+The Brigade should be disbanded as a military unit and individual members urged to accept civilian training or to enlist in the existing U. S. military program for Cubans and join a Brigade reserve unit thereafter. Our moral obligation would be discharged to the Brigade members and creation of a privileged class in the exile community would be avoided.
+
+SECRET

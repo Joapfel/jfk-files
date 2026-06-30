@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_26466.png
+
+Convert to MarkdownSECRET
+
+OCI No. 0515/63
+
+27 March 1963
+
+CENTRAL INTELLIGENCE AGENCY
+
+MEMORANDUM: Cuban Training of Latin American Subversives
+
+SUMMARY
+
+1. We estimate that at least 1,500 to 2,000 Latin Americans have received guerrilla training or political indoctrination in Cuba.
+
+2. We have recorded the travel of 5,059 Latin Americans to Cuba in 1962, and reporting to date indicates that at least another 417 went during the first two months of 1963.
+
+3. Field replies to a survey estimate that there were about 11,000 arrests in Latin America during the past 15 months for terrorism, sabotage, guerrilla activity, or other subversive activity. Only a small percentage of those arrested, however, were brought to trial; almost all were released after varying periods of detention.
+
+4. Current efforts to improve and exploit reporting on travel to Cuba had not made themselves felt during the reporting period. The security services of Latin American countries accordingly were unable, with isolated individual exceptions, to establish Cuban direction, instigation or training of arrested subversives.
+
+5. Incidence of guerrilla, terrorist, and sabotage activity at present is highest in Venezuela, Peru, and--in the form of largely non-political bandwidthy--Colombia. There is sporadic guerrilla activity in and around Nicaragua and Guatemala, and a guerrilla potential in Ecuador and Brazil.
+
+SECRET
+
+HW 50955 DocId:32283208 Page 5

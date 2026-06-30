@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_28903.png
+
+Convert to Markdownthe original document, of which this is a photocopy, appears to be genuine and unaltered and to have been made at the time purported.
+
+Signature
+
+Date Title
+
+Нач. 2-го бр. дition
+
+декабрь 1949 гг.
+
+Указанный СР-Бюро-ССР
+
+СНИДЕЛЬСТВО О БРАКЕ
+
+Господин А.
+Годмн. 1950.

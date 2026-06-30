@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_28511.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Mr. Blakey
+FROM: Edward M. Evans
+DATE: August 24, 1977
+SUBJECT: Dominick Kevin Giangrasso - Investigator
+
+Mr. Giangrasso has agreed to take a position with us as Staff Investigator assigned to the Martin Luther King, Jr. Task Force.
+
+He will start September 6, 1977 at $24,000.
+
+EME:ek
+
+NW 88326
+
+DocId:32243321 Page 7

@@ -1,0 +1,7 @@
+# JFK-Files-Part-2_page_25683.png
+
+Convert to Markdown130 "Make her has good reason for not worrying the story aried further. Unfavorable published might cause him to lose his literary clt., Harnd. Hughes."
+
+7 Mar 66 - cable to Rich - lies about ass. involve
+
+I did not find any text in this image.

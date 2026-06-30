@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_25733.png
+
+Convert to Markdownthe Senate committee, "developed a close friendship."
+
+Another CIA official who worked with Rosselli, James P. O'Connell, was asked if he knew whether the agency transmitted information to the mobster on possible Cuban involvement in the Kennedy assassination. He replied that he was out of the country at the time Kennedy was killed, and had no further comment.
+
+The Washington Post that she received a call after Rosselli's disappearance in late July warning her that Cubans appeared to be attempting to wipe out all those who participated in the anti-Castro plots.
+
+Two months before the Kennedy assassination, Lee Harvey Oswald, who was identified by the Warren Commission as Kennedy's murderer, had traveled to Mexico City in an attempt to gain entry to Cuba. According to the Warren Commission, Oswald represented himself as the head of the New Orleans branch of the Fair Play for Cuba organization and a friend of the Cuban Revolution.
+
+On March 21, FBI headquarters forwarded the Washington field office memo to the White House, the attorney general and the Secret Service. It did not recommend any further investigation of Morgan's allegations.
+
+Some three months before Kennedy was killed, Castro told Associated Press reporter Daniel Harker that U.S. leaders aiding terrorist plans to eliminate Cuban leaders would themselves not be safe.
+
+By May 22, Helms briefed President Johnson on the results. There is, however, no evidence that Helms briefed the President on the November, 1963, plot—one of eight major schemes on Castro's life from 1960 to 1965—to assassinate the Cuban leader through the employment of an agent with the cryptonymn AMLASH. His identity was revealed as Rolando Cubela, a 1961 CIA "recruit" with close access to Castro.
+
+A U.S. government committee coordinating policy toward Cuba at the time agreed there is a strong likelihood that Castro would retaliate in some fashion. However, it concluded Castro would not risk a major confrontation with the U.S. by attacking U.S. leaders.
+
+CIA operatives turned over assassination equipment to Cubela during a Paris meeting on November 22, 1963—the day President Kennedy was killed in Dallas. There has been subsequent speculation that the mercurial and talkative Cubela was either a double agent or being monitored by Cuban intelligence.
+
+On the same day Kennedy was assassinated, a CIA officer met with a high-ranking Cuban official, who had said he would kill Castro, to tell him the U.S. would provide him with explosives and a poison pen device.
+
+During the later days of his presidency, Mr. Johnson spoke cryptically of a "Caribbean Murder Incorporated" targeted against Fidel Castro. The inspiration for that statement undoubtedly was the CIA inspector general's report he ordered Helms to have prepared.
+
+While the Senate Intelligence Committee said it found no evidence sufficient to justify a conclusion that the Kennedy assassination was part of a conspiracy, it also said U.S. agencies did not properly investigate the assassination or tell the Warren Commission about the CIA plots on Castro's life.
+
+Mrs. Daigle could not be reached by The Washington Post. But another sister of Rosselli said she had heard of no such threats or warnings.
+
+Mrs. William Harvey, the widow of the deceased CIA official, said she suspected no foul play in her band's death. She did, however,
+
+Harvey, who died at age 60 and whose exploits as a clandestine operator are both legendary and controversial within the agency, testified to the Senate Intelligence Committee. He had become Rosselli's case officer in Operation Mongoose and supplied the mobster with poison pills, explosives, detonators, rifles, handguns, radios and boat radar for transmission to anti-Castro Cuban agents. Harvey and
+
+"There is no indication that the FBI or the CIA directed the interviewing of Cuban sources or sources within the Cuban exile community," the Senate committee said.
+
+According to a former FBI official in charge of key aspects of the FBI's probe of the Kennedy murder, the FBI never satisfactorily determined what Oswald planned to do in Cuba or what he had done in Russia.

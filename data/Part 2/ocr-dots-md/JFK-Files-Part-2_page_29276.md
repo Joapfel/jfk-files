@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_29276.png
+
+Convert to MarkdownINS File Reviews...page 4
+
+D. Sam Campisi
+
+File #A12 531 043
+DOB: 5/20/20
+
+- 10/23/63 memo:
+
+- Lists individuals identified as LCN members:
+SC
+Charles P. Manicchia
+Ross Peter Interrante
+Luke Cortemeglia
+Jimmy Maggiotta
+Phillip Municchia

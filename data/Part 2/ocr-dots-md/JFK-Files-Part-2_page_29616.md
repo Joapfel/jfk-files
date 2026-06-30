@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_29616.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 201 -
+
+Mr. Neiscuir's hazy recollections, the Committee cannot
+definitely resolve whether Silvia Duran was a Mexican or
+American intelligence agent or source.
+
+(2) was Silvia Duran a Cuban intelligence agent?
+
+In an effort to resolve this question, the HSCA reviewed the United States investigative agencies' files on Silvia Duran. <u>774/</u> The Committee found no evidence in the files that would indicate that Ms. Duran was associated with Cuban intelligence.
+
+In addition, the HSCA interviewed most of the Mexi-
+co City Station employees about the possibility that Duran
+worked for Cuban intelligence. Only Barney Hidalgo, a
+CIA officer who travelled to Mexico City in 1963, considered
+the possibility to be likely. <u>775/</u> Mr. Hidalgo, professing
+not to remember all the details, stated that he thought
+that Duran was a Cuban intelligence agent. <u>776/</u> Hidalgo
+said:
+
+At the time when this contact told me of
+Silvia Duran I tied the two together, yes,
+sir. I don't know, now at that time it
+was obvious to me as an intelligence agent
+that there was some connection there but
+it was of no interest whatsoever to me,
+I do remember that when I next saw this
+contact of mine I mentioned the fact to
+him and let him proceed to do whatever he
+
+Classification:
+
+TOP SECRET
+By derivation:
+38
+
+2000913
+
+HW 48327 DocId:32263889 - Page 264

@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_27524.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+FROM: I. Charles Mathews, Special Counsel I.C.M.
+DATE: 7 March 1978
+RE: Termination
+
+Please be advised that effective Friday, March 3, 1978,
+Maurice Israel will be terminated from the Committee payroll.
+
+If you have any questions concerning this matter, please
+contact me at your convenience.
+
+ICM:j

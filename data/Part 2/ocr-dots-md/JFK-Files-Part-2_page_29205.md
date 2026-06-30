@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_29205.png
+
+Convert to MarkdownMEMORANDUM
+
+January 11, 1967
+
+TO: LOUIS IVON, INVESTIGATOR
+FROM: LYNN LOISEL, INVESTIGATOR
+RE: PHONE CALL FROM JIMMY JOHNSON REGARDING FERRIE AND THE SMITH CASE (January 10, 1967, 4:00 P. M.)
+
+It is to be noted that Jimmy Johnson who was once a close associate of Ferrie, but broke free from Ferrie but as a favor for this office, renewed his friendship with Ferrie for information purposes for this office.
+
+Jimmy stated that Ferrie had contacted Pershing the other day in regards to the Cuban woman's name that was mentioned in the Saturday Evening Post article.
+
+That Ferrie had called a lawyer (none unknown) last night which would be January 9, 1967, and spoke with the lawyer about his being investigated by this office. Details of conversation unknown.
+
+Ferrie has a lot of old army paraphernalia in his apartment, such as, walkie talkies, incendiary bombs, etc.
+
+Ferrie was showing nude pictures (moving films) to two young boys and a district police car shined a light on his front porch and he really became frightened and uncontrol- table, telling Jimmy that the police must suspect him.
+
+Jimmy stated that one Steve Littleton parked a twin-engine beachcraft in Ferrie's spot at the airport, and that their plane was flown in from out-of-town. It is at Ferrie's disposal. He also heard Ferrie and Littleton talking about a little island somewhere and they were interested in knowing if they could land the beachcraft on this island.

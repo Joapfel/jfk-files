@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_30576.png
+
+Convert to MarkdownSECRET
+
+002362
+
+12/18/3-4
+request clearance for
+"Special Intelligence"
+
+12/9/5-4
+clearance requested at
+P.S.D.
+
+1/19/5-5
+SC confirm to SignA Corps.
+
+1/31/5-5
+IBID. +o Sec. of Def Office
+
+2/24/5-5
+IRE conven. App.
+
+4/21/5-5
+authorization to remove
+tech. equip. from
+CIA Buildings
+
+Undated -
+PANEL OF EXAM. HAVE NO OBJ.
+TO Christ becoming member
+OF CAREER STAFF.
+
+SECRET

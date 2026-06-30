@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_31743.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:ay
+
+America must pull out of Vietnam because it is essentially wrong. The dominant political institutions are responsible for the U. S. involvement in Vietnam. We must reject the emotion of racial evil by studying the war in Vietnam. America is fundamentally racist and must come to grips with itself about racism. Relations are unwholesome between white radicals and black panthers. The Panthers are becoming better organized and can reach more people than white people can reach. The Panthers wrote a book to obtain money with which to purchase guns.
+
+At the same meeting, GEORGE MURRAY, Minister of Education of BPP also spoke condemning the institutions in the U.S. as all being racist and working to keep the black people enslaved. MURRAY stated that if the black people wanted anything they had to get it with guns and force.
+
+SF T-68
+November 5, 1968
+
+Benefit for ELDRIDGE CLEAVER
+
+A benefit for ELDRIDGE CLEAVER, which was described as "an evening with the Defense Committee" was held November 21, 1968, under sponsorship of the International Committee to Defend Eldridge Cleaver, at California Hall, Polk and Turk Streets, San Francisco, California, with about 400 people present. Admission to the affair was $3 per person and it was held to raise money to help prevent ELDRIDGE CLEAVER from being returned to jail. ROBERT SCHEER was listed on the letterhead of this organization as Director. SCHEER opened the meeting with a few introductory remarks to the effect that CLEAVER was being incarcerated for his political views and activities. The principal speaker at this affair was CHARLES GARRY, Attorney for the BPP, who described the CLEAVER case as political and said every effort must be made to prevent CLEAVER from being returned to jail. He made a strong plea for contributions of money to assist CLEAVER.
+
+SF T-69, November 25, 1968
+SF T-70, November 26, 1968
+SF T-15, November 22, 1968
+
+SECRET
+
+- 65 -
+
+1307
+
+Copy of Copies
+Page of Pages

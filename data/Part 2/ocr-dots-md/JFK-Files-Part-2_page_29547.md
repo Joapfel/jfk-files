@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_29547.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+only the 9/28 and the 10/1/10:45 conversations. It
+should be noted that the 10/1/10:45 conversation makes
+reference to the fact that Oswald was also at the Em-
+bassy on 9/28. The next cable that Mexico City sent to
+Headquarters said, in part, 'Other than Info already
+sent re Oswald's connection with Sov and Cuban Embs,
+no other info available." 675/ The next cable reports
+a literal transcription of the 9/28 and 10/1/10:45 con-
+versations. 677/ The next cable that refers to the
+transcripts of Oswald's conversations reports the 9/27/
+10:30 call, the 9.27/4:05 call, the 9.27/4:26 call, the
+10/1/10:31 call, and the 10/3 call. 678/ With this
+cable Mexico City informed Headquarters of all the sub-
+stantive information available from the Soviet Embassy
+electronic surveillance. 679/
+
+Mexico City also informed Headquarters on 11/24/64
+that the tapes from the period in which Oswald had vi-
+sited the Soviet and Cuban Embassies had been erased. 680/
+A cable on the previous day had informed Headquarters
+that it was "probable" that the Oswald tapes had been
+erased. 681/ An earlier cable that same day reported
+that "Station unable compare voice as first tape erased
+
+Classification:
+
+Classified by derivation:
+
+299
+
+NW 48327 DocId:32263889 Page 195

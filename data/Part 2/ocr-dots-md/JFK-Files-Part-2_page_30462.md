@@ -1,0 +1,50 @@
+# JFK-Files-Part-2_page_30462.png
+
+Convert to MarkdownSECRET
+
+1-37
+
+You indicated that on one block, one corner of that
+block was a consulate building for the Cubans. The other side
+of the block was the Embassy building.
+
+Across the street was the photo base.
+
+Mr. Shaw. This was all wall. This was a compound.
+Excuse me, if I may interject. There was another building back
+here that had a theatre downstairs and had offices upstairs.
+
+Mr. Goldsmith. Was that within the compound also?
+
+Mr. Shaw. Yes.
+
+Mr. Goldsmith. Three buildings within the Cuban compound?
+Mr. Shaw. Yes.
+
+Mr. Goldsmith. The photo base was located across the
+street. It was closer to the consulate than it was to the
+entrance of the Embassy?
+
+Mr. Shaw. That is correct.
+
+Mr. Goldsmith. From the diagram that you drew, it would
+seem that the location of the camera was closer to the consulate
+than it was to the Embassy entrance, yet you also indicated
+that most of the people of interest would have been entering
+the Embassy, not the consulate?
+
+Mr. Shaw. That is correct
+
+Mr. Goldsmith. Was not the placement of that camera in
+an inappropriate position?
+
+Mr. Shaw. I imagine that camera was placed wherever we
+could get it. Getting real straight across from one of those
+
+SECRET
+
+ALDERSON REPORTING COMPANY
+
+300 7TH STREET, S.E., REPORTING BUILDING, WASHINGTON, D.C. 20034 (202) 554-2345
+
+HW 50955 DocId:32277214 Page 38

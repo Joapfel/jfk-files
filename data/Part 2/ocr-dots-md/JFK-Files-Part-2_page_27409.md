@@ -1,0 +1,66 @@
+# JFK-Files-Part-2_page_27409.png
+
+Convert to MarkdownCOMMISSION ON CIA ACTIVITIES WITHIN THE UNITED STATES
+
+Washington, DC 20500
+
+March 17, 1975
+
+David W. Belin,
+Executive Director
+
+<table>
+   <tr>
+    <td>Ad Hoc Staff</td>
+   </tr>
+   <tr>
+    <td>75-147</td>
+   </tr>
+  </table>
+
+Nelson A. Rockefeller,
+Chairman
+
+John T. Connor
+C. Douglas Dillon
+Erwin N. Griswold
+Lane Kirkland
+Lyman L. Lemnitzer
+Ronald Reagan
+Edgar F. Shannon, Jr.
+
+MEMORANDUM FOR: Mr. E. H. Knoche
+Assistant to the Director
+
+FROM: James B. Weidner
+
+SUBJECT: Request for Files
+
+Please provide to the undersigned copies of the following materials,
+all of which are located in files maintained by the Far East Division, DDO:
+
+1. Memo for the Record dated 7 February 1972 by Earl Hyde re "Operational Meetings with MPTROIKA-8" (5 pages).
+
+2. Memo for the Record dated 20 March 1972 by Earl Hyde re "Contact Meetings with MPTROIKA-8" (5 pages).
+
+(Items 1-2 are contained in a file labeled "MPTROIKA/8 Vol. II")
+
+3. Memo for the Record dated 17 February 1971 by E. Hyde re "Charles T. W______ Civic Building" (2 pages).
+
+4. Memo for the Record dated 22 March 1971 by E. Hyde re "Contact Meeting with Charles T. W______ (2 pages).
+
+5. Memo for the Record dated 31 March 1971 by E. Hyde re "Contact Meeting with Charles T. W______ plus attachment (6 pages)."
+
+6. Memo for the Record dated 22 April 1971 by "Oscar A. Speicher" re "Contact Meeting with Charles T. W______ (3 pages)."
+
+(Items 3-6 are contained in a file labeled "MPTROIKA/4 Vol II")
+
+7. Memo for C/DDP/NSP from William E. Nelson re "Proposed Operation Against an Asian Communist Party", plus a Routing
+
+SECRET
+SENSITIVE
+
+Photocopy from
+G R Ford Library
+
+HW 50955 - DocId:32105598 Page 240

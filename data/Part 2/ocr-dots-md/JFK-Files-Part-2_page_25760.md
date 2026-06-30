@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_25760.png
+
+Convert to MarkdownMaximum effort would be made to increase the countersubversion capabilities of Fidel's foreign target countries.
+
+### Advantages
+
+We would be maintaining a clean hands attitude towards Castro and our policy would be more compatible with that of our major allies.
+
+### Disadvantages
+
+a. Evidence of American inaction would be domestically assailable, would be quickly sensed by Latin American countries and would further demoralize the exile community.
+
+b. We would be in effect helping Castro to consolidate his position at home and establish his image abroad.
+
+4. In addition to intelligence collection as in 3., we would engage in a "persuasive" economic denial program employing diplomatic efforts and the cooperation of U.S. corporations. Covert subtle sabotage against selected Cuban imports (e.g. contamination of lubricant additives).
+
+### Advantages
+
+A carefully targeted denial program with effective subtle sabotage is capable of at least disrupting the timing of Castro's economic efforts. It may have a measurable effect on Cuba's one domestic source of economic strength - sugar.
+
+### Disadvantages
+
+We will remain at odds with our allies on Cuba trade. We may delay but not prevent Castro's progress.
+
+5. In addition to actions in 3. and 4. above, engage in surveillance of suspected vessels or aircraft carrying Cuban arms shipments by means of bilateral agreements with individual countries in Latin America, such surveillance to be accomplished without the use of force in international waters and the use of force in national waters.
+
+Copy
+Lyndon B. Johnson Library
+
+HW 50955 DocId:32423630 Page 493

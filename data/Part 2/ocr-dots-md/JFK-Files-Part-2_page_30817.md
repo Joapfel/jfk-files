@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_30817.png
+
+Convert to MarkdownSECRET
+
+1110783
+
+Borz 10 Sept 1907 in Wash. P.C.
+1934-35: teaching & research in Europe,
+primarily USGR
+contributed articles to _Daily Worker_
+1941-47: Johnson and his wife were
+connected with cited organizations
+close associates reported as members
+of theComm. Party or Comm. sympathizers
+arranged that wife was CP worker
+1943-46: Johnson was Chief, Russia
+Political Section, US Military Intelligence
+generally
+1947-1955: Carnegie Institute of Tech.
+1955: University of Pittsburgh
+1966-67: research in USGR, Poland,
+Zeeh, Yigo under Dept. State sponsor-
+ship
+12 Nov. 1953: disappeared for any use
+by CIA
+Mar. 1967: was of interest to DCs but
+should be approached only if extreme
+caution and care be exposed to class-
+ified material
+
+# 39 Pzhors, U. Persova vorgang USA (Johnson, U.)
+no record
+
+SECRET

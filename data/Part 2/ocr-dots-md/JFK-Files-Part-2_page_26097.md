@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_26097.png
+
+Convert to Markdownstopped my visit to Vietnam, and back-
+stopped it principally so that I could take
+a look at some of the political factors as
+well as economic, military, and psychological
+and everything else. This, frankly, took a
+consi-
+
+standing on his part
+
+that because my views weren't always
+
+popular in other parts of the government.
+
+I gathered that there was some opposition to
+my going out, and he insisted on it.
+
+O'BRIEN: I'd like to come back to that. I wonder if we could go on to talk about one of the major problems, which is Cuba. When is the first time that you hear about the Bay of Pigs invasion, not the Bay of Pigs, but the plans?
+
+LANSDALE: Sometime in the fall of 1960, I think that I heard of it about the first time that it was brought up to the inter-policy group of the Eisenhower administration. I was the Deputy Assistant to the Secretary of Defense, at the time, for Special Operations and used to accompany the Deputy Secretary, who was a member of the inter-policy group, to most of

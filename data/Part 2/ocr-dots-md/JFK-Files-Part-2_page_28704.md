@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_28704.png
+
+Convert to MarkdownSelect Committee on Assassinations
+
+U.S. House of Representatives
+
+WASHINGTON, D.C. 20515
+
+0 Richard A. Sprague 402 30 1486
+2 THE PHILADELPHIAN 2401 Pennsylvania Avenue
+3 Apartment 21 A2
+4 Philadelphia, PA 19130
+
+$ 2222.00 gross
+$ 1608.46 net
+
+N.W. 88326
+
+DocId:32244102 Page 12

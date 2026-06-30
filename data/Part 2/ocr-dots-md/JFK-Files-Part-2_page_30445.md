@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_30445.png
+
+Convert to MarkdownSECRET
+
+1-20
+
+Mr. Shaw. There was a mix, and I cannot recall which were which. It may well have been that we were tapping some Cuban Embassy phones unilaterally, and some of them were being tapped jointly. I know that there was coverage on the joint tap operation, which I believe was called LIENVOY. I am not sure.
+
+Mr. Goldsmith. That is correct.
+
+You indicated that you think Ann Goodpasture may have been responsible for the telephone tap operation against the Cuban operation. What basis do you have for that?
+
+Mr. Shaw. Responsible in the sense of picking up the take. I am not sure of that, because I know she did some of that kind of work. I am not sure who did it. We used to get copies of the transcripts and I remember -- I am sure I saw some of the Cuban stuff on joint taps. And then, of course, taps that were run by the Mexican government.
+
+Mr. Goldsmith. Did you review the transcripts that came in as a matter of regular routine?
+
+Mr. Shaw. Yes.
+
+Mr. Goldsmith. Did you read all of them?
+
+Mr. Shaw. No.
+
+Mr. Goldsmith. Which ones would you read?
+
+Mr. Shaw. I would have been interested primarily in the Cuban ones, and what they called the resuma -- it was sort of a Spanish word for resume -- the resuma was a distillation, if you will, of the digest of the joint tap that was prepared,
+
+HW 50955 DocId:32277214 Page 21

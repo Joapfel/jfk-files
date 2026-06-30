@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_31475.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+Title
+
+LIVING RHODES PROMET
+
+Character
+
+SECURITY MATTER -C
+
+Reference
+
+Report of Special Agent FRANCIS T. DAVIS, dated and captioned as above, at San Francisco
+
+All sources (except any listed below) whose identities are concealed in referenced communication have furnished reliable information in the past.

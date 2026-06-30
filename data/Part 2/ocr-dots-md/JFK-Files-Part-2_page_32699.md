@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32699.png
+
+Convert to MarkdownGuantanamo naval base defenses were strengthened; air power was built up in the Southeastern portion of the United States; and military deployment put 5,000 marines and 40 naval vessels in the Caribbean, initially as part of a training exercise. Following the resolution adopted by the Organ of Consultation of the Council of the Organization of American States (described below) the President issued a proclamation establishing the quarantine of Cuba as of 10 A.M. on October 24. The Department of Defense ordered the interdiction of 25 Soviet merchant vessels known to be headed for Cuba. At 8 A.M. on October 25 the first interception of a Soviet ship, the oil tanker _Bucharest_, took place, and the ship was allowed to proceed. 12 of the 25 Soviet vessels heading for Cuba turned around and no encounter with a contraband-carrying vessel occurred during the Cuba affair.
+
+From the beginning it was clear that in the political and diplomatic realm U.S. policy had two immediate tasks. The first and most proximate task of U.S. diplomacy was to show that the Soviets had in fact used guile and deception to emplace in Cuba offensive nuclear weapons, and that our evidence was conclusive. The second was to halt further shipments and bring about rapidly and effectively the removal of the offensive weapons, under U.N. supervision, before the quarantine could be lifted. The United States was prepared to negotiate on modalities and to consider various formulae but not to abandon this goal.
+
+From the start, both the Organization of American States and the United Nations were involved. Resources and institutions of this hemisphere were used to underline its solidarity and determination, and to convince the Soviet Union that elimination of the offensive weapons was a purpose to which the hemisphere was solidly committed. From the start, too, it was clear that
+
+/the United Nations
+
+HW 50955 DocId:32424709 Page 80

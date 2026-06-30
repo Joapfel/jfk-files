@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_25502.png
+
+Convert to MarkdownML: Selia Sanchez, Haiti Santa Maria, Paco and Fidel and several of his armed guards.
+
+FS: Okay now, what happened
+
+ML: Castanyava...
+
+FS: Castanyava
+
+ML: Castanyava was the chief of the Navy.
+
+FS: And Fidel offered you a job or something, can you go into that?
+
+ML: Well he was very fond of everything German. He said he read and my father, you know, tried to pacify the tourists, the passengers on the ship because they were terrified. They thought they were being invaded. So I helped my father pacify the tourists and it was really a funny scene. Then I steered Fidel to my father's cabin and we went to dinner and Fidel started to play kneesies under the table. And this was February 28, 1959 on the cruise.
+
+FS: And he offered you a job, right?
+
+ML: Yes, after about 5 hours on board ship we went back up to my father's cabin and had drinks and exchanged gifts, and my father and Fidel seemed to get along very well. My father is diplomatic and they exchanged plaques and my father's silver ashtray and stuff like that. And he asked me, he asked my father if since I was bilingual if I could go, come back, return to Cuba to be his secretary since he was getting German mail and he did not speak German and he assured me that I would be safe and set up in an office, and blah, blah, blah, blah. And I had friends in Cuba anyway.
+
+FS: How old were you then?
+
+ML: Nineteen, nineteen years old.
+
+FS: Did you get off the ship and stay there?
+
+ML: No, I went back to New York. Fidel, on the bridge, asked me for my phone number and address in New York and said he would call me, and I just, I didn't believe it.

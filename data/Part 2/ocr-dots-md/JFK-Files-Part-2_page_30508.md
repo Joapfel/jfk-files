@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_30508.png
+
+Convert to Markdown180-10141-10451
+
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+
+CIA HAS NO objection to the declassification and release of this document. As adapted
+
+Air Force cover.
+
+entered 1958 JOT jus off training
+ap.58 HQ (SE) Sept.62 - terminate relationship
+nel 762
+Jan. 63-4-Jan66 Moscow ) # cooling off Vienna
+66-7 HQ 2 yrs SE covert action
+67-9
+69-71 (Munich)
+72-4 (London)
+
+Moscow (-cult). Attache
+(-deeply integrated)
+John Sager) was supervisor
+-senior officer
+Sum of 63 Paul Garber -first CAS
+
+* - excise based on sensitivity of cover
+
+6 cia max at SLW
+
+Johnson - brew of as cult. writer
+Morengold - knekt
+never utilized am. press
+sonnular div. not utilized
+
+(Langelle ) only C) A man when left - possible not?
+Montgomery - succeeded Abidian in summer:
+of 52, png Gmon. later (Perlovsky)
+
+1041-10457
+
+~~STP~~

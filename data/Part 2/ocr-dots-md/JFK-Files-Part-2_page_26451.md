@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_26451.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+<table><tr><td>SECRET/NO FOREIGN DISSEM/CONTROLLED DISSEM/NO DISSEM ABROAD/<br>(When Filled In)</td></tr></table>
+
+<table><tr><td>COUNTRY</td><td>CUBA</td></tr><tr><td>SUBJECT</td><td>CUBAN GOVERNMENT POLICY TOWARDS PRESIDENT JOHNSON'S ADMINISTRATION</td></tr><tr><td>DATE OF INFO.</td><td>LATE NOVEMBER 1963</td></tr><tr><td>PLACE & DATE ACQ.</td><td>16 DECEMBER 1963</td></tr><tr><td>APPRaisal</td><td></td></tr></table>
+
+CLASSIFICATION — DISSEMINATION CONTROLS
+BACKGROUND USE ONLY
+
+REPORT NO. TDCSDB-3/658,582
+DATE DISTR. 18 DECEMBER 1963
+PRECEDENCE ROUTINE
+REFERENCES IN 82930
+FIELD REPORT NO.
+
+THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.
+
+SOURCE: A HIGH-LEVEL CUBAN DIPLOMAT IN WESTERN EUROPE WHO HAS BEEN A FAIRLY RELIABLE REPORTER OF POLITICAL AND ECONOMIC INFORMATION.
+
+1. FIDEL CASTRO WAS VERY UPSET OVER THE CHANGE IN THE UNITED STATES ADMINISTRATION BROUGHT ABOUT BY PRESIDENT KENNEDY'S ASSASSINATION. THE TOP CUBAN LEADERSHIP WAS SURE PRESIDENT KENNEDY WOULD NOT INVADE CUBA AND THEY WERE CONVINCED THAT THE POLICY OF HIS ADMINISTRATION FOR ECONOMIC BLOCKADE AND INTERNAL SUBVERSION AGAINST CUBA WOULD NOT OVERTHROW THE RÉGIME.
+
+2. THE PRESENT POLICY OF THE CUBAN GOVT., ON ORDERS FROM CASTRO, IS NOT TO ATTACK PRESIDENT JOHNSON IN PUBLIC OR DO ANYTHING TO IRRITATE HIM. ACCORDING TO CUBAN GOVT. LEADERS, CASTRO WANTS TO WAIT AND SEE WHAT PRESIDENT JOHNSON SAYS AND DOES ABOUT CUBA,
+
+<table><tbody><tr><td>STATE/INR</td><td>DIA</td><td>ARMY/ACSI</td><td>NAVY</td><td>AIR</td><td>JCS</td><td>SECDEF</td><td>NSA</td><td>NIC</td><td>XXX</td><td>XXXX</td><td>OCI</td><td>ONE</td><td>OCR</td><td>ORR</td><td>XXMX</td><td>XXMYR</td></tr><tr><td>STATE/DIR</td><td colspan="8">REPCINCLANT I&NS TREASURY</td><td></td><td></td><td>EXO</td></tr></tbody></table>
+
+GROUP I
+Excluded from automatic downgrading and declassification
+
+<table><thead><tr><th colspan="16">SECRET/NO FOREIGN DISSEM/CONTROLLED DISSEM/NO DISSEM ABROAD/ BACKGROUND USE ONLY</th></tr><tr><th>STATE/INR</th><th>DIA</th><th>ARMY/ACSI</th><th>NAVY</th><th>AIR</th><th>JCS</th><th>SECDEF</th><th>NSA</th><th>NIC</th><th>XXX</th><th>XXXX</th><th>OCI</th><th>ONE</th><th>OCR</th><th>ORR</th><th>XXMX</th><th>XXMYR</th></tr></thead><tbody><tr><td>STATE/DIR</td><td colspan="8"></td><td>REPCINCLANT</td><td>I&NS</td><td>TREASURY</td><td></td><td></td><td>EXO</td></tr></tbody></table>
+
+FORM 1K OBSOLETE PREVIOUS EDITIONS.
+
+(15-20)

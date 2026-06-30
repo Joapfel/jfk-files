@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_28222.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Professor G. Robert Blakey
+
+FROM: Cliff Fenton
+
+DATE: August 15, 1977
+
+RE: Recommendations for employment - William Brown
+
+It is recommended that Mr. William Brown be hired immediately to the position of Senior Investigator at a salary of $24,000 per annum. Having obtained the highest rank of Detective First Grade in the New York City Police Department, Detective Bureau, his experience has been extensive in all areas of criminal investigation.
+
+Mr. Brown's long range of experience will be beneficial to our investigation and will be an asset to the JFK Task Force.
+
+APPROVED:
+
+Kenneth D. Klein
+Assistant Deputy Chief Counsel
+
+NWW 88326
+DocId:32243284 Page 6

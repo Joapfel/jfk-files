@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_31604.png
+
+Convert to MarkdownSF 100-55462
+
+1.
+
+FAIR PLAY FOR CUBA COMMITTEE,
+BAY AREA CHAPTER, also known
+as Bay Area Fair Play for Cuba
+Committee (BAFPCC)
+
+The "New York Times" newspaper on November 20, 1960 carried an article captioned "Pro-Castro Body Reports U.S. Gain," which reported that the Fair Play for Cuba Committee (FPCC) had 5,000 paid-up members in the United States. The article declared that the FPCC had headquarters at 799 Broadway, New York City, New York, and had chapters in other cities including one in San Francisco.
+
+A source advised in March, 1961, that the Bay Area Chapter of the FPCC (BAFPCC) began to be formed in San Francisco in November, 1960, under the direct guidance and leadership of ASHER HARER, who the source identified as a member of the San Francisco Branch of the Socialist Workers Party (SWP) and a member of the National Committee of the SWP.
+
+The SWP has been designated by the Attorney General of the United States pursuant to Executive Order 10450.
+
+This source advised in March, 1963, that in the recent election of the BAFPCC the SWP continued its influence by having SWP members elected to the executive committee.
+
+This source advised in May, 1963, that the BAFPCC included members in San Francisco and surrounding counties. He advised that the BAFPCC has no headquarters but received mail through Post Office Box 2615, San Francisco 26, California, which is a box maintained by ASHER HARER. He stated that the announced aims and purposes of the BAFPCC are to "spread the truth about Cuba and to prevent U.S. intervention in Cuba."
+
+A second source advised on January 10, 1964, that at a BAFPCC meeting in Berkeley, California, in December, 1963, it was decided to dissolve the BAFPCC.
+
+APPENDIX
+
+935
+
+68
+
+NW 88613 DocId:34530150 Page 71

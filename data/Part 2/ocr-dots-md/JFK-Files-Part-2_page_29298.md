@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_29298.png
+
+Convert to Markdowno Mr. William Abbott
+Last known Address (1970): 2737 Devonshire Road, NW
+Washington, D.C.
+
+o Mr. Prosser W. Palmer.
+Last Known Address (1967): 4643 Seminary Road
+Apt 303
+Alexandria, Virginia
+
+o Mr. Donald R. Paschal
+Current Address: c/o DCI Security Committee
+Community Headquarters Building
+Washington, D. C. 20505
+Telephone: 376-5580
+
+The NIS has unsubstantiated information that Admiral Taylor is terminally ill.

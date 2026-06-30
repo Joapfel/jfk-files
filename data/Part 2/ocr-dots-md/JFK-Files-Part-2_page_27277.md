@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_27277.png
+
+Convert to MarkdownINDEX
+
+A. Memo for Record - Gervenot. Project ANABDUCT. 19 Nov 71 SECRET
+B. Memo for Chief, TYPIC, signed by A. R. Ponchay - 17 Mar 72 SECRET
+C. Ltr from Ponchay to "Joel" - 17 Mar 72
+D. Ltr from Nebecker to "Anthony" - 27 Mar 72
+E. Activities of Howard Hunt and Dr. Artime in Miami and Nicaragua 5 Apr 72
+F. Memo for COS, Subj: References to Howard Hunt - 19 June 72 SECRET
+G. Ltr addressed "Dear Friend" - 20 June 72, unsigned SECRET
+H. Cable from Nebecker 21 June 72 SECRET
+I. Memorandum re Mr. Eugenio R. Martinez - 11 July 73 SECRET
+
+Photocopy from
+G R Ford Library

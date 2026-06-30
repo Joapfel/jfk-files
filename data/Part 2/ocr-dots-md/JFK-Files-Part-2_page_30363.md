@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_30363.png
+
+Convert to Markdown1 will be yes and no kinds of questions.
+
+2 Did you conduct in the KGB a program to compromise and
+3 recruit journalists?
+
+4 Mr. Nosenko. I was working, when I started to work in the
+5 KGB in 1953, the first year I was working against American
+6 correspondents.
+
+7 Mr. Edgar. But the KGB, not you personally, but the KGB
+8 did have a policy of going against journalists and trying to
+9 compromise them, yes or no?
+
+10 Mr. Nosenko. Trying to recruit or compromise them.
+11 Mr. Edgar. Did they censor all the journalists' notes
+12 that they could gather from the journalists? Did they censor
+13 the notes before they allowed the story to go out?
+
+14 Mr. Nosenko. Yes, sir.
+
+15 Mr. Edgar. Priscilla Johnson interviewed Oswald on the
+16 15th of November, 1959. Would the KGB have looked at her
+17 notes from that interview?
+
+18 Mr. Nosenko. Sir, they are censored not by the KGB, but
+19 there is special -- it is government organization was censoring
+20 this. Some materials are coming to the KGB, some are not
+21 coming.
+
+22 Mr. Edgar. Well, she reveals in her article that he was a
+23 Marxist, that Oswald was a Marxist and a Marine Corps radar
+24 man. It would seem to me the KGB would have discovered that
+25 in November of 1959.
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 105
+
+TOP SECRET

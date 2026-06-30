@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_26999.png
+
+Convert to MarkdownEYES G.U.
+
+use of Cutan pilots would involve a delay of some months due to the
+precise training required. - General Carter pointed out that we are
+accused duty of overflights in any case and that the possibility
+of Cusan protests should not dissuade us from making these flights
+if they are necessary. It was pointed out that other types of photo-
+graphy, especially useful in pinpointing critical targets, do not give
+sufficient detail for precise identification of certain types of equip-
+ment. After some discussion, the Group agreed to take cognizance of
+this matter and requested that it be reported at an appropriate time
+when specific targets and information needs could be identified.
+
+8. It was agreed that the Agency would present a paper concerning Action Against North Vietnam at next week's meeting.
+
+General Taylor did not have an opportunity to review these minutes prior to his departure.
+
+Julian J. Ewell
+Colonel, USA
+
+Distribution
+
+Mr. Johnson
+Mr. Gelpatric
+General Carter
+General Taylor
+
+PHOTOCOPY FROM THE GERALD R. FORD LIBRARY
+
+H.W. 50955 DocId:32204599 Page 5

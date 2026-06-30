@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_25374.png
+
+Convert to Markdownus from moving beyond speculation."
+
+Madigan said the widespread reports after Giannana's death that his appearance before the committee was imminent were not true. That further indicates, he agreed, that Giannana's death was not directly related to his past CIA association.
+
+"WE FINALLY GOT; Giannana's home number the day she was killed," Madigan said Friday. "We had some difficulty tracking him down in Houston (where Giannana had been in the hospital). It had been decided that I was going to interview him to see whether it would be worth it to call him as a witness. He had not been contacted yet and he had not been subpoenaed," Madigan said.
+
+Roselli, who had been subpoenaed, did testify for the first time four days after Giannana was shot.
+
+That committee was headed by Sen. Rankin Church and has since been replaced by a newly formed committee headed by Sen. Daniel Ineve (D., Hawaii) and Sen. Howard Baker (R., Tenn.). In its final report, that former committee strongly urged the new committee to continue the investigation of convert CIA activity as well as connections between the Castro assassination plot and the assassination of John F. Kennedy.
+
+HART SAID FRIDAY there are still unanswer ed questions about Lee Harvey Oswald's motive, particularly relating to the so-called "retaliation theory" — that Castro or pro-Castro agents had JFK killed because of the CIA attempts on Castro's life.
+
+Hart interviewed Roselli twice as a member of the former committee and he is also a member of the new Intelligence Committee.
+
+"Roselli was very candid but he did not volunteer information," Hart said.
+
+Committee investigators said Friday they have found no link between Roselli and Eugene M. Carrera, a Rockefeller MD., antique auto dealer with reported organized crime connections who died under circumstances mysteriously coincidental to Roselli's death.
+
+Caraffa, 37, was reported missing by his wife on July 28, the same day Roselli was shot dead by his sister in Plantation with whom he had lived for three years.
+
+Caraffa's body floated to the surface of New York Harbor off Staten Island on Aug. 4, his body wrapped in a knotted chain and weighted by two 15-pound boat anchors. Police said he had been strangled. Roselli had been asphyxiated, possibly by strangling, according to investigators here.
+
+New York City detectives said that Caraffa "knew Giannana" but they have not been able to pin down a motive in his death.
+
+The Washington Star, quoting an unidentified FBI source, reported that Caraffa had met with Roselli in Chicago about two months ago.

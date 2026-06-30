@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_31069.png
+
+Convert to MarkdownSECRET
+
+Betsy Palmer
+
+Miscellaneous documents no in files
+Page 3
+
+8. Information Report - Cuba/Dominican Republic
+
+Subject: Purchase of a Boston Whaler for Manuel Ray Rivero, Leader of the Junta Revolucionaria Cubana (JURE)
+Date: 18 September 1964
+Source: Naturalized American citizen - formerly in shipping business in Cuba, well-trained and experienced debriefer
+
+On 14 Sept 1964, a Miami yacht builder firm purchased a 13-foot six inch Boston whaler for Ray. Purchaser, Angel Aixala Pertierra said he planned to go to Santo Domingo to get permission to operate the whaler in Dominican waters, and once this had been granted, would deliver the boat to Ray. It was on Aixala's Catamaran ct 1208 D, that Ray made his ill-fated initial attempt to enter Cuba. Aixala is not a member of JURE.
+
+* 9. Classified Message to Director, from Paris
+Date: 8 June 1963
+
+Ray and Emio Guede arrived in Paris and Ray contacted by Nauman on 7 June. Reviewed plan for Franqui recruitment in place. Urged Ray to take immediate action before his presence in Paris was leaked. ,Guede tries to contact Franqui by phone and on all occasions, phone answered by Edith Sorel or her roomate, Helene Pulish (phonetic). Guede leaves message wach time and on last call told Franqui going to Brussels and may have already left. On 7 June Guede sees Franqui at the opening of his exhibition and talks to him. Franqui listened to him, but made no responses to his veiled overatures. Guede surmizes Franqui not interested -- thinks he is incapable of defending regime but not willing or capable of breaking with it. Grovery and JERVAY met Ray. Feel this important re possible future use Ray Europe. Pari support excellent. (C/S comment: HQS has reason believe no obstacle convincing Ray push for Franqui return for period to be eyes and ears anti-Castro conspiracy.)
+
+* 10. Cable Report to Director, from Paris
+Date: 14 June 1963
+
+Ray and party travel to Brussels on 11 June, and Ray continues his efforts to recruit an agent in place for CIA. Contacts Guillamo Cabrera and surmised Cabrera held back from a break due to his concern for a brother inside who is ill. Ray asks Cabrera to arrange a meeting with Gustave Arcos but Cabrera unable to do so since Arcos is leaving for a few days. Ray extends his trip. Contacts Nauman who tells Ray it is not possible to resolve all the personal problems of those he has contacted and Ray must show them the wisdom and practicality of working in place as a means of eliminating the regime. Ray willing to settle for defection as he believes this has an impact on the regime. Report states that Ray extremely active, moves fast and purposefully, and has given impression of frank cooperation. Has volunteered to assign a man to be station contact, but feels UNRUMBLE 2 is too young but should be aware of whomever is designated. 03
+
+SECRET
+
+VBR

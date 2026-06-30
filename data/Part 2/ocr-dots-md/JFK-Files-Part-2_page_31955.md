@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_31955.png
+
+Convert to Markdown<table><tr><td>FOR AGENCY USE ONLY</td></tr><tr><td>AGENT REFERENCE (AR 381-130; FM 30-17)</td></tr></table>
+
+amr
+
+<table><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT<br/>MARTI, Manuel NMN<br/>PVT E-1, US 52 737 780<br/>DPOB: 17 May 1946, San Juan, Puerto Rico</td><td>2. DATE SUBMITTED<br/>21 November 1968</td><td rowspan="2"><table><tbody><tr><td colspan="2">3. CONTROL SYMBOL OR FILE NUMBER</td></tr><tr><td>8240-6019</td><td></td></tr><tr><td>093 36 4601</td><td></td></tr></tbody></table></td></tr><tr><td colspan="3">4. REPORT OF FINDINGS</td></tr><tr><td colspan="3">(LISTED CHARACTER REFERENCE) On 1 November 1968, the current New York Telephone Directories for the five boroughs of New York City and the Counties of Nassau, Suffolk, Westchester and Putnam, were checked concerning Juanita Reyes, listed character reference of Manuel MARTI, and revealed the following:<br/><br/>The Manhattan, New York directory revealed a listing for a Juanita Reyes, 170 West 89th Street, New York, New York, Telephone number 874-4393.<br/><br/>The Bronx, New York directory revealed a listing for a Juanita Reyes, 940 East 173rd Street, New York, New York, Telephone number DA-8-9935.<br/><br/>AGENT'S NOTES: Previous attempts to locate and interview Reyes at 1435 Ogden Avenue, New York, New York, Reyes' address as reflected on SUBJECT'S Statement of Personal History, dated 1 August 1968, met with negative results.</td></tr><tr><td colspan="3">(LISTED CHARACTER REFERENCE) On 1 November 1968, a telephone call to the residence of Juanita Reyes, 170 West 89th Street, New York, New York, Telephone number 874-4393, possible listed character reference of Manuel MARTI, was answered by the telephone operator who informed that the number had been changed at the request of the customer and that the new number is unlisted.</td></tr><tr><td colspan="3">(LISTED CHARACTER REFERENCE) On 1 November 1968, the unlisted telephone number of Juanita Reyes, 170 West 89th Street, New York, New York, possible listed character reference of Manuel MARTI, was obtained through the New York Telephone Company's Security Office, which informed this agent that Reyes' unlisted telephone number is 874-7986.</td></tr><tr><td colspan="3">49</td></tr><tr><td colspan="3">PROTECTIVE MARKING IS EFFECTIVE THROUGH AUTOMATIC TERMINATION</td></tr><tr><td>5. TYPED NAME AND ORGANIZATION OF SPECIAL AGENT<br/>ALPHONSO E. MARSHALL, 108th MI Gp (I-SIB)</td><td colspan="2">FOR OFFICIAL USE ONLY<br/>SPECIAL AGENT Robert E. Steeppen</td></tr></table>
+
+DA FORM 1 APR 52 341
+
+REPLACES WD AGO FORM 341, 1 JUN 47, WHICH MAY BE USED.
+
+NW 88613 DocId:34529204 Page 2

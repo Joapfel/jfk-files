@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_31565.png
+
+Convert to MarkdownSF 100-55462
+FSP:mb
+
+SF T-5 on December 17, 1965, furnished a copy of a "Dear Friend" letter, dated December 14, 1965, issued by the International Committee of the VDC. The letter informed the recipient there was "now" a serious danger that soon the Johnson Administration would further escalate the war in Vietnam by extending the bombing to the population centers of North Vietnam, Haiphong and possibly Hanoi.
+
+The letter informed that should escalation of the war effort in Vietnam take place, the peace groups everywhere, as well as all organizations and individuals opposed to the war, should respond immediately by demonstrating their horror at this outrage.
+
+The letter related the committee was urging the demonstrations should take place within hours or days at American embassies, consulates, information centers and military establishments throughout the world.
+
+The letter commented if such a response were made immediately, it would represent a significant acceleration of the movement to stop the war.
+
+CHARLES HARRISON, Intelligence Unit, Berkeley, California Police Department informed on January 12, 1966 that STEVE CHERKOSS had obtained a Berkeley City Permit for a literature table for the VDC. Officer HARRISON informed that at approximately 3:45 PM, January 12, 1966, approximately 100 to 150 junior high students were milling around the literature table where STEVE CHERKOSS, GEORGE EVART, LARRY NAMLIN, MARILYN MILLICAN and 4 or 5 other representatives from the VDC were situated. Officer HARRISON informed they were distributing VDC literature in the vicinity of the Garfield Junior High School, Berkeley, and were speaking to the youngsters, encouraging them to organize a VDC to oppose the U.S. policy in Vietnam. CHERKOSS and EVART stated the U.S. had violated the Geneva Agreements and told the students that they could be drafted and killed in about five years. At approximately 5:00 PM, the VDC representatives departed from the area.
+
+SF T-5 on November 18, 1965 reported that on November 13, 1965, GEORGE EVART attended a meeting of the Campus Club of the PLP.
+
+SF T-23 informed on January 13, 1966, that JOHN SELTZ,
+
+896

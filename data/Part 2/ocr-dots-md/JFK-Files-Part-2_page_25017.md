@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_25017.png
+
+Convert to MarkdownTOP SECRET
+
+rather than in a way that was primarily of a moral principle. That is what would probably have been their attitude in a few cases. Certainly the idea that this was going to be a policy of the US, generally both of them were very much opposed to it.
+
+Senator Hart. Off the record just a second.
+
+(Off the record discussion)
+
+Mr. Baron. To return to the setting at the meeting at the Pentagon, I wonder if you could fill in the nature of the discussion that was taking place on the Congo before this prospect of assassination was raised at the meeting?
+
+Mr. Dillon. I don't recally recall it, except that it was bemoaning the general presence of Lumumba and the difficulty of working anything out with him, or the impossibility of working anything out with him, and the exploration of other possibilities.
+
+Mr. Baron. Did you date this meeting by any particular event which took place?
+
+Mr. Dillon. Yes. I dated it only because it must have taken place after, and presumably shortly after, Lumumba's visit to Washington, because the impression that was left was that it was very bad, that this was an individual whom it was impossible to deal with. And the feelings of the Government as a result of this sharpened very considerably at that time. I don't think it would have possibly have occurred before he
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Ward & Paul
+
+HW 50955 DocId:32423566 Page 78
+
+TOP SECRET

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_29302.png
+
+Convert to Markdown<table><tr><td>CRN</td><td></td><td>/</td></tr><tr><td>UNIV</td><td colspan="2">☐ INDEX</td></tr><tr><td>EOT</td><td colspan="2">☐ NO INDEX</td></tr><tr><td>DATZ:</td><td colspan="2">☐ FILE IN CS FILE NO.</td></tr><thead><tr><th colspan="3">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+
+TO
+
+FROM: DIRECTOR
+
+CON
+
+INFO
+
+CITE DIR:
+
+CHILD.
+
+3. THE INFORMATION IN PARAGRAPH ONE IS BEING DISSEMINATED TO YOUR REPRESENTATIVES IN MEXICO CITY. ANY FURTHER INFORMATION RECEIVED ON THIS SUBJECT WILL BE FURNISHED YOU. THIS INFORMATION IS BEING MADE AVAILABLE TO THE IMMIGRATION AND NATURALIZATION SERVICE. END OF MESSAGE
+
+INFO BASED ON | (IN 36017)
+
+RELEASING OFFICER
+
+COORDINATING OFFICERS
+
+AUTHENTICATING OFFICER
+
+REPRODUCTION Y OTHER THAN THE ISSUING OFFICER PROHIBIT Copy No.
+
+NW 88326 DocId:32260796 Page 16

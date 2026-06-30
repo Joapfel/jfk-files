@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_25162.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>PERSONS/ENTITIES:</td>
+    <td>DATES:</td>
+    <td>CATEGORIES:</td>
+   </tr>
+   <tr>
+    <td>HILLSMAN, Roger (Assistant Secretary of State for Far Eastern Affairs)<br/>CIA</td>
+    <td>8/22/63</td>
+    <td>Diem ✓</td>
+   </tr>
+  </table>
+
+## OCCURRENCE:
+
+On August 22, 1963, in a CIA cable to Saigon (DIR 63334), the following message appeared: "Ref dept. telegram in process. Reftel (which Hqs. not yet seen) states basic line to be taken and directs that it be pushed at all levels. Hillisman requested Hqs. send companion telegram to station pointing out this is one technique to bring about surfacing of where and who real power is. Pressing this line could maximize possibility of obtaining US objective. Even if it does not succeed, it can substantially assist in identification of alternate or successor leadership with necessary drive, abilities and ambition, to incorporate in our overall contingency planning and serve as focus of build-up program. Hqs. will comment ~~and~~ in.
+
+**SOURCE:** 1967 I.G. Report, Part C
+
+**FILE:** Cage
+
+**STAFF:** RD
+**DATE:** 6/28/75
+
+<table>
+   <thead>
+    <tr>
+     <th colspan="2">PERSONS/ENTITIES:</th>
+     <th>DATES:</th>
+     <th>CATEGORIES:</th>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td colspan="2">HILLSMAN, Roger (Assistant Secretary of State for Far Eastern Affairs)</td>
+     <td>8/22/63</td>
+     <td>Diem</td>
+    </tr>
+    <tr>
+     <td colspan="2">CIA</td>
+     <td></td>
+     <td>CARD 20/72</td>
+    </tr>
+   </tbody>
+  </table>
+
+## OCCURRENCE:
+
+### CARD #2
+
+further detail after seeing message, if necessary, but passes above at Hillisman's request." (3)
+
+**SOURCE:** 1967 I.G. Report, part C, p.3
+
+**FILE:** Cage
+
+**STAFF:** RD
+**DATE:** 6/28/75
+
+TOP SECRET

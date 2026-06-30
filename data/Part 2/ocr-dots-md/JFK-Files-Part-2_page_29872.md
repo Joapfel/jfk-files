@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_29872.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+## MONTGOMERY COUNTY POLICE DEPARTMENT
+
+## CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+VWRD# 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+It is noted that this was the weekend when Carrafa and Knohl were suppose to be in Chicago, and they may have been returning at that time. Carrafa was operating a '74 International Tractor Trailer, Md. reg. FB 9629. F.B. 9629 listed on a 73 International Dumpster to Ryder Truck REntal, 920 S. Brunswick St., Baltimore, Maryland.
+
+Cpl. M. F. Alban
+
+09-09-76 Mr. Frank Yarian, Erie Insurance Co., 587-1200 contacted in that Carrafa had written his name and address on a piece of paper. Mr. Yarian stated that earlier this year he contacted Roger Smith of the Roger Smith Insurance Agency reference the feasibility of continuing to insure Carrafa's vehicles. A loss prevention man was sent to Gino's Classical Cars whereupon he met a W/M, burly, NFD; and when the insurance man commented about the building being susceptible to burglary the subject commented that someone once broke in but he hit the man over the head and broke both of his legs. Yarian then told Roger Smith that no further insurance was to be written on Carrafa's vehicles, and as a result thereof Carrafa called, and later visited, Mr. Yarian. Mr. Yarian then told Carrafa that Erie was not in the business of insuring antique dealers as this was a specialty and Carrafa left without further incident.
+
+Mrs. Muriel R. Harris of L. E. Harris, Insurance Agency, (202) 393-4200 contacted reference Carrafa's calls to this number. Mrs. Harris related that Carrafa carried his homeowners, life, and his wife's auto insurance with them; and Mrs. Carrafa is the beneficiary.
+
+Philadelphia P.D. Intelligence and O/C contacted reference the following names that were in Janice Piccerelli's personal telephone book:
+
+Joe Pagano, 1825 South 8th St., Philadelphia
+Richie Baratelli, South Philadelphia
+
+Philadelphia O/ C Section advises that their files contain the names of Joseph Pagano of 2234 South 19th Street, Philadelphia, Pa. This Pagano, and his brother, Vincent Albert Pagano, AKA Al Pajamas, are affiliated with the Liberty Clown Club, and they are involved with the Angelo Bruno LCN family.
+PAGE#
+Cpl. M. F. Alban
+
+NW 88326 DocId:32266807 Page 84

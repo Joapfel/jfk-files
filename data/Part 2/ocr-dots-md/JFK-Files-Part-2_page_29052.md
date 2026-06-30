@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_29052.png
+
+Convert to Markdown# SCHEDULE SE (Form 1040)
+
+Department of the Treasury
+Internal Revenue Service
+
+Computation of Social Security Self-Employment Tax
+
+Each self-employed person must file a Schedule SE.
+Attach to Form 1040.
+
+1971
+
+If you had wages, including tips, of $7,800 or more that were subject to social security taxes, do not fill in this page.
+If you had more than one business, combine profits and losses from all your businesses and farms on this Schedule SE.
+
+Important.—The self-employment income reported below will be credited to your social security record and used in figuring social security benefits.
+
+Name of self-employed person (as shown on social security card)
+
+Samuel Ruby
+
+Business activities subject to self-employment tax (grocery store, restaurant, farm, etc.)
+
+Social security number
+of self-employed person
+322 | 12 | 7997
+
+Part I. Computation of Net Earnings from BUSINESS Self-Employment (other than farming)
+
+1 Net profit (or loss) shown in Schedule C (Form 1040), line 26. (Enter combined amount if more than one business.) . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

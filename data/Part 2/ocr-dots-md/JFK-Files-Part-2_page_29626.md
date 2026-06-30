@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_29626.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+TOP SECRET
+
+who might have been in a position to observe the three
+Americans. **841/** Elena stated that in the course of
+the party her daughter met a young man named "Alejandro"
+at the party and danced with him. **842/** He was apparently
+quite smitten with the daughter and tried to call her
+on several occasions after the party. **843/** The daughter
+did not take the calls and as a result "Alejandro" wrote
+several letters to the daughter. **844/** Ms. Garro exhibited
+two of the letters, as well as a business card which
+identified the young man as Ario Alejandro Lavagnini
+Stenius. **845**
+
+The letter which Ms. Garro said was the first written by the young man to her daughter bore the date September 1, 1963 and the Mexico City Post Office postmark dated September 2, 1963. **846/** When this was pointed out to Ms. Garro she commented that the Communists probably had facilities for falsifying postmarks. **847**
+
+To investigate Ms. Garro's story further, representatives from the Legal Attache's office interviewed Ario Alejandro Lavagnini Stenius on November 27, 1964. **848/Lavagnini recalled that there were approximately thirty people at Rubén Duran's party, few of whom he knew. 849/He recalled having met a Mexican girl who had recently**
+
+**Classification:** 378
+
+200303
+
+Classified by derivation:

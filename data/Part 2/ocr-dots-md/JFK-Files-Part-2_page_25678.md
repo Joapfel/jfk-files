@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_25678.png
+
+Convert to Markdown48. Biancana and Infranasi apparently not involved in phase 2. Roselli dealing with a German who spoke Italian. MACEDO was met by the named Green-Gomez + Godoy/Varona & Varona's son-in-law.
+
+50.- Shockley was never told why he kept deliv. to or why. Only told surveillance in support of a NCO opn.
+
+52. Harvey and Shockley deliver arms "equipped" to Roselli for Varona.
+
+53 June 63- Roselli visited Harvey in DC & went out to dinner while dining Papuch called Harvey, asked if he knew who his dinner guest was. Roselli under intensive surveillance. Papuch said have to tell Harvey that was done. Edwa.
+
+plas Why did Agency call her RPK when she opened her own when in fact they staid underway w/ not at that moment

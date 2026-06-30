@@ -1,0 +1,82 @@
+# JFK-Files-Part-2_page_31423.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>Released under the John F. Kennedy<br/>Assassination Records Collection Act of<br/>1992 (44 USC 2107 Note). Case#:NW<br/>88613 Date: 03-18-2025</td>
+   </tr>
+  </table>
+
+JFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+
+AGENCY INFORMATION
+
+AGENCY : INSCOM/CSF
+
+RECORD NUMBER : 194-10001-10381
+
+RECORDS SERIES : DOD-AFFILIATED PERSONNEL AND INCIDENT INVESTIGATIONS
+
+AGENCY FILE NUMBER : PAGE 754
+
+DOCUMENT INFORMATION
+
+ORIGINATOR : USA
+
+FROM : CPT DAVID F. HILS
+
+TO : CHIEF, USAPSG
+
+TITLE : [ RESTRICTED ]
+
+DATE : 07/10/57
+
+PAGES : 1
+
+SUBJECTS : [ RESTRICTED ]
+
+COMMENT 2
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+
+CLASSIFICATION : UNCLASSIFIED
+
+RESTRICTIONS : REFERRED
+
+CURRENT STATUS : POSTPONED IN FULL
+
+DATE OF LAST REVIEW : 03/08/95
+
+OPENING CRITERIA : COMPLETION OF REVIEW BY THE ADJUTANT GENERAL FOR RELEASE
+
+COMMENTS : Document has been referred to HQDA (DAJA-AL), 2200 Army Pentagon, Washington, DC 20310-2200 for releasabil determination.
+
+NWW 88613 DocId:34530143 Page 1
+
+Date : 08/24/98
+Page : 1
+
+*** 
+*** 
+*** 
+* * 
+*W*
+*I*
+*T*
+*H*
+*D*
+*R*
+
+*A*
+*L*
+*C*
+*A*
+*R*
+*D*
+*** 
+*** 
+*** 
+*** 
+*** 
+*** 
+***

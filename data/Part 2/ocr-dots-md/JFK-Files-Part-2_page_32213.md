@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_32213.png
+
+Convert to Markdown2. Removal of remaining Soviet forces from Cuba;
+
+3. Preventing Cuba from taking any aggressive military action against other Caribbean states;
+
+4. Reducing the capabilities of the Castro regime to direct and support subversion and insurrection within the other OAS states;
+
+5. Encouraging and supporting any developments within Cuba that offer the possibility of luring the Cuban Government from its support of Sino-Soviet Communist purposes or replacing the Government with a regime which would accomplish this purpose;
+
+6. Maximizing the cost to the Soviet Union of supporting the Castro regime;
+
+7. Maximizing the political isolation of the Castro regime from other free world states, and especially from states of the OAS. Whenever possible, U.S. actions against Cuba should be multilateral, preferably based upon the Treaty of Reciprocal Assistance (Rio Pact) or on resolutions adopted by the Organization of American States. The newly-won hemispheric solidarity on the Cuban issue should not be jeopardized by seeking OAS actions of marginal value and which might split the hemisphere.
+
+8. Being prepared to meet, with the employment of appropriate U.S. combat elements and/or logistical support, the wide variety of military contingencies that may arise from pursuit of the foregoing objectives; and,
+
+SECRET
+
+2
+
+NW 50955 DocId:32276061 Page 31

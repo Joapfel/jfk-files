@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_29454.png
+
+Convert to MarkdownClassification: TOP SECRET
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+While this Committee has not been able to find
+any direct corroboration of Anna Tarasoff's claim,
+the circumstantial corroboration is such that the
+possibility that there was an additional transcript
+concerning Oswald that was available to the Mexico
+City Station in late 1963 cannot be dismissed. In
+all likelihood, the Azcue call to the Soviet Consulate
+concerning Oswald was probably made on telephones
+not subject to CIA surveillance and, hence, would
+not have been available to the CIA's Mexico City
+Station.
+
+6. Possibility that the CIA Photosurveillance Obtained a Photograph of Lee Harvey Oswald
+
+This Committee cannot state with certainty that a photograph of Lee Harvey Oswald was not obtained by the photosurveillance operations in Mexico City because of three reasons: (a) the photographs from LILYRIC, the "alternate" photographic base which covered the Soviet embassy main gate, and the photographs from the pulse camera, which covered the Cuban Consulate entrance, with the exception of a
+
+206
+
+ClassiGLYPH<222>cation:
+
+200756
+
+Classified by derivation:

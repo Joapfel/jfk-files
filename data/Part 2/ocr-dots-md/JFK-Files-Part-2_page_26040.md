@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_26040.png
+
+Convert to Markdowntheir Vietnamese counterparts in the Viet-
+namese army and so forth thought of them, and
+their work, and their advice, and the reactions
+throughout the armed forces to them. This
+was the one part of the monthly gatherings
+with Americans around that everybody would
+stop dozing off or thinking of something else
+and would sit up and pay attention because
+they were the subject of the talk, of course.
+This was a very healthy thing. . .
+
+O'BRIEN: Yes, I can see where it would be.
+
+LANSDALE: : : . because even though it was tough diplo-
+matically, the most sordid truth, would be the
+hardest fact, would come out in the end.
+
+And then Williams himself had been in
+Vietnam a long enough time by then--I forget
+how long; it may be three years at the time,
+four years--so that when he moved around the
+Vietnamese army, it wasn't only just the top
+staff officers and commanders who would be
+with him, but I noticed in a visit there--
+
+I made.

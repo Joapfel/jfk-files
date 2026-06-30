@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_29848.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+
+VCRD # 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+Rhode Island State Police report negative on Knohls boys, Carrafa boys, and Louis A. Piccerelli.
+
+C & P notes telephone number of the Maryland Hotel is (312) 664-8600.
+
+It was learned that Caraffa called the following numbers from the Holiday Inn while in California:
+
+(213) 464-0563
+(213) 465-8461
+(213) 343-7332
+(213) 822-4642
+(213) 826-0016
+(213) 626-9111
+
+Source advises that Tashoff is into Classic cars, and in the winter of 75/76 he went skiing in New York with one of the clients.
+
+Information received from highly reliable source (CS) that Fred Black from his address of 2426 Tracey Place, N.W., called the following numbers on the following dates:
+
+(213) 274-7777 on 12-26-75 - Beverly Hills, Ca.
+(507)282-2581 on 03-01-76 - Rochester, Minn.
+
+Roselli called (213) 274-7777 on 05-23-76, and he called (507) 282-2581 on 05-14-76.
+
+Source in California advises that (213) 274-7777 is the Beverly Hilton Hotel, 9876 Wilshire Blvd., Beverly Hills, California. LAPD will check guest registers for both dates indicated.
+
+Interview with Conrad Joe Bliffin, brother of deceased Janice Mae Piccerelli, 2000 - 2300, 08-16-76, revealed the following:
+
+1. Three years ago Janice came back to Maryland and told her brother that she had to leave Chicago as people were looking for her. She moved into the Country
+
+PAGE# __________
+
+NW 88326 DocId:32266807 Page 60

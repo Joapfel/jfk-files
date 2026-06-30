@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_31568.png
+
+Convert to MarkdownSF 100-55462
+FSP:mb
+
+Height 6'
+Weight 165
+Hair Brown
+Eyes Blue
+Occupation Student at San Jose State College
+Residence 1491 Rusted Avenue, San Jose
+Social Security Number 565-62-6770
+FBI Number 492539
+
+The Hayward, California "Daily Review", a Hayward, California daily newspaper, in its issue of November 5, 1965, contained an article which informed that RAYMOND PATRICK TIERNAN appeared before juniors at Castro Valley High School, Castro Valley, California, during the "previous week" and spoke against U.S. intervention in Vietnam. He was described as a graduate law student, a protester of U.S. policy in Vietnam and a pacifist.
+
+SF T-24, on January 24, 1966, made available to the FBI, Washington, D.C., two letters from the International Committee of the VDC, which had been mailed to the Center University Federation of University Centers, Caracas, Venezuela, South America.
+
+The letters, written in Spanish, urged demonstrations against U.S. embassies, consulates, information centers, cultural services, military missions and military bases throughout the world should the U.S. Government, "declare war or bomb Haiphong and Hanoi".
+
+SF T-25 on February 1, 1966, graphed VDC statement on Bill Epton.
+
+The statement informed that BILL EPTON, a revolutionary communist and leader of the PLP, was convicted on December 20, 1964, of conspiring to riot and criminal anarchy in the New York State Supreme Court.
+
+899

@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_29445.png
+
+Convert to Markdown**Classification:** TOP SECRET
+
+(This form is to be used for material extracted
+from CIA-controlled documents.)
+
+3. Information Available to the Mexico City
+Station from Electronic Surveillance Aimed
+at the Cuban Diplomatic Compound
+
+An examination of the production from the
+electronic surveillance of the Cuban diplomatic compound's
+telephones failed to reveal any telephone conversation
+that directly mentioned Oswald or information that
+clearly and directly referred to him.
+
+4. Information Available to the Mexico City
+Station from Photographic Surveillance of
+the Soviet and Cuban Diplomatic Compounds
+
+An examination of the production from these
+operations failed to reveal a photograph of Oswald.
+This Committee has not been able to rule out the
+possibility that a photograph of Oswald was obtained
+in Mexico City by these operations since the material
+made available for review was incomplete. [320]
+The possibility that such a photograph was obtained is
+discussed in Section III.A.6. below. The photograph
+that was mistakenly linked to Oswald by the Mexico
+City Station is discussed in Sections III.B.4.
+
+197
+
+**Classification:**
+Classified by derivation:

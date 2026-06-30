@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_27254.png
+
+Convert to MarkdownNemo - U.S. Citizens Allegedly Involved in Narcotics Trafficking
+Abroad - SECRET
+
+With Tabs -
+
+A. Memo for Deputy Dir, DD/P, DD/I, DD/S - Subj: The Heroin Problem,
+signed by Helms - 25 Oct 69 UNCLASSIFIED
+
+B. Terms of Reference (Oct 71) for The Intelligence Subcommittee
+of the Working Group of the CCINC. SECRET
+
+C. Telegram from State 230669 - Dec 71 - SECRET
+
+D. Telegram to Asuncion, Bogota, Brasilia, Buenos Aires, Caracas, et al
+(Book Message) - 24 Oct 73 SECRET
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 85

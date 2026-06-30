@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_29814.png
+
+Convert to MarkdownM - Did Jason ever tell you what kind of business he was in?
+
+D - no, uh, I questioned Gino one time as to what Jason did and Gino evaded the question and another time I asked Gino how come if they were partners, how come it was Gino's Classic Cars and uh you know Gino just said, not to ask questions and made a joke of it as he usually does
+
+M - to your knowledge, did Gino carry a lot of money on him?
+
+D - always
+
+M - always
+
+D - always
+
+M - can you give me an estimate of how much
+
+D - no I never
+
+M - a couple of hundred dollars
+
+D - sometimes even more than that, he always you know had quite large sums on him
+
+M - uh huh, who did Gino have working for him, you know immediate workers, right there all the time
+
+D - Patrick just quit
+
+M - Patrick
+
+D - Sherman, just quit
+
+M - what did he look like?
+
+D - uh, red hair, long, very long mustache, fairly heavy, he was short, 5'7", 5'8"
+
+M - do you know why he quit?
+
+D - uh, Gino said that it was because he felt that he was holding Patrick back and that Patrick was more or less in a rut and Patrick said that he had a lot of things on his mind and Gino had a lot of things or his mind and it was better for both of them if they split. Patrick was back in the area, Patrick had been in a hospital and he came back, a matter of fact he was in Sunday night, the night before the last when I saw Gino and then he also came in with Gino's brother uh and sister-in-law with Patrick when he came in last Monday
+
+M - do you, have you been inside the building up there
+
+D - oh yes

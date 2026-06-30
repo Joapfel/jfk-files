@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_30417.png
+
+Convert to MarkdownMr. Goldsmith. If it is an office chrono file does that
+meant that everything is filed in a chronological order?
+
+Mr. Tovar. Not necessarily. Here you ought to consult
+my secretary. There might be a subject breakdown. Ordinarily
+hte front office, we don't main-ain a lot of files. There is
+no point in it. Let us sa/ something I signed off on, here
+is a case in point, memos that are signed on my behalf or
+that I might have signed, if I were there that day, I would
+not maintain that in my front office as a rule. That would
+probably be maintained by the office of origination. I think
+if I signed it my secretary would certainly maintain a log of
+things that had gone through me for signature. But I don't
+think, I could be wrong on this, I don't think as a rule she
+would maintain a routine memorandum just because I happened to
+sign it because I sign so many things on that staff. I sign
+off on a host of things which are not really my creation. I
+am representing the staff as a whole.
+
+Mr. Goldsmith. Do you know when Mr. Angleton left the CI
+Staff?
+
+Mr. Tovar. Yes. I am not certain of the precise date.
+I think it was either December '74 or January '75. That is the
+position of Chief, Counterintelligence?
+
+Mr. Goldsmith. Yes.
+
+Mr. Tovar. I believe he may have remained in the office
+for several months after that before he finally retired.

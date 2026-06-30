@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_26185.png
+
+Convert to Markdown-89-
+
+friends of mine, and when I'd talk to them and
+tell them my views, there was always sympathy
+for them, so I might have mistaken that for
+understanding and so on, and even that was
+rare enough so that I felt that [Interruption]
+
+O'BRIEN: How long is the manuscript?
+
+LANSDALE: Ho ho. I went through first,--the publishers wanted me to tell all; another words, just write as much as I could for later editing, they said this is the way people do it. So very I wound up with really three of a really long books, and since I was writing one not too long book, why I wound up with a tremendously long manuscript. And urged them, that I could cut it down to two books, and publish it as two different things, and the subject matter would have permitted me. They still want just one book, so I am now going back with editor's notes and with my own notes and trying to... I started off initially with a cut-and-paste job, but I discovered I couldn't do that and retain the proper narrative and entries on the thing, but I wound up having
+
+I did start off initially with a cut-and-paste job, but I discovered I couldn't do that and retain the proper narrative and entries on the thing, but I wound up having

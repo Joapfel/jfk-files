@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_31529.png
+
+Convert to MarkdownSF 100-33836
+JTQ:j1
+
+The name San Francisco Free Speech Forum is the name utilized by the San Francisco County Communist Party to sponsor its public meetings.
+
+SF T-7
+on 10/2/64
+
+Subject was among approximately 200 persons present at a "National Guardian" festival held November 20, 1966, at the Peace Center, 55 Colton Street, San Francisco, California.
+
+SF T-2
+on 11/25/66
+
+For characterization of the "National Guardian" see appendix.

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_26018.png
+
+Convert to MarkdownEisenhower administration. Now this wasn't
+true throughout the administration at all,
+but there was a considerable group of people
+who were in various executive slots just
+down the second and third level who had been
+through the . . . [Interruption]
+
+O'BRIEN:
+
+Well, Laos, as I understand it, is, with the impact of the
+that's going on, that it really
+does in some ways tear up the economy of the
+country. Now, how do you look on the training
+of the Laotian army in late 1960--or so '59, '60--
+some of the activities of the Agency in Laos,
+as well as the army and through the PEO
+[Programs Evaluation Office] office and things
+that like this? Is this the kind of thing you
+envision in terms of--I hate to use the term
+"nation building"--helping a country to help
+itself, in helping people to help themselves?
+
+LANSDALE:
+
+Yes, as long as in the modern world the leaders
+of the country will think in terms of as large
+a military establishment as they can afford
+in a country. And they do this without any
+advice from anybody. This is just a natural,

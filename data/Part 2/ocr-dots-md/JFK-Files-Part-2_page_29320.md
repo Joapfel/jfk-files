@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_29320.png
+
+Convert to MarkdownHW 50955: DocId:32263505 Page 3
+
+1:25 P.M.
+
+photo and completes the visa application, stating that he would like to leave in three days. He asks Azcue about how long it will take to get the visa. Azcue explains his misconception to him, an argument results and Azcue throws Oswald out. Duran feels sympathetic to Oswald, gives him her address, and promises to help in any way she can. She feels that Oswald should have been granted the visa with no problems and that Azcue's actions are wrong.
+
+Oswald calls the Soviet Consulate in an attempt to find out what has gone wrong with the arrangement he thought he had. In Spanish, he asks for the Consul. He is told that the Consul is out and that he can be contacted between four and five on Mondays and Fridays. [This call may have been from Duran's phone.] If it was he then told her that he could get hold of the Soviet he had his deal with and would she be kind enough to talk to him. She said that she would and to come back at four o'clock. If the call was not made then Oswald got this message to Silvia and the same arrangements for Silvia's four o'clock call were made.
+
+4:05 P.M.
+
+Silvia Duran calls the Soviet Embassy. She tells them the American citizen, the one who wants a visa to Cuba in transit to Russia, is there. She asks who he talked to at the Soviet Embassy when she sent him there to get a Soviet visa so he could get an intransit visa to Cuba. She tells the official she is speaking with that the man seeking the visa wants to know with whom he spoke because he had been assured that there would be no problem. The man at the Soviet Embassy puts another man on the phone and Silvia goes through it again. He tells her that her call will be returned.
+
+4:26 P.M.
+
+A Soviet Official returns Silvia's call. The situation is explained to Silvia. She realizes that she cannot give him a visa because of the delay on the Soviet end and the fact that he does not know anyone in Cuba. What does Silvia tell Oswald who is still setting there waiting? In light of subsequent events it was probably something that would keep his hopes up.
+
+Night
+
+Oswald goes to a party at Rubin Duran's with Silvia and two American friends. This may have been, more likely was, the night of the 26th. He is seen by Elena Garro de Paz. He spends the night with Silvia.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_31130.png
+
+Convert to MarkdownSECRET
+
+working inside the Embassy and approximately four outside. Inside, with deep cover, were George P. Winters (Econ. Officer), FNIU Mahoney, FNIU Venables, and Steve Washenko (Econ. or Agric. Officer). Outside were Jean Leberman (teacher at the American B school) and three or four students, who handled orientation projects rather than operations projects.
+
+Langelle handled CIA communications in Moscow. The CIA used State Department channels of communication, but could code messages by means of one-pad encrypting so that the message was secret until it was forwarded to CIA headquarters, where it was decoded.
+
+In 1959 the Soviets declared Langelle persona non grata as a result of his involvement with P. S. Popov. Langelle was the case officer of Popov, who worked for the GRU, Soviet military intelligence. While making a contact with Popov, Langelle was detained by the KGB and was questioned for two and a half hours. The KGB attempted to recruit him, and then released him. The State
+
+SECRET
+
+11112576

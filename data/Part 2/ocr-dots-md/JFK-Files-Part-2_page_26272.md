@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_26272.png
+
+Convert to Markdown10. The ring takes great precautions to prevent tracing of the addressees. One of the important links is a woman whose Paris home has entrances on two different streets. She and her husband use the principal street address for their normal lives, but the back street address for the receipt of clandestine correspondence.
+
+11. In this Cuban-sponsored subversive operation, routes of travel are planned to escape easy detection of the fact that a person has left his home, been trained, and has returned to his country. Most of the travel has been by way of Mexico and thence to Cuba, since it was possible to escape detection of the travel. The Cubans issued loose leaf inserts for the travelers' passports, rather than stamping a record of the travel in the document itself. The Mexican Government has recently begun measures to control this travel, but a large number have managed to enter and leave Cuba for Mexico without detection. Some of the travel to Cuba is by way of the Dutch and British West Indies.
+
+12. Many of the returning trainees go through Paris and Prague. From Paris, the travelers fan out to a number of different Latin American countries, from which they attempt clandestine re-entry into Peru. Ecuador, Colombia and Brazil have been used extensively as Latin American entry points as the travelers leave Paris.
+
+13. The agent reports that money for this extensive travel program has been deposited in Swiss banks by the Chinese Communists, via Cuba. MIH trainees were told not to ask for aid from the Soviets to avoid straining relations with China; "since it is backing them". Our asset was responsible for the safekeeping of approximately $15,000 when he arrived in Paris. The money had been parceled out among a number of trainees during the trip, and they handed it to the Paris coordinator there. Our asset was given $1,000 when he left Paris, which he was to use for documentation when he was ready to re-enter Peru. He reported that the cost of the travel of his group from Peru to Cuba was approximately $25,000, and that this money was brought to a local leader from Paris by courier before the trip.
+
+14. The MIH plans to establish a cover importing company representing a French firm which exports cheap agricultural equipment. The branch in Peru will serve as a cover for activities involving the travel of MIH members and the transfer of funds. It will also be a clearing house for information and instructions. When the current group of trainees is back in Peru, another group will be sent out, and funded through the cover firm. The agent reports that
+
+SECRET

@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_28275.png
+
+Convert to Markdown# If typewriter is not available, bear down with ball-point pen to make legible copies.
+
+NWW 88326-
+DocId:322443901
+
+Page 2 - To Insurance Carrier
+
+Standard Form No. 2809
+U.S. Civil Service Commission

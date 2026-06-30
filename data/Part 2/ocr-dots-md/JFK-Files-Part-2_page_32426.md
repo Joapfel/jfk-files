@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32426.png
+
+Convert to MarkdownA Dominican exile in Cuba reportedly told a source who was there about mid-December that Dominican Communists are leaving Cuba for the Dominican Republic to sabotage the cane fields there. (CIA, Panama City, IN 48599, 11 January, SECRET FORUM)
+
+SECRET
+
+NO FOREIGN DISSEM
+
+FOREIGN DISSEMINATION
+
+HW 50955 DocId:32423736 Page 50

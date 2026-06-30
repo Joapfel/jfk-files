@@ -1,0 +1,6 @@
+# JFK-Files-Part-2_page_25500.png
+
+Convert to MarkdownINTERVIEW OF MARITA LORENZE
+BY FRANK STURGIS, 9/2/76
+
+HW 50955 DocId:32423630 Page 233

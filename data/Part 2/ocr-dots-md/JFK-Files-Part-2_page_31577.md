@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_31577.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mb
+
+with the following restrictions.
+
+The parade must enter Oakland no later than 11:00 AM, November 20, 1965, and must terminate at 7th and Peralta Streets no later than 4:00 PM. If permission from the owners of the property at 7th and Peralta (U.S. Post Office) can not be obtained, alternate points of dispersion will be De Fremery Park or Bushrod Park, Oakland. Both of these alternate locations were offered by the defendant, City of Oakland and Alameda County, as dispersal points.
+
+Permission for the use of the vacant lot at 7th and Peralta was subsequently denied by the owners.
+
+The injunction prevented the plaintiff from sending any persons to the OAT.
+
+The rally following the parade must terminate no later than 5:00 PM.
+
+Law enforcement officers in Oakland and Alameda County were restricted from arresting plaintiff; however, individuals who might commit acts of violence or break possible laws, were subject to arrest. Defendant and their agents must protect the plaintiff and thus sanctioned from attacks by any group, such as the "Hell's Angels". The parade must consist of no more than 1,000 persons in each group and each group must maintain a distance of 60 feet or more from groups, so as not to interfere with east-west traffic. The marchers must march no more than 7 abreast and not occupy more than 1/2 of the street. In addition, the injunction provided that the plaintiff must file by noon, November 18, 1965, the names and addresses of all the monitors of the parade. If reasonable emergency arises, law enforcement agents of the defendant must change the parade route in a reasonable manner consistent with the parade route.
+
+On November 20, 1965, a Special Agent of the FBI was furnished with a printed leaflet captioned, "Why We March Against the War in Vietnam."
+
+The leaflet stated that every day young Americans were daily in a war they didn't understand. The leaflet further stated that American soldiers were daily "dying" because they
+
+908

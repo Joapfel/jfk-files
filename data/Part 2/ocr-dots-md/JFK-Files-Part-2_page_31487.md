@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_31487.png
+
+Convert to MarkdownCOMMITTEE TO UPHOLD THE RIGHT TO TRAVEL
+
+A source advised on August 1, 1963, and October 4, 1963, that at a meeting sponsored by Progressive Labor and held on July 31, 1963, at Stiles Hall, Berkeley, California, it was decided that a committee be formed in behalf of the San Francisco Bay Area students who had traveled to Cuba in June, 1963, in defiance of the ban by the United States Department of State on travel to Cuba. The name decided upon was the Committee to Uphold the Right to Travel (CURT).
+
+The same source and a second source advised that CURT, a non-membership organization, has as its principal and main purpose the directing of publicity toward the thought of freedom to travel. In the event of the prosecution of the students who traveled to Cuba, CURT will become a committee to aid in their defense.
+
+The first source advised that of the twelve officers elected, five are currently members of the Socialist Workers Party and one was a member of the Socialist Workers Party until July, 1963. The current members are:
+
+SUE MATTINGLY, Recording Secretary
+BRIAN SHANNON, Steering Committee
+HAROLD VERB, Educational Director
+TOM SANDERS, Steering Committee
+RICHARD AOKI, Steering Committee
+
+The former member of the Socialist Workers Party is JAMES PETRAS of the Student Committee.
+
+APPENDIX PAGE
+
+326

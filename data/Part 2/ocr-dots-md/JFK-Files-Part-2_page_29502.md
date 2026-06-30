@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_29502.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+the conversation.
+
+Q: You checked the photosurveillance materials for approximately a four or five day period, is that correct?
+
+A: Yes, I think it is.
+
+Q: During that four cr five day period... this man was the only non-Latin appearing man whose photograph you found, is that correct?
+
+A: I think it was the only non-Latin ap-
+pearing person's photograph that we
+found that we could not identify as
+somebody else. A lot of the people
+who went to the Soviet Embassy all
+the time, we came to know who they
+were. After they had been identi-
+fied, they made frequent visits there. 551/
+
+The review of the photoproduction from LIMITED,
+the one base that has been made available to this Commit-
+tee, makes the explanation of the mistake about the iden-
+tity of the individual due to his being the only non-
+Latin implausible. The record reflects that unidentified
+American males were listed on the log sheet as "U A M"
+after the time was given. The photograph that was linked
+to Oswald was the only "U A M" that appeared on 2 October
+1963. But on September 27, 1963 another "U A M" had ap-
+peared. The Committee has concluded from a review of a
+note that Ann Goodpasture wrote on the log sheet that
+this individual had not been identified by the time that
+
+Classification:
+---
+
+20070104
+
+Classified by derivation:
+
+HW 48327 DocId:32263889 Page 150

@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_31798.png
+
+Convert to MarkdownSECRET
+
+1
+
+W.E.B. DU BOIS CLUB OF SAN FRANCISCO,
+aka. DuBois Youth Group, San Francisco
+DuBois Club, San Francisco DuBois
+Youth Group, Student-Labor Alliance
+
+A source advised that on January 31, 1963, the W.E.B.
+DuBois Club of San Francisco held its first general meeting at
+California Hall, Polk and Turk Streets, San Francisco, California,
+at which time the aims of the club were put forth as follows by
+TERENCE "KAYO" HALLINAN:
+
+(1) Alleviate the Negro problem in the United States.
+
+(2) Promote peaceful co-existence between the United States and Russia.
+
+(3) Promote and encourage Marxist doctrines and to bring about a socialistic government in the United States.
+
+A second source advised in March 1963, that the DuBois Club was both conceived and originated by TERENCE HALLINAN.
+
+A third source advised on April 9, 1965, that in April 1965, TERENCE HALLINAN advised he was not a member of the Communist Party (CP) but considered himself a communist and intended to join the CP as soon as he passed his bar exams.
+
+A fourth source advised on June 29, 1964, that at a general membership meeting held on June 28, 1964, the DuBois Club voted to affiliate with the parent organization, the W.E.B. DuBois Clubs of America (DCA).
+
+The fourth source advised on April 26, 1965, that the DuBois Club is currently active as a membership organization, has its headquarters at 1007 McAllister Street, San Francisco, and continues to follow the line and policy of the DCA.
+
+SECRET
+
+1362
+
+120
+
+APPENDIX
+
+SECRET
+
+Copy of Copies
+Page of Pages

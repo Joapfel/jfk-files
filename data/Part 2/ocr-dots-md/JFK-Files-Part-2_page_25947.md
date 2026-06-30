@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_25947.png
+
+Convert to MarkdownTHAT THE Metro team is even Involved is happenstance. Rosselli lived in Plantation, Broward Coun- ty, with his sister and brother-in- law. It's just that his killers chose to dump his body in Dade.
+
+While several detectives say their instincts lead them to con- clude that the Rosselli murder was an internal underworld affair, all on the team are aware of the pres- sure on them to search each clue that leads back to the CIA-Castro affair.
+
+With Rosselli's death this sum- mer, the newly appointed Senate committee saw its list of knowl- edgeable witnesses further trimmed. Some of those witnesses have died violently and some from natu- ral causes.
+
+When Giancana was murdered in June of 1975, before he could even be questioned by the committee staff, authorities attributed it to an internal gangland struggle — even though the murderer is still un- known.
+
+The death of Rosselli, who had appeared before the committee three times in the past year with- out immunity, caused greater con- cern on Capitol Hill.
+
+THE SAME night Rosselli's body was identified — the legs hacked off and stuffed along with the body into an oil drum — Baker, vice chairman of the Senate Intelligence Committee, called for the FBI to get involved in the case. (Several days later, Attorney General Ed- ward Levi ordered FBI involve- ment.)
+
+It wasn't until several weeks later, however, that what was known to Baker became public knowledge.
+
+A section of the former commit- tee's April report told of a Wash- ington attorney who in 1967 went to Supreme Court Chief Justice Earl Warren (chairman of the then-disbanded Warren Commis- sion) to say that two of his clients believed they knew about Cuban agents in the United States who conspired in the assassination of John F. Kennedy.
+
+THE INFORMATION eventually reached the FBI, but as the Senate committee concluded this year, the 1967 FBI probe was slipshod and incomplete.
+
+One of the clients referred to in the report has since been identified as Rosselli. And it has since been learned that Rosselli was con- convinced he held a vital clue to the JFK murder.
+
+"There was never the slightest doubt in John's mind that Castro was responsible for the assassina- tion of Kennedy," said Edward P. Morgan, the attorney referred to in the report.
+
+Morgan is an attorney of no mean stature in Washington. He served as chief counsel to the joint congressional committee which studied the Pearl Harbor attack, counsel to the Senate Foreign Rela- tions Committee and for seven years was chief inspector of the FBI.
+
+ROSSELLI told Morgan about the CIA plot in 1967, when the De- partment of Justice was vigorously attempting to deport Rosselli for being an illegal alien.
+
+Rosselli, Morgan said, "was cer- tain that the people he (Rosselli) put around Castro in the CIA plot turned right around and killed Ken- nedy. The people he still knew (in 1967) did it."
+
+Rosselli, according to Morgan, decided to talk about his CIA activ- ity in hopes of decreasing the pres- sure from the FBI and Department of Naturalization and Immigration, both Justice Department agencies.
+
+Several friends of Rosselli, in- cluding Morgan, say they are con- vince d the FBI tried to get Rosselli to become an organized crime in- formant by threatening to have him deported if he didn't coopera- te.
+
+IN 1961, through a bungled wiretap effort, the FBI became aware of Rosselli's CIA activities.
+
+While Giancana and Rosselli were in Florida planning the opera- tion, Giancana wanted to return to Las Vegas to check on his girl friend, Phyllis McGuire, whom he suspected of dating comedian Dan Rowan. To keep Giancana in Flori- da, it was agreed that a bug would be placed in her hotel room and her conversations monitored.
+
+But the private detective they hired, with CIA money it has since been learned, was discovered and arrested. Eventually the police in- vestigation led back to the Castro plotters.
+
+Prosecution was avoided when the CIA intervened and said the "national interest" would be dam- aged if the plot information be- came public.
+
+WHEN THE wiretap case was again to be investigated in 1966, this time by a Senate committee headed by the late Sen. Edward Long (D., Mo.), the CIA again step- ped in to stop it.
+
+Morgan was told about the pend- ing investigation by Rosselli and Robert Mahue, a former FBI agent-turned Howard Hughes aide who was the CIA's initial link to Rosselli.
+
+Mahue told Morgan that both he and Rosselli had been subpenaed to appear before the committee. Mor- gan said he called Lawrence Hous- ton, the CIA general counsel. Hous-

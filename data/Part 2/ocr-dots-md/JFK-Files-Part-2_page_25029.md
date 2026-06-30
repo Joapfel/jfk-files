@@ -1,0 +1,71 @@
+# JFK-Files-Part-2_page_25029.png
+
+Convert to MarkdownTOP SECRET
+
+authorization for an assassination within the CIA?
+
+Mr. Dillon. It is possible. And the same thing with Castro, when that came along the following year. That is perfectly possible.
+
+Mr. Baron. Mr. Secretary, I would like to show you a series of minutes from the Special Group and ask you if those refresh your recollection as to the attitude of the US toward the Congo in the summer and fall of 1960. The first, which we will call Exhibit 2, is dated 30 June 1960.
+
+(The above referred to document was marked Dillon Exhibit No. 2, for identification.)
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+HW 50955 DocId:32423566 Page 90
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

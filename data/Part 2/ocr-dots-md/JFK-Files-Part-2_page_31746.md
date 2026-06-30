@@ -1,0 +1,55 @@
+# JFK-Files-Part-2_page_31746.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH:ay
+
+The "Berkeley Daily Gazette" newspaper,
+issue of February 23, 1966, carried a news article head-
+lined "Peace Group Slates Scheer." This article states
+ROBERT SCHEER, candidate for Congressman, 7th Congressional
+District, would speak under the sponsorship of the Berkeley
+Women for Peace on February 24, 1966, at Friends Meeting
+House, Berkeley. It added that SCHEER, "an outspoken
+critic of the Johnson Administration policies in Viet Nam,
+is presently touring South Viet Nam and Cambodia, the latter
+country at the invitation of Prince SIHANOUK." It continued
+by stating, "Foreign Editor of Ramparts, author of 'Cuba -
+Tragedy in a Hemisphere' and 'How the United States Got
+Involved in Viet Nam.' SCHEER is also known for his associa-
+tion with the Center for Study of Democratic Institutions
+at Santa Barbara." The article concluded by stating that
+Women for Peace would vote on endonging SCHEER's candidacy
+at this meeting.
+
+An article appeared in "The Daily Californian,"
+issue of March 1, 1966, which stated that ROBERT SCHEER
+would give "an eyewitness report from Southeast Asia" at
+8:00 p.m. at the Berkeley Community Theatre, Berkeley,
+California. The article added, "SCHEER is a candidate
+for Congress in the 7th Congressional District and an
+authority on U.S. policy in Vietnam."
+
+The "Berkeley Daily Gazette" newspaper, issue of March 1, 1966, carried a news article advertising the above speech. It also contained information to the effect that SCHEER'S travels during February, 1966, took him to Cambodia, Thailand and South Vietnam.
+
+"The Daily Californian," issue of March 4, 1966,
+carried an article reporting the results of an interview
+by this newspaper on March 3, 1966, with ROBERT SCHEER,
+who was scheduled to speak March 4, 1966, on the campus
+of UC, Berkeley. This article quoted SCHEER as stating that
+Oakland, California might be the next Watts and explode
+(into race riots) because of the "miserable conditions which
+have persisted there for the last 25 years." The article
+
+SECRET
+
+310
+
+- 68 -
+
+Copy ................. of .................Copies
+Page ......... of .........Pages
+
+NW 88613
+DocId:34517445 Page 69

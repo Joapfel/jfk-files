@@ -1,0 +1,85 @@
+# JFK-Files-Part-2_page_28787.png
+
+Convert to MarkdownREFERENCES
+
+M. Carl Holman
+President
+The National Urban Coalition
+1201 Connecticut Avenue, N. W.
+Suite 400
+Washington, D. C.
+331-2447
+
+Hon. Charles C. Diggs, Jr.
+Chairman
+Committee on the District of Columbia
+House of Representatives
+2208 Rayburn House Office Building
+Washington, D. C. 20515
+225-2261
+
+Hon. Richard G. Hatcher
+Mayor
+City Hall
+401 Broadway
+Gary, Indiana
+219/944-6700
+
+Hon. A. J. Cooper
+Mayor
+City Hall
+Prichard, Alabama
+
+Hon. Lisle C. Carter
+Chancellor
+Atlanta University Center
+594 University Place, N. W.
+Atlanta, Georgia 30314
+414/522-8980
+
+Edward C. Sylvester, Jr.
+Staff Director
+Committee on the District of Columbia
+House of Representatives
+1310 Longworth House Office Building
+Washington, D. C. 20515
+225-4457
+
+Kingman Brewster, Jr.
+President
+Yale University
+New Haven, Connecticut
+203/787-3131
+
+Burke Marshall
+Assistant Dean
+Yale University Law School
+New Haven, Connecticut
+203/787-3131
+
+Walter N. Rothschild, Jr.
+Chairman
+The National Urban Coalition
+521 Fifth Avenue
+Suite 3701
+New York, New York 10017
+212/862-2928
+
+R. Sargent Shriver, Jr., Esq.
+Fried, Frank, Harris, Shirver
+& Kampleman
+Suite 1000
+Watergate 600 Building
+600 New Hampshire Ave., N.W.
+Washington, D. C. 20037
+965-9400
+
+Roger Wilkins
+Editorial Board
+The New York Times
+229 West 43rd Street
+New York, New York
+212/556-1234
+
+NW 88326
+DocId:32244106 Page 34

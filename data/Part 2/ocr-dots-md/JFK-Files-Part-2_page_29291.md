@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_29291.png
+
+Convert to Markdown## Undated Committee Request:
+
+1. Zack Stout - 1607642. Latest available mailing address provided Select Committee by phone.
+
+2. George Arthur Wilkins, Jr. - Latest available mailing address provided Select Committee by phone.
+
+3. Robert Augg - Identified as former Marine Robert Royce Augg - 1596827. Personnel record has been made available for inspection.
+
+4. Nelson Delgado - Identified as former Marine Nelson Delgado - 1644884. Personnel record has been made available for inspection.
+
+5. Carson Roberts - Has been previously identified as Lieutenant General Carson A. Roberts, 04463, U.S. Marine Corps Retired. Mailing address previously provided the Committee.
+
+6. Thomas Arthur Vallee - 1114455. Identified as a former Marine. Personnel record has been made available for inspection.
+
+7. Allan O. Thompson - Has been tentatively identified as a former Marine by the name of Alva Owen Thompson. Marine Corps personnel record has been made available for inspection.
+
+8. Kerry Wendall Thornley - A former Marine with same name but the date of birth of 4/17/38 instead of 4/19/38 has been identified and a certified copy of Thornley's Marine record has been made available for inspection.
+
+9. John E. Donovan - A former Marine with same name but with date of birth of 8/31/34 instead of 8/21/34 has been identified and a certified copy of Donovan's personnel record has been made available for inspection. It was noted that correspondence in the Marine Corps jacket indicated that Donovan joined the U.S. Army subsequent to his tour with the Marine Corps.
+
+10. Chief Warrant Officer Morgan - This officer has been identified as Captain Roger G. Morgan, U.S. Marine Corps Retired. His mailing address is Route 1, Sewalls Point, Jensen Beach, Florida 33457.
+
+Date of Request
+
+5/3/78
+
+1. Colonel Mario Silvesto - no record identifiable.
+
+2. Thomas Arthur Vallee - no record identifiable.
+
+3. Gary Taylor - no record identifiable.

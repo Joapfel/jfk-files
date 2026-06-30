@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_25950.png
+
+Convert to MarkdownSECRET
+
+delivered 4,000 doz.
+O'C - Fla
+Richard Scully Cain
+AKA | Richard Scalzei | CIA says rel.
+
+well as adle
+"cutout defense"
+since '63
+
+Givens drivs?
+
+- Jan 15'94 pull of gently canvon
+
+SECRET

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_29545.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted from CIA—controlled documents.)
+
+- 181 -
+
+"since 27 September to locate all material possibly pertinent." 669/ The cable went on to instruct the station to send the full transcripts and original tapes to Headquarters by special courier. 670/ The cable also asks if the original tapes are still available. 671/
+
+This Committee has not been able to determine how the CIA Headquarters knew, on 23 November 1963, that a review of the tap material should begin with the production from 27 September, the day Oswald first appeared at the Soviet and Cuban Embassies. There is no record that Headquarters had been informed of the 9/27 visits prior to this cable having been sent. It is possible, as some witnesses have suggested, that his information was provided to CIA Headquarters by the FBI in Washington. 672/ If that is the case then it merely shifts the question. This may indicate that the CIA Headquarters was aware of the 9/27 visits prior to the assassination. An even stronger inference is that they were aware of those visits at least by the day after the assassination. The manner in which they learned of these visits by that date has not been determined. It is possible that Headquarters was informed
+
+Classification:
+
+297
+
+Classified by derivation:

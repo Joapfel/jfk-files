@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_32100.png
+
+Convert to MarkdownUNITED STATES ARMY INTELLIGENCE COMMAND
+
+EXHIBIT
+COVER SHEET
+
+BEST COPY AVAILABLE
+
+SUBJECT: TRINKALA, Victor L.
+
+FILE NUMBER: 9321 6006
+
+PREPARING UNIT: Alameda Field Office, Region I, 115th MI Group
+
+AGENT REPORT DATED: 22 April 1970
+
+DESCRIPTION: Copy of Record of Interview form filled out by SUBJECT on 7 November 1969
+
+489
+
+IC FORM 171
+
+17 NOV 67

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_31482.png
+
+Convert to MarkdownSF 100-33836
+FTD/mss:
+
+C. Peoples World (PW)
+
+The PW is a west coast Communist newspaper published in San Francisco.
+
+The subject attended a bazaar sponsored by the PW held December 6 - 8, 1963, at 81 Clementina Street, San Francisco, California.
+
+SF T-3 - 12/12/63
+
+D. San Francisco School of Social Sciences (SFSSS)
+(See appendix)
+
+The fall, 1963, bulletin of the SFSSS listed IRVING FROMER as an instructor in a class on Marxism and Art held on Monday evenings from 8:45 P.M. to 10:15 P.M. at 345 Franklin Street, San Francisco, starting on October 14, 1963.
+
+SF T-9 - 10/20/63
+
+On October 14, 1963, FROMER conducted a class on Marxism and Art and recommended the class read a book on art and social life by PLEKOVOV whom he described as a theoretical writer of Marxist Socialism. He also recommended other literature by Soviet writers.
+
+SF T-12 - 10/23/63
+
+Subject conducted class on Marxism and Art on October 21, 1963, at which he discussed objective and subjective art. He also discussed WALT WHITMAN as a painter. He remarked that the American Art Board is composed of reactionaries like ROCKEFELLER and CARNETTIR.
+
+SF T-1 - 10/28/63
+
+- 5 -
+
+321

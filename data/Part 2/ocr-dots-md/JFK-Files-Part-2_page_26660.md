@@ -1,0 +1,58 @@
+# JFK-Files-Part-2_page_26660.png
+
+Convert to MarkdownSECRET
+
+HW 50955 DocId:32204971 Page 14
+
+Photocopy from
+Gerald Ford Library
+
+1. Q Mr. Sturbitts, are you familiar with a gentleman by the name of Frank Sturgis?
+
+2. A Indeed.
+
+3. Q Is your familiarity based on what you have read in the press?
+
+4. A No. It is what is contained in the files.
+
+5. Q Have you caused a search to be made of CIA files, particularly the files of the Western Hemisphere Division, in an attempt to determine whether Mr. Sturgis ever had any connection with the Agency?
+
+6. A I have.
+
+7. Q What were the results of that search?
+
+8. A Absolutely no connection, never has been.
+
+9. Q When we talk about connection, are we talking about an employment relationship?
+
+10. A That is what I am speaking of.
+
+11. Q Was Mr.Sturgis ever an independent contractor of the Agency?
+
+12. A No.
+
+13. Q Was he ever a contract employee?
+
+14. A No.
+
+15. Q Was he ever a regular employee of the Agency?
+
+16. A No.
+
+17. Q Was he ever a contract employee?
+
+18. A No.
+
+19. Q Was he ever a regular employee of the Agency?
+
+20. A No.
+
+21. A No.
+
+22. Q Was he ever a contract employee?
+
+23. A No.
+
+24. Q Was he ever a regular employee of the Agency?
+
+25. A No.

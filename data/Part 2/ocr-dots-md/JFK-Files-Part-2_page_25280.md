@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_25280.png
+
+Convert to MarkdownMarie Lorenz says she was told that maps she took from Castro's headquarters were factor in locating and photographing missile sites (above). Under pressure from U.S., Khrushchev ordered missiles removed and shipped back to Soviet Union (right).
+
+Cienaga de Zapata, a vast swamp that he intended to convert to rice fields. As soon as he left Havana with his usual entourage, Marie received orders to return to the Cuban capital immediately. She boarded a regular Cubana Airlines flight, passing as an American tourist and carrying her Castro uniform and a loaded revolver in her overnight bag.
+
+She arrived in Havanna a few hours after Castro left town. Americans were still welcome there in those days, and Cuban customs officers seldom searched tourists' luggage.
+
+"There was no trouble at the airport," Marie said. "I checked into a sleazy little hotel in downtown Havanna, changed into my lieutenant's uniform and went direct to the Havana Hilton. By this time, Castro had a home on the outside of Havanna, Casa Cojimar, but it was more convenient for him to keep his papers at the Hilton."
+
+"He had Suite 2408 and the adjoining suite. I had the key to 2408. Nobody recognized me when I came into the hotel. I had changed my hair style and made my complexion darker than it is naturally. And I wore dark glasses. They (Castro's people) all wore dark glasses, even at night."
+
+"A lot of people were loitering in the lobby,ñordados and everything. I just walked right through. Passing the desk was the man thing that bothered me because the desk charts know me. I had a commized .38 caliber Detective Special clipped to the inside of my waistband. Nobody seemed to notice me. I walked to the elevators and went up to the 24th floor.
+
+## Saw Her Opportunity
+
+"Nobody was around When Fidel left, they all left with him; his bodyguards, his advisers, whatever. When I had lived there, I was either all alone and everything was dead quiet, or else Fidel was there and there was a lot of noise and cigar smoke.
+
+"I unlocked the door to Suite 2408, went inside and double locked the door behind me. I felt pretty confident because I knew Fidel was at Cienaga de Zapata. Who he left the suite, no one was to gain. These were the orders.
+
+"As usual, the suite was littered with papers and the filing cabinet was open. I couldn't grab everything. I took as much as I could and stuffed papers and maps into my uniform pockets and
+
+changed into a dress and caught the next flight to Miami.
+
+"Frank met me at the airport and I gave him all the papers. I never knew exactly what information they contained. I was told the stuff was good, it was fantastic, 'the United States government is very happy.'"
+
+Among the papers were topographical maps of Cuba on which several sections of undeveloped land, miles away from any population center, had been marked with hand-drawn circles. The maps also had handwritten notes that Marie couldn't read because "they were in a foreign language-- Czech, I think."
+
+## Her Find Was Valuable
+
+"Three years later, another intelligence agent told her the maps were "the original groundwork plans" for Soviet missile sites. The circled areas were the spots where Soviet missile bases were built in 1963, setting off the historic showdown between President Kennedy and Premier Khrushchev.
+
+From information supplied by agents inside Cuba and Cuban refugees, and from aerial photos snapped from U-2 spy planes, the CIA was able to pinpoint all the missile bases on the island. But Marie believed her sole mission to Castro's lair gave the CIA its first inkling of what the Russians were plotting. She also believed Castro suspected she was theатур who supplied his secrets. (The CIA has declined to comment on Marie's involvement.)
+
+In March 1960, soon after she had completed this dangerous assignment, Marie received a mysterious telegram from Havanna. Delivered to her both er's apartment at 311 W. 8th St., it said, "CALL 28607 (Castro's private number)" LATE AT NIGHT. IT'S VERY IMPORTANT."
+
+It was signed "Yanez," meaning Capt. Jesus Yanez Pelletier, one of Castro's closest aides. Marie's first in pulse was to ignore the message, but curiosity overcame common sense. Without mentioning the telegram to her brother, she left the apartment around midnight to place a collect call to Havanna from a phone in front on the corner.
+
+As she stepped into the small vestule between the outer and inner front doors to the apartment house, two men grabbed her. One of them was Yanez,
+
+Cuba. Yanez said a plane was waiting at Idlewood Airport. They hit me in the face and tried

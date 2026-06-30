@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_29359.png
+
+Convert to MarkdownClassification: TOP SECRET
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+Outline: Page Six.
+
+Appendix III: HSCA Procedural Write-up: Mexico Trip 2. (p. 273.)
+
+Appendix IV: HSCA Procedural Write-up: Cuba Trip 2. (p. 287.)
+
+Appendix V: Biography: Elena Garro de Paz. (p. 297.)
+
+Appendix VI: Glossary of Terms Used in Report. (p. 301.)
+
+Appendix VII: Listing of CIA Documents Cited. (p. 305.)
+
+TOP SECRET
+U.S. DEPARTMENT
+CU-1053
+
+**Classification:** _______________ 517
+
+Classified by derivation: ___________
+
+NW 48327 DocId:32263889 Page 7

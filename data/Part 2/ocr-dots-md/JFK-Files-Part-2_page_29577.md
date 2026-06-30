@@ -1,0 +1,42 @@
+# JFK-Files-Part-2_page_29577.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 28 -
+
+401/ Joseph B. Smith Interview, 4/20/78, p. 1, JFK Document No. 008279.
+
+402/ Ibid., p. 6.
+
+403/ Ibid.
+
+404/ Ibid.
+
+405/ Ibid.
+
+406/ Ibid.
+
+407/ Ibid.
+
+408/ Ibid., and p. 7. Des Fitzgerald was the Chief of the CIA's Cuban Task Force in 1964. Droller was a CIA Officer.
+
+409/ Ibid., p. 7. Mr. Smith explained the "Counter-Intelligence mentality" by saying that people who had it were "rabid anti-Communists" (Smith Interview, 11/2/77, p. 3, JFK Document No. 003012) and "confirmed believers in the world Communist conspiracy theory...These guys actually believed that the split between the Russians and Chinese was a great deceptive operation. Colby (former Director of Central Intelligence) even says something more amazing. He claims that Angleton absolutely believed that all CIA operations were run by the KGB, (Soviet Intelligence.) He says Angleton (former Chief of Counter-Intelligence for the CIA) believed that every top Soviet defector we took in was a plant. I think that's incredible but I know there were some guys on his staff were his true believers." (Smith Interview, 4/20/78, p. 3, JFK Document No. 008279.)
+
+410/ Ibid., p. 7.
+
+411/ Ibid.
+
+412/ Ibid.
+
+413/ Ibid.
+
+414/ Joseph Piccolo Interview, 8/11/78, p. 1.
+
+Classification:
+
+Classified by derivation: 329
+
+NW 48327 DocId:32263889 Page 225

@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25775.png
+
+Convert to Markdown- 12 -
+
+ago, he said, "has given way to a wave of optimism that the
+Maximum Leader is no longer necessarily a permanent fixture."
+Ambassador Kidd also reported that Che Guevara had indicated
+concern that the raiders would divert much needed manpower
+and resources from the economic to the military sector.
+
+On 4 September a reliable clandestine source in Cuba reported that the reaction of the average man on the street in Havana to the news of the attacks on Casilda and Santa Lucia was "astounding." Prior to the Cuban government's announcement of the raids, the average man on the street seemed apathetic, depressed and in a low state of morale. Following the announcement their mood changed to one of pleasure, joy, and hope. The observations of this source were reinforced by the statements of Cuban refugees who arrived in the U.S. shortly after the Cuban announcement of the raids.
+
+A former Major in the Cuban Rebel Army who broke with Castro reported after his exfiltration from Cuba in January 1964 that the 23 December Siguanea raid which destroyed a P-6 patrol boat was a great boost to morale among disaffected Cubans.
+
+A Cuban lawyer with extensive connections among Cuban government officials and in the Western community in Havana has just reported that the "morale effects of the recent sabotage operations are good among anti-regime segments of the population. Such acts, to them, indicate that the outside world is not forgetting the Cuban people, that the fight continues and suggests a possible prelude to some military action against Castro. Opposite morale effects are noted among the pro-regime segments who have tended to remain notably quiet about the regime after successful sabotage operations."
+
+A Cuban communications technician employed by the Cuban government reported on 1 January that the "act of sabotage against the torpedo boat on the Isle of Pines was very successful in the opinion of the people and, for sure, public opinion needed something to stimulate it. What happened at La Siguanea had such an effect. Although at times failures are suffered which depress the people, they are anxious for something to happen,"
+
+The
+
+SECRET-SENSITIVE
+
+Copy
+
+Lyndon B. Johnson Library
+
+HW 50955 DocId:32423630 Page 508
+
+7

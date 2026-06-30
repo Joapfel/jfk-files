@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_30440.png
+
+Convert to Markdown1-15
+
+case officers wrote -- after station meetings, and it would
+have been normal for me, for example, to see any information
+of consequence that LITAMIL-7 produced, just like it would
+have been normal for any other case officer in the Cuban sec-
+tion to see my contact reports on meetings with LITAMIL-9.
+
+Mr. Goldsmith. In light of that, do you know what infor-
+mation LITAMIL-7 gave concerning the Cuban government's reac-
+tion to the death of the President?
+
+Mr. Shaw. I do not recall, and I do not recall the specifics of anything. You may have something in your files with my name on it; I do not know what LITAMIL-9 produced. I do have the recollection of the sense of feeling on the part of those people that there was no exultation or jubilation or happiness whatsoever inside the Cuban Embassy at the assassination of President Kennedy.
+
+Mr. Goldsmith. Did the penetration agents ever indicate
+that Oswald had been to the Embassy and had stated that he was
+going to attempt to kill the President?
+
+Mr. Shaw. No, not that I know of.
+
+Mr. Goldsmith. Did any of those agents ever indicate that
+Oswald had had contact with the Agency -- with the Embassy,
+rather?
+
+Mr. Shaw. I should imagine that LITAMIL-7 probably did --
+I do not recall it. But since she was in the consulate, and
+--since it was my understanding that Oswald's contact with the
+
+SECRET
+
+ALDERSON REPORTING COMPANY
+
+300 7TH STREET, S.E., REPORTERS BUILDING, WASHINGTON, D.C. 20004 (202) 554-2345
+
+HW 50955 DocId:32277214 Page 16

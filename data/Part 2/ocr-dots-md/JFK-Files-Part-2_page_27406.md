@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_27406.png
+
+Convert to Markdown(Items 30-34 are contained in an operations file labeled "DCS Hqs") Vol. III)
+
+33. Memo dated 2 November 1970 to "Operational Support Staff, DCS" from Richard Ober re New York State Police Reporting (one page).
+
+34. Memo dated 19 October 1970 from Chief, Syracuse Office to Director, Domestic Contact Service re "Case No. 52,722" (2 pages).
+
+35. Routing and Record Sheet dated 8 June 1970 from DCS/Operational Support Staff to C/CI/SO re Case 52722, plus a memorandum for the record, and an "Official Routing Slip" annexed to the Sheet (6 pages).
+
+36. A Memo dated 9 July 1970 re "Meeting with DCS Headquarters' Officers" (4 pages).
+
+37. Memo dated 23 June 1970 re "Discussion with DCS/OSS" (1 page)
+
+38. Memo dated 20 May 1970 re "Discussion with Earl Walker" (1 page).
+
+39. Routing and Record Sheet dated July 20, 1970 to CI/SO Attn: Horn, from Shirley Stetson plus an attached memorandum to the Acting Chief, Detroit Field Office (2 pages).
+
+40. Routing and Record Sheet dated 6 July 1970 to CI/SO Attn: Mr. Horn from Shirley Stetson, plus 2 attachments (3 pages)
+
+41. Routing and Record Sheet dated 13 July 1970 to Shirley Stetson from DC/CI/SO plus attachment (2 pages).
+
+(Items 39-41 are contained in an operations file labeled "DCS Detroit")
+
+42. "Agenda for Discussion with DCS Base Chief" (undated but probably October 1970) (2 pages).
+
+SECRET - SENSITIVE
+
+Photocopy from
+G R Ford Library
+
+NW 50955 DocId:32105598 Page 237

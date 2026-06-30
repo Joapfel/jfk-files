@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_31077.png
+
+Convert to MarkdownSECRET
+
+Betsy Palmer
+
+Review Of Manuel Ray
+Volume ii of xviii
+Page 3
+
+14. 11/14/60 Cable to Director from MASH.
+Ray to surface at press conference scheduled for 11/16/60 in Miami.
+
+15. 11/17/60 Cable to Director from MASH
+On 11/15/60, [Parlett] alias Bender met with Ray in complete privacy.
+"Unquestionably, the youthful, softspoken, unassuming, almost humble Ray is a natural leader of highest intellect, deepest sincerity and conviction."
+Ray's political posture doubtful as far as U.S. government acceptance is concerned.
+
+Explained to Ray the U.S. government's desire to have all Cuban exiles unified in their efforts. Ray says MRP does not wish to reinstate 1950 constitution. Provisional government of 30 honorable Cubans would be established and elections held 18 months thereafter. Castro laws passed at beginning of his regime to be promulgated. State would regulate private investment and utilities would be nationalized.
+
+Ray wants to keep MRP "lean and hungry" -- each member to have specific responsibilities and feel important to revolution.
+
+Ray asked for permission to start a fund drive in Cuba and U.S. Also asked for $10,000 by next Wednesday -- Bender made commitment.
+
+[Parlett] believes net result of meeting was establishment of private MRP-U.S. link and door remains open for some kind of relationship with FRD.
+Ray agrees to discuss this with Miro Cardona. Of all the groups being supported, FRD, MRP and MRR are most significant. All Cuban groups seem to be looking to Bender group to show a preference before joining one of the above three. How long current flexibility can be maintained is problematical.
+
+*16. 11/21/60 Memo for Record
+Subject: Meeting with King and Esterline on subject of handling MRP, 11/18/60
+
+Consensus was that Ray did not politically represent anything to cheer about. Writer felt MRP opposed to joining FRD and recognized need to control MRP and wean it away to the extent possible from its leaders. Could be done by controlling financial and military support. It was agreed in meeting with Mr. Barnes that financial and military support for MRP be channelled through FRD.
+
+17. 11/23/60 Contact Report: Meeting with Ray and Chibas in NYC, 11/22/60
+Ray says MRP has contacts at Isle of Pines with two garrisons and can expect about 750 men to desert Castro at proper time. CAPTAIN CAPOTA is contact with Ray's group.
+
+Ray's people also in contact with commander of prison where Huber Matos is incarcerated. Matos believes PADILLA, the prison commander, would assist
+
+SECRET
+
+2/18P

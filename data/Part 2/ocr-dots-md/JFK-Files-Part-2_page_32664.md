@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_32664.png
+
+Convert to MarkdownSECRET
+
+- 10 -
+
+IV. SITUATION FROM MID-JULY TO OCTOBER 22, 1962
+
+A. Buildup in Soviet Forces and Equipment
+
+In late July and early August, our intelligence noted a significant change in the situation in Cuba. A sudden rise in military aid from the Soviet Union became clearly evident. Ship arrivals, both dry cargo and passenger, increased drastically. For example, for the first half of 1962, an average of 15 Soviet dry cargo ships per month arrived in Cuba. The number jumped to 37 in August. Only one Soviet passenger ship had arrived in Cuba during the first five months of 1962. Four arrived in July and six in August.
+
+While our intelligence people were aware from this and other information that a major Soviet effort in Cuba was under way, its exact nature and impact was not clear to the intelligence community.
+
+During the July-August period, refugee reports of alleged missile activity in Cuba increased significantly. These reports were checked out as scrupulously as possible, but even though many of them included consistent and similar descriptions of some form of missile activity, there was no confirmation of them.
+
+At the same time, there were human source reports that some of the ships were unloaded at night under rigid security with all non-Soviet personnel being excluded from the dock areas. The practice of unloading at night in small easily guarded ports, remote from large population centers, was known to the intelligence community, although the alleged security conditions ashore could not be confirmed.
+
+Human source reports also alleged that the nature and character of the arriving Soviet personnel had changed significantly. It was reported that some of the arriving personnel during this period were primarily young, trim,
+
+SECRET
+
+HW 50955 DocId:32424709 Page 45

@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_31135.png
+
+Convert to MarkdownSECRET
+
+Langelle handled CIA communications in Moscow. The CIA used State Department channels of communication, but codes could code messages by means of one-pad encrypting so that the message was secret until it was forwarded to CIA Headquarters for decoding.
+
+11112581
+
+SECRET

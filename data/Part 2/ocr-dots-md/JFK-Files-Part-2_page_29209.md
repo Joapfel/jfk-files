@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_29209.png
+
+Convert to MarkdownKENNEDY
+
+SELECT COMMITTEE ON ASSASSINATIONS
+
+Name Richard Dennis Call
+Date June 6, 1978 Time4:00 p.m.
+Address Box #623 A, Route 5, Fleming-Place Residence
+ton, New Jersey 08822
+
+Interview: Mr. Call stated that in 1959 he was in the United States Marine Corps and stationed at El Toro Bay Marine Air Station in Santa Anita, California. He stated that at the time he was a Sergeant in the Marine Corps and that his Marine military speciality was aeronautical electronics operator. He stated that Lee Harvey Oswald was under his immediate supervision.
+
+Call stated that his duties and that of his unit was to track aircraft on a radar scope. He further advised that his unit at that time only worked two or three days out of a week. He stated further that Lee Harvey Oswald's specific duties involved sitting in front of a large radar screen that constantly scanned certain areas for aircraft. Once the aircraft was spotted, it was his duty to track the aircraft until it had cleared the area. Call further continued and stated that his unit had security clearance and he described this level of clearance as being "confidential." He indicated that the security clearance was necessary due to the nature of the work that his unit was doing and also because of the type of radar equipment Interviewer Signature Clarence Day
+
+Typed Signature Clarence D Day
+
+Date transcribed 6-23-78
+
+By: br Form #4-A
+
+NW 88326 DocId:32248434 Page 3

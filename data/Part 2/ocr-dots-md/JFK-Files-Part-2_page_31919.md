@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_31919.png
+
+Convert to Markdown# EXHIBIT COVER SHEET
+
+SUBJECT: MARTI, Manuel (NMN)
+PVT E-1, US 52 737 780
+DPOB: 17 May 46, San Juan PR
+
+FILE NUMBER: 8240-6019
+093-36-4601
+
+REPORTING UNIT: 771st MI Detachment
+Fort Brooke, Puerto Rico
+
+AGENT REPORT DATED: 24 September 1968
+
+DESCRIPTION: Translation of Court Order, dated 12 February 1963,
+by which SUBJECT'S father legally changed his name
+to Manuel Marti.

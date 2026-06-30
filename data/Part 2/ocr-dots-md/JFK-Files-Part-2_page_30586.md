@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_30586.png
+
+Convert to MarkdownSECRET
+
+002372
+
+1/18/64
+Sec. Cert. to Sta +2
+
+1/12/66
+Jaun A. Rodriguez
+3000 SW 24th Terrace,
+Miami, FLA.
+says he was imprisoned
+in "Caswell."
+
+1/16/65
+SPECI AL CLEARANCE
+for Project RHYOLITE
+
+2/13/65
+RHYOLITE
+security agreement -
+overhead recon.
+
+12/13/65-
+SPEC I AL C LEAR ANCE R 14
+
+4/14/64
+EP project ACCESS
+termination.
+overhead recon.
+
+2/27/64
+Clearance for EP.
+
+SECRET

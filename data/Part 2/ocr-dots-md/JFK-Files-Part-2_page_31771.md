@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_31771.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH/dp
+
+April 15, 1967
+
+ROBERT SCHEER spoke at the rally of the Spring Mobilization Committee Against the War in Vietnam which was held April 15, 1967, at Kezar Stadium, San Francisco, California, with about 55,000 people in attendance. SCHEER remarked that General WESTMORELAND had stated that the Vietnamese people would have to "bleed more" to learn they had met their match in this war. SCHEER commented that despite United States' "intervention" in Vietnam, there would be "other Vietnams" as other rights groups and countries had their own nationalist expressions. SCHEER went on to say that "other people will make revolutions" and, thus, the U. S. would have to go into other countries. "If other people want communist revolutions, so be it" added SCHEER. Other speakers at this rally urged immediate withdrawal of U. S. troops from Vietnam.
+
+SF T-60, on 4/17/67
+Observation by SAs of FBI
+
+NATIONAL MOBILIZATION COMMITTEE TO END THE WAR IN VIETNAM (NMCEWV)
+
+The Spring Mobilization Committec to End the War in Vietnam (SMCEWV) was an ad hoc organization composed of several anti-Vietnam war and peace groups which organized mass rallies and marches in New York and San Francisco on April 15, 1967, to protest United States involvement in the Vietnam War. The SMCEWV is now known as the National Mobilization Committee to End the War in Vietnam (NMCEWV). The Western Mobilization Committee Against the War is the West Coast counterpart of the NMCEWV.
+
+SECRET
+
+1335
+
+93
+
+3 Copies
+Pages 93 of 134
+
+NW 88613
+DocId:34517445 Page 94

@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_25009.png
+
+Convert to MarkdownTOP SECRET
+
+affairs nor kept abreast of developments in the Congo?
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+Mr. Dillon. No, nor any other foreign policy, except as it fell under the monetary area, with one exception. And this was economic entirely. That is, the President, because of my past experience in the handling of this matter, asked me, moreorless as a favor, because he didn't believe the Treasury should really handle this, but he asked me if I would head the US effort or set up the Alliance for Progress. And there was going to be a meeting down in Uruguay, Puntal del Este. And so I did do thta. And that was the only foreign policy job I did. And that was economic in nature.
+
+Mr. Baron. Let me show you now a copy of your affidavit to the Rockefeller Commission which concerns among other things a meeting that was held in the Pentagon where the Congo was discussed. First, let me ask you if that is a true copy of your affidavit?
+
+16 Mr. Dillon. It so appears.
+
+Mr. Baron. Do you recall this meeting where, as you have affirmed: "On one occasion in late July or early August of 1960, shortly after Patrice Lumumba's visit to Washington, I attended a meeting in the Pentagon at which the overall Congo problem was discussed. During the discussion, which covered a great variety of matters, my recollection is that a question regarding the possibility of assassination attempt against Lumumba was briefly raised. The CIA representative indicated that the Agency did not undertake this sort of
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

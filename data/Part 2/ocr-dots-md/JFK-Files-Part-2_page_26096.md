@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_26096.png
+
+Convert to Markdownthat it was an NSC [National Security Council] meeting, but it was comparable to that with the personnel that were attending. There were several Secretaries: Defense, State, and his National Security people were there.
+
+O'Brien: Could a President be made for this meeting with McNamara and Roswell Scott?
+
+Gilpatric, members of the incoming administration, before they actually assumed office?
+
+LANSDALE: Just before, that is, a day or so before. I'd been in Vietnam for a brief visit and got back just before the inaugural, maybe two or three days, and at that time both McNamara and Gilpatrick were in Defense getting briefed for their new jobs. I met them at that time. The outgoing Deputy Secretary of Defense asked me to start working with Gilpatrick, and so I got Gilpatrick rather than McNamara.
+
+O'BRIEN: This is Douglas. [James H. Douglas]
+
+LANSDALE: Douglas, Jim Douglas (James H. Douglas).
+
+O'BRIEN: How is Douglas to work with him? Is he a pretty sympathetic person?
+
+LANSDALE: Yes, very much so, very much so. He was the one, actually, who wrote the orders and back-

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_30827.png
+
+Convert to MarkdownSECRET
+
+11110793
+ATTACHMENT
+
+SUBJ: BEUTSKY, BORIS YEFIMOVICH #175069-55D
+MOLBY, ALINE #172252
+
+According to general sources Boris Y. Belitsky is an associate of Aline Molby, whose name appeared in Oswald's address book.
+
+... Priscilla Johnson, #71589-DL. She has been mentioned in newspaper articles as one who recalled having come in contact with Lee Harvey Oswald in Moscow, where she interviewed (or talked) with him. Her name, like Molby, was listed in his address book under her last name only.
+
+SECRET~~

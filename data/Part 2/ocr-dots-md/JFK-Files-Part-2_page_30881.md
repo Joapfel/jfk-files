@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_30881.png
+
+Convert to Markdown5. James S Wood, DOB 20 Feb 28, SSN ________ presenty employed at CINEX (S) and HIEA. Wood's 13-3 at Tokyo Station as Finance officer. Subject to interview at CINEX on 3-31-78.
+
+6. George von Brügge, DOB 12 Dec 21, SSN 074-18-5912, 14/801 Springfield Rd. Esmontown MI, telephone 93-3. Former CIA. Case officers, [Tokyo, Japan] to SR B from July 67 to July 67. - presently retired, interviewed 4-10-78. interw/_______.
+
+7. Howard M. Orr, DOB 22 Jul 22, SSN 275-12-4377, address 8405 Weller Ave., McLean Va, telephone 863-3325, presently retired. Positions with CIA, 1949 59-61 (SR Div) 13-3 SM [Tokyo] 61-63 (Case Officer - SB.), Nov 63 HDQS, SR Dir,osh officer for [Japan] interviewed 4-11-78.
+
+5. George A. Fied, DOB 29 May 21, SSN ________ address 27 Bay Tree, North Myrtle Beach, South Carolina 29582, telepdon # 803-249-3193. - Presently retired. Fied was Chief of the Soviet Branch at the [Tokyo] Station from June 1960 to June 1965 interviewed 4-29-78. J/M.

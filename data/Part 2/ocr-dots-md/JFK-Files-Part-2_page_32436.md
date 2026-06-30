@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_32436.png
+
+Convert to Markdowna. One refugee, a deserter from Castro's army, reported from personal knowledge that in late 1961 there were a number of students from Chile, Ecuador, Argentina, Guatemala, and Brazil living in a Havana suburb who regularly attended classes in Marxism-Leninism, propaganda techniques, and other subjects to prepare them for active revolutionary roles in their homelands. He reported that those male students who were between 16 and 20 years of age were sent as part of their training to the Minas del Prio training center in Oriente province. During this phase of their training they received familiarization in the use of small arms and hiked to the top of Cuba's highest mountain, Pico Turquino, in the Sierra Maestra, the locale of Castro's guerrilla warfare against the Batista dictatorship.
+
+b. Another refugee, who lived in Oriente province, learned from conversations with militia-men in the area and from Latin American training there that continuous training of students from other Latin American countries is going on at Las Arenas, Oriente. The trainees receive instruction in military tactics, guerrilla warfare, subversion, sabotage, propaganda, and Communist ideology. The refugee did not know how many Latin Americans were involved, but believed the duration of each course was about eight weeks, after which another group replaced the one that had been training.
+
+5. Much of the travel of Latin American students to Cuba for training and indoctrination is handled by the Instituto Cubano de Amistad con los Pueblos (ICAP - Cuban Institute for Friendship with Peoples).
+
+6. Cuba is also a major takeoff point for Latin Americans traveling to and from the Sino-Soviet bloc. Over 400 Latin Americans returned from last July's Communist-sponsored Youth Festival in Helsinki aboard a Soviet passenger vessel with the 400-man Cuban delegation. They disembarked in Havane and stayed in Cuba some weeks before some of them began returning to their home countries. Others may well be remaining in Cuba for some time.
+
+### B. Cuban Propaganda:
+
+7. International broadcasts by Cuban radio stations maintain a relatively constant propaganda level at all times, with regularly scheduled and special broadcasts to specific countries as well as general transmissions to all of Latin America. The general theme of all these broadcasts is that "the Cuban example" is awakening the "people" of Latin America to the opportunity for revolutionary action against the "corrupt" regimes in power and against "Yankee imperialism" which allegedly supports them.
+
+8. There are regular programs beamed by Havane radio to Nicaragua, the Dominican Republic, Guatemala, Peru, and Honduras. They are all subversive in content and frequently incite to rebellion. These programs to specific countries are apparently directed and produced with the guidance of exiles from the countries concerned resident in Cuba.

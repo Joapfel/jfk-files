@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_26631.png
+
+Convert to Markdown# SOVIET EARTH SATELLITE VEHICLES - COSMOS SERIES
+
+1962 - 1963
+
+SECRET
+
+<table><thead><tr><th></th><th>APPROXIMATE TIME<br/>OF LAUNCH (GMT)</th><th>LAUNCH<br/>SITE</th><th>PERIOD<br/>(MINUTES)</th><th>APOGEE<br/>(N.M.)</th><th>PERIGEE<br/>(N.M.)</th><th>ORBITAL<br/>INCLINATION</th><th>STATUS</th></tr></thead><tbody><tr><td>Cosmos 1<br/>(Sputnik 13)</td><td>12:00:00 (EST.)<br/>16 Mar '62</td><td>Kapustin Yar</td><td>96.35</td><td>529</td><td>117</td><td>49°</td><td>Decayed<br/>25 May '62</td></tr><tr><td>Cosmos 2<br/>(Sputnik 14)</td><td>17:15:18<br/>6 Apr '62</td><td>Kapustin Yar</td><td>102.5</td><td>842</td><td>115</td><td>49°</td><td>Decayed<br/>19-20 Aug '63</td></tr><tr><td>Cosmos 3<br/>(Sputnik 15)</td><td>04:00:12<br/>24 Apr '62</td><td>Kapustin Yar</td><td>93.8</td><td>389</td><td>124</td><td>49°</td><td>Decayed<br/>17 Oct.'62</td></tr><tr><td>Cosmos 4<br/>(Sputnik 16)</td><td>* 10:02:56<br/>26 Apr '62</td><td>Tyurotam</td><td>90.6</td><td>178</td><td>161</td><td>65°</td><td>Recovered<br/>29 Apr '62</td></tr><tr><td>Cosmos 5<br/>(Sputnik 17)</td><td>02:59:49<br/>28 May '62</td><td>Kapustin Yar</td><td>102.75</td><td>865</td><td>110</td><td>49°</td><td>Decayed<br/>2 May '63</td></tr><tr><td>Cosmos 6<br/>(Sputnik 18)</td><td>16:00:00 (EST.)<br/>30 June '62</td><td>Kapustin Yar</td><td>90.6</td><td>194</td><td>148</td><td>49°</td><td>Decayed<br/>8 Sept '62</td></tr><tr><td>Cosmos 7<br/>(Sputnik 19)</td><td>* 09:18:30<br/>28 July '62</td><td>Tyurotam</td><td>90.1</td><td>199</td><td>113</td><td>65°</td><td>Recovered<br/>1 Aug '62</td></tr><tr><td>Cosmos 8<br/>(Sputnik 22)</td><td>05:00:00 (EST.)<br/>18 Aug '62</td><td>Kapustin Yar</td><td>92.93</td><td>326</td><td>138</td><td>49°</td><td>Decayed<br/>17 Aug '63</td></tr><tr><td>Cosmos 9<br/>(Sputnik 26)</td><td>* 09:40:00<br/>27 Sept '62</td><td>Tyurotam</td><td>90.9</td><td>191</td><td>163</

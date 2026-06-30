@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_28761.png
+
+Convert to MarkdownJune 16, 1977
+
+Mrs. Joan Talbert Thornell
+3175 Apple Road, N.E.
+Washington, DC. 20018
+
+Dear Joan:
+
+I want you to know how much the Committee and I appreciate your service and how much we regret that you will no longer be a member of the Staff.
+
+You have our best wishes always.
+
+LS:tle

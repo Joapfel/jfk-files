@@ -1,0 +1,62 @@
+# JFK-Files-Part-2_page_26889.png
+
+Convert to MarkdownSECRET
+
+10 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+heard?
+
+A A fellow named Nestor Sanchez.
+
+Q And Mr. Fitzgerald?
+
+A Yes, and I really can't recall some of the other people. We were -- we had just moved the Station at that time, in Paris, out of the Embassy into the old Rothschild Palace and we felt that it was probably bugged, so all conversations took place -- we walked around the garden and that type of thing, and, you know, I was walking with somebody, somebody was in front of me, and you just overhear conversations.
+
+Q This was in Paris?
+
+A Yes.
+
+Q I see.
+
+Mr. Sanchez -- was he a member of the military?
+
+A No. Mr. Sanchez was in the Special Activities Staff.
+
+He was stationed in Washington. And he was in contact with Cuban military-type.
+
+Q Was it your understanding that the Agency had received instructions with respect to this activity from another component of the Government?
+
+A Well, let me put it this way. I don't know whether they received instructions. I have to assume, and I am pretty positive, that this was a result of a Special Group decision. And at this time you have to remember that Bobby Kennedy was overseeing this deal, presumably for his brother, and he was
+
+HW 50955 DocId:32275454 Page 12
+
+Photocopy from
+Gerald Ford Library

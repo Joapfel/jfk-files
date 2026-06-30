@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_32705.png
+
+Convert to MarkdownThe establishment of these bases, Ambassador Stevenson declared, "constitutes a grave threat to the peace and security of this hemisphere and of the whole world," It should be the purpose of Security Council action, he concluded, "to bring about the immediate dismantling and withdrawal of the Soviet missiles and other offensive weapons in Cuba, under the supervision of United Nations observers, to make it possible to lift the quarantine which is being put into effect." He also expressed the willingness of the United States to confer with the Soviet Union "on measures to remove the existing threat to the security of the Western Hemisphere and the peace of the world."
+
+Ambassador Stevenson transmitted a draft resolution which called for the immediate dismantling and withdrawal from Cuba of all missiles and other offensive weapons, and which authorized the sending to Cuba of a U.S. observer corps to assure and report on compliance with the resolution. The resolution called for an end to the U.S. quarantine of military shipments to Cuba when the above terms were complied with and recommended that the United States and the U.S.S.R. "confer promptly on measures to remove the existing threat."
+
+The Security Council held four meetings on October 23, 24, and 25. By the time the first meeting opened on the afternoon of October 23, the Soviet Union and Cuba had introduced two parallel letters to the President of the Security Council making similar requests for an urgent meeting of the Council in an attempt to change the focus of the question. They contended that U.S. countermeasures and "aggressive action" against Cuba constituted the real threat to peace in the Caribbean. Under Rule 37 of the Council's provisional rules of procedure, the Cuban Representative was invited to participate in the discussion of the matter before the Security Council.
+
+/Ambassador/

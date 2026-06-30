@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_28037.png
+
+Convert to MarkdownSeptember 27, 1977
+
+The Honorable Frank Thompson, Jr.
+Chairman
+Committee on House Administration
+H-326 Capitol
+Washington, D.C. 20515
+
+Dear Mr. Chairman:
+
+The Select Committee on Assassinations has hired
+Mr. Louis Parisi as a staff investigator at an annual
+salary of $28,000.
+
+In order to protect Mr. Parisi's pension and other
+benefits with the New Jersey State Police, he will be
+carried on the State's payroll while he is assigned to
+the Select Committee.
+
+New Jersey will bill the Committee at an annual
+rate of $20,764 so that Mr. Parisi's stipend from The
+House of Representatives will be $7,236.
+
+Mr. Parisi will be working full time for the Select
+Committee and will perform only those duties assigned
+by the Committee.
+
+cc: Finance Office
+LS/th

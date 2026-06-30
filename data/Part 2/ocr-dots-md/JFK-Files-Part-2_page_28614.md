@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_28614.png
+
+Convert to MarkdownTo: Thomas Howarth, Budget Officer
+
+From: G. Robert Blakey, Chief Counsel and Staff Director
+
+Date: November 7, 1977
+
+Re: Salary Adjustment - M. Muff Rosen
+
+Adjust the salary of M. Muff Rosen November 1, 1977, from $15,000 to $18,000.
+
+As indicated earlier, Ms. Rosen will be leaving the Committee which is now set for November 30, 1977.

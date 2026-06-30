@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_27088.png
+
+Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+
+M. Progress of the September Overflight Program
+
+58. While the MRBM and IRBM deployment continued and the first good ground reports began to filter out of Cuba, the four-flight reconnaissance program approved on 10 September was being pushed forward. Unfortunately, this program was seriously delayed by bad weather. Not until 26 September could the first successful mission be flown, over Banes and Guantanamo. (A mission was flown on 17 September but its targets were completely cloud-covered) On 27 and 28 September the weather was bad again, but on the 29th the Isle of Pines - Bay of Pigs mission was successfully flown. The weather again turned bad until 5 October, when the south coast peripheral mission was accomplished. The next day, the north coast peripheral mission aborted, but was successfully completed on 7 October.
+
+59. Thus, completion of the September program took 26 days, from 12 September--the earliest date on which missions approved on the 10th could have been flown--through 7 October. On 20 of these days weather was bad over the areas not yet overflown (the criterion for launch was a forecast of less than 25 percent cloud cover). On four days successful missions were flown. On one day a mission was launched but aborted, and one day was used to alert a mission which was launched the following day. Availability of aircraft was not a limiting factor.
+
+60. These missions accomplished their purpose, i.e., they established almost completely the location of SA-2 sites on the island. They did not--and, since they were designed to avoid SAM-defended areas, could not--detect the ballistic missile deployments then under way. The combined effect of the Special Group decision of 10 September and the weather conditions of the period following was to delay consideration of what reconnaissance activities should next be undertaken over Cuba until early October.
+
+-29-
+
+TOP SECRET DINAR CHESS RUFF IDEALIST
+
+Photocopy
+from
+Gerald R. Ford Library

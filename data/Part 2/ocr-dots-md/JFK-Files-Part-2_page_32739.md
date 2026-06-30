@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_32739.png
+
+Convert to MarkdownSECRET
+
+OFFICE OF THE SECRETARY OF DEFENSE
+
+WASHINGTON 25, D.C.
+
+March 8, 1963
+
+MEMORANDUM FOR MR. BROMLEY SMITH
+
+SUBJECT: Cuba
+
+As a follow-up to my memorandum to you on February 15, 1963, I am attaching excerpts containing references to Cuba in testimony given by the Department of Defense to congressional committees. They continue from the latest date of each committee excerpt you now have, and include excerpts from the Senate Armed Services Committee transcripts.
+
+Not all testimony has been screened for Cuba references inasmuch as all transcripts are not available. Thus the House Armed Services Committee has been covered up to February 21, the DOD Subcommittee of the House Appropriations Committee to February 13, and the Senate Armed Services Committee to February 22. The DOD Subcommittee of the Senate Appropriations Committee has not yet begun its hearings.
+
+As transcripts become available, I will send the requested items to you.
+
+SIGNED
+
+David E. McGiffert
+Assistant to the Secretary
+(Legislative Affairs)
+
+11 Attachments
+
+4 HASC Transcript excerpts
+
+3 DoD SC, HAppns Transcripts excerpts
+
+4 SASC Transcript excerpts
+
+cc:(S/Attachments included) -
+
+Mr. McNaughton, GC
+Mr. Yarmolinsky, Spec Asst.
+Mr. McGiffert, ATSD(LA)
+
+SECRET
+
+WHEN WITH ATTACHMENTS
+
+Mr. Lennartson, PA
+Mr. Califano, OSA ↗
+
+HW 50955 DocId:32424709 Page 120

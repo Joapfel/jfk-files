@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_27202.png
+
+Convert to MarkdownIII. DEPOSITIONS
+
+A. Schoenman, Ralph; Groden, Robert; Groden, Christine; Jaffee, Stephen; Gregory, Dick (plus exhibits) (2 volumes, March 26 and 27)
+
+B. Marchetti, Victor (TOP SECRET)
+
+C. Sturgis, Frank; Navarro, Wilfrado (TOP SECRET)
+
+D. Sturgis, Frank; Navarro, Wilfrado (TOP SECRET)
+(Transcript of taped deposition)
+
+E. Lattimer, John K. (plus exhibits)
+
+F. Wecht, Cyril H. (plus exhibits)
+
+G. McMeekin, R.; Olivier, Alfred; Spitz, Weiner;
+Hodges, Fred.
+
+Photocopy from
+G R Ford Library

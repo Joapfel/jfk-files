@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_27258.png
+
+Convert to Markdown1. OTS Memo Receipt (CONFIDENTIAL)
+
+2. Procedures for Obtaining Alias Documents and Disguises
+   16 Apr 75 CONFIDENTIAL
+
+3. Procedures from D01-240-4, 25 Nov 74 signed by Wm. Nelson SECRET
+
+4. U.S. Document Request Form SECRET
+
+5. Clandestine Service Inst. 240-4 - 23 Aug 72 - SECRET
+
+6. Clandestine Services Inst. 220-7, 12 May 59 SECRET
+
+Photocopy from
+G R Ford Library

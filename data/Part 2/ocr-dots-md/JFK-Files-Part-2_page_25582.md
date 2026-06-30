@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_25582.png
+
+Convert to MarkdownUniversity of Montana
+Missoula, Montana 59801
+
+(406) 243-0211
+
+Aug. 6, 1975
+
+Mr. Paul Wallach
+Senate Select Committee on Intelligence
+Room G 308 Dirksen Building
+Washington, D.C. 20510
+
+Dear Mr. Wallach:
+
+As decided in our phone conversation today, I am writing to you about a conversation I had last week in Paris with an official of the Royal Government of Cambodia. He informed me that CIA-directed activities hostile to his government are presently occurring in his country, and that these activities are being launched from bases in Thailand. I would greatly appreciate your assistance in finding out for me whether any agency of the U.S. Government is presently carrying out activities against the Royal Government of Cambodia.
+
+I greatly appreciated the opportunity to talk with you in person recently, and thank you for your interest and help.

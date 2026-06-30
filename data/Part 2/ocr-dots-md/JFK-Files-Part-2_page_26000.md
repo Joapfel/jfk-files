@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_26000.png
+
+Convert to Markdownthat up originally, I don't know. I was
+rather surprised--he seemed to have seen
+copies of lectures and other things that
+I had given on the subject, but who had
+passed those to him and who had talked to
+him about it; I just don't know.
+
+O BRIEN: Let's say, let's take a person like Max Taylor.
+Do you have anything in the way of conversations
+with Max Taylor in the late fifties?
+
+LANSDALE: No.
+
+O'BRIEN: How about the rest of the Joint Chiefs?
+
+LANSDALE: No. Taylor was opposed to this type of thing.
+He did quite a considerable switch, see? He
+was about the last person I would have ever
+picked to have headed up something the way
+Kennedy asked him to do it.
+
+O BRIEN: That's what I was wondering about, Taylor's
+role in this whole thing. He is opposed
+
+LANSDALE: Well, he was the one that came in the very early

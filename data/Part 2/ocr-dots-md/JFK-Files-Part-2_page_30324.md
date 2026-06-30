@@ -1,0 +1,108 @@
+# JFK-Files-Part-2_page_30324.png
+
+Convert to Markdown1
+
+Mr. Nosenko. No, it never come to my mind that they would
+
+2
+
+imprison me.
+
+3
+
+Mrs. Burke. Did you tell them that -- I think you told
+
+4
+
+us you had some information you would well to them for a
+
+5
+
+certain amount of money.
+
+6
+
+Mr. Nosenko. It's in '62.
+
+7
+
+Mrs. Burke. In '62 you said that. In '64 you didn't
+
+8
+
+discuss any sale of any information?
+
+9
+
+Mr. Nosenko. No, no, on the contrary, for the period of
+
+10
+
+'62-'64, I tried to get as much as possible information: not
+
+11
+
+only to come what I knew where I participated in the depart-
+
+12
+
+ment where I worked but to find out as much as possible what can
+
+13
+
+be valuable to the American intelligence and I had come with
+
+14
+
+some luggage.
+
+15
+
+Mrs. Burke. All right, well, during the time that you were
+
+16
+
+talking to them about what your salary would be, the circum-
+
+17
+
+stances of your defection, and I assume you told them what your
+
+18
+
+rank was, some of the things you worked on --
+-
+
+19
+
+Mr. Nosenko. Yes.
+
+20
+
+Mrs. Burke. -- did you tell them you worked on the
+
+21
+
+Oswald file?
+
+22
+
+Mr. Nosenko. I do not remember, I can mention. I do not
+
+23
+
+remember, honestly.
+
+24
+
+Mrs. Burke. Did you discuss Oswald at all with them during
+
+25
+
+that period?
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 66
+
+TOP SECRET

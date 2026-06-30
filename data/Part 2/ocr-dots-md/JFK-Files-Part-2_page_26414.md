@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_26414.png
+
+Convert to MarkdownJFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+
+AGENCY : NARA
+
+RECORD NUMBER : 176-10037-10440
+
+RECORD SERIES : Personal Papers of Richard Goodwin
+
+AGENCY FILE NUMBER :
+
+ORIGINATOR : CIA
+
+FROM :
+
+TO :
+
+TITLE : Information Report Re:
+
+DATE : 9/3/1961
+
+PAGES : 2
+
+SUBJECTS :
+
+DOCUMENT TYPE :
+
+CLASSIFICATION :
+
+RESTRICTIONS :
+
+CURRENT STATUS :
+
+DATE OF LAST REVIEW : 9/10/2000
+
+OPENING CRITERIA :
+
+COMMENTS : Goodwin Papers: Cuba, Meetings on Refugees, Box 4. Box 7.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_29369.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+Silvia Duran. There is also unconfirmed evidence which, if true, would indicate that Oswald spert one night and parts of two days with a group of pro-Castro students from the University of Mexico.
+
+3) There is a report that Oswald may have been in the company of a tall, thin, blond-headed mar while in Mexico. This report has not been confirmed. If true, it is possible that this same individual may, on occasion, have used Oswald's name in dealing with the Cuban and Soviet Consulates. The man's name, if there was such a man, is not known.
+
+4) On the dates that Oswald was in Mexico, the CIA had photographic surveillance operations which covered entrances to the Soviet Embassy and the Cuban Embassy and Consulate. The CIA also had electronic surveillance on telephones in the Soviet Consulate and Military Attaché's Office and Cuban diplomatic compounds. The
+
+**Classification:**
+
+200672 | Classified by derivation: 122

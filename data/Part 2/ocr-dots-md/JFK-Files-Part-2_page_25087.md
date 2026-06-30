@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_25087.png
+
+Convert to MarkdownTOP SECRET - SENSITIVE
+
+SQUARE DANCE (U)
+
+THE PROBLEM
+
+1. To respond to a memorandum* by the Chief of Staff,
+
+US Army, to consider a proposal that the Joint Chiefs of
+
+Staff recommend to the President that the United States
+
+covertly attack the Cuban sugar industry.
+
+2
+3
+4
+
+FACTS BEARING ON THE PROBLEM
+
+2. On 21 March 1964, the Joint Chiefs of Staff in responding**5 to a Presidential request for new ideas relative to Cuba, 6 stated that the President would be advised of any new and 7 promising courses of action which could possibly bring pressure 8 upon the Cuban regime. 9
+
+3. On 1 September 1964, the Chief of Staff, US Army, sent 10 a memorandum*, to the Joint Chiefs of Staff forwarding a 11 study on the feasibility of undermining the Castro regime 12 by covertly attacking the Cuban sugar industry. The Chief 13 of Staff, US Army, recommended that the Joint Staff accomplish 14 interagency coordination on the study proposals; and that 15 the Joint Chiefs of Staff approve the study and forward it 16 by memorandum to the President, informing him that the Joint 17 Chiefs of Staff support the conclusions and recommendations 18 of the study and consider that the outline program therein 19 provides an adequate framework for the development of detailed 20 supporting programs and plans for participating agencies. 21
+
+4. On 2 October 1964, the Operations Deputies considered 22 the recommendations of the Chief of Staff, US Army, and agreed 23 to refer the matter to the Joint Staff for the preparation 24 of a report. 25
+
+* Attachment to JCS 2304/244
+** Enclosure to JCS 2304/218-3
+
+Copy
+
+Lyndon B. Johnson Library
+
+J-5 2304/244-1
+
+3
+
+HW 50955 DocId:32423566 Page 148
+
+TOP SECRET
+
+TOP SECRET.

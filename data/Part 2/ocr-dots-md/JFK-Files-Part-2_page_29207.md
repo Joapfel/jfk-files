@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29207.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10078-10492
+
+RECORD SERIES : NUMBERED FILES
+
+AGENCY FILE NUMBER : 009441
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM : CALL, RICHARD DENNIS
+TO :
+TITLE :
+
+DATE : 06/06/1978
+PAGES : 6
+
+SUBJECTS :
+CALL; RICHARD, DENNIS
+OSWALD, LEE HARVEY; PRE-RUSSIAN PERIOD
+MILITARY SERVICE
+
+DOCUMENT TYPE : SUMMARY
+CLASSIFICATION : Unclassified
+RESTRICTIONS : 3
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 11/20/1997
+
+OPENING CRITERIA :
+
+COMMENTS : 173-6. Box 173.
+
+<table><tr><td>Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#: NW 88326 Date: 2025</td></tr></table>

@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_31564.png
+
+Convert to Markdownin the National Liberation Front, the rebel government. Yet most of the people support the NLF. Why? Many of the same people who now lead the NLF led the Vietnamese independence movement against the Japanese during World War II, and then went on to fight against French colonial rule. Most Vietnamese think of the NLF leaders as their country's outstanding patriots. In fact, many anti-Communists have joined the guerrilla forces in the belief that the most important thing is to get rid of foreign domination and military dictators. On the other hand, very few Vietnamese support the official government of General Ky. His army has low morale and a high desertion rate.
+
+## THE GUERRILLAS
+
+The newspapers and television have told us again and again what a tough fighter the Vietnamese guerrilla is. Short of ammunition and without any air cover, he can beat forces that outnumber him five or ten to one. Why do they have such high morale? They are not draftees; no draftees ever fight like that. They are not high-paid, professional soldiers. Most of them are peasants who work their fields; they can't even spare the ammunition for target practice.
+
+Their secret is that they know why they are fighting. They didn't hear about Vietnam in the newspapers; they've lived there all their lives. While we were in high school, they were living under the Diem regime and hating it. Now American planes are bombing their towns and strafing their fields; American troops have occupied their country; and if they complain out loud, an American-supported dictator sentences them to jail or the firing squad. Is it any wonder that they fight so fiercely?
+
+## CRUSHING THE RESISTANCE
+
+The war in Vietnam is not being fought according to the rules. Prisoners are tortured. Our planes drop incendiary bombs on civilian villages. Our soldiers shoot at women and children. Your officers will tell you that it is all necessary, that we couldn't win the war any other way. And they are right. Americans are no more cruel than any other people; American soldiers don't enjoy this kind of war. But if you are going to wage war against an entire people, you have to become cruel.
+
+The ordinary German soldier in occupied Europe wasn't especially cruel, either. But as the resistance movements grew, he became cruel. He shot at women and children because they were shooting at him; he never
+
+asked himself why they were shooting at him. When a certain town became a center of resistance activity, he followed his orders and destroyed the whole town. He knew that SS men were torturing captured resistance fighters, but it wasn't his business to interfere.
+
+## FOLLOWING ORDERS
+
+As a soldier you have been trained to obey orders, but as a human being you must take responsibility for your own acts. International and American law recognize that an individual soldier, even if acting under orders, must bear final legal and moral responsibility for what he does. This principle became a part of law after World War II, when the Allied nations, meeting in London, decided that German war criminals must be punished even if they committed war crimes under orders. This principle was the basis of the Nuremberg trials. We believe that the entire war in Vietnam is criminal and immoral. We believe that the atrocities which are necessary to wage this war against the people of Vietnam are inexcusable.
+
+## OPPOSE THE WAR
+
+We hope that you too find yourself, as a human being, unable to tolerate this nightmare war, and we hope that you will oppose it. We don't know what kind of risks we are taking in giving you this leaflet; you won't know what risk you will be taking in opposing the war. A growing number of GIs have already refused to fight in Vietnam and have been court-martialed. They have shown great courage. We believe that they, together with other courageous men who will join them, will have influence far out of proportion to their numbers.
+
+There may be many other things you can do; since you are in the service, you know better than civilians what sorts of opposition are possible. But whatever you do, keep your eyes open. Draw your own conclusions from the things you see, read and hear. At orientation sessions, don't be afraid to ask questions, and if you're not satisfied with the answers, keep asking. Take every chance you get to talk to your fellow soldiers about the war.
+
+You may feel the war is wrong, and still decide not to face a court-martial. You may then find yourself in Vietnam under orders. You might be forced to do some fighting -- but don't do any more than you have to. Good luck.
+
+Vietnam Day Committee
+2407 Fulton Street
+Berkeley, California
+549-0811

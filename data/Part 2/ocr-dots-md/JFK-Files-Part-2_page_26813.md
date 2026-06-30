@@ -1,0 +1,72 @@
+# JFK-Files-Part-2_page_26813.png
+
+Convert to MarkdownSECRET
+
+Q I see. So some of these boats and personnel were
+actually stationed full-time in the Keys.
+
+A Oh, yes. Oh, sure.
+
+Q Were there any operations run out of the United
+States which involved destruction of crops or poisoning of
+sugar or anything of that sort?
+
+A What did you have in mind specifically? You mean the
+Puerto Rican thing?
+
+A Well, that is one of the things I had in mind.
+Would you describe that for me?
+
+A Well, this is, I guess you could term it a target of
+opportunity. This was where a vessel was carrying Cuban sugar
+to the Soviet Union and I forget exactly now what happened to
+it but I know that it got a hole below the waterline, or
+something, and had to put into Puerto Rico for repairs.
+
+In order to repair it, I guess, and get it in the
+drydock or wherever it was, they had to remove the sugar and
+put it in the warehouse and at that time I guess somebody came
+up with a plan to try to widen the rift between -- there was
+a rift at that time between the Soviets and Cubans and to
+put a harmless substance into the sugar that would make it
+acid, sour tasting, and it wouldn't harm the sugar or the
+individual, and some of this was done. And then when it
+leaked, of course, we had to get rid of it and we had a sugar
+firm buy it back from the Soviets.
+
+Photocopy from
+Gerald Ford Library
+
+SECRET
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 50955 DocId:32275518 Page 50

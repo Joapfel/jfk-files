@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_30711.png
+
+Convert to MarkdownSECRET
+
+Review of Manuel Ray Files
+Volume iv of xviii
+
+Page 2
+
+11110832
+
+* **6. Memorandum for the Record**
+Date: 5 May 1961
+Subject: Manolo Ray - Comments on his Anti-Castro Activities
+Signed: Calvin Hicks WH/4/PM/Operations
+
+"Ray is believed to have accomplished pratically nothing towards the effort to overthrow Castro. Instead, it seems that whenever we played with his so-called assets, we were burned. He is notorious for claiming assets or operations, several days after some other group had already set them up or claimed them. Whenever it came to producing and backing up his claims, he always came up with excuses for not producing, rather than results. He has always tended to try to take over other goups, rather than cooperate with them, and when he couldn't take them over he would "politic" against them. His actions all seemed to be directed toward making him the future power in Cuba rather than toward overthrowing Castro. It is believed that Manolo RAY is so far "left" in his thinking that he would be as dangerous (or more so in the long run) to United States interests as Castro, if he ever got to be the power in Cuba."
+
+* **7. Memorandum for the Record**
+Date: 2 June 1961 03
+Subject: [機密] Relations with Manolo Ray and the MRP
+Signed: James A. Noel
+
+In a 12 May 1961 meeting, Ray promises to write a prospectus of his plans for MRP within ten days. Not received by 2 June, but Ernesto Betancourt is asking for financial support for MRP activities. Tracy Barnes agrees with [Noel] that no money should be given Ray until his plans are studied. Ray is asking for support separate from FRD since Ray has withdrawn from this group. [Noel] further states in Memo, "[i]t would like to point out the security risks inherent in any arrangement with RAY-BENTANCOURT-CISNEROS trio. These fellows have had easy access to the White House and to the Department, are notorious for their 'planned leaks', will probably presume all the Department officials they deal with are privy to the arrangement, and before we know it the whole exile community will be well aware that we are providing financial and material support to the RAY group."
+
+* **8. Cable to Bell from Caracas**
+Date June 8, 1961
+On June 2, Venezuelas governemnt refused to issue a visa to Manolo Ray.
+
+9. Cable to Director from Caracas dated June 28, 1961. re: meeting with Jose R. Barbeito on 20 June in Valencia. Barbeito claims was member of MRP of Manolo Ray and took part clandestine activities Havana. Admitted was communist "many years ago" but now completely opposed to Castro and Communism.
+
+SECRET
+
+JSA

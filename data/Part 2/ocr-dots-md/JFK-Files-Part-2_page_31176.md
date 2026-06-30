@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_31176.png
+
+Convert to MarkdownSECRET
+
+0002728 termination of the CFA - make was group slow and undramatic Rovelli, in May 1967, reported that the groups are which had been delivered to Cuba in May. In April had arrived in Cuba, and an unclassified three-man team had then departed in June to influence the plan. In future Reports p845
+
+Dury September 1962, @ Ronzelli related to Harry that de l'Unive (now) readying a second team who were" supposedly military men where assignment was to penetrate Castro's body guard. During this period The 'medicine' was introduced and still in place and the three men of the first Team safe L 1967 Des. Report, p57 How now, the second team none made Cuba and a series of alibis were constructed during December and July 1963. Nevertheless, de l'Unive supposedly collected $370 for the maintenance of these in individual form. Ronzelli who had received the payment from Harry. L1967 TO. Report p5-2. In mid-July 1963 south
+
+Harry and Rovelli agreed that "nothing was happening and that there was not much chance that anything would happen on the future." L1967 F.O. Report.
+
+Ronzelli was instructed to leave his way out of reach with Cuba until he knew. He went to the airport with money did. The last meeting between Harry

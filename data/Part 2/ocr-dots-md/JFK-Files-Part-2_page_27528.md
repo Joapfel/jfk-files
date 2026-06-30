@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_27528.png
+
+Convert to MarkdownSelect Committee on Assassinations
+U.S. House of Representatives
+
+WASHINGTON, D.C. 20515
+
+July 8, 1977
+
+Finance Office
+House of Representatives
+Washington, D.C. 20515
+
+To whom it may concern:
+
+Please note changes of address for these Committee employees:
+
+Maurice Israel (128 20 8996)
+2601 South Glebe Road, Apt. 2600-1A
+Arlington, VA 22206
+
+Burton A. Chardak (194 18 8264)
+120 South Reynolds
+Apartment L-509
+Alexandria, VA 22304
+
+Thank you.
+
+rwm

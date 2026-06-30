@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_29388.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+the equipment... The technicians probably
+had to make the part in question. On that
+date, or at some date not long afterwards,
+there was test photography of the entrance...
+Various difficulties were experienced with
+the equipment, which seems eventually to have
+been resolved by installation of the pulse
+camera in December 1963. There is no question
+about the sequence set forth above. 68/
+HMMA-22307 definitely reports the installation
+of the two cameras and a V-S-2 trigger device on
+27 September 1963. 69/ But the cameras did not
+function smoothly. 70/ HMMA-22433 reported that the
+K-100 camera broke down after one day's operation. 71/
+It was replaced with the first Robot Star, which had
+also been installed on September 27. The first Robot
+Star broke down four days after its installation. 72/
+A second Robot Star broke down after five days of
+operation. 73/ A Robot Star was working on 7 November
+1963, when HMMA-22433 requested that Headquarters send
+a replacement camera to Mexico. 74/ In all likelihood,
+that request was filled with the installation of the
+Sequence camera on 17 December 1963 detailed in
+HMMA-22726. 75/ Under this interpretation of the
+documents, the operation would have gone into continuous
+
+200602
+
+Classifcation:
+
+141
+
+Classified by derivation:

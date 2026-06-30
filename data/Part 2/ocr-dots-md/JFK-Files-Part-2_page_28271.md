@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_28271.png
+
+Convert to MarkdownLOUIS STOKES, OHIO, CHAIRMAN
+
+RICHARDSON PREYER, N.C.
+WALTER E. FAUNTROY, D.C.
+YVONNE BRATHWAITE BURKE, CALIF.
+CHRISTOPHER J. DODD, CONN.
+HAROLD E. FORD, TENN.
+FLOYD J. FITHIAN, IND.
+ROBERT W. EDGAR, PA.
+
+SAMUEL L. DEVINE, OHIO
+STEWART B. MCKINNEY, CONN.
+CHARLES THONE, NEBR.
+HAROLD S. sawyer, MICH.
+
+Select Committee on Assassinations
+
+U.S. House of Representatives
+
+3369 HOUSE OFFICE BUILDING, ANNEX 2
+WASHINGTON, D.C. 20515
+
+December 5, 1978
+
+The Honorable Frank Thompson, Jr.
+Chairman
+Committee on House Administration
+U. S. House of Representatives
+Washington, D. C. 20515
+
+Dear Mr. Chairman:
+
+Effective December 1, 1978, the official duty station of Ms. Wendy Collins has been changed from Washington, D. C. to Pittsford, Vermont.
+
+This change will remain in effect through the balance of the 95th Congress.
+
+LS:th

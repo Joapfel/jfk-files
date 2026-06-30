@@ -1,0 +1,78 @@
+# JFK-Files-Part-2_page_25881.png
+
+Convert to MarkdownSTP
+
+<table>
+   <tr>
+    <td rowspan="2">COS</td>
+    <td>CLASSIFIED</td>
+    <td>SECRET</td>
+   </tr>
+   <tr>
+    <td></td>
+    <td>ASSIGNMENT</td>
+   </tr>
+  </table>
+
+STP COMMO CHRONO (DUMMY)
+
+<table>
+  <tbody>
+    <tr>
+      <td>DATE: 23 NOVEMBER 1963</td>
+      <td>FILE: P-3593</td>
+    </tr>
+    <tr>
+      <td colspan="2">Silvia DURAN P-LITEMPO/Prod</td>
+    </tr>
+    <tr>
+      <td>INITIALS DFG.</td>
+      <td>INITIALS EFG.</td>
+    </tr>
+    <tr>
+      <th>DEFERRED</th>
+      <th>PRIORITY</th>
+      <th>INITIALS DFG.</th>
+      <th>NUMBER</th>
+    </tr>
+    <tr>
+      <td>Routine</td>
+      <td>OPERATIONAL<br/>XX IMMEDIATE</td>
+      <td>INITIALS EFG.</td>
+      <td></td>
+    </tr>
+  </tbody>
+</table>
+
+TO IMMEDIATE DIR INFO. CITE MEXI 7020 NUMBER
+
+KAPOK A
+
+REF: DIR 84888
+
+1. SAW PHOTOS OF LEE OSWLAD ON TELEVISION NIGHT OF 22 NOV AND IT OBVIOUS PHOTOS SENT TO DALLAS WERE NOT IDEN WITH LEE OSWALD HELD DALLAS. DATES ARE AS GIVEN ON PHOTOS.
+
+2. MEXI STATION REVIEWING ALL AVAILABLE PHOTOS PERSONS ENTERING SOVIET AND CUBAN EMBASSIES.
+
+3. MEXI SUGGESTING TO LITEMPO 2 THAT SILVIA DURAN WHO MEXICAN EMPLOYEE AT CUBAN EMBASSY AND WHO PUT LEE OSWALD ON TELEPHONE FROM CUBAN EMBASSY TO TALK TO SOVIET EMBASSY ON 26 SEPT BE ARRESTED IMMEDIATELY AND HELD INCOMMUNICADO UNTIL SHE GIVES ALL DETAILS OF OSWALD KNOWN TO HER. (see Ref F)
+
+4. LITEMPO 2 CAN SAY D.F.S. COVERAGE REVEALED CALL TO HIM IF HE NEEDS TO EXPLAIN.
+
+END OF MSG
+
+COORDINATING OFFICERS
+---
+
+W.C.C.
+---
+
+AUTHENTICATING OFFICER
+
+CLASSIFICATION
+---
+
+OUTGOING
+
+RELEASING OFFICER
+
+HW 50955 DocId:32423630 Page 614

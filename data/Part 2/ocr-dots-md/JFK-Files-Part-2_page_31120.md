@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_31120.png
+
+Convert to Markdown0003621
+
+SECRET
+
+SECRET
+
+Arneotó Rodríguez
+
+8/9/78
+
+DP08: 15 August 1891, Habana, Cuba.
+
+DCS Documents : no notes
+
+SECRE.

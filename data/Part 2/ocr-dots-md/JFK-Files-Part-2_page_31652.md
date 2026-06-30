@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_31652.png
+
+Convert to MarkdownAdministration policies in Viet Nam" was "presently" touring South Vietnam and Cambodia, the latter country at the invitation of Prince SHIANOUK.
+
+SF T-18 related on May 16, 1966, he could not recall who told him, but he had the distinct impression he was told that MARVIN GARSON was the main author of the "soldier's leaflet." SF T-18 added he had not heard anything linking JACK WEINBERG with the preparation of the leaflet or that ROBERT SCHEER had proofread the leaflet.
+
+SF T-3 reported on May 6, 1966, that he had no knowledge of who actually prepared the "soldier's leaflet"; however, he vaguely recalled that the leaflet was at least in part the work of SIDNEY CHERPITEL. He could furnish no specifics.
+
+SF T-13 reported on November 4, 1965, that SIDNEY WILLIAM CHERPITEL on November 3, 1965, considered himself a Communist, but was not a member of the CP.
+
+SF T-14 reported on May 6, 1966, he possessed no information concerning who prepared or assisted in the preparation of the "soldier's leaflet".
+
+SF T-13 related on October 13, 1965, that on October 11, 1965, at approximately 7:30 PM, MIKE O'HANLON and his girl friend, MIRIAM GOLOMB, described by SF T-13 as very active in the VDC, went to the Greyhound Bus Depot, 7th and Mission Streets, San Francisco. SF T-13 commented their purpose for visiting the Greyhound Bus Depot was to ship three (3) parcels of leaflets to be distributed to soldiers. The leaflets were captioned, "ATTENTION ALL MILITARY PERSONNEL", and were addressed to J. PARISOT, C/O Department of Literature, University of California at San Diego, La Jolla, California.
+
+On May 4, 1966, C. A. TELFER, Greyhound Terminal Manager, San Diego, California, informed that the bus bill for the shipment of leaflets to J. PARISOT on October 11, 1965, if such shipment were made, would be located at the Accounting Department of the Greyhound General Office, Market and Fremont
+
+21
+883

@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_26506.png
+
+Convert to MarkdownSECRET
+
+27 March 1963
+
+OTHERS
+
+1. There have been about 40 legal travelers from British Guiana to Cuba. Some Latin American travelers could be carried without much chance of detection on Cuban freighters hauling rice. Local papers and opposition parties have charged that some of the students sent to Cuba did not have proper academic qualifications for their studies, implying their travel, was for other purposes. There are no reliable reports, however, that any Guianese have received subversive training in Cuba. Any Cuban training for British Guianese would presumably be designed to support rather than subvert the government of Premier Cheddi Jagan. There have been no arrests for subversive activity, and no incidents of terrorism, sabotage, or subversion. There have been riots, but not Cuban-connected.
+
+2. Jamaica sent 593 legal travelers to Cuba in 1962, probably accounted for largely by the 20-25,000 Jamaicans resident in Cuba. There is no evidence of guerrilla training for any Jamaicans, and there have been no arrests for guerrilla, sabotage, or terrorist activity. Subversion is confined largely to public oratory defying the Jamaican authorities. A British Guianese Communist studying in Jamaica, who is believed to have received training in Cuba, instigated a demonstration in front of the U.S. Embassy in October, 1962, by six members of the "Friends of Cuba Committee;" one Communist was arrested, fined, and released as a result for "obstructing traffic." Two university instructors and two other teachers are believed to have received indoctrination in Cuba.
+
+3. Surinam and Trinidad report no subversive incidents, no arrests, and no evidence of Cuban subversive training for any of their nationals. Trinidad listed two legal travelers in Cuba in 1962.
+
+SECRET
+
+HW 50955 DocId:32283208 Page 45

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_29829.png
+
+Convert to MarkdownM - David
+
+D - David, Sully and Gino were together, I think that is there
+M- you think it is the man that owns it
+D - right
+
+M - but you think the person who owns the car rental place maybe Sully or something like that
+
+D - No there is three, David is one person and Sully is another person
+
+M - that runs the place
+
+D - right and it is either David or Sully, I always got the two of them mixed up because whenever Gino would talk about them there and I couldn't keep them straight
+
+M - Well, the reason we asked you if you had any inclination that Gino was married is because he was
+
+D - I thought that he, he had been because, well, last year there would be note on his desk saying, you know, he had gotten a phone call from what was her name Carol
+
+M - uh huh
+
+D - Carol, OK, and uh I didn't want to say anything you know about it to Gino and he suspected that I suspected something and he got real, very upset with me and we argued over it and it is something I didn't want to know either way because I just didn't, I didn't want to no and Gino was real upset that night
+
+S - does that, knowing that he was married does that explain the secret about it, about his business and everything or do you still feel there is something that there is something of a mystery about it
+
+D - I still feel there
+
+S - because you did suspect at the time
+
+M - It isn't that he was married, up until he died he had a wife
+
+D - uh huh
+
+M - OK, I just wanted to make that clear. This is a very mysterious situation and we are trying to get to the bottom of it all and ther is only one way of doing it and that is to talk to people that were associated with him and like I say you have cleared up some questions for us, but if there is anything else that you

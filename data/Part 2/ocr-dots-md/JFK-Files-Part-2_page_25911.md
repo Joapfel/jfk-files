@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_25911.png
+
+Convert to Markdownconsideration of all avenues of approach, pitfalls, suspected motives, etc.
+Most important of all, it seems to me, is our acceptance of the fact that
+maybe we don't even have anyone on our staff with sufficient experience,
+sophistication, background, and investigative maturity to deal with this
+situation.
+
+As a first step, I urge your decision to convene a planning session to
+decide what the second step will be.
+
+I can't emphasize enough the need for well-thought-out planning here.
+Who knows where this will lead? And at a minimum, some months from now,
+Senator Church may be asked, "What did you _do_ the day after you learned
+that Giancana had been killed?"
+
+My stream of consciousness on kinds of things to consider would
+include: What our public statement on this should or should not be,
+security for other witnesses, immediate contact with other key witnesses
+(to reassure them), secrecy of witness lists and immunity applications,
+secrecy of place, time and even fact of interview, meetings with Justice
+organized crime section, Chicago strike force, local law enforcement people
+in Oak Park and Illinois, obtaining all FBI investigative reports (they're
+in it per tonight's _Star_), getting background on all law enforcement officials
+in Illinois who will be involved (whom do you trust?), is this a diversion
+which we're being sucked into, how do we avoid that (hire someone just for
+this), how do we show we care so other witnesses (known or unknown) won't
+dry up, etc. etc. etc.
+
+NOTE: Mike can be reached after 6:45 tonight at (802) 863-2652.

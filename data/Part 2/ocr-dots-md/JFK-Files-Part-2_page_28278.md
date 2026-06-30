@@ -1,0 +1,67 @@
+# JFK-Files-Part-2_page_28278.png
+
+Convert to MarkdownPAYROLL INFORMATION FORM AND PERSONNEL AFFIDAVIT
+
+PLEASE USE TYPEWRITER OR PRINT IN INK
+
+<table><tr><td>CODE:</td></tr><tr><td>Finance Office Use Only</td></tr></table>
+
+U.S. HOUSE OF REPRESENTATIVES
+
+Name Collins, Wendy SUSAN (Last—First—Middle)
+Social Security No. 024-44-5163
+
+Employing Office U.S. House Select Committee on ASSASSINATIONS
+Date of birth 03-22-53
+(Month—Day—Year)
+
+ADDRESSES
+
+Mailing address for withholding tax statement:
+
+1630 Hobart St., N.W.
+WASHINGTON, D.C. 20009
+
+Bank Account No.
+(Do not insert Bank Account Number unless check is to be mailed to a bank)
+
+<table><tr><td>FINANCE OFFICE USE ONLY</td></tr><tr><td>Bank Code:</td></tr></table>
+
+PREVIOUS FEDERAL CIVILIAN SERVICE
+
+☐ House of Representatives—Office of Select Committee on ASSASSINATIONS
+
+Separation date of last service July 31, '78
+
+☐ Other Federal Departments (including Senate and Architect)
+
+Agency
+
+Separation date of last service
+
+☐ Name (if different from present signature)
+
+While employed as above I was covered by:
+
+Federal Employees' Health Insurance: ☑ enrolled; ☐ not enrolled; ☐ excluded.
+
+Federal Employees' Life Insurance: ☐ optional; ☐ regular; ☑ waived; ☐ excluded.
+
+ELECTION OF RETIREMENT COVERAGE
+
+Coverage under the provisions of the Civil Service Retirement Act is extended to employees of the House of Representatives on a voluntary basis. Once you have elected this coverage and retirement deductions have been withheld, such deductions cannot be discontinued so long as you are continuously employed under the Act.
+
+Check the appropriate box to the right:
+
+I elect coverage under the provisions of the Civil Service Retirement Act and request that deductions begin at the earliest possible date. (If you have had previous Federal or Military service, please submit dates, Agencies and Military Serial Number on a separate sheet.)
+
+I do not wish to elect coverage under the Retirement Act at this time.
+(Note: Legislative employees are not covered by the Social Security Act.)
+
+YES ☐
+
+NO ☐
+
+(Over)
+
+(Signature)

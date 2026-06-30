@@ -1,0 +1,44 @@
+# JFK-Files-Part-2_page_25721.png
+
+Convert to MarkdownFriday, August 27, 1976
+
+# Jack Anderson and Les Whitten
+## Smudge Only Clue in Rosselli Case
+
+It was a grisly end for John Rosselli, the dapper, debonair mobster about town, who had been a familiar figure in the glittering night spots of Hollywood, Las Vegas and Havana.
+
+His killers shot or stabbed him in the stomach. The autopsy indicates they may have shot him and then dug out the bullet with a knife. Then they brutally hacked off his legs. It is possible that he was still alive when they stuffed his body into a 55-gallon drum.
+
+They wrapped chains around the drum to weight it down and tossed it into Biscayne Bay. The autopsy suggests he may have died of asphyxiation inside the drum before it hit the water. The gases from the decomposing body floated the heavy container to the surface. It was discovered, with its nightmarish contents, 10 days after Rosselli had disappeared from his sitter's home in Plantation, Fla.
+
+The police withheld the gruesome details of his death while they searched for his killers. We began our own investigation, meanwhile, after an appeal from his associates.
+
+We first encountered Johnny Rosselli more than five years ago. We were investigating his role in the Central Intelligence Agency's plot to assassinate Cuban Premier Fidel Castro.
+
+The CIA case officer, William Harvey, told us that Rosselli had been the hero of the abortive adventure. Harvey broke his oath of secrecy because he thought it might help Rosselli, who was in trouble with the law. The CIA agent had nothing but praise for Rosselli's daring.
+
+In the strictest of confidence, Rosselli himself confirmed that he had directed six assassination attempts against Castro. We protected his con-
+
+fidence, so he came to trust us. We were the only reporters he would talk to.
+
+So when he vanished last month his associates came to us for help. We were suspicious, of course, that his disappearance was linked to the Castro caper. But our investigation has now produced evidence to the contrary.
+
+We have learned, for example, that Rosselli was not the amiable, retired old duffer he pretended to be. He began in the big time as a bookkeeper for Chicago's notorious Al Capone and became a specialist in white-collar crimes. It's a profession, apparently, that he never gave up.
+
+Competent sources say that, between rounds on the Florida golf courses, Rosselli was involved in stolen securities and financial swindles. His operations reportedly were resented by Santo Trafficante, who has been identified in Senate testimony as the Mafia chief in Florida.
+
+Rosselli came to Florida from Las Vegas, where he allegedly represented the Chicago mob. Our sources say that he handled millions in illegal gambling money, which he forwarded to the Chicago underworld. There are reports that Chicago crime lord Tony Accardo felt he had been short-changed by Rosselli.
+
+Still earlier, Rosselli spent time in the slammer, first, for extortion and, later, for a card swindle. Those who know him say he had developed a taste for the good life. He dressed in the latest styles, dined at the best restaurants and dated beautiful women. The thought of going back to prison, friends say, horrified him.
+
+To avoid prison, he began to talk to the government as early as 1970. He
+
+gave information, according to our sources, which resulted in a grand jury confrontation for Tony Accardo. The surly mobster took the fifth. But Accardo grumbled to associates that he would pay back Rosselli some day.
+
+Rosselli was also blamed for passing information to the government, which led to the conviction of Detroit mobster Anthony Zerilli. He is now serving a four-year sentence at Sandstone federal penitentiary for racketeering.
+
+Perhaps the last straw was Rosselli's testimony in the Castro case. He identified two mobsters, the late Sam Giancana and Santo Trafficante, as being involved in the assassination attempts. It's no secret in the underworld that Trafficante detests publicity.
+
+Our sources believe that the Mafia bosses finally became fed up with Roselli. His execution would have required the approval of the top leaders, our sources say, because it was almost certain to bring the federal government into the case.
+
+Who were the vicious killers? The only clue is a smudge spot on the window of Rosselli's car. One of his assailants probably had used a greasy hair pomade.

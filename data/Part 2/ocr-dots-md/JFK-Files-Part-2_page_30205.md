@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_30205.png
+
+Convert to Markdownhad a shelf or a drawer in it. He also stated that at this
+time he did not observe any of the photos to be out of
+the plastic sheeting which ordinarily held them in the
+black binder. Mr. Blahut denied however that he opened the
+safe at any time other than when he put the book inside.
+
+2) He stated to us that the first time he had looked through the book --the time when Jim Conzelman took it out of the safe-- he slid one of the photos partly out of the plastic to look at it. To the best of his recollection this photo was either a photo of the brain or a photo of the bust of Kennedy. He stated this was the only time that he had observed any of the photos to be out of their plastic sheeting.
+
+3) He stated that he did not wish to allow us to make a copy
+recording of this statement.
+
+JAMES L. DOANE
+CARR CONNELLY
+
+NW 88326 DocId:32269709 Page 106

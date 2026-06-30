@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_26844.png
+
+Convert to MarkdownSECRET
+
+Photocopy from
+Gerald Ford Library
+
+HW 50955 DocId:32275518 Page 81
+
+1.  **MR. OLSEN:** Thank you, George.
+2.  **BY MR. OLSEN:**
+3.  Can you begin, since I have not been in on the beginning of the interview here, can you start off, Mr. Sturbitts, by giving me about a one or two minute resume of what your contacts were with the Cuban elements in Florida and elsewhere withing this country on behalf of the Agency?
+4.  Well, I was a member of the Special Activities Staff which was in effect the Cuban task force at Headquarters and the Miami Station functioned under the Special Activities Staff in a variety of intelligence collection and operations.
+5.  Who was the head of the Special Activities Staff?
+6.  Desmond Fitzgerald.
+7.  And who was his immediate superior?
+8.  Dick Bissell. Excuse me. No. At that time it was Dick Helms. He was the DEP.
+9.
+10.
+11.
+12.
+13.
+14.
+15.
+16. Deputy Director for Plans?
+17. Deputy Director for Plans.
+18. What period of time are we talking about now?
+19. We are talking in the period of 1963 to 1965.
+20. **MR. MANFREDI:** Off the record.
+21. (Off the record discussion)
+22. **BY MR. OLSEN:**
+23. So you were not involved in this Special Activities Group during the 1959 to '61 period?
+24.
+25. No.

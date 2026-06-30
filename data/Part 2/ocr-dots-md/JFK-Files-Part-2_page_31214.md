@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_31214.png
+
+Convert to Markdown0002255
+
+P.32 Edwards recalls smutty advice a cent
+who worked in a restaurant figures
+by Canto.
+
+P.33 (O'Connell) believes that Plan was
+smutty, gary on behalf April 1961 and April
+but he cannot remember what, He agrees
+with Bill Henry that when the operation was over
+April 1962, Harry works over a" gory operation"
+
+P.34. O'Connell believes the must haveONES the
+pills, but he has no proof he took any of the pills.
+denise.
+
+p.49. Rosell needed Gran. & Trop in the
+first phase as a means of establishing contact
+inside Cuba. He did not need them in the
+second phase because he had Venna. Hence,
+it would be naive to assume that
+Rosell did not take the precaution of infusing
+anyher else in the syndicate but he was
+working in a territory considered to be the
+private domain of someone else in the
+syndicate)
+
+5/4 June 1962 Henry said they appeared to
+have no specific plan for legally Cartagay. They were
+to recruit others who might be used in such a
+situation. If an opportunity to bil Cartagay presents
+they or the persons they recruited went to
+make # the attempt. SECRETariat using the girls.

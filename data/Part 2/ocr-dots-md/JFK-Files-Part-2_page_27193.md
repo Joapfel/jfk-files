@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_27193.png
+
+Convert to MarkdownB-W Files
+
+V. Intelligence Community Coordination
+---
+
+A. Richard Ober - IDIU/IEC
+(11 Memos - 3 TOP SECRET; 4 SECRET; 2 CONFIDENTIAL)
+
+B. James Angleton
+(One memo for the file and two sets of notes (all SECRET))
+
+C. Weidner Request of May 16, 1975
+Copies of Angleton Notes (Admin - Internal Use Only)
+
+D. Weidner Request of April 23, 1975
+16 documents (All by #'s 8 and 16 classified)
+
+E. Weidner Request of May 16, 1975
+Two documents (#1 not classified, #2 CONFIDENTIAL)
+
+F. IDIU, IEC, etc.
+(18 Memos - 1 TOP SECRET; 10 SECRET; 2 CONFIDENTIAL)
+
+G. PFIAB's IEC Request
+(One memo, CONFIDENTIAL)
+
+Photocopy from
+G R Ford Library
+
+MW 50955 DocId:32105598 Page 24, .

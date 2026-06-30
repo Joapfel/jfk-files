@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_26224.png
+
+Convert to MarkdownSECRET
+
+4.
+
+There follows from [ina], I would think, the conclusion that _secret activities are permissible so long as they do not corrupt the principles and practices of our society, and that they cease to be permissible when their effect is to corrupt those principles and practices_.
+
+Each form of _secre_ activity presents its own problem. Clandestine intelligence collection has been a traditional function of the national state. Its rules and usages are fairly well established. In the main, espionage, if conducted with discretion, should prevent any great problem. However, when conducted with an open checkbook and a broad mandate even espionage can begin to push against the limits of secret activity in an open society. I consider later, for example, the question of the Controlled American Source (CAS) and whether the overdoing of CAS is not beginning to harm other sec_ of the government.
+
+Covert political operations present a trickier problem. Occasions arise when it is necessary to substitute newspapers, politicians and organizations in other countries. But corruption of the political life of another nation is not a responsibility to be lightly assumed. I wonder whether CIA has not done too much of this for the joy of it. Paramilitary activities create an even more difficult problem, if only because the problems of concealment are so much more difficult.
+
+In general, I would suggest that any secret operation whose success is dependent on the suppression of news, on lying to Congressmen and journalists and on the deception of the electorate should be undertaken only when the crisis is so considerable that the gains really seem to outweigh the disadvantages. This suggests that the size of the proposed operation may be of crucial importance. Small operations can be done with a minimum of accompanying correction. The greater the visibility of the operation, the more its success depends on thwarting the impalaos and denying the value of an open society. The riskier it becomes, and the more urgent it is that an overwhelming case be made for its necessity.
+
+In short, when confronted with a proposed operation, we must not only ask whether the operation is technically feasible in its own terms; we must ask whether its success requires our open society to be in an, or serious way false to its own principles.

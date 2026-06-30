@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_29929.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+XXXXXXXX OCR 6-32
+
+SUBJECT/CASE REFERENCE: Eugene Michael Carrafa
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+05-31-77 Washington Post article dated 05-29-77 notes that Harry Aleman, a reputed crime syndicate hit man from Melrose Park, was acquitted in the murder of William Logan by Cook County Circuit Court Judge Frank J. Wilson following a bench trial.
+
+Cpl. M. F. Alban
+
+PAGE#

@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_27542.png
+
+Convert to Markdown# MEMORANDUM
+
+May 26, 1977
+
+TO: Tom Howarth
+Budget Officer
+
+FROM: Donovan L. Gay
+Chief Researcher
+
+RE: Margo Jackson
+
+Please be advised that pursuant to the approval by Chairman Stokes, Ms. Margo Jackson is to join the Research/Document Unit as a Document Clerk on June 1, 1977.
+
+She shall report directly to me.
+
+Thank you.
+
+mcp

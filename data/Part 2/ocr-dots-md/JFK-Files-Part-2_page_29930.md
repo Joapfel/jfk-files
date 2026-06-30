@@ -1,0 +1,16 @@
+# JFK-Files-Part-2_page_29930.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR 76-32
+
+SUBJECT/CASE REFERENCE: Carrafa, Eugene M.
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+06-17-77 Source, SOI 16, advises that Frank Paterno was part of the Carrafa, Piccerelli, Knohl, Sherman crowd; and Paterno had mental problems, due to pills, in 1964. Carrafa also was acquainted with one Mary Bray, NFI; and a subject in Dansbury, Connecticut name Coffee (ph.)
+
+Cpl. M. F. Alban

@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_31500.png
+
+Convert to MarkdownSF 100-33836
+FTD/evs
+
+ROSCOE PROCTOR attended a meeting of the CP, USA, national and district leaders, held in New York City on June 22 - 24, 1962.
+
+SF T-4, 6/29/62
+
+On June 27, 1964, the Subject attended a social affair sponsored by the Maritime Club, San Francisco CP, at 1027 Brussels Street, San Francisco. Proceeds of this social affair went for the benefit of the "PW".
+
+SF T-5, 7/2/64
+
+On September 25, 1964, the Subject attended a public meeting sponsored by the San Francisco FSP held at 150 Golden Gate Avenue, San Francisco. The purpose of this meeting was to hear HENRY WINSTON, a member of the CP National Committee, speak.
+
+WINSTON identified himself as a communist and told of his imprisonment by the Federal Government. He said that because the government would not treat him for his illness, he became blind. He said the reason for the government's refusal to treat him was because he was a Negro and a communist.
+
+WINSTON pointed out that the Republican Party must be defeated even though they did not completely approve of President JOHNSON and the Democratic Party. WINSTON also discussed the civil rights movement and said that the Negro must get his rights before everything in this country would be all right.
+
+SF T-2, 9/29/64, SF T-5, 10/2/64,
+SF T-6, 9/28/64
+
+B. "People's World" (PW)
+
+On April 12, 1964, the Subject attended a dinner held for the benefit of the "PW" at 1581 Masonic Street, San Francisco.
+
+SF T-5, 4/13/64
+
+3339
+
+NW 88613 DocId:34528578 Page 67

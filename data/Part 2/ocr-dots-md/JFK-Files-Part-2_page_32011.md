@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_32011.png
+
+Convert to Markdown<table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td colspan="2">AGENT REPORT<br/>(SR 380-320-10)</td></tr><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT</td><td>2. DATE SUBMITTED</td></tr><tr><td>SCHEER, Robert<br/>Pre-Inductee<br/>DOB: 4 April 1936<br/>POB: Bronx, New York</td><td>26 August 1958<br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>H1 016940</td></tr><tr><td colspan="2">4. REPORT OF FINDINGS,</td></tr><tr><td>75</td><td>(EMPLOYMENT) On 25 August 1958, Mr. Morris Laufer, Co-owner, Laufer's River View Lodge, summer resort, Loch Sheldrake, New York, furnished a payroll record pertaining to Robert SCHEER which contained the following information:</td></tr><tr><td>Name Recorded:</td><td>Robert SCHEER</td></tr><tr><td>Date of Birth:</td><td>Not Recorded</td></tr><tr><td>Place of Birth:</td><td>Not Recorded</td></tr><tr><td>Age:</td><td>19½</td></tr><tr><td>Address:</td><td>653 Britton Street, New York, New York</td></tr><tr><td>Social Security Number:</td><td>112-28-1134</td></tr><tr><td>Student:</td><td>Yes</td></tr><tr><td>Marital Status:</td><td>Not recorded</td></tr><tr><td>Number Tax Exemptions:</td><td>One</td></tr><tr><td>Dates of Employment:</td><td>4 July 1955 to 3 September 1955</td></tr><tr><td>Position:</td><td>Bus Boy (Assistant Waiter)</td></tr><tr><td>Salary:</td><td>$50.00 per month plus Room, Board and Tips</td></tr><tr><td>Efficiency:</td><td>Not Recorded</td></tr><tr><td>Reason for Leaving:</td><td>End of Season</td></tr><tr><td>Eligibility for Rehire:</td><td>Not Recorded</td></tr><tr><td>Previous Employment:</td><td>1. S. Klein, 1451 Union Square, New York, New York.<br/>2. Hilltop Lodge, Hopewell Junction, New York</td></tr><tr><td colspan="2">AGENT'S NOTES: No additional pertinent information concerning SUBJECT is available at this source. Note that on his Statement of Personal History, SUBJECT lists employment at this source for the summer of 1956 when it was in 1955. The correct name is Laufer's River View Lodge and not Laufer's Country Club as shown on SUBJECT'S SPH.</td></tr><tr><td>REGRADED UNCLASSIFIED<br/>AND MARKED<br/>*FOR OFFICIAL USE ONLY*<br/>AUTH: 7 AR 381-130</td><td></td></tr><tr><td colspan="2">FOR OFFICIAL USE ONLY</td></tr><tr><td>DATE:</td><td>13 04 '63 70</td></tr><tr><td>5. TYPED NAME AND ORGANIZATION OF SPECIAL AGENT</td><td>6. SIGNATURE OF SPECIAL AGENT</td></tr><tr><td>CLEMENT J. PACYNA, 108th CIC Group 153</td><td>Clement J. Pacyna</td></tr></tbody></table>
+
+FORM
+1 APR 52
+
+341
+
+REPLACES WD AGO FORM 341, 1 JUN 47, WHICH MAY BE USED.
+
+THE GOVERNMENT PRINTING OFFICE : 1954-O-284854
+
+NW 88613 DocId:34529910 Page 2

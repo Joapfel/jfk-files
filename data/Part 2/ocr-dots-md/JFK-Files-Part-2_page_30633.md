@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_30633.png
+
+Convert to MarkdownCIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF THIS DOCUMENT
+
+F.S.I.
+1/7/98
+
+ASSAN/TIZED.
+
+6/27/78 D. HARDWAY
+
+Summary of Review of
+[oz] BADGER files.
+
+1. Vol. I, Production, 10/23/5-8 - 3/4/64.
+
+2. Vol. II, Developmental Plans, 1/16/63 - 8/11/67.
+
+3. Vol III, Support, 1/25/62 - 11/13/64
+
+4. Vol. VII, Operations, 1/3/62 - 12/19/63
+
+Note that the above volumes are numbered 1, 2, 3, and 6. I have asked Barbara if there is a volume 4 and 5. She said that Project Files are maintained in 4 parts: production, Developmental Plans, Support and Operations. She said she thought I had the whole file list, would check with the Mexican desk to make sure. Barbara returned call and said that the person on the Mexico desk was on 2 weeks vacation so she could not find an answer for my question.
+
+10143-16/13

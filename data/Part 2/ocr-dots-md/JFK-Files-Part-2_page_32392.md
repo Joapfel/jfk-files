@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_32392.png
+
+Convert to MarkdownSECRET
+
+5. Another report may also refer to this arms shipment. According to information dated 1 February 1963 from a CIA source and appraised by the CIA preparing office as possible true, Pedro MATOS, who together with the three-member regional command committee of the Partido Comunista de Venezuela (PCV) in the state of Zulia is responsible for PCV arms deliveries in that state, said recently that the party is awaiting a shipment of arms from Cuba and Panama but that the exact date of arrival in Billings will have to be confirmed.
+
+CIA Report TDCS-3/836,942, dated 9 Feb 63, Ref IM 64876
+
+6. Replies to DIA SICR's on this subject from NSA and CNO do not indicate any vessels departing Havana on or after 14 January bound for British Guiana, nor do State Department queries to Georgetown, British Guiana indicate the arrival of any arms. No reports have been received from service attaches in Venezuela or from sources in Panama concerning this particular matter.
+
+Project Officer:
+CDI Barton
+
+SECRET

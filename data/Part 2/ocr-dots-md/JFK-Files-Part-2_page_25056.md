@@ -1,0 +1,98 @@
+# JFK-Files-Part-2_page_25056.png
+
+Convert to MarkdownTOP SECRET
+
+but they did try to develop such a capacity versus Castro.
+
+But as I have thought about it since we talked, I think that
+is less likely. I think it is more likely that it might have
+been the beginning of this whole idea on the CIA's part that
+they should develop such a capacity. And maybe they didn't
+have it then and went to work to develop it beginning in
+August.
+
+Mr. Baron. So wittingly you have been present at the
+creation?
+
+Mr. Dillon. The early stages, yes.
+
+Mr. Baron. I have no further questions.
+
+I would simply like to say that the Committee is extremely
+appreciative of your coming here today. This is obviously
+a difficult and unpleasant subject to discuss. And you have
+been tremendously informative on it. So thank you very much.
+
+Mr. Dillon. I wish I could be more so. But the details
+of what happened at that time, the day to day details, have
+really departed from my mind. It is only those few relatively
+unusual things that I still recall. And any way I can help
+I am glad to.
+
+Mr. Baron. There may be one way you can help right now.
+I know that before we started today Bill Miller, the Staff
+Director of the Committee, indicated that the Committee would
+be interested in hearing you out at great length on policy
+recommendations in the intelligence field gathered both from
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32423566 Page 117
+
+TOP SECRET
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+25

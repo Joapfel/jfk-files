@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_26763.png
+
+Convert to MarkdownTOP SECRET
+
+- 2 -
+
+after Mr. Martinez's departure from Havana.
+
+6. Mr. Martinez defected in early December 1960. I saw him once in early 1961 in Miami, Florida where he had taken up residence. I do not know if any other Station officers were knowledgeable of this incident although it is probable that Mr. Arthur Avignon, DCOS (now retired and living in the Washington area) may have read the pertinent cables.
+
+William J. Murray
+C/LA/Narcotics
+
+Attached:
+
+(1) DIRECTOR 40923, 21 July 1960 TOP SECRET
+
+(2) DIRECTOR 40965, 21 July 1960 TOP SECRET
+
+(3) HAVA 5396 (IN 28071), 22 July 1960 SECRET
+
+TOP SECRET
+
+HAW 50955 DocId:32276339 Page 3

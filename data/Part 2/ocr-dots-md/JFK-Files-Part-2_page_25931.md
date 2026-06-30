@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25931.png
+
+Convert to Markdown524 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
+
+Senator MUSKIE. What do they need to do to become members in the Tampa area?
+
+Mr. BROWN. Well, I think I can clarify that later on in the statement, Senator.
+
+The CHAIRMAN. All right; you may proceed.
+
+Mr. BROWN. Santo Trafficante, Jr., was born in Tampa on November 14, 1914. He was one of five brothers. He maintains residence today in Tampa and in Miami. He previously lived in Havana, Cuba, where he owned and operated gambling casinos under the Battista regime. When Fidel Castro took over, Trafficante's gambling operations were stopped. He was expelled from Cuba and returned to the United States. He inherited the control of the numbers racket in central Florida which his father, Santo Trafficante, Sr., who died in 1954, and he continues to head this operation.
+
+Testimony in the 1958 hearings of the Senate Select Committee on Improper Activities in the Labor or Management Field identified Santo Trafficante, Jr., in the operation of the Sans Souci gambling casino in Havana. That testimony stated that Trafficante took over the Sans Souci from the Mannarino brothers in Pittsburgh, Pa. Gabriel Mannarino was a fellow delegate with Santo Trafficante, Jr., to the Apalachin crime convention in 1957.
+
+Additional testimony named Trafficante, Jr., as the key figure in the Mafia in Tampa, stating, as the Tampa police had long known, that he succeeded his father as the major racketeer in the city.
+
+Other information substantiated by our files reveals that Trafficante is an associate of such notorious criminals as Meyer Lansky, Joseph Bonanno, Sam Giancana, Aniello Dellacroce, Joseph Stassi, Sam Mannarino, Joseph Arcuri, and of Joseph Riccobono, also known as Staten Island Joe, who had been closely allied with the elder Trafficante, and was also discovered at the Apalachin meeting.
+
+When Joseph Prosci's daughter Carmella married Anthony Tocco, son of Detroit mobster William "Black Bill" Tocco, in Brooklyn on June 4, 1955, one of the guests at the reception in the Hotel Commodore in New York was Santo Trafficante, Jr. Among those who also attended were 13 other persons who later attended the Apalachin conference, as well as other notorious Mafia figures, such as Frank Livorsi, Thomas and John Dioguardi, Tony and Albert Anastasia, and Thomas "Three Finger Brown" Lucchese.
+
+There have been at least two known attempts on the life of Santo Trafficante: On January 2, 1953, he was shotgunned in a car on the streets of Tampa, receiving wounds in the arm. Later, in Cuba, four American mobsters who intended to kill Trafficante were told by Cuban police that they would have to do it on American soil.
+
+Trafficante has been arrested in Tampa several times for investigation, because of our knowledge that he was deeply involved in gambling, even though we have not yet been able to obtain the quantum of proof necessary to a successful prosecution. He has also been picked up by the police for questioning about the gangland slayings of Rene Nunez, Angelo Giglio, and Joe Antinori.
+
+Trafficante was a suspect in the Albert Anastasia murder on October 25, 1957, in New York because he had appeared in New York just before the murder. He was considered a likely suspect because there had been reports that Anastasia was then attempting to move
+
+in on Trafficante, the alias "B" on the night after Anastasia, the Department organization fication of the Apalachin crew of Tampa, Fla. Furthermore, out-of-town men of the Tampaficante is also Louis Coticel, quently seen boarding a plane. Other know Trafficante ga colo, and Antinori. Mr. O'Donnell, Mr. DE LA LLANOS. The CHAIRMAN, Mr. DE LA LLANOS, Brady, and his to our attention record. I have The CHAIRMAN No. 46 for reference (Document re may be found in The CHAIRMAN that you have made) Mr. DE LA LLANOS. The CHAIRMAN record, either at statement of the (The statement
+
+One of the clear telltale signs reflected by the c as a courier for the first came to the at served him, in Tampa Diecidue, two of the tacts made by Coticel tion about him while

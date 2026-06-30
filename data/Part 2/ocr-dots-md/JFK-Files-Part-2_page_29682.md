@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_29682.png
+
+Convert to Markdown# Classification
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+- 257 -
+
+interviews with witnesses. The preliminary interviews were conducted by Gary Cornwell. HSCA staff members Dan Hardway, Edwin Lopez and Harold Leap were present during Cornwell's questioning. The Mexican Government was represented by Dr. Jesús Yáñes, Commandante Florentino-Ventura, and Jesus Meixueiro Kanty, second in command to Ventura. Pedro Gutierrez Valencia was interviewed at 2:30 p.m. Ruben Duran was interviewed at 5:00 p.m. Horacio Duran was interviewed at 5:30 p.m. Silvia Duran was interviewed at 6:15 p.m.
+
+At 9:30 a.m. on June 1, 1978, the HSCA staff representatives met with the Mexican police representatives. The HSCA staff requested 1) the records of the company that employed Gutierrez Valencia in 1963; press clippings of the Mexican newspaper coverage of Oswald and Silvia Duran (attached); 3) once again, an interview with Oscar Contreras; 4) individual files on Elena Garro de Paz and Silvia Duran; 5) evidence related to Silvia Duran's assertion that Oswald was at the Cuban Embassy on one day only; 6) an interview with Deba Garro de Guerrero Galvan; 1195/7) an interview with Eunice Odio; 1196/9) an interview with Emilio Carballido; 1197/ and 10) an interview with Victor Rico Galan. 1198/ The
+
+200980
+
+Classification:
+
+TOP SECRET
+
+430
+
+Classified by derivation:

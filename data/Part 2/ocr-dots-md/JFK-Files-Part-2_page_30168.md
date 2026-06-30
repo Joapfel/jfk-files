@@ -1,0 +1,165 @@
+# JFK-Files-Part-2_page_30168.png
+
+Convert to Markdown# NW 88326 DocId:32269709 Page 69
+
+## TYPE OR PRINT ALL INFORMATION IN BLACK
+
+### FIRST NAME
+
+### LAST NAME
+
+### MIDDLE NAME
+
+1. APPLICANT
+2. JOHN D. THOMAS
+3. A WASHINGTON
+4. A BLUE HILL RESIDENT
+5. BATHMORE, MD
+6. W R JONES
+7. R OBERTS
+8. COMMITTEE ON REASSISTANCE
+9. 2ND ST S.W.
+10. 400
+11. N.Y.
+12. JOB
+13. L.
+14. E.
+15. C.
+16. F.
+
+17. P.
+
+2. APPLICANT
+3. JOSEPH ALONSO
+4. JAMES ALONSO
+5. JAMES S ALONSO
+6. SONS
+7. SONS OF REVOLUTION
+8. REVOLUTIONARY SOCIETY
+9. ASSASSINATED
+10. REVOLUTIONARY SOCIET
+11. S.W.
+12. STS
+13. U.
+14. N.
+15. S.
+16. E.
+17. T.
+18. F.
+19. K.
+20. V.
+21. R.
+22. G.
+23. B.
+24. B.
+25. N.
+26. S.
+27. R.
+28. M.
+29. R.
+30. A.
+31. S.
+32. D.
+33. I.
+34. E.
+35. L.
+36. A.
+37. W.
+38. G.
+39. D.
+40. R.
+41. R.
+42. M.
+43. S.
+44. M.
+45. E.
+46. A.
+47. A.
+48. A.
+49. R.
+50. P.
+51. B.
+52. J.
+53. R.
+54. M.
+55. A.
+56. L.
+57. R.
+58. A.
+59. E.
+60. L.
+61. E.
+62. S.
+63. M.
+64. S.
+65. R.
+66. D.
+67. S.
+68. U.
+69. S.
+70. D.
+71. 10K 13TH 3/1ST
+72. 3/25
+73. 3/25
+74. 3/25
+75. M BK 5'8 ½ 185 B&W Mkt. N.D.
+76. 90 5U DO 16
+77. ± 17R DOD
+78. 216-34-9326
+79. E.
+80. Employment
+81. See Revise 0
+82. C.
+83. 2
+84. 11
+85. A.
+86. T.
+87. 5
+88. 12
+89. 19
+90. R. Little
+91. 18
+92. 17
+93. J.
+94. L.
+95. 7th THUMBS UP
+96. 1
+97. 5
+98. 1
+99. 1
+100. 1
+101. 1
+102. 1
+103. 1
+104. 1
+105. 1
+106. 1
+107. 1
+108. 1
+109. 1
+110. 1
+111. 1
+112. 1
+113. 1
+114. 1
+115. 1
+116. 1
+117. 1
+118. 1
+119. 1
+120. 1
+121. 1
+122. 1
+123. 1
+124. 1
+125. 1
+126. 1
+127. 1
+128. 1
+129. 1
+130. 1
+131. 1
+132. 1
+133. 1
+134. 1
+135.

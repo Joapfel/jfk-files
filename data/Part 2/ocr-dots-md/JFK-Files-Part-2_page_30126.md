@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_30126.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+OFFICIAL BUSINESS
+
+PENALTY FOR PRIVATE USE. $300
+
+POSTAGE AND FEES PAID
+FEDERAL BUREAU OF INVESTIGATION
+JUS-432
+
+Mr. G. Robert Blakey
+Chief Counsel and Director
+Select Committee on Assassinations
+U. S. House of Representatives
+3331 House Office Building
+Annex 2
+Washington, D. C. 20515
+
+NWW 88326 DocId:32269709 Page 27

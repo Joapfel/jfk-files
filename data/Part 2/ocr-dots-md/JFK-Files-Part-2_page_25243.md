@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_25243.png
+
+Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NGO DINH NHU</td><td>11/1/63</td><td rowspan="2">DEEMED TOP SECRET</td></tr><tr><td>COL. HUAN</td><td></td></tr><tr><td colspan="3">GEN. DON</td></tr></tbody></table>
+
+**OCCURRENCE:** CON'T ON NEXT CARD ALSO
+
+Dinh proposed that he would personally speak to the President on Dinh's behalf and thus he would ask that Dinh be granted the Ministry of Interior while he, Don, would ask for the ministry of National Defense. Dinh believed that Don had his personal interest at heart not his own, in fact, while both all agree that to take the President to enlarge his government but against the proposal to leave it as it was would have been impossible for Dinh or in such a way that it would have been impossible for him to accept. Equivalents were given. Dinh said assured that the President would give him a ministerial post. After the candidate had passed and Dinh had not received what he thought he wanted,
+
+**SOURCE:**
+
+Hearings, S.S.C.I., 6/20/75, Conein, Exhibit one,
+page 13.
+
+**FILE:**
+
+**STAFF:**
+
+Dawson
+
+**DATE:** 6/30/75
+
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td colspan="3">CONTINUATION FROM LAST CARD:</td></tr></tbody></table>
+
+**OCCURRENCE:**
+
+**TOP SECRET**
+
+96
+
+Dinh has also recognized General Don and other officers, including Colonel Fum, Commanding Officer of the Military Academy to General, so adjusted to lend symmetry to Dinh. Still, Dinh was waiting for his ministerial post...
+
+**SOURCE:** p., 13, Con't.
+
+**STAFF:**

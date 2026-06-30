@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_25943.png
+
+Convert to MarkdownThe CHAIRMAN. What period is covered by the 23 gangland slayings that you make reference to?
+
+Mr. BROWN. From 1928 through the present day.
+
+The CHAIRMAN. In a period of about 30 years.
+
+Mr. BROWN. Yes, sir.
+
+The CHAIRMAN. And you identify them as gangland slayings as distinguished from the usual homicide cases that you have?
+
+Mr. BROWN. Yes, sir.
+
+The CHAIRMAN. On those, according to your testimony, it has been impossible—or you have been unsuccessful, at least, in solving any of them except the one that appeared so obvious, and it would not possibly come within the category of “gangland slayings”?
+
+Mr. BROWN. Yes, sir.
+
+The CHAIRMAN. But you have included it as being the only one that was solved.
+
+Mr. BROWN. That is correct.
+
+Senator MUSKIE. What are the characteristics of the gangland slayings that makes it so difficult to solve them as contrasted with your excellent record in other homicides?
+
+Mr. BROWN. Of course, primarily it is because of witnesses who are reluctant to give the law enforcement any information whatsoever. In some of our killings—I recall one where we had nine witnesses in the room and nobody actually saw the murder or knew anything was going on.
+
+Senator MUSKIE. So this fact has a direct bearing upon the question of immunity statutes, for example.
+
+Mr. BROWN. That is right. That is correct.
+
+The CHAIRMAN. This, in other words, emphasizes the rigid discipline, the code of underworld law, that cannot be violated without suffering the penalty of death.
+
+Mr. BROWN. That is correct.
+
+The CHAIRMAN. In other words, the nine who were in the room when the murder was committed, possibly every one of them knew what happened.
+
+Mr. BROWN. Yes, sir; I would think so.
+
+The CHAIRMAN. I would doubt that somebody did not know it. But, anyway, they know that the penalty for them talking would be death.
+
+Mr. BROWN. Yes, sir.
+
+The CHAIRMAN. Even if they were inclined to, and I do not mean to say they were inclined to, even if one of them were inclined to talk, he knows what the penalty would be. And that makes it difficult. That is why you have the trouble in the gangland slayings, the silence, the threat, the intimidation of a death sentence, of their being executed by their underworld government if they talk.
+
+Mr. BROWN. That is true.
+
+Senator MUSKIE. Then, Chief, just to nail that point down, they seem to be more than concerned and clearly are more concerned for themselves and for their allies than they are about immunity against prosecution.
+
+Mr. BROWN. Yes, sir; that is true. They are afraid for their lives.
+
+The CHAIRMAN. Very well. You may proceed.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_27250.png
+
+Convert to MarkdownA. Memo of Visit to Mr. William Ledee - 1 June 64 (CONFIDENTIAL)
+
+B. Memo for Record, Subj: William Ledee - 29 Apr 75 (SECRET)
+
+C. Memo for the Record - Subj: Alleged Break-in at HEW Offices, Miami.
+1 May 75 (SECRET)
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

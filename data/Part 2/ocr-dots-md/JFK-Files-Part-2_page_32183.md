@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_32183.png
+
+Convert to Markdown# Agency Information
+
+AGENCY : ARMY
+RECORD NUMBER : 198-10004-10076
+RECORD SERIES : CALIFANO PAPERS
+AGENCY FILE NUMBER :
+
+# Document Information
+
+ORIGINATOR : ARMY
+FROM : JOSEPH A. CALIFANO, JR.
+TO :
+TITLE :
+DATE : 00/00/1963
+PAGES : 123
+
+SUBJECTS :
+EXAMINATION OF PRINCIPAL SOURCES OF POLICY AND
+CONTINGENCY PLANNING ON CUBA
+NATIONAL SECURITY ACTIONS ON CUBA
+U.S. POLICY TOWARD THE CUBAN BRIGADE
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : Secret
+RESTRICTIONS : TB; IC
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 07/24/1997
+
+OPENING CRITERIA :
+
+COMMENTS : Califano Papers, Box 6, Folder 6. Indexed collection of CIA, DOD, DOS, and NSC reports.
+
+Department of the Army EO 13528
+☑ Declassify ☐ Exclude ☐ Exempt
+Authority ________________
+☐ Refer To ________________
+Review Date 12/18/2015 By K.E.Stoner
+
+HW 50955 DocId:32276061 Page 1
+
+v9.1
+
+Date: 6/24/201
+
+JFK Assassination System
+Identification Form

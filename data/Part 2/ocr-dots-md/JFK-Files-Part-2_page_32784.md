@@ -1,0 +1,14 @@
+# JFK-Files-Part-2_page_32784.png
+
+Convert to MarkdownS-E-C-R-E-T
+EYES ONLY
+
+officials have been conducted and a report of developments will be
+submitted by 15 February.
+
+10. Task 21, p. 7. Plans for inducing the failure of crops will be submitted by 15 February. These plans will envisage both the use of controlled assets who can be infiltrated and exfiltrated and the provision of encouragement and guidance to the resistance, so that it will undertake acts of sabotage, some of which are to be directed against crops, particularly rice.
+
+11. Task 24, p. 7. This deadline will also be met. Primary methods of disrupting the supply of Cuban nickel to the USSR could, if approved, include (1) the sinking of Cuban or Bloc ships by open attack; (2) the use of "frogman" or UDT tactics in harbors for the same purpose; (3) the employment of torpedos and mines toward this end; and (4) the sabotaging of primary or secondary sources of Cuban nickel, such as the Nicaro and Moa plants. CIA now has no proven internal assets capable of carrying out any of these actions. The Agency does have external assets capable of undertaking actions (2) and (3). It also has an external group capable of undertaking (4) upon the completion of specialized training. All studies, including a plan for using overt or covert means to prevent re-institution of the Canadian supply to the USSR, will be submitted by 15 February. It is suggested that consideration be given to
+
+S-E-C-R-E-T
+EYES ONLY

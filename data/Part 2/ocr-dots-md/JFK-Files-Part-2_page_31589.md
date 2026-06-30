@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_31589.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mb
+
+SF T-15 on February 8, 1966, identified
+JAMIE ALLEN as a current member of the
+BAYSA.
+
+Officer HULL, UCB, informed on February 8, 1966 that the Freshman class at UCB had a permit to hold a rally at Sproul Hall Plaza, UCB, on February 8, 1966. Officer HULL further informed that a representative of the Freshman class had the microphone for approximately 5 minutes when JACK WEINBERG, a member of the VDC Steering Committee, jumped on the platform and took the microphone away from the speaker. WEINBERG then announced there would be a VDC rally.
+
+Featured speaker at the rally was BETTINA APTHEKER, who proceeded to attack the U.S. foreign policy and called for a two-hour walk-out at UCB after the noon-time rally on February 9, 1966. APTHEKER remarked that if 1,000 students participated in the walk-out it would be a success. APTHEKER added the rally was not an anti-university rally but an anti-war protest.
+
+JAMIE ALLEN also spoke at the rally and informed those in attendance of the march on the Oakland Induction Center on February 16, 1966. She did not comment at what time the march would take place.
+
+The march on the Oakland Induction Center was subsequently changed to February 23, 1966.
+
+Officer HULL related on February 9, 1966, that the VDC held a noon-time rally on February 9, 1966 at Sproul Hall Plaza, UCB. The rally started at 12 noon and lasted until approximately 1:10 PM with about 1,200 persons in attendance. To determine who in the crowd was supporting the VDC, those in attendance were told to sit down. This was intended as a show of strength. Only some 200 sat down.
+
+STEVE WEISSMAN, a member of the VDC Steering Committee, upon seeing such a small number seated, commented "we evidently did not get through to the students." He wondered outloud what could be done.
+
+Officer HULL went on to say that the planned student
+
+920

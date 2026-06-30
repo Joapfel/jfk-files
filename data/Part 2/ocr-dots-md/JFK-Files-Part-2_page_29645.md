@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_29645.png
+
+Convert to MarkdownClassification: TOP SECRET
+
+(This form is used for extracted documents.)
+
+
+Duran, Elena and Elenita Garro, Silvia Duran, Lynn Duran, Emilio Carbillido and Betty Serratos. 982/ The Mexican Government informed the House Select Committee on Assassinations that Elena and Elenita Garro disappeared in 1968 during the student uprisings and have never returned to Mexico. 983/ The officials stated that Elena and her daughter might be in Spain. 984/ The Mexican government reported that Emilio Carballido could not be found. 985/ The others were interviewed between June 1 and June 6, 1978. 986/
+
+Betty Serratos, Lydia Duran, Ruben Duran and Horacio Duran all stated that Elena was not the dancing type and therefore did not attend any of the twist parties at the Duran homes. 987/ When Silvia Duran was asked if Elena or Elenita Garro ever attended twist parties at the Duran homes, she recalled Elena attending one twist party at Ruben's home in 1963 after the Garros returned to Mexico from France. 988/ All the Durans denied that Lee Harvey Oswald had attended any party at one of their homes. 989/
+
+The Committee next asked the Central Intelligence Agency to arrange interview with LICHANT/I (Manuel Calvillo), LICOOKIE/I (June Cobb), who may have had information related to Lee Harvey Oswald's trip to Mexico City. 990/ The Classification:
+
+2000343
+
+Classified by derivation:
+
+- 393
+
+NW 48327 DocId:32263889 Page 293

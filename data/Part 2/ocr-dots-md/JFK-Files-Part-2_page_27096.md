@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_27096.png
+
+Convert to MarkdownSECRET
+
+# SUMMARY REPORT ON CIA INVESTIGATION OF MKNAOMI
+
+## Project Discovery.
+
+The initial identification of the relationship between the CIA and the Army Biological Laboratory at Fort Detrick as a possible questionable activity requiring further investigation occurred in late April of this year. It resulted from information provided by a CIA officer not directly associated with the project in response to the repetitive appeals of the DCI that all past activities which might now be considered questionable be brought to the attention of Agency management. As a result of the information provided by him and by two other officers identified as having some awareness of the project, it became clear that further investigation of the matter was in order. The three identified the project at Fort Detrick as having involved the development of BW and possibly CW agents and associated dissemination systems that were suitable for clandestine use against human targets. They moreover identified lethal agents as among those involved in the project.
+
+Concern about these assertions was heightened because the A/DDS&T had noted in a recent review of the 1963 IG Survey of the Technical Services Division (TSD) that approximately $90,000 in that current fiscal year was spent at Fort Detrick "for the maintenance of a BW capability". This statement appeared so important that a quick check was made to determine its significance. In response to questions about the activity, the cognizant officer in TSD -- now the Office of Technical Service (OTS) -- reported that a small effort had been carried on at Fort Detrick, but that it related to the development of incapacitants and BW/CW.
+
+SECRET
+
+E2 IMP DET CL 26895
+
+Photocopy
+from
+Gerald R. Ford Library
+
+HW 50955 DocId:32112749 Page 4

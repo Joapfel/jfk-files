@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_32352.png
+
+Convert to MarkdownSECRET
+
+1. Control of Travel to and from Cuba
+Central Intelligence Agency
+
+a. Developed highly useful information on frequency of Cuban "chartered" flights to Brazil, names and nationalities of passengers and crew, and lax measures of control followed by Brazilian authorities. Transmitted this information to station chiefs in the Latin American countries of the non-Brazilians travelling on those flights.
+
+b. Maintained close watch over travel to and from Cuba. See Annex B for table of known travel of Latin Americans during July and August.
+
+c. As a result of information furnished to him by the CIA Station in Buenos Aires and with the Station's urging, the Argentine Minister of Interior indicated that he would make every effort to prevent Argentine delegates from attending the International Union of Architects Congress in Havana.
+
+d. At the urging of the CIA Station and the Embassy, the Bolivian Minister of Interior issued in mid-July an order prohibiting the granting of travel permits to Cuba or other bloc countries to Bolivian nationals.
+
+e. Partly as a result of the efforts of the CIA station in Santiago, the Government of Chile prohibited the entry into Chile of organizers of the Cuban-sponsored Second Latin American Youth Congress, which had been scheduled to take place in Santiago in August. This was one of the factors which led to postponement of the Congress.
+
+f. After considerable prodding by the CIA Station and the Embassy the Minister of Public Security of Costa Rica presented legislative proposals to the Costa Rican Assembly which will require all persons intending to travel to Communist countries to have their travel approved by a newly created Costa Rican security agency.
+
+g. CIA Station in Mexico City developed information concerning the clandestine arrival of passengers in Vera Cruz
+
+GROUP 1
+
+SECRET

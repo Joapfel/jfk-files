@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_31254.png
+
+Convert to MarkdownSECRET
+
+002301
+
+By Rott B. P. Lohnman
+
+1. Fair Play for Cuba Committee met at 9:37 S. Spaulding Chicago under duos of Michael Chiley, Secretary Chicago Chapter. Assassination Ring deceased.
+
+2. LHD quizzed nuke in March 1963.
+
+3. Shuff's office had not yet heard LHD at the time but a strongrum he was in Chicago on April 1963 and reguar for firing the office at LPI.
+
+4. Shuff Ulkelmein called FBI so they "officially" asked him on Fair Play for Cuba. If they develop anything definite they would present information to them.
+
+Could we get that in 1963 the Chicago Sun over 반empty in US?
+
+15 August 63
+
+Sandy Smith Chicago Sun-Times following up a lead that he called c/f he reported buncam until he gets message from Cede but no info of value. Said he did not show up to Ed further but as something in Pullman's office Justified

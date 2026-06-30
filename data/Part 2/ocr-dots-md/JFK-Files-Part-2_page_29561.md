@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_29561.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 13
+
+178/ Ibid.
+
+179/ Ibid.; Herbert and Barbara Manell Interview, 3/20/78, p. 3.
+Goodpasture Testimony, 4/3/78, p. 47.
+
+180/ HSCA Deposition of Herbert Manell, 4/28/78, p. 15; HSCA
+Deposition of Barbara Manell, 4/28/78, pp. 11-12.
+
+181/ Goodpasture Testimony, 4/13/78, pp. 64-69; Arnold Arehart
+Interview, 6/2/78, p. 4.
+
+182/ Goodpasture Testimony, 4/13/78, p. 65.
+
+183/ Blind Memorandum entitled "Delay in sending the first cable about Oswald"; Classified Staff Summary of Review of CIA Documents, 3/15/78, p. 4; Goodpasture Testimony, 4/13/78, p. 66.
+
+184/ Ibid.
+
+185/ Herbert and Barbara Manell Interview, 3/20/78, p. 12.
+
+186/ Blind Memorandum entitled "Delay in sending the first cable about OSWALD"; Classified HSCA Staff Summary of Review of CIA files, 3/15/78, p. 4.
+
+187/ Goodpasture Notes, p. 1; Goodpasture Testimony, pp. 12-13;
+HSCA Deposition of B. Manell, p. 6; HSCA Deposition of
+R. Shaw, pp. 21-24.
+
+188/ CIA Component report on wiretap operations prepared by Paul Levister entitled "ZRSOL" and ZRJOINT: Two Telephone Tap Operations," pp. 10-11. Hereinafter cited as Levister Memo. Paul Levister ( pseudonym) was a Headquarters technician. He was in Mexico City from 22 September to 1 October, 1963, preparing a report on this electronic intercept operation. (HMMA-22267, 10/8/63, para. 8.) This report will be referred to in some cases in this discussion of the intercept operation. The report, however, was simplified in order "not to risk losing the reader." (Memorandum from Chief, WHD, to DOS, Mexico City, 12/30/63, para. 2.) This simplification was mainly in the area of a distinction between reels of tape and transcripts and in the procedures
+
+Classification: 313
+
+Classified by derivation:
+
+NW 48327 DocId:32263889 Page 209

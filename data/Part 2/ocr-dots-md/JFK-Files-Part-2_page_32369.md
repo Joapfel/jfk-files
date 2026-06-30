@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32369.png
+
+Convert to Markdown# KNOWN TRAVEL OF LATIN AMERICANS TO AND FROM CUBA - AUGUST 1963
+
+<table><thead><tr><th rowspan="2">NATIONALITY</th><th colspan="2">AUGUST</th><th rowspan="2">PURPOSE OF TRIP TO CUBA</th></tr><tr><th>TO</th><th>FROM</th></tr></thead><tbody><tr><td>ARGENTINA</td><td>4</td><td>0</td><td>26th July Celebrations.</td></tr><tr><td>BOLIVIA</td><td>5</td><td>3</td><td></td></tr><tr><td>BRAZIL</td><td>0</td><td>24</td><td>22-Returning from 26th July Celebrations.</td></tr><tr><td>BR. GUIANA</td><td>7</td><td>10</td><td>Herder Institute in Leipzig.</td></tr><tr><td>CHILE</td><td>22</td><td>47</td><td>8-Physical Ed. Seminar - 1-Seeking funds - 10-Returning from 26 July Celebrations.</td></tr><tr><td>COLOMBIA</td><td>6</td><td>14</td><td></td></tr><tr><td>COSTA RICA</td><td>0</td><td>8</td><td>26th July Celebrations.</td></tr><tr><td>DOM. REP.</td><td>1</td><td>8</td><td></td></tr><tr><td>ECUADOR</td><td>0</td><td>2</td><td></td></tr><tr><td>EL SALVADOR</td><td>1</td><td>0</td><td></td></tr><tr><td>GUATEMALA</td><td>3</td><td>0</td><td>1-Study at University of Sofia.</td></tr><tr><td>HAITI</td><td>0</td><td>0</td><td></td></tr><tr><td>HONDURAS</td><td>0</td><td>8</td><td></td></tr><tr><td>JAMAICA</td><td>0</td><td>2</td><td></td></tr><tr><td>MEXICO</td><td>34</td><td>63</td><td>26th July Celebrations.</td></tr><tr><td>NICARAGUA</td><td>0</td><td>0</td><td></td></tr><tr><td>PANAMA</td><td>6</td><td>0</td><td>26th July Celebrations.</td></tr><tr><td>PARAGUAY</td><td>0</td><td>0</td><td></td></tr><tr><td>PERU</td><td>2</td><td>9</td><td>9-Returning were members of (MIR) who received guerrilla training.</td></tr><tr><td>TRINIDAD</td><td>0</td><td>0</td><td></td></tr><tr><td>URUGUAY</td><td>10</td><td>16</td><td>26th July Celebrations.</td></tr><tr><td>VENEZUELA</td><td>3</td><td>0</td><td>26th July Celebrations.</td></tr></tbody><tfoot><tr><td>TOTALS</td><td>104</td><td>214</td><td></td></tr></tfoot></table>
+
+SECRET
+
+SECRET
+
+EG-00542-206118.2/226-KHUKUU-153405-MIMI

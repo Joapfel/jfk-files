@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_27323.png
+
+Convert to MarkdownAAAA - Memo for Deputy Director for Admin. - SECRET
+
+BBBB - Memo for Deputy Dir. for Management and Services
+Subj: Soviet Bloc Div Request for Training Assistance Involving
+Police Participation.
+SECRET EYES ONLY
+
+CCCC - Scenario Identity - 1 Exercise, SECRET EYES ONLY
+
+DDDD - Project Identify - 1 CONFIDENTIAL
+
+EEEE - Memo on Project Identity-1 fr Chief, SSD to DDS/PSI - 10 Feb 75
+CONFIDENTIAL
+
+FFFF - Memo for Dir of Central Intell. - 18 Feb 75 CONFIDENTIAL
+
+GGGG - Memo for Deputy Dir of Security - Use of Police Badges Project
+IDENTITY-1 10 Feb 75 CONFIDENTIAL
+
+HHHH - Memo - IDENTITY-1 from IDENTITY-2 CONFIDENTIAL
+
+IIIII - Training Afforded Police in Surreptitious Entry
+and Electronic Surveillance CONFIDENTIAL
+
+JJJJ - Cable to Hdgs from SAC SFEO - 3 Feb 75 CONFIDENTIAL
+
+KKKK - Cable to Hdgs from SACLAPO - 4 Feb 75 CONFIDENTIAL
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library
+
+HW 50955 DocId:32105598 Page 154

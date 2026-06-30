@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_30416.png
+
+Convert to MarkdownIUP SEUZEI
+
+40
+
+maintained?
+
+Mr. Goldsmith. Yes.
+
+Mr. Tovar. Most individuals don't maintain personal files,
+I don't think. I would say, for example, anything I write,
+I dictate a memorandum and I send it to anybody you want to
+name, in a sense that is my work, I have done it but I don't
+keep a personal file on that. That goes into my office file.
+It is part of the office chronological file which is maintained
+by my secretary. Let us say multiply that by 500,000 over a
+period of years the foles grow. At the time I leave I am
+incidental in a sense. I just happen to be the person in the
+job at the time. The files will still be there.
+
+There is a normal retirement and destruction under normal conditions, retirement and destruction program which eliminates the accumulation of excessive useless material.
+
+Mr. Goldsmith. Most paperwork would go in this office
+chromo file?
+
+Mr. Tovar. Yes, anything of significance would go in the office chrono file. Anything I write to the Directorate of Operations, DDO, CI, it is normally part of the chrono files. If I want it, it is there. It is my own file in the sense that when I am on the job I have total access to it. If I left the job and wanted to look at it six months later, it is still in the fole and I would ask: somebody who took my place could I see what I wrote. I would not take it with me.
+
+TOP SECRET
+
+NW 48331 DocId:32277210 Page 42

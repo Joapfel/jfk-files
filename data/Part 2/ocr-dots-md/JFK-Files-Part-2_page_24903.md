@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_24903.png
+
+Convert to MarkdownThe point is that of frequent resort to. synechdoche -- the mention of a part when the whole is to be understood, or vice versa. Thus, we encounter repeated references to phrases such as "disposing of Castro", which may be read in the narrow, literal sense of assassinating him, when it is intended that it be read in the broader, figurative sense of dislodging the Castro regime. Reversing the coin, we find people speaking vaguely of "doing something about Castro" when it is clear that what they have specifically in mind is killing him. In a situation wherein those speaking may not have actually meant what they seemed to say or may not have said what they actually meant, they should not be surprised if their oral shorthand is interpreted differently than was intended.
+
+Differing perceptions between superiors and their subordinates were graphically illustrated in the Castro context.*
+
+McCone, in a memorandum dated April 14, 1967, reflected as follows:
+
+> Through the years the Cuban problem was discussed in terms such as "dispose of Castro", "remove Castro", "knock off Castro", etc., and this meant the overthrow of the Communist government in Cuba and the replacing of it with a democratic regime. Terms such as the above appear in many working papers, memoranda for the record, etc., and, as stated, all refer to a change in the Cuban government.
+
+* "Senator Mathias: Let me draw an example from history. When Thomas A'Beckett was proving to be an annoyance, as Castro, the King said, 'who will rid me of this turbulent priest?'. He didn't say, 'go out and murder him'. He said, 'who will rid me of this man', and let it go at that.
+
+"Mr. Helms: That is a warming reference to the problem.
+
+"Senator Mathias: You feel that spans the generations and the centuries?
+
+"Mr. Helms: I think it does, sir.
+
+"Senator Mathias: And that is typical of the kind of thing which might be said, which might be taken by the

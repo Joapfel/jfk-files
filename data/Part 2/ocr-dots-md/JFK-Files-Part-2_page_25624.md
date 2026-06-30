@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_25624.png
+
+Convert to Markdownp. 44 After the Cuban Missile Crisis, the whole operation came to a halt and Rosselli said he was never in contact with the Cubans again.
+
+p. 45-46 Rosselli met Harvey at Dulles Airport in Washington after the Missile Crisis, in June 1963, and had dinner with him in Washington that night.
+
+p. 47 Rosselli mentions FBI had him under surveillance for several years.
+
+p. 47 Roselli has two stories re Rowan wiretap from Maheu. Maheu told him he wanted Rosselli to get some bail money for two guys in Las Vegas who were in trouble and he had placed some taps in Rowan's room because 1) Maheu was doing Giancana a favor, and 2) Maheu had the authority to see if Giancana was leaking to his girlfriend.
+
+p. 52 Rosselli arranged bail money for the two men who were caught tapping Rowan's room.
+
+p. 52 Giancana laughed when Rosselli discussed tapping incident with him, but gave no clues to the reason for the tap.
+
+p. 54-55 Rosselli met in New York with O'Connell and Harvey in April 1962.
+
+p. 58 Rosselli states to the Committee that he felt the CIA came to him because he has contacts in Cuba.
+
+p. 59 Rosselli states he took on "project" because it was the government; he was patriotic.
+
+p. 61 Rosselli knew Trafficante before "operation" started.
+
+p. 62 Rosselli maintained some contact with Maheu after Harvey took over.
+
+p. 64 Rosselli still is social friends with Harvey.
+
+p. 66 In April or May of 1966, Rosselli was stopped in the street by two FBI agents with note saying to meet him later. Rosselli referred them to his attorney, Mr. Cantillon
+
+TOP SECRET
+
+HW 50955 DocId:32423630 Page 357

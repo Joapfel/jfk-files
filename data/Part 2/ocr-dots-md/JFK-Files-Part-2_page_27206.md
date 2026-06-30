@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_27206.png
+
+Convert to MarkdownQQ. Summary of Domestic Surveillance
+
+RR. Helms' Picture
+
+SS. Summary of Telephone Taps (SECRET)
+
+TT. Surveillance of Newsmen
+(Some TOP SECRET - TALENT
+KEYHOLE - COMINT)
+
+UU. MERRIMAC - RESISTANCE - CANDLE (SECRET)
+
+VV. Civil Disturbances - U.S. 1967-1972
+
+WW. Dissident Organizations - Office of Security (SECRET)
+
+XX. Project Probe (SECRET)
+
+YY. Project Octonal, Citation, and Candle (SECRET)
+
+ZZ. Project MERRIMAC (SECRET)
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

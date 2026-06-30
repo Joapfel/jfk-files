@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_25856.png
+
+Convert to Markdown<table><thead><tr><th>Date Received</th><th>Received From</th><th>Classification</th><th>R #</th></tr></thead><tbody><tr><td>3/11/76</td><td>CMI</td><td>Confid</td><td>2762</td></tr><tr><td colspan="4">Description: 3/11/76 ltr to miler, Cattie. Deaton from Elder, Bldg. 201, ps. attach. re: Oswald file</td></tr><tr><td colspan="2">Copies to:</td><td>Date</td><td>Date</td></tr><tr><td colspan="2"></td><td></td><td></td></tr><tr><td colspan="2"></td><td></td><td></td></tr><tr><td colspan="2"></td><td></td><td></td></tr><tr><td colspan="2"></td><td></td><td></td></tr><tr><td>Original to:</td><td></td><td>Date</td><td>Filed:</td></tr><tr><td>Research</td><td></td><td>3/12</td><td></td></tr></tbody></table>
+
+HW 50955 DocId:32423630 Page 589

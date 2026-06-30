@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_25327.png
+
+Convert to MarkdownOFFICE OF THE DIRECTOR
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+April 12, 1976
+
+Mr. Frank Sturgis
+2515 Northwest 122nd Street
+Miami, Florida 33167
+
+Dear Mr. Sturgis:
+
+This is to acknowledge receipt by the FBI on March 23, 1976, of your Freedom of Information-Privacy Acts (FOIPA) request dated March 13, 1976.
+
+Based on the limited information you provided, it is not possible to make an accurate search of our records. To insure an accurate search of our records, please furnish your complete name, date and place of birth, prior addresses, employments and any specific data that would permit us to locate the documents you seek.
+
+An exceedingly heavy volume of FOIPA requests has been received these past few months. Additionally, court deadlines involving certain historical cases of considerable scope have been imposed upon the FBI. Despite successive expansions of our staff responsible for FOIPA matters, substantial delays in processing requests continue.
+
+Since January 1, 1975, the FBI has received a total of 17,204 FOIPA requests. Of these, our present backlog is 6,782. In an effort to deal fairly with any request requiring the retrieval, processing and duplication of documents, each request is being handled in chronological order based on the date of receipt. Please be assured that your request is being handled as equitably as possible and that all documents which can be released will be made available at the earliest possible date.

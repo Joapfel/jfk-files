@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_27266.png
+
+Convert to MarkdownSCHWARTZER CHRON FILE
+
+A. Memo to the Commission and Staff - 9 Apr 75
+
+B. Ltr from Schwarzer to Mr. Ira Love - 4 Apr 75
+
+C. Ltr from Schwarzer to H. J. Miller, Esq. - 1 Apr 75
+
+D. Ltr from Schwarzer to Mr. Anthony A. Lapham - 1 Apr 75
+
+E. Memo to Messrs. Belin, Baker, Gellhorn, and Olsen, Subj: Chapters 10 and 11 - 1 Apr 75
+
+F. Ltr from Belin to Honorable Philip W. Buchen - 31 Mar 75
+
+G. Memo for Mr. Knoche - Subj: Request for Documents - 7 Mar 75
+
+H. Memo to Mr. Belin - Substantiation of Final Report - 6 Mar 75
+
+I. Ltr from Schwarzer to Honorable Howard Cannon, US Senate - 6 Mar 75
+
+J. Memo to Mr. Belin from Schwarzer - 4 Mar 75
+
+K. Memo for Mr. Belin s/Schwarzer and Manfredi - 4 Mar 75
+
+L. Memo for Mr. Knoche - Subj: Request for Additional Material - 3 Mar 75
+
+M. Ltr from Schwarzer to Mr. Carl E. Rizer - 3 Mar 75
+
+N. Ltr to Mr. Schwarzer from Carl E. Rizer - 25 Feb 75
+
+O. Ltr from Schwarzer to Mr. William A. Carroll, Dir, Continuing Education of the Bar - 25 Feb 75
+
+P. Ltr from Schwarzer to Mr. M. Laurence Popofsky - 25 Feb 75
+
+Q. Ltr from Schwarzer to Mr. Robert Mainhardt - 25 Feb 75
+
+R. Ltr from Schwarzer to Mr. Gordon M. Weber - 25 Feb 75
+
+S. Memo for the File - Subj: Clandestine Service Resulations, now Directorate of Ops Instructions - 21 Feb 75
+
+T. Memo for Mr. Knoche - Request for Documents - 20 Feb 75
+
+U. Ltr from Mr. Knoche to Mr. Schwarzer - 11 Mar 75
+
+Photocopy from
+G R Ford Library

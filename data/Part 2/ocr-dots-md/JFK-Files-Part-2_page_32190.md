@@ -1,0 +1,6 @@
+# JFK-Files-Part-2_page_32190.png
+
+Convert to MarkdownSECRET
+
+NATIONAL SECURITY ACTIONS ON CUBA
+(PENDING AND CLOSED)

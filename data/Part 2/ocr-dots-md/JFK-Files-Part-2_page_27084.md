@@ -1,0 +1,17 @@
+# JFK-Files-Part-2_page_27084.png
+
+Convert to Markdown# TOP SECRET DINAR CHESS RUFF IDEALIST
+
+proportion of these dealt with the deployment of defensive missiles and related activities. Knowledge on the part of the analysts that such a deployment was in fact going on, plus the normal difficulties encountered by untrained observers in telling an offensive missile from a defensive one, tended to throw a sort of smoke-screen around the Soviet offensive deployment when it finally began. The CIA analytic apparatus, however, recognized and correlated the first authentic reports of MRBM equipment ever to be received in Washington, and took action upon them. It targeted the San Cristobal area, not as another location where alleged missile activity should be negated by photography, but as a suspect SS-4 site.
+
+47. This process took about three weeks, from the date when the first observation was made on the ground in Cuba to the preparation of the target card. The two reports from Opa Locka which triggered it were:
+
+a. An observation in Havana on 12 September of a convoy carrying long canvas-covered objects which the source identified under interrogation as resembling SS-4s. This report, which was disseminated by CIA on 21 September, contained sufficient accurate detail to alert intelligence analysts.
+
+b. An observation on 17 September of a convoy moving toward the San Cristobal area. This information, received on 27 September, dovetailed in many respects with the earlier report.
+
+48. The arrival of the second report led CIA analysts to a tentative conclusion that the two observers had in fact seen the same convoy, and that there was a possibility of the SS-4 identification being genuine. A day or so earlier, a target card on San Cristobal had been prepared on the basis of a vague report of "Russians building a rocket base." Now this card was removed and, with the two reports cited above and other less specific information on activity in this area which was beginning to trickle in, a new card was prepared between 1 and 3 October which was in effect a priority requirement for photographic coverage. This card was used in the targeting of the 14 October flight (see para 63). It read as follows: "Collateral reports indicate the existence of a restricted area in Pinar del Rio Province which is suspected of including an SSM site under construction, particularly SS-4 Shyster. The area is bounded by a line connecting the following four town: Consolacion del Norte (8332N/2244W); San Diego del Los Banos (8325N/2235W); San Cristobal (8301N/2243W); and Las Pozos (8317N/2250W). Requirement: Search the area delineated for possible surface missile construction, with particular attention to SS-4 Shyster."
+
+Photocopy
+from
+Gerald R. Ford Library

@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_27863.png
+
+Convert to MarkdownMEMORANDUM
+
+To: Thomas Howarth, Budget Officer
+
+From: G. Robert Blakey, Chief Counsel and Staff Director
+
+Date: October 14, 1977
+
+Re: Salary Adjustments
+
+This is your authorization to increase the salaries of the
+below listed employees to the amounts indicated effective October 1, 1977:
+
+Michael C. Eberhardt $34,000
+Marjorie A. Eagle 14,500
+I. Charles Mathews 26,000

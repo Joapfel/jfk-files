@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_32624.png
+
+Convert to Markdown<table><tr><td colspan="2">TRANSMITTAL SLIP</td></tr><tr><td>DATE</td><td>26 Feb 6</td></tr><tr><td colspan="2">TO:</td></tr><tr><td colspan="2">Mr. Califano for Secy. Vance</td></tr><tr><td>ROOM NO.</td><td>BUILDING</td></tr><tr><td>3E985</td><td>Pentagon</td></tr><tr><td colspan="2">REMARKS:</td></tr><tr><td colspan="2">FROM:<br/>CIA - William A. Tidwell</td></tr><tr><td>ROOM NO.</td><td>BUILDING</td><td>EXTENSION</td></tr><tr><td></td><td>Code143</td><td>6614</td></tr><tr><td>FORM NO.</td><td>241</td><td>GPO:1957-0-439445</td><td>(47)</td></tr><tr><td colspan="2">REPLACES FORM 36-8<br/>WHICH MAY BE USED.</td><td></td><td></td></tr></table>

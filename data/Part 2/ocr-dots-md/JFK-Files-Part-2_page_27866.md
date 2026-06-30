@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_27866.png
+
+Convert to MarkdownIsiah C. Mathews
+
+21 Pearl Street
+Danbury, Connecticut 06810
+
+Will begin work around end of July or 1st of August
+
+$19,500 subject to subsequent judgment
+
+Will be Special Assistant to Blakey Counsel
+
+Please send all forms, etc. needed to begin employment
+and obtain security clearance.

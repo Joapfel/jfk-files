@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_26168.png
+
+Convert to Markdownand he was not to tell on their bosses or anything, but usually personal worries and concern that waste or something going wrong would affect them. Later they moved in an educator--a military educator--[Paul D.] Harkins, and.
+
+O'BRIEN: Well, [Lt. Gen. Lionel C.] McGarr comes in there before that, doesn't he?
+
+LANSDALE: McGarr. It was McGarr, yes, you're right. It was before Harkins. McGarr. And McGarr built up a staff to work on counter-insurgency and probably put together the best staff studies on counter-insurgency than any American military men have ever done.
+
+O'BRIEN: Is that right?
+
+LANSDALE: He got American military men who had been guerrilla leaders in the Philippines, for example, in World War II, and in Burma and so on, and in Europe, and switched most of his work over into compiling "How to Do it" manuals, but I've never seen the finished

@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_27385.png
+
+Convert to MarkdownApril 23, 1975
+
+SECRET - SENSITIVE
+
+MEMORANDUM FOR: Mr. E. H. Knoche, Assistant to the Director
+
+FROM: James B. Weidner
+
+SUBJECT: Request for Files
+
+Please provide copies of the following materials to the undersigned. All of these materials are now held by DDO/OPS/ITG:
+
+1. Memorandum for the Record by Lawrence R. Houston, dated 12 December 1967 re "Roger W. Wilkins, Department of Justice, plus annexed Official Routing Slip. (4 pages)
+
+(Item 1 is located in a file labeled "Policy Review, Sept. 1970")
+
+2. Memo dated 14 Dec 1972 from Richard Ober to Executive Director - Comptroller re "MHCHAOS Survey of European Division Field Station, August - September 1972", plus annexed memo dated 5 Dec 1972 re the same subject. (5 pages)
+
+(Item 2 is located in a file labeled "IG/EUR Review - Fall '72")
+
+3. Routing and Record Sheet dated 14 May 1973 from Richard Ober to Mr. Evans, O/DCI, plus annexed memorandum entitled "Intelligence Evaluation Committee and Staff."
+
+(Item 3 is located in a file labeled "Briefing Papers - CI/SO")
+
+4. "Memorandum for the IEC Members" from John F. Doherty re "Request for Intelligence Estimates", dated February 9, 1971 plus attachment (2 pages).
+
+5. Memo for the Record dated 5 April 1971 by Richard Ober re "Meeting with Robert Hardian..." (2 pages)
+
+(Items 5 is contained in "IEC Chrono - April-May 1971")
+
+Photocopy from G R Ford Library
+
+NW 50955 DocID:32105598 Page 216

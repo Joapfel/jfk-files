@@ -1,0 +1,52 @@
+# JFK-Files-Part-2_page_29785.png
+
+Convert to MarkdownMEXICO CITY -- CIA
+
+ORGANIZATION
+
+The CIA Station was housed at the U.S. Embassy. We have been able to identify several CIA positions from various descriptions. May I suggest the following skeletal framework as a possible picture of the CIA's organizational chart for September-October 1963.
+
+ORR 8/5/77
+
+WASHINGTON
+
+CHIEF OF OPERATIONS
+SPECIAL AFFAIRS
+(Desmond Fitzgerald)
+
+MEXICO
+
+AMERICAN EMBASSY
+
+Joe Piccolo - assisted Phillips; replaced by Ray Swider
+Robert Shaw - oversaw Cuban operatives
+
+CUBAN EMBASSY
+
+2 CIA operatives: one in the diplomatic section, one in the administrative section.
+
+STATION CHIEF (Winston Scott)
+Overall responsibility for CIA activities in Mexico.
+
+DEPUTY STATION CHIEF (Warren Dean, later Allen White)
+
+CONTACT
+Ann Goodpasture
+
+CUBAN AFFAIRS (David Phillips)
+
+REPORTS OFFICER & ASSISTANT
+
+INTERCEPT UNIT (George Monroe)
+
+CONTACT
+Bill Bright
+
+Robert Zamberardi (photo expert)
+
+Boris Tarasoff
+Mrs. Tarasoff
+
+George Misko (before 10/63)
+
+(Russian translations, transcriptions)

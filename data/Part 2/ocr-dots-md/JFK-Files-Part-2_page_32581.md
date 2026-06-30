@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_32581.png
+
+Convert to MarkdownSECRET
+
+This document consists of 18 pages
+No. 13 of 44 Copies, Series A
+
+
+
+REPORT OF THE SUB-COMMITTEE ON CUBAN SUBVERSION:
+ACTIONS TAKEN DURING JULY-AUGUST 1963
+IN CURBING CUBAN SUBVERSION IN LATIN AMERICA
+
+SECRET
+
+OSA, ASG Control No.23866
+
+GROUP 1
+Excluded from automatic
+downgrading and
+declassification
+
+H.W. 50955 DocId:32424608 Page 3

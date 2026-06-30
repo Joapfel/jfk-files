@@ -1,0 +1,80 @@
+# JFK-Files-Part-2_page_25732.png
+
+Convert to Markdown principally Santos Tratixante of Tampa, Fla., whose one-time Havana gambling enterprises fell hostage in 1959 to the Cuban revolution—in plots against Castro had been a closely held secret within the top echelons of the CIA and FBI until recently.
+
+The tangled chronology of suppression and eventual disclosure, although detailed in the June report, has received little public attention. Rossell’s murder adds significance to those events.
+
+Here is the sequence, pieced together from the testimony given to Senate Intelligence investigators:
+
+Columnist Drew Pearson went to
+
+the late Chief Justice of the United States Earl Warren late in January, 1967, and told him that a Washington lawyer had confided to him that one of his clients said the United States "had attempted to assassinate Fidel Castro in the early 1960s and Castro had decided to retali ate."
+
+Warren declined Pearson's suggestion that he see the lawyer, who was Edward Morgan. Warren referred the matter to then Secret Service Director James J. Rowley, who on Feb. 13, 1967, wrote FBI Director J. Edgar Hoover, informing him of the allegations.
+
+Hoover sent the Rowley letter to six senior bureau officials on an "eyes-only" basis. There is no record of FBI meetings or discussions of those allegations. At that point the sensitive letter bounced back and forth in the higher reaches of the FBI bureaucracy.
+
+The job of responding to Rowley's
+letter was assigned to the supervisor
+of the FBI's General Investigative Di-
+vision who was given responsibility for
+the overall assassination investigation
+in March 1964.
+
+This official's job was complicated
+by the fact that he had never been in-
+formed of what Hoover and his closest
+circle of confidants in the FBI learned
+early In 1962—that the CIA was
+deeply involved in assassination
+attempts against Castro, and promi-
+nent American underworld figures, in-
+cluding Rosselli and Giancana, had
+been recruited for the attempts.
+
+So on Feb. 15, 1967, the FBI official prepared a draft reply to the Rowley letter for his superiors saying “our investigation uncovered, no evidence implicating Fidel Castro officials of the Cuban Government were involved with Lee Harvey Oswald in the assassination of President Kennedy. This bureau is not conducting any investigation regarding this matter.” The FBI official added in later testimony that “everyone in the higher echelons read this ...”
+
+Drew Pearson went ahead and pub-
+lished a column on March 7, 1967, ref-
+erring to reports that CIA schemes
+against Castro's life in 1963 "may
+have resulted in a counterplot by Cas-
+tro to assassinate President Kennen-
+dy.”
+
+can be fbi, acting director Cartha DeLoach with a message that "the President had instructed that the FBI interview (Morgan) concerning any knowledge he had not have regarding the assassination of President Kennedy."
+
+DeLoach told Watson that it appeared Morgan did not want to be interviewed, and when he was interviewed he would probably not divulge the identity of his sources..." Watson persisted, however.
+
+"Under the circumstances," De-
+Loach concluded in a memo for the
+files, "it appears that we have no al-
+ternative but to interview (Morgan)
+and then furnish the results to Wat-
+son in blind memorandum form."
+
+The interview was assigned to two agents from the FBI's General Investigative Division, which the Senate committee concluded was "puzzling" because it was the Domestic Intelligence Division which had been assigned responsibility for investigating possible foreign involvement in the assassination.
+
+Neither agent was privy to the
+knowledge, confined to Hoover and
+his top aides, of the CIA's assassina-
+tion plots against Castro. Both agents
+
+testified eight years later that they
+were "surprised" when Morgan al-
+luded during the interview to U.S. at-
+tempts to assassinate Castro.
+
+"These agents stated that they could not evaluate the lawyer's (Morgan's) allegations or question him in detail on them, since they had not been briefed on the CIA assassination efforts," the Senate committee observed.
+
+On March 21, 1967, the FBI's Wash-
+ington Field Office sent headquarters
+ten copies of a blind memorandum
+summarizing the interview with Mor-
+gan.
+
+In a Senate Intelligence Committee summary of the FBI interview, Morgan was reported to have acknowledged that his clients were "on the fringe of the underworld" and that they faced "possible prosecution in a crime not related to the assassination ...
+
+Morgan said his clients "were called upon by a governmental agency to assist in a project which was said to have the highest governmental approval. The project had as its purpose the assassination of Fidel Castro. Elaborate plans were made, including the infiltration of the Cuban Government and the placing of informants within key posts in Cuba."
+
+Morgan also told the

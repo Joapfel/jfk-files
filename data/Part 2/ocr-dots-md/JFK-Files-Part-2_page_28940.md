@@ -1,0 +1,34 @@
+# JFK-Files-Part-2_page_28940.png
+
+Convert to MarkdownA PROMPT REPLY WILL EXPEDITE ACTION
+QUESTIONNAIRE
+
+1. Have you received the check described on the other side of this sheet? [ ] Yes [x] No
+If your answer is "Yes" destroy this form; fill out and mail the enclosed post card.
+
+2. If your answer is "No," have you asked your local post office about the check? (If your answer is "No," this should be done.) ... [x] Yes [ ] No
+
+3. If you recently changed your mailing address, have you tried to find out whether the check is being held there for you at your old address or was returned to the post office? (If your answer is "No," this should be done.) ... [ ] Yes [x] No
+
+4. Have you any information which you think might assist the Treasury Department in locating the check? (If your answer is "Yes," please give such information under "Remarks.") ... [ ] Yes [x] No
+
+5. Is it possible that you received the check and cashed it, thinking it was issued for another purpose? (If your answer is "Yes," please explain under "Remarks.") ... [ ] Yes [x] No
+
+6. If this check was illegally cashed, you will be entitled to payment of the amount of the check; however, another check in place of it will not be issued until the case has been fully investigated by the United States Secret Service. As it may be necessary to contact you for further information, please furnish on the line below the address at which you may be reached during the daytime, if such place is different from your residence.
+
+7. If the check was mailed to a different address than shown below, please furnish that address.
+(Number and Street)
+(City, State and ZIP Code)
+
+8. After reviewing all circumstances, I/we wish to make formal claim to the Treasury Department for stoppage of payment of this check and the issuance of a substitute check.
+
+9. REMARKS (State any other facts which may aid in locating the check):
+
+<table><tr><td>If this questionnaire has been signed by mark (X), two witnesses who know the person must sign below, giving their full addresses.<br>1. NAME<br><hr>ADDRESS (Street number, City, State and ZIP Code)<br>2. NAME<br><hr>ADDRESS (Street number, City, State and ZIP Code)</td><td>SIGNATURE OF PAYEE OR CLAIMANT<br>Mrs. Kenneth Porter<br><br>SIGNATURE OF CO-PAYEE (Both husband and wife must sign if co-payees of a combined check)<br>733 Scottsdale bl<br>RESIDENCE NUMBER AND STREET<br>Richardson, Texas, 75080<br>CITY, STATE AND ZIP CODE<br>DATE (Mo., Day, and Year)<br>July 18, 1969</td></tr></table>
+
+TELEPHONE NUMBER
+AD-1-0720
+
+NWW 88326 DocId:32245128 Page 52
+
+U.S. GOVERNMENT PRINTING OFFICE : 1967 O - 265-973

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_28509.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Tom Howarth, Budget Officer
+FROM: G. Robert Blakey, Chief Counsel and Director
+SUBJECT: Dominick K. Giangrasso
+DATE: October 4, 1977
+
+Mr. Giangrasso has resigned from the Committee
+Staff for personal reasons. His resignation is effective
+as of today.

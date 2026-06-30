@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_25043.png
+
+Convert to Markdown49
+
+TOP SECRET
+
+September of 1960, Lumumba was in the custody of the United Nations troops, who were actually protecting him at his residence in Leopoldville, not restraining him from leaving, but there was a Congolese guard surrounding the UN troops who were prepared to arrest Lumumba if he did leave his residence.
+
+Mr. Dillon. I think I recall that now, because it is rather unusual circumstances.
+
+Mr. Baron. And then apparently in the middle of October the UN had refused to surrender Lumumba to the Congolese Army; who had come with an arrest warrant for Lumumba. Is it your understanding that during this period of time, even after Lumumba was in the protective custody of the United Nations, he was still considered a potential threat and volatile force in the Congo by the US?
+
+Mr. Dillon. I would imagine so. And I would not be at all surprised if the then rulers or officials of the Congolese Government that succeeded Lumumba were concerned about it, because he had this tremendous ability to stir up a crowd or a group. And if he could have gotten out and started to talk to the battalion of the Congolese Army, he probably would have had them in the palm of his hand in five minutes.
+
+Mr. Baron. We had testimony from a CIA officer, who said he had been dispatched to the Congo by CIA Headquarters for the purpose of trying to secure Lumumba's escape from UN
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+HW 50955 DocId:32423566 Page 104
+
+TOP SECRET

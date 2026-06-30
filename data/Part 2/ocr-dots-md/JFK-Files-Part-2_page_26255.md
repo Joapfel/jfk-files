@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_26255.png
+
+Convert to Markdownspecifically for ship repairs, recruiting and training crews, locating sites and facilities for future PM activities, strengthening the political organization of the VRD and propaganda. On 30 January Station Caracas was authorized to inform BETANCOURT that Headquarters was prepared to consider providing arms and equipment to any bona fide resistance element with whom adequate contact can be established. BETANCOURT was to be encouraged to recommend any new individuals or groups he considered useful to further objectives of the project. Station Caracas reported that President BETANCOURT was gratified to receive the above information.
+
+In Headquarters contact with FCR exiled leaders, they disclosed their plan of action which they felt could be implemented if they were provided with arms for 300 men, explosives, and remote control detonation devices. They also claimed to have a small boat infil-exfil capability. On the other hand the VRD, while claiming no internal organization, claimed a sea and air capability and are the chosen instruments of President BETANCOURT and Jose FIGUERES.
+
+## B. Frente Civica Revolucionaria (FCR)
+
+1. We have recently been in touch with key exiled leaders of the FCR and they have expressed a willingness to assemble a small cadre in Puerto Rico. It is contemplated that they will develop maritime capability, be in touch with their internal counterparts through W/T facilities, and develop plans for implementing the internal group's plan of action. In view of their reluctance to deal directly with the ORNES Group (VRD) and in the interests of security we plan to keep them compartmented for the time being.
+
+2. Through our Station in Ciudad Thujillo we are attempting to ascertain the details of the FCR's plan of action and develop a stay-behind communication capability.
+
+## C. Vanguardia Revolucionaria Dominicana (VRD)
+
+1. We are actively supporting the VRD (the ORNES group) in repairing and outfitting their yacht so as to develop an arms delivery capability. It is estimated that it will take from 45 to 60 days to complete this work. Additional time may be needed to recruit and train a crew.
+
+2. Support is also being given to the VRD's propaganda and organizational activities. A program is being developed with the hope that the VRD can develop their own contacts and sources of information within the Dominican Republic.
+
+## D. Possibility of Developing a Boycott Capability
+
+1. During the summer of 1960 WH Division made use of Fernando MUNIZ Silva, Dominican exile in Puerto Rico and at the time head of the
+
+SECRET

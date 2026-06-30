@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_31226.png
+
+Convert to MarkdownSECRET
+
+002271
+
+Roselli onrafts in Septee
+(Mahin to Radli to Iranicna)
+to snfnd? Magi?
+
+Taylor became chairman of FCS
+on 9 Aug i.e?
+
+Push, Me,Vanera, Taylor, Bandy,
+Goodwin, Bilpacht, Lamdell,
+Mumm, McCue
+
+Menu For Rec'd
+Rept at request of DCF; consyed
+to FB m 23 March 67
+The one staybait been exg (to)
+all notes, o other derived source matea
+deskeyed 23 May 67.
+
+MENU: Dept WtT (Davie)
+From Dovg leeny
+Subject: WtT (Sent) Project
+
+Final account of mines expended on
+a sentre paper y intuts f DD/P, clty/ht
+Dovg leeny
+Desbonnet,
+25 Spt 1945 they
+6 Fp 1941
+
+SECRET
+Cuttout
+
+6 907.

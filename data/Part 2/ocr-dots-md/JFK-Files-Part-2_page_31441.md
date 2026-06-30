@@ -1,0 +1,13 @@
+# JFK-Files-Part-2_page_31441.png
+
+Convert to Markdownsupposed to register. He has been indicted already and is under possible sentence of 500 years in jail and $1,000,000 fine. HALL went on to say that he went to jail under the Smith Act and that for thirty years the Government has tried to prove that the CP has been advocating the violent overthrow of the Government and that all communists are agents of a foreign power and are espionage agents etc. but has failed to do so.
+
+According to HALL, the McCarran Act came into being during the McCarthy era when the Administration was being pressured to prosecute communists. The Attorney General said the Government couldn't prosecute them as they did not have the necessary evidence. Congress decided to get around the courts by legislative enactment. They appointed a political committee and presented a lot of illegal and unconstitutional evidence and came up with a finding that the communists are agents of a foreign power and spies and saboteurs.
+
+HALL said that, according to the Attorney General, the present Act is simply a registration statute similar to registrations of foreigners, voters, dealers in securities, etc. However, a recent decision of the Supreme Court held that it is not necessary to be a card carrying member of the CP or do an act which is generally attributed to communists but it is only necessary to have a state of mind and be in sympathy with any of the objectives of communism and you could be prosecuted under the law.
+
+HALL said assuming he did register, he would have to register each official and member of the Party and if he didn't, they would be required to register or he liable to $10,000 fine and ten years imprisonment for each day they failed to register. He would also be required to register any communist organization or any association or organization that has affiliation with the CP. He must also list every typewriter, mismeograph machine, photostat machine, and printing press by serial number. HALL said that you can begin to see the diabolical threat of fascism which is beginning to become real. He said that in addition to these penalties, he can receive the death penalty in Texas, a life sentence in other states and sentences of 20 to 90 years in other states. He is also prohibited from obtaining Veterans or Government housing, employment in the teaching profession, from making movies in
+
+-5-
+
+280

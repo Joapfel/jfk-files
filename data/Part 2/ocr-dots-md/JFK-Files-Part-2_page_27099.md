@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_27099.png
+
+Convert to MarkdownSECRET
+
+developing special applications for BW agents and toxins. The principal customer of its activities appears to have been the U.S. Army Special Forces. Its concern was both with the development of suitable agents and delivery mechanisms for special use in paramilitary situations. These applications clearly included one-on-one situations in which clandestine delivery was a concern. Both standard BW agents and biologically derived toxins were investigated by the Division. Discussions with former Fort Detrick employees indicates that SOD was first established as a distinct, highly secure activity within Fort Detrick in about 1948, though no records going back that far have been found. The Division was abolished in 1970 or 1971 as the Fort Detrick operation was terminated.
+
+## CIA Relationships with SOD.
+
+The CIA relationship with SOD was formally established in May 1952 through a memorandum of agreement with the Army Chief Chemical Officer for the performance of certain research and development in the laboratory facilities of the Special Operations Division of the Army Biological Laboratory at Fort Detrick. The animus for establishing this relationship seems to have been a belief in OTS that the special capabilities of the Fort Detrick group and its access to biological materials of all sorts provided the Agency with expertise and capabilities which were appropriate to its function and not otherwise available. Discussions indicate that the perception of the requirement for such capabilities was tied to earlier OSS experience. Initial funding was at the $200,000 a year level which grew to a high point in FY 1958 of $390,000 and then dwindled to $75,000 a year in the late 1960's. Though there appear to be some gaps in available funding records, total Agency funding in the period from FY 1953 through FY 1970 is
+
+4
+
+SECRET
+
+Photocopy
+from
+Gerald R. Ford Library
+
+HW 50955 DocId:32112749 Page 7

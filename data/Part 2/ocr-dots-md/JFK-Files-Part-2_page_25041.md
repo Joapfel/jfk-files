@@ -1,0 +1,77 @@
+# JFK-Files-Part-2_page_25041.png
+
+Convert to Markdown1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+TOP SECRET
+
+Mr. Dillon. Yes, I see now that I attended this as Acting Secretary of State, this particular meeting.
+
+Mr. Baron. And do you recall the discussion reported in those minutes of affairs in the Congo, that there was the fear of Egyptian influence on the Congo situation on the part of Lumumba, and that there was some pressure being brought to reconcile Kasavutu and Lumumba?
+
+Mr. Dillon. No, I don't recall any of the details of this meeting. I don't recall the meeting itself. But it fits right in with the general feeling about the problem, the way you looked at the Congo problems.
+
+Mr. Baron. The minutes refer to a visa application for Lumumba. Would that have been in connection with Lumumba's desire to come to the US to be recognized as the legitimate representative of the Congo Government before the United Nations?
+
+Mr. Dillon. It would certainly refer to his desire to come to the United Nations to get out of the Congo, where he had been deposed. Whether he cared much whether we recognized him as the legitimate representative or not I would doubt. I don't think he had much interest in what we recognized. But I think it does show that he wanted to get out. And this was a way of getting out.
+
+And he also probably wanted to go to the UN and make a big complaint there.
+
+TOP SECRET
+
+HW 50955 DocId:32423566 Page 102
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

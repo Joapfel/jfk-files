@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_26220.png
+
+Convert to MarkdownJFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+
+AGENCY : NARA
+RECORD NUMBER : 176-10030-10422
+RECORD SERIES : Sorensen Papers
+AGENCY FILE NUMBER :
+
+ORIGINATOR :
+FROM : Schlesinger, Jr.
+TO : President Kennedy
+TITLE : Memo to President CIA Reorganization
+DATE : 6/30/1961
+PAGES : 15
+SUBJECTS : CIA
+DOCUMENT TYPE : Memoranda
+CLASSIFICATION : Unclassified
+RESTRICTIONS : 1C
+CURRENT STATUS :
+DATE OF LAST REVIEW : 8/21/1998
+OPENING CRITERIA :
+COMMENTS : Sorensen Papers: Classified Subject Files 1961-64 Box 47, CIA,
+Document 1a.

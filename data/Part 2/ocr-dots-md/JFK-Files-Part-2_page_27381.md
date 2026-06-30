@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_27381.png
+
+Convert to MarkdownA. Memo to File from Harold A. Baker - 10 May 75
+
+SECRET
+
+B. Project TWOFOLD - Info on
+
+SECRET
+
+C. Official Routing Slip - 30 Sep 71 to The Director
+
+D. Ltr from Mitchell to Helms - Undated.
+
+E. M/R - Subject: Additional Operational Support to Bureau of Narcotics and Dangerous Drugs (BNDD) - 11 Jan 72.
+
+F. Memo for Dir. of CI - 2 Feb 71 signed by Osborn
+
+SECRET
+
+G. Memo for Dir of CI - from Osborn - 6 Jan 71. SECRET EYES ONLY
+
+H. Memo for Deputy Dir of Security, IOS - 2 Feb 71
+
+SECRET
+
+I. Memo for Bill Colby - 29 May 73
+
+J. Routing Slip from Osborn to Exec Sec - 25 May 73
+
+K. Memo for Exec Secy, Subj: Project TWO FOLD - 29 May 73
+SECRET
+
+L. Official Routing Slip - To Dir of Security from John S. Warner, 7/17/73
+
+M. Ltr from Colby to Mr. John R. Bartels - 17 July 73.
+
+N. M/R - Subj: Drug Enforcement Administration - from John S. Warner 25 July 73.
+
+O. One page typed - stating"list of Agency personnel who were witting of the operation" - but no list attached.
+
+CONFIDENTIAL
+
+Photocopy from
+G R Ford Library

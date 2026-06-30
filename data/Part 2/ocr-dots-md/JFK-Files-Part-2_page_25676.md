@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_25676.png
+
+Convert to Markdown### Questions to be answered from reading 1967 to report -
+- who is GTWN? what are his name & other principal agents and their sub-agents - required for 2 Rifle activities?
+- Dr. Edward "Manny Gunn" involved in Operational Planning, asked to treat cigars w/ Ethanol material)
+- Jake Eslin's was head of Cuba task force pre Bayard Pigs days.
+
+Coriolis Leocourril-Cherif, T.S.D., during early plots.
+Guerreiro's mixedPLANFIELD SLAGGING BECAUSE use & weapons rendered useless and survival negligible.
+
+The disaffected Cuba official, Inefficient in touch with was Juan Orta, who had access to Castro.
+
+In Special Assist to DDP he battled involved sort F.D. during relevant time frame.
+
+Orta lost position in Cuban good via 26 Jan. 1961 + took refuge in Venezuelan embassy on April 11, 1961 and became the responibility of the Mexican Embassy when Veng. broke relations w/ Cuba Nov. 1961. Castro returned a safe conduct pass until Oct. 1964 when allowed him to go to Mexico City. Orta arrived in Mexico in Feb. 1965 (Conel fale from favor w/t card killed first). Gangster attempt)
+
+Orla suggested a successor - who made several unsuccessful attempts"
+
+- Who was successor?"

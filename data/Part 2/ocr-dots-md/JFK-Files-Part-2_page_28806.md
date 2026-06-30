@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_28806.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+Elizabeth Berning, Chief Clerk
+
+FROM: I. Charles Mathews, Special Counsel
+
+DATE: December 30, 1977
+
+RE: Ms. Brenda Welburn
+
+This memorandum is to advise you that Ms. Brenda Welburn as accepted the position of Researcher with the Select Committee. Her effective starting date is December 30, 1977, and her starting salary, $15,000.00.
+
+Your cooperation will be appreciated in familiarizing Ms. Welburn with staff procedures and welcoming her aboard.
+
+ICM:j1

@@ -1,0 +1,65 @@
+# JFK-Files-Part-2_page_29051.png
+
+Convert to Markdown# Samuel and Phyllis Ruby
+
+## SUPPLEMENT TO SCHEDULE C
+
+Income
+Less: Sales Tax $43,479.18
+174.63
+$43,304.55
+
+Cost of Goods Sold
+Beginning Inventory $ 800.00
+Purchases
+Beverage/milk 4,980.70
+Groceries 15,169.50
+Meat 2,570.35
+Bakery/bread 2,815.62
+Total Available $26,336.17
+Less: Ending inventory 800.00
+25,536.17
+Adjusted Gross Profit $17,768.38
+
+Expenses
+Casual labor $ 48.12
+Rent 1,459.87
+Payroll 3,640.03
+Telephone 148.00
+Insurance 190.50
+Advertising 43.70
+Accounting 175.00
+Miscellaneous 27.04
+Equipment 74.03
+Maintenance/repairs 136.19
+Taxes/licenses 558.06
+Hosiery 130.04
+Auto 317.14
+Linen 17.83
+Donations 24.00
+6,989.55
+Less: Depreciation $10,778.83
+(3,428.50)
+NET PROFIT $ 7,350.33
+
+## DEPRECIATION
+
+| | | |
+| :--- | :--- | :--- |
+| **Equipment** | 4/70 | $10,000.00 |
+| **Covenant not<br>to Compete** | | 5,000.00 |
+| **Leasehold Imp.<br>(Bal. of Lease)** | | 3,000.00 |
+
+| | | |
+| :--- | :--- | :--- |
+| $2,000.00 | 5 Yr. SL | |
+| 1,000.00 | 5 Yr. SL | |
+| 428.50 | 7 Yr. SL | |
+
+$2,000.00
+1,000.00
+428.50
+---
+$3,428.50
+
+NW 88326 DocId:32245535 Page 97

@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_30697.png
+
+Convert to MarkdownSECRET
+
+Clare Booth Luce
+Office of Security - One volume
+
+Deletions - one sealed envelope - Summarg & FBI Investigation July 1973 (BUO BI of 1953 BI)
+
+① 26 July 1963 - Covert Security approval requested so Luce can contact COS, Rome (Wm. Harvey) when he visits U.S. or she visits Italy.
+
+② 8 Aug 1963 - Covert Security Approval granted for a 6 mo. period. Luce, Clare Boothe #169 102
+
+11111423
+
+SECRET
+
+0003595

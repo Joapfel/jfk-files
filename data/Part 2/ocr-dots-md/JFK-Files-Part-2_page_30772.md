@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_30772.png
+
+Convert to MarkdownMarch 8, 1978
+
+38) HAROLD DEAN NORMAN - Date of birth: 7/6/38, in Clarksville, Texas. 1964 address: 4858 Beulah Street, Dallas, Texas. Employed at Foxboro Company as porter in 1964. Social Security #: 465-48-5688.
+
+39) J. L. OXFORD - Last known employment: Dallas County Deputy Sheriff.
+
+40) EDDIE PIPER - Date of birth: 1/23/08 in Travis County. 1964 address: 1507 McCoy Street, Dallas, Texas, phone TA1-2190. Last known employment: Janitor at Texas School Book Depository.
+
+41) WALTER EUGENE POTTS - Date of birth: 4/28/22 in Sherman, Texas. Last known employment: Dallas Police Department Detective (joined in October 1947).
+
+42) LINNIE MAE RANDLE - Approximate date of birth: 1933. November 22, 1963 address: 2439 West Fifth Street, Irving, Texas. 1964 address: 2438 Westfield, Irving, Texas.
+
+43) MRS. ROBERT A. REID - 1964 address: 1914 Elmwood Boulevard, Dallas, Texas. Last known employment: Clerical supervisor at Texas State Book Depository.
+
+44) EARLENE ROBERTS - Deceased. November 22, 1963 address: 1026 North Beckley Street, Dallas, Texas. April 8, 1963 address: 5000 Tremont, Dallas, Texas.
+
+45) JAMES ELBERT ROMACK - Approximate date of birth: 1925. 1964 address: 10825 Benbrook Drive, Dallas, Texas. In 1964 worked for Coordinating Transportation Co. Social Security #: 463-20-7539. FBI #: 14 5 851 N 10.
+
+46) GUY F. ROSE - 1964 address: 714 Hall Road, Seagoville, Texas. Last known employment: Dallas Police Department Detective/Homicide (joined approximately 1954).
+
+47) ARNOLD ROWLAND - Date of birth: 4/29/45. 1963 address: 3026 Hammerly Street, Dallas, Texas, phone FE7-1861. Married to Barbara Rowland; attended Adamson High School. FBI #: 921 481 F.
+
+48) MITCHELL J. SCIBOR - 1964 address: 2942 North Sayre Avenue, Chicago, Illinois. Last known employment: General Manager, Klein's Sporting Goods.

@@ -1,0 +1,12 @@
+# JFK-Files-Part-2_page_27727.png
+
+Convert to Markdown# Congress of the United States
+## Employment Information Form
+
+MAJING ADDRESS:
+NW 88326
+DocId:32239471 Page 13
+
+JOINT COMMITTEE ON CONGRESSIONAL OPERATIONS
+OFFICE OF PLACEMENT AND OFFICE MANAGEMENT
+WASHINGTON, D.C. 20515

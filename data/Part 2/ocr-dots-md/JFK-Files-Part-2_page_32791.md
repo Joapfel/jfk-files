@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_32791.png
+
+Convert to Markdown4) Task 23, Counterfeit Currency to Increase Cuban economic problems is concierred feasible within 30-60 days upon a limited basis and in considerable scale within six months. CIA asks the Group approval before proceeding with this action.
+
+Other Tasks.
+
+I note here that CIA does not feel it has the operational means to undertake Task No. 22, black-market activities, at this time. Further that Task No. 11, Time magazine dissemination, would require operational facilities not now available. I accept indefinite deferral of Task No. 22 and scrubbing of Task No. 11 on this basis.
+
+The Department of State reaction, to my effort to get the U.S. into priority actions towards our project's goals, has been disappointing to me thus far. Apparently, my schedule of targets for special efforts is accepted only as it may fit into long-range, existing programs already under way. If this is the theory of our project, I believe that the project then becomes only a special reporting device and not a special U.S. effort to win the goal of helping the Cubans recapture their country from a gang of Communists.
+
+"Eyes Only" copies to:
+
+1. General Taylor
+2. Mr. Johnson
+3. Mr. Cilpatric
+4. Mr. McGone
+5. Mr. Kennedy
+6. General Lemaitre
+7. Chief of Operations

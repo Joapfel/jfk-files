@@ -1,0 +1,18 @@
+# JFK-Files-Part-2_page_28090.png
+
+Convert to MarkdownJune 16, 1977
+
+Mrs. Guilia M. Barrow
+509 Kentucky Avenue, S.E.
+Washington, D.C. 20003
+
+Dear Guilia:
+
+I want you to know how much the Committee
+and I appreciate your service and how much we
+regret that you will no longer be a member of
+the staff.
+
+You have our best wishes always.
+
+LS:tle

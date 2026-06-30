@@ -1,0 +1,54 @@
+# JFK-Files-Part-2_page_26881.png
+
+Convert to MarkdownSECRET
+
+PROCEEDINGS
+
+Thereupon,
+
+WILLIAM C. STURBITTS,
+
+called as a witness by Counsel for the Commission on CIA
+Activities, and having been first duly sworn by the Notary
+Public, was examined and testified as follows:
+
+EXAMINATION BY COUNSEL FOR THE COMMISSION
+
+BY MR. MANFREDI:
+
+Q Mr. Sturbitts, will you state your full name for the record?
+
+A William C. Sturbitts.
+
+Q Mr. Sturbitts, do you recall when we spoke some weeks ago you signed a document entitled, "Advice and Waiver"?
+
+A Right.
+
+Q You understand that document is still in effect?
+
+A Sure.
+
+Q Mr. Sturbitts, by whom are you currently employed?
+
+A You mean the Agency or —
+
+Q That is right.
+
+A Central Intelligence Agency.
+
+Q And what is your current position with the Agency?
+
+A I am a Special Assistant, Latin America, for Economic Intelligence Collection and Operations.
+
+Q And would you briefly review for me the history of
+
+SECRET
+
+10 First Street, S.E., Washington, D.C. 20003
+
+PHOTOCOPY from
+Gerald Ford Library
+
+N: 50955 DocId:32275454 Page 4
+
+SECRET

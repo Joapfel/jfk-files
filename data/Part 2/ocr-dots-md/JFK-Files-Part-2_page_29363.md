@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_29363.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+I. INTRODUCTION
+
+A. Issues Addressed
+
+The House Select Committee on Assassinations'
+investigation into Lee Harvey Oswald's activities in Mexico City
+has been directed at answering the following questions:
+
+1) Did Lee Harvey (Oswald visit the Soviet and Cuban Consulates or Embassies in Mexico City?
+
+2) In addition to the visits which may have been made to the Embassies, what were Lee Harvey Oswald's activities while he was in Mexico City?
+
+3) Was Lee Harvey (Oswald alone in Mexico City?
+If not, who were his associates and what were their activities?
+
+4) Did the Central Intelligence Agency maintain any surveillance operation(s) aimed at the Cuban and Soviet diplomatic missions in Mexico City? If so, what kind?
+
+5) What information, if any, about Oswald's stay in Mexico was known by the CIA Mexico City Station prior to the assassination and what was the source of that information?
+
+200-0866
+
+Classification:
+
+TOP SECRET
+
+Classified by derivation:
+
+116
+
+N\J 48327 DocID:32263889 Page. 11

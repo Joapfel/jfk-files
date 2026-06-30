@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_31166.png
+
+Convert to Markdown0002199
+
+SECRET
+
+With the failure of ONTO
+to produce the desired results,
+the project was at a standstill,
+until once again, Sams Indirective
+an armed command. Rorsellus:
+that "Traffickers believe
+a certain leading figure in
+the Cuban excel tremendously might
+be able to accomplish the mission"
+Eve 167 DC Ept, 8/29; Pulen Rep, p80.
+
+Comments:
+
+The cycle leader was, if correct,
+Tony deVARMA, #14,
+who was the subject of speculation
+in an FBI ministration on July 16, 1961,
+directly him making receiving fena
+aid from Amenc gangsters for
+cuba-Castro activities since 1961.
+The CIA operation.
+
+At that time of his introduction
+into the CIA mod plot, Dr. None was already
+pour funded by the Agency through
+the Revolutionary Front and was denotif
+involved in CIA planning for the
+Boy of Pigüe invasion which was
+comment.
+
+In 1960-61, the MIKE Mekaniy was also introduced into the Agency's mind set. Vamanis' mege on collaboration with MIKANUS FREND. SECRET. Engaged in publishing Levarman's tome, on collaboration with MIKANUS FREND.

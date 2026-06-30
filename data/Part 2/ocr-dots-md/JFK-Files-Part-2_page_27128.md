@@ -1,0 +1,40 @@
+# JFK-Files-Part-2_page_27128.png
+
+Convert to MarkdownSECRET SENSITIVE
+
+On 1 January 1949 a report was submitted to the
+National Security Council at its request by men whom it had
+appointed to a Survey Group: Messrs. Allen W. Dulles
+(chairman), William H. Jackson and Mathias F. Correa. As
+one who had played a key role in the Office of Strategic
+Services, Mr. Dulles was familiar with the wartime role and
+performance of X-2. He understood its record and mission
+which were succinctly stated in the War Report: Office
+of Strategic Services.¹ The opening paragraph of this of-
+ficial account of X-2 reads as follows: "Counterespionage
+is a distinct and independent intelligence function. It
+embraces not only the protection of the intelligence in-
+terests of the government it serves, but, by control and
+manipulation of the intelligence operations of other
+nations, it performs a dynamic function in discerning
+their plans and intentions, as well as in deceiving them.
+An effective counterespionage organization is therefore an
+intelligence instrument of vital importance to national
+security."²
+
+The Dulles Committee made recommendations designed to
+strengthen CIA and its counterintelligence capability. The
+
+¹ Vol. I, Washington Organization, History Project, Strategic Services Unit, Office of the Assistant Secretary of War, War Department, Washington, D. C., July 1949.
+
+2
+<u>Ibid.</u>, p. 189.
+
+SECRET COMMITTEE
+CLOSET
+
+Photocopy
+from
+Gerald R. Ford Library
+
+HW 50955 DocId:32112721 Page 18

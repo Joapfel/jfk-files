@@ -1,0 +1,47 @@
+# JFK-Files-Part-2_page_29588.png
+
+Convert to Markdown# Classification:
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+- 30.
+
+564/ Ibid.
+
+565/ Ibid.
+
+566/ Ibid. A restricted file is a method of keeping abreast of any information that develops on the subject of the file. The file is marked to indicate that it cannot be reviewed without the permission of the person who made the restriction. The effect is that if anyone wants to see the file, the custodian of the file learns of that desire and the information leading to it. (HSCA Deposition of Ann E. G. Egerter, 5/19/78, p. 51.)
+
+567/ See Section
+
+568/ HSCA Deposition of A. Egerter, 5/17/78, p. 77.
+
+569/ Deposition of Elsie Scaleti, 5/19/78, p. 29.
+
+570/ HSCA Deposition of Ann Egerter, 5/17/78, pp. 78-79.
+
+571/ Ibid., pp. 70-71; HSCA Deposition of Elsie Scaleti, 5/19/78, p. 33.
+
+572/ Ibid. The Zed (Greenwich) times stamped on the cable and the teletype indicates that the teletype was sent before the cable.
+
+573/ DIR 74830, 10/10/63.
+
+574/ Ibid.
+
+575/ Ibid.
+
+576/ Ibid.
+
+577/ Teletype from CIA to State, FBI and Navy, DIR 74678, 10/10/63.
+
+578/ Ibid.
+
+579/ The mistaken identification of Oswald as "Lee Henry" is dealt with in another section of this final report.
+
+580/ HSCA Deposition of A. Egerter, 5/17/78, p. 77.
+
+Classification:
+
+340
+
+Classified by derivation:

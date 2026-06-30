@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_29807.png
+
+Convert to MarkdownVICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR # 6-32
+
+XXMRDXX
+
+CARRAFA, Eugene Michael
+
+SUBJECT/CASE REFERENCE:
+
+DATE      OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+Ft. Lauderdale has nothing on Louis E. Iandoli except he lives in a 1/2 million to million dollar neighborhood.
+
+Det. Don Valicki says that he the name Louis Anthony Piccerelli is recently familiar and he is checking same out. Valicki also advises that there is a nightclub in Ft. Lauderdale named "The Three of Us" and it is owned by Dominick Santerelli, Chicago Syndicate.
+
+Dominick Santerelli's partner was Phillip Damiano, Cleveland LCN, who was recently murdered. Santerelli and Damiano owned a majority of the land in Alaska where the pipeline is being laid, most of the port city of Valdez, and both are close associates of Charles Tourine who was indicted July 8, 1976 in an Alaska gambling and prostitution conspiracy centered in Valdez.
+
+Interview with Matthew Carrafa, (203) 574-1878, work (203) 272-2211 wherein he related that there would be a wake for the deceased CARRAFA on 08-12-76 and burial on 08-13-76 in Waterbury, Connecticut. CARRAFA further related that if the police are unable to do anything he will look around New York as "I have the same connections in New Ycck as they are investigating."

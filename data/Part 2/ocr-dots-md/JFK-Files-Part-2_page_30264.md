@@ -1,0 +1,79 @@
+# JFK-Files-Part-2_page_30264.png
+
+Convert to Markdowninvolvement in the case you did not have an opportunity to
+read that file?
+
+Mr. Nosenko. It was the decision of the Chief of the
+Second Chief Directorate, given big importance to this question,
+that a resume will be prepared by the most prestigious depart-
+ment, American Department, and that is why we couldn't even ask.
+
+Mr. Klein. You didn't even ask to see it?
+
+Mr. Nosenko. No.
+
+Mr. Klein. So it was not unusual that you were not
+allowed to see it?
+
+Mr. Nosenko. No, it was not unusual.
+
+Mr. Klein. You have testified before this Committee that
+the KGB did not allow Lee Harvey Oswald to defect because he
+was uninteresting. You have testified the KGB did not even speak
+to Lee Harvey Oswald because he was uninteresting; and that you
+decided he was not interesting without speaking to him.
+
+Do you know what year Lee Harvey Oswald came to the Soviet
+Union?
+
+Mr. Nosenko. 1959.
+
+Mr. Klein. In 1959, approximately how many Americans
+wanted to defect to the Soviet Union or requested permission to
+defect?
+
+Mr. Nosenko. There was a defectionist, I remember, one
+of the employees, one of the workers, who was helping to or-
+ganize the American Exhibition in Moscow, Mr. Webster.
+
+TOP SECRET
+
+10
+20
+30
+40
+50
+60
+70
+80
+90
+100
+110
+120
+130
+140
+150
+160
+170
+180
+190
+200
+210
+220
+230
+240
+250
+260
+270
+280
+290
+300
+310
+320
+330
+340
+350
+
+TOP SECRET
+
+JW 50955 DocId:32277209 Page 6

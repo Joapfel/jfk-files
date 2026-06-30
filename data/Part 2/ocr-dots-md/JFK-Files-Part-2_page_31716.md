@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_31716.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH:jb
+
+the elements of the violations. SCHEER then stated, "It is time to risk treason. We must totally disassociate ourselves with the US Government."
+
+SF T-38
+
+February 14, 1966
+
+A large cardboard poster was observed at VDC Headquarters, 2407 Fulton Street, Berkeley, California, which bore the notation across its top, "VDC Defendants Committee - I will commit civil disobedience on October 15-16 with the Vietnam Day Committee and I am prepared to be arrested in opposition to United States intervention in Vietnam. I am joining this committee to organize my political defense." There were a large number of names handwritten below this caption including "BOB SCHEER, 2546 Geary Street, San Francisco."
+
+SF T-37
+
+September 28, 1965
+
+A demonstration in opposition to United States participation in the Vietnam war was held October 17, 1965, at the Civic Center Plaza, San Francisco, sponsored by 12 groups and having about 3000 persons participating. The concluding speaker at this program was ROBERT SCHEER, who was introduced as a reporter for "Ramparts" magazine. SCHEER vehemently denounced the United States action in Vietnam and stated that it was a problem for the Vietnamese people to decide. SCHEER stated that the United States rationalized its killing of Vietnamese civilians by saying that the Viet Cong commit horrible atrocities. SCHEER said that although the Viet Cong may kill some civilians, the United States Government's statements on their atrocities are, on the whole, a lie.
+
+Observation by Special Agent
+of the FBI
+
+The University Committee on Vietnam of the University of California at Los Angeles (UCLA) held a teach-in at the
+
+1280
+
+SECRET
+
+Copy ............ of ............Copies
+Page ......... of ...... Pages
+
+NW 88613
+DocId:34517445 Page 39

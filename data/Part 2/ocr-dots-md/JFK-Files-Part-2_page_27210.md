@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_27210.png
+
+Convert to MarkdownG-C-H Files
+
+L. Legislative History Memorandum -- 1949 Act
+
+M. 1949 Act Hearings
+
+N. Hughes Amendment
+
+Public Law, bills and report
+
+O. Economy Act
+Statutes
+
+P. CIA Firing Authority
+Two cases
+
+Q. Overseas Differentials and Allowances Act
+Public Law and two reports
+
+R. 1953 Amendment (1947 Act)
+Law, reports, hearings, bills and debate
+
+S. 1956 Congressional Debates and Report
+(on a Joint CIA Committee)
+
+T. 1966 Congressional Debates and Report
+(on a Joint Committee on Intelligence)
+
+U. S. 2224 -- Sen. Cooper and Giving Intelligence
+to Congress. Bill and comments-
+
+V. Covert Activities and Law
+
+1. Letter from CIA and two 1962 memos (all SECRET) [x]
+
+2. 1975 CIA OGC Opinion
+
+W. Subsequent Legislation (on CIA)
+(Library of Congress compilation 1972)
+
+X. Congress' 1975 Investigation
+(S. Res. 21)
+
+Y. CIA Funding
+Three Articles
+
+Z. Heine v Raus
+Four cases and one article
+
+AA. Holtzman Amendment
+
+1. CIA Memo (SECRET)
+
+2. OGC Opinion
+
+Photocopy from
+G R Ford Library

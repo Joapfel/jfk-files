@@ -1,0 +1,21 @@
+# JFK-Files-Part-2_page_32592.png
+
+Convert to MarkdownSECRET
+
+ANNEX A
+
+CIA Intelligence Annex
+
+1. Travel to and from Cuba
+
+Brazil
+
+Chartered Cubana airlines flights between Cuba and Brazil have become a major means of transporting non-Cuban Latin Americans to and from Cuba. The five such flights since late July have carried nearly 400 non-Cubans.
+
+The first of the recent series -- on 25 July -- brought 71 Latin American passengers to Havana for the 26 July celebrations. The other four flights -- on 15, 22, 28 and 29 August -- transported over 200 Latin Americans to Brazil from Havana. Some of the aircraft involved returned to Cuba with smaller numbers of passengers. Many of the 200 Latin American passengers had been delegates to the 26 July ceremonies, but others had apparently been in Cuba for longer periods and some had probably received training there. Of the passengers on these four flights to Brazil, 75 were natives of Caribbean area countries. Their circuitous travel through Brazil was evidently designed to help conceal the fact that they had been in Cuba.
+
+Costa Rica
+
+Two Costa Ricans were among the passengers on a chartered Cubana plane which was turned back to Havana at Grand Cayman on 11 July 1963. One was Luz Marina Hernandez Salazar, the only Costa Rican woman known to have been sent to Cuba for training as a guerrilla warfare instructor. She had been in Cuba since September 1962. The other Costa Rican passenger was Carlos Guillen, former head of the Costa Rican Society of Friends of the Cuban Revolution, who had been in Cuba since November 1962.
+
+SECRET

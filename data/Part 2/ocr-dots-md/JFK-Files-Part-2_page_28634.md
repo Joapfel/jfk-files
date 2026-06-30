@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_28634.png
+
+Convert to MarkdownDick:
+
+While the attached resume of Ms. Miriam Rudder does not reflect experience related to office duties, I know her well and certainly trust her. Therefore, I strongly recommend that she be hired for me to train as a mail clerk working along with Patricia Price. Again, as I indicated above, the most important thing to me in this instance is that I have the utmost trust in Miriam.
+
+Your consideration in this matter is greatly appreciated.
+
+DONOVAN
+
+有限 technical skills
+Must go to school on Tuesday
+and Thursday nights from 8 - 10 P.M.
+No security problems -
+No FBI, CIA or Sea Service.
+Could start tomorrow
+World like to make no less
+than $8,000
+Very pleasant - recommendations
+Recommend
+
+NWI 88326
+DocId:32244092 Page 10

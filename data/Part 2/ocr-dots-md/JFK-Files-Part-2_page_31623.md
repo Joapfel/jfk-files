@@ -1,0 +1,53 @@
+# JFK-Files-Part-2_page_31623.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mb
+
+INDEX (Cont.)
+
+HARRISON, CHARLES 29
+
+HEALY, DANIEL 42*
+
+Hell's Angels 38
+
+HEYNS, Chancellor ROGER W. 49
+
+HIRSCH, MORRIS 22*, 35, 52
+
+HULL, ROBERT 46
+
+HUMPHREY, Vice-president 45, 46
+
+HUMPHREY, Vice-president HUBERT 43, 44
+
+HURWITT, ROBERT 52
+
+HURWITT, ROBERT MARK 23*, 24*
+
+Independent Socialist League 5*, 82*
+
+Industrial Workers of the World (IWW) 12*
+
+IWW 21
+
+IVORY, PAUL 3, 10*
+
+JACOBS, HAROLD 49*
+
+JACOBS, PAUL 36*
+
+JETER, HOWARD 3
+
+JETER, HOWARD P. 10*
+
+KAUFFMAN 52
+
+KAUFFMAN, GEORGE ARMSTEAD 44*, 50
+
+d
+
+54
+
+NW 88613 DocId:34530150 Page 90

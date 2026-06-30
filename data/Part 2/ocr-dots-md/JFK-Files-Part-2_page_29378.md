@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_29378.png
+
+Convert to MarkdownClassification: TOP SECRET
+
+(This form is to be used for material extracted
+from CIA-controlled documents.)
+
+the technician turned the liaison responsibilities over to a case officer.17/ He could not remember with certainty the identity of that case officer, but thought that it may have been (Robert Shaw).18/ The technician remembered that the operation had originally covered the Cuban Embassy entrance with a manually operated (Exacta or Leica) camera. He said that this camera had been set up on a tripod and was equipped with a Bal-Scope.19/ Later, according to the technician, a pulse camera was installed in this base.(bídP3 The pulse camera was set up to cover the Consulate entrance, while the agents continued covering the Embassy entrance with the manual camera.(bíd The technician could not remember with certainty when the pulse camera was installed in the base. The technician told the House Select Committee on Assassinations that the exact time of installation could be checked by reviewing the project files maintained at CIA Headquarters.20/
+
+The technician remembered quite a few details about how the pulse camera had been set up and how it worked. He remembered that the shutter was triggered by a device attached to a spotting scope.21/ The
+
+**Classification:** TOP SECRET
+
+20-068
+
+Classified by derivation:
+
+131
+
+NW 48327 DocId:32263889 Page 26

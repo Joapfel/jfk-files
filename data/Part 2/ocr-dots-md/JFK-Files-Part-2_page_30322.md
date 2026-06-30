@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_30322.png
+
+Convert to MarkdownTOP SECRET
+
+Mr. Devine. Yes, but as a defector would there not be reprisals taken by the Soviet Union against your family?
+
+Mr. Nosenko. Sir, before the death of Stalin it could be taken drastic measures against the family, but after the death of Stalin, from middle 1950s, quite a little changes took place in the Soviet Union, and the family will not suffer.
+
+Another thing, oh sure, will be certain things which they cannot achieve. Let's say my brother who studied later in the same Institute what I finish, Institute of International Relations, he will never have possibility to go abroad, but he will never be put in jail, can never be exiled from Moscow, the same, nothing happened with family.
+
+Mr. Devine. The fact that you were a KGB man didn't your defection cause some irritation among those in power over there?
+
+Mr. Nosenko. Sure.
+
+Mr. Devine. Did they want to get you back, didn't they want to get even with you?
+
+Mr. Nosenko. Oh, yes, and they are looking for me.
+
+Mr. Devine. But they took no reprisals against your family.
+
+Mr. Nosenko. No.
+
+Mr. Devine. How do you know that?
+
+Mr. Nosenko. Well, I do not know exactly, but you see, there were some defections before. The family didn't suffer like it was, let's say, in '40s and maybe up to death of Stalin.
+
+Mr. Devine. Were those KGB defections?
+
+Mr. Nosenko. Even from KGB.
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 64

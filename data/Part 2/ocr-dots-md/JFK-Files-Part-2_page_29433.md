@@ -1,0 +1,51 @@
+# JFK-Files-Part-2_page_29433.png
+
+Convert to Markdown**Classification: TOP SECRET**
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+-69-
+
+Headquarters (is) not well informed on the
+way the Mexico Station exploits operational
+leads from (this operation). The outside
+staff agent, Arnold Arehart has instructions
+to alert the Station immediately if a U.S.
+citizen or English speaking person tries
+to contact any of the target installations.
+This is done by a telephone call from outside
+the tap center at a pay phone to (Ann Good-
+pasture) inside the Station. Emergency
+meetings are arranged in double talk...(Good-
+pasture) meets Arehart within fifteen minutes
+at a pre-arranged downtown location and
+receives the reel with an extract of the
+pertinent conversation. The reel is then
+taken to the Station and given to the case
+officer responsible for the target the person
+was trying to contact. Headquarters is
+notified by cable of the action taken.
+Only in rare cases is information on a U.S.
+citizen passed without prior Headquarters
+approval.
+
+If the tape was from a Soviet installation, the tape
+would have been delivered the same day to the Tarasoffs
+by Mr. Zamberardi.280/ A long with the tape, the
+Tarasoffs would receive a note indicating which
+conversation was to be transcribed on a priority
+basis. The Tarasoffs would then immediately transcribe
+that conversation and return it to their regular
+contact that same day.281/ It should be noted that
+the monthly report says that the Soviet transcripts
+would be delivered to the case officer responsible
+for the target installation.282/ In the case of the
+
+**Classification:** TOP SECRET
+
+Classified by derivation: __________
+
+185
+
+HW 48327 DocId:32263889 Page 81

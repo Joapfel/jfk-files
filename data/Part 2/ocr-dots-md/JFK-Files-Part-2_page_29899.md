@@ -1,0 +1,48 @@
+# JFK-Files-Part-2_page_29899.png
+
+Convert to Markdown# VICE-INTELLIGENCE DIVISION
+MONTGOMERY COUNTY POLICE DEPARTMENT
+
+CONTINUING INVESTIGATIONS REPORTS
+
+OCR
+XXIX/XXII # 6-32
+
+SUBJECT/CASE REFERENCE: CARRAFA, Eugene Michael
+
+DATE OBSERVATIONS/INVESTIGATION CONDUCTED/EXPENSES
+
+10-22-76 N.Y.C.P.D., O/C Section, advises that the following are the subscribers of the numbers called by Fred Black in New York.
+
+| Phone # | Listed to | Address |
+|---|---|---|
+| (212) 796-2593 | R. H. Bergman | 600 W 239th St., N.Y., N.Y. |
+| (212) 689-2526 | Allan B. Alpern Atty. | 45 E 89th St., N.Y., N.Y. |
+| (212) 755-7592 | Jane & Majorry Gans | 340 E 52nd St., N.Y., N.Y. |
+| (212) 737-4722 | J. Majuk | 1413 York Ave., N.Y., N.Y. |
+| (212) 687-4141 | B. Minkoff | 60 E 42nd St., N.Y., N.Y. |
+| (212) 687-4141 | Robert Rubin | 60 E 42nd St., N.Y., N.Y. |
+| (212) 687-4141 | William Rubin | 60 E 42nd St., N.Y., N.Y. |
+| (212) 753-3500 | Hotel Wyndam | 42 W 58th St., N.Y., N.Y. |
+| (212) 687-2244 | National Order Systems | 2 W 45th St., N.Y., N.Y. |
+| (212) 759-3000 | Hotel Plaza | 22 W 59th St., N.Y., N.Y. |
+| (212) 838-7400 | Metropolitan Club | 1 E 60th St., N.Y., N.Y. |
+| (212) 751-3500 | Grey Advertisement Inc. | 777 3rd Ave., N.Y., N.Y. |
+| (212) 246-0212 | Solow & Son Diamonds | 48 W 48th St., N.Y., N.Y. |
+| (212) 486-7378 | Rodgers & Hammerstein | 598 Madison Ave., N.Y., NY |
+| (212) 352-9381 | Parness Window Cleaning | 24-31 Francis Lewis Blvd., N.Y., N.Y. |
+| (212) 682-6334 | Wilson & Allen | 200 Park Ave., N.Y., N.Y. |
+| (212) 682-6334 | T.R.Barton Ins. | 200 Park Ave., N.Y., N.Y. |
+| (212) 796-1053 | J. Parness | 5 Alderbrook Rd., Bronx,NY |
+
+Cpl. M. F. Alban
+
+10-27-76 Reference the number (301) 778-0548 called by Lewis E. Iandoli on 08-29-76, same is to Richard (NMN) Carvell, W/M, 09-19-02, Rt. 3, Country Club Estates, Ches tertown, Maryland.
+
+Reference the following numbers * called by Fred Black on 07-12-76, 08-06-76, and 08-25-76 respectively same are to the following:
+
+* (301) 764-0279 Irvin Kovens, W/M, 10-20-76,
+(301) 358-0942 3601 Clark Lane, Apt. 502,
+Baltimore, Md.
+(301) 539-8800 Kovens Co.
+1335

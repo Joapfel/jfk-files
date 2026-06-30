@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_29937.png
+
+Convert to MarkdownINVESTIGATION INTERVIEW SCHEDULE
+
+015081
+
+1. Identifying Information:
+
+Name Sgt. Lewis Wesley LEBER
+Address Headquarters TAC
+City/State Langley AFB, VA 23665
+Date of Birth 38 years
+Social Security 226-52-6354
+
+Date 2/24/78 12:03 P.M.
+Place Bldg. #693 HOS TAC
+Langley, AFB
+Telephone
+M or S
+Spouse
+Children
+
+2. Physical Description:
+
+Height
+Weight
+Ethnic Group
+Color Eyes
+Hair
+Special Characteristics
+
+3. Personal History:
+
+a. Present Employment:
+Address
+Telephone
+
+b. Criminal Record
+1. Arrests
+2. Convictions
+
+4. Additional Personal Information:
+
+a. Relative(s): Name
+Address
+
+b. Area frequented:
+
+c. Remarks:
+
+Investigator
+Date
+
+Form #4-B
+
+NW 88326 DocID:32268020 Page 2

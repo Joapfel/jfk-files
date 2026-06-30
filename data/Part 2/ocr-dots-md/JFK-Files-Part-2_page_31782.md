@@ -1,0 +1,28 @@
+# JFK-Files-Part-2_page_31782.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH/dp
+
+have taken those critical steps rather than go along with the fighting. It is not a significant number yet, but SCHEER believes it is growing. "We have to figure out whether the United States is Rome on the rise or Rome in decay and hopefully America's empire is on the verge of cracking up."
+
+When asked if he could make a generalization about the American housewife and American married life, SCHEER stated, "The average American is drunk most of the time." SCHEER explained that the average American has a couple of drinks before starting home and several more when he arrives at home. The cocktail hour is all about getting "yourself numb enough that you can take your wife and kids and then you usually fall asleep in front of the television."
+
+SF T-93, 3/6/68
+
+March 1, 1968
+
+The "Albion Pleiad," Albion College weekly newspaper, Albion, Michigan, in its issue of March 1, 1968, carried an article headlined, "SCHEER Rips NORRIS, College." The article stated SCHEER was scheduled to speak on the "relevance of academe in response to cultural needs," but abandoned this topic and instead dissected the speech given by Albion College President LOUIS W. NORRIS to freshmen at this school in the fall of 1967. SCHEER said Dr. NORRIS' speech stressed the importance of vicarious learning and the central role of the "great conversation." SCHEER said the "great conversation is a bore." SCHEER stated that white middle class Americans want to make a revolution without doing anything revolutionary. SCHEER said Dr. NORRIS stated in his speech "hippies" did not belong on Albion's campus. SCHEER replied to this "with these ideas he shouldn't be president of a university, and I wouldn't have to make these statements if he hadn't given such a speech to the freshmen." He said that America can no longer engage in foreign aggression in the guise of extending freedom." SCHEER concluded his speech by stating that to alleviate these crises America should dismantle the defense apparatus, turn to a peace economy and get out of Vietnam.
+
+One of the critics of SCHEER's speech was quoted in this article as saying, "Some of what he said was admirable, but he was so irrational and so boorish and had excruciating bad taste."
+
+Copy...........of 5 Copies
+Page..104 of 134 Pages
+
+1346 SECRET
+
+104
+
+NW 88613 DocId:34517445
+Page 105

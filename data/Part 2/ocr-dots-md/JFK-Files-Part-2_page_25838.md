@@ -1,0 +1,77 @@
+# JFK-Files-Part-2_page_25838.png
+
+Convert to Markdown# FIDEL CASTRO SAYS HE KNEW OF OSWALD THREAT TO KILL JFK
+
+By COMER CLARK
+
+"Yes, I heard of Lee Harvey Oswald's plan to kill President Kennedy. It's possible that I could have saved him.
+
+"I might have been able to — but I didn't. I never believed the plan would be put into effect."
+
+These were the dramatic words spoken to me by Cuba's Prime Minister Fidel Castro in Havana on July 15.
+
+"Lee Oswald came to the Cuban embassy in Mexico City twice," Castro went on. "The first time — I was told — he wanted to work for us.
+
+"He was asked to explain, but he wouldn't.
+
+"He wouldn't go into details.
+
+"The second time he said he wanted to 'free Cuba from American imperialism.'
+
+"Then he said something like: 'Someonought to shoot that President Kennedy.'
+
+"Then Oswald said — and this was exactly how it was reported to me — 'Maybe I'll try to do it.'
+
+"This was less than 2 months before the U.S. President was assassinated.
+
+"The two visits occurred close together," Prime Minister Castro told me. "I didn't take them seriously."
+
+My hard-won interview took place in the middle of a cheering, jostling mob on the sidewalk of La Rampa, the main "show street" of Cuba's capital, Havana.
+
+Castro had arrived unexpectedly to inspect progress on the building of a Cuban pavilion, erected with those of other Communist countries to mark the July 26 celebration of Castro's rebellion against the Batista regime.
+
+And also to mark the meeting in Havana of Castro's rebel Organization of Latin American Solidarity (OLAS) conference, due to open on July 31.
+
+I had applied to the Cuban embassy in London during April-May for permission to go to Cuba to interview the island's prime minister.
+
+Although a British subject does not need a visa to enter Cuba, approval by the Cubans for the entrance necessary.
+
+Otherwise, the incoming visitor risks being turned away at Havana airport. The approval came at the end of June and was telephoned to me by Santiago Diaz, of the Cuban consulate in London, who deals with entry inquiries. Diaz told me that permission to visit Cuba had been "cleared" (though I was unable to learn what specific checks on my eligibility had been made).
+
+There are only three legal ways to enter Cuba by air. From Mexico City, from Prague, Czechoslovakia, or from Madrid, Spain. So I flew to Madrid and entered Cuba by airliner on July 9.
+
+In Havana, I immediately applied to the Ministry of External Relations for an appointment to see Prime Minister Castro.
+
+In London, I'd been assured an interview would not be too difficult to obtain. But Senor Laurencio Cordoso, who dealt with foreign press queries was not quite as optimistic as that.
+
+"You know, there are the annual celebrations of the rising against Batista," he said. "And then the
+
+REPORTER: Comer Clork's questions netted new facts.
+
+PRIME MINISTER of Cuba, Fidel Castro, was addressing admiring crowd when ENQUIRER reporter drew surprising statements from him in unexpected rapid-fire interview.
+
+meeting of the Organization of Latin American Solidarity.
+
+"The Prime Minister is bound to be very busy. You will have to be patient."
+
+While waiting for permission to interview the prime minister, I was taken on official visits to Cienfuegos Bay to watch the construction of a massive sugar processing and storage plant. And then I went to Trinidad, one of the oldest towns in Cuba.
+
+I noticed that the windows of many Trinidad shops were barren of goods.
+
+For example, in the former Woolworth store on the main street, the entire window facing the street was empty.
+
+The only things that filled many otherwise empty windows were pictures and photographs of Fidel Castro and propaganda posters. Many shops are simply shut, because of a shortage of consumer goods.
+
+Soviet help in construction schemes was obvious — particularly at Cienfuegos Bay. Some old American machines were still in use, but much of the new construction equipment was either Russian or Japanese.
+
+Inspection tours, however, weren't what I had come for. I kept asking about the Castro interview — and kept being told I'd have to be patient.
+
+Many early-bird delegates to the OLAS conference started to arrive now. Waiters, public servants and others began pinning on OLAS buttons. With all this activity, I began to feel my waiting and hoping
+
+(Continued on next page)
+
+ oct. 15, 1967
+
+HW 50955 DocId:32423630 Page 571
+
+Po

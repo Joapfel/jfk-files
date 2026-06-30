@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_31559.png
+
+Convert to MarkdownSF 100-55462
+
+FSP:mfm
+
+According to the newspaper article, APTHEKER had informed the student newspaper, "The Daily Californian", a JCB campus newspaper, that she joined the CP in 1962 when she was 17 years of age.
+
+Inspector O'MEARA informed on November 12, 1965, that on November 10, 1965, the VDC Steering Committee held a meeting in Berkeley, California. This meeting pertained to the November 20, 1965 march. In line with the march, a proposal was made that the march would be basically non-violent; however in the event there was trouble, the marchers would defend themselves. Inspector O'MEARA went on to say that according to information furnished to him, the Steering Committee meeting was attended by MICKIE LIMA, Chairman, Northern California District CP. Prior to voting on the proposal, mention was made that only members of the Steering Committee could vote. LIMA voted on the issue. The proposal passed 70 - 58. Inspector O'MEARA commented that his source did not know how LIMA voted on the proposal. Further in formed on November 12, 1965, that the VDC held a Steering Committee meeting on November 11, 1965, for the purpose of discussing the parade permit meeting with the Berkeley Police Department. MICKIE LIMA, who attended the meeting, talked with several leaders of the VDC but made no statements or suggestions to the group at the meeting.
+
+SF T-1 on January 27, 1966 identified ROBERT MARK HURWITT as a member of the VDC Steering Committee.
+
+A review of the records of the Registrar's Office, UCB, revealed the following information for ROBERT MARK HURWITT:
+
+| | |
+|---|---|
+| Race | White |
+| Sex | Male |
+| Date and place of birth | October 12, 1941, New York, New York |
+| Height | 5'11" |
+| Weight | 170 lbs. |
+| Hair | Light brown, worn long and shaggy over the ears and down the neck |
+
+890
+
+NW 88613 DocId:34530150 Page 26

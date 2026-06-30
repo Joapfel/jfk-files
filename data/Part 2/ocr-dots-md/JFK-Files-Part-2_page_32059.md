@@ -1,0 +1,15 @@
+# JFK-Files-Part-2_page_32059.png
+
+Convert to MarkdownNEW 88613 DocId:34530590 Page 4
+
+<table>
+   <tr>
+    <td>DOWNGRADED AT 12 YEAR INTERVALS; NOT AUTOMATICALLY DECLASSIFIED DOD DIR 5200.10</td>
+   </tr>
+  </table>
+
+<table>
+   <tr>
+    <td>REGRADED UNCLASSIFIED ON 2 Sep94 BY CDR USAINSCOM F01/PO AUTH Para 1-603 DOD 5200.1R</td>
+   </tr>
+  </table>

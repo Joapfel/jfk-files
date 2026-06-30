@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_31780.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:mcn
+
+# Television, February 23, 1968
+
+ROBERT SCHEER was interviewed by BRANT FRAYNE and PAUL SALTZMAN at the Expo '67 in Montreal, Quebec, Canada, in June, 1967, and the results of this interview were shown on Canadian Broadcasting Company television network on February 23, 1968. Some of the points emphasized by SCHEER in this interview are as follows:
+
+"Ramparts" magazine, of which SCHEER is Editor, tries to be exciting and to fill a void in American life. It tries to handle the stories the other magazines do not have the guts to handle and to give some diversity of opinion in the mass media of America. It is an experiment in seeing whether American freedom and democracy really works. Other magazines are locked into the establishment because of the funding required to start a magazine and the income received from advertisers, while "Ramparts" is probably the only large circulation magazine in America that does not depend on advertising.
+
+"Ramparts" made a decision to challenge the big magazines and to turn to a secular monthly magazine two and a half years ago (about January, 1965) and it no longer has any connection with or particular interest in the Catholic Church. It is aimed at challenging the establishment and its readers, who are primarily in the 15 to 40 year age group.
+
+"Ramparts" has been called a muckraker and left-wing. It is on the left of the political spectrum since it opposes the war in Vietnam and is interested in removing the ghettos in American life. "Ramparts" is biased as a left-wing opposition to "Time" magazine but "Time" is biased toward the establishment and toward maintaining the status quo. "Ramparts" has never been sued for libel or had a serious challenge to its factual accuracy. "Ramparts" has a small staff of only 30 and has successfully challenged the other big magazines with extensive advertising revenue and has done a more factual reporting job on the Vietnam War, its casualties, civil rights stories and stories on such topics as the children of suburbia rebelling against suburban community and its values.
+
+SECRET
+
+1344
+
+Copy of 3 Copies
+Page of 103 Pages

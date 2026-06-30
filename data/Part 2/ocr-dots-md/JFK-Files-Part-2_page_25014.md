@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25014.png
+
+Convert to Markdown# TOP SECRET
+
+Force, and maybe still was at that time.
+
+Mr. Baron. Was it a regular occurance to convene such meetings at the Pentagon?
+
+Mr. Dillon. We had a very close relationship between the State Department and the Pentagon at that time. And it was not unusual, because of the fact that generally there would be a representative of the Joint Chiefs present, and they were both over there, and if for any reason it seemed reasonable, we would do that. Now, usually I think the man who was responsible would be this number three person in the State Department, he would go to the Pentagon for many of the meetings, the briefings and things like that which would be in the area of the Joint Chiefs, and so forth. He was there a great deal. I wasn't there in my capacity.
+
+Mr. Baron. Do you have any idea why you were in attendance at this particular meeting?
+
+Mr. Dillon. It might also have had something to do with the thing that I was talking with them about all the time, a totally different subject, which was military aid. That could well have been.
+
+Mr. Baron. Do you recall any of the other participants at the meeting?
+
+Mr. Dillon. Not by name.
+
+On the telephone you asked me about Bissell, whether he might have been there. And I answered, in all probability he might have, because I knew him, in fact I have known him for
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+20

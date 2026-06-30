@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_29818.png
+
+Convert to MarkdownS - and he stopped in and was with who
+
+D - his brother JOe and his sister-in-law and Patrick Sherman
+
+S - OK, did you get an opportunity to talk to him
+
+D - yeah
+
+S - what did the conversation involve
+
+D - oh, they were giving me a hard time before and like being very funny towards Gino and you know they were teasing him about you know things like that, that was basically the, other than general, his brother had bought a new car and he had brought it down for Gino to look at it to see what Gino thought was and the conversation just jumped around about cars and that was about it
+
+M - what type of car was that, do you know
+
+D - it was something like a Vega, something like that
+
+M - he bought it here in Maryland or
+
+D - no, well his brother bought it in Connecticut and wanted Gino to see it and they were on there way to uh Virginia Beach or one of the beaches for a few days
+
+S - did Gino every during the time you said, that you were trying to break off the relationship, at least slow it down some, uh at any time during when you were having a good relationship, did he ever give you any indication of how his business was doing or anything like that
+
+D - uh, Gino always tried to make everyone think that he was doing very well, you known
+
+S - was that including you
+
+D - yeah, occasionally he would you know make a joke if I don't get this car sold that I'm not going to have you know, you know some money, things like that, but usually he would try to make it sound as if he was doing very well and he would try to you know show off his money, try to be very extravagant with his money
+
+S - when you were dating Gino, last summer, about how often were you seeing him
+
+D - about every week and he would take me almost every week
+
+S - once or twice a week, something like that

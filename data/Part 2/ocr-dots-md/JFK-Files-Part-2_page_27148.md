@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_27148.png
+
+Convert to MarkdownSECRET SENSITIVE
+
+the latter responsibility to be assigned in
+agreement with the FBI and other affected
+departments and agencies.
+
+12. That the chief of the counterintelligence unit have direct and frequent access to the Director of Central Intelligence and other Deputy Directors and members of the Intelligence Community engaged in security and counterintelligence to ensure that counter-intelligence considerations are given due weight in the formulation of policy and that counterintelligence capabilities are fully utilized in defending CIA and other U.S. departments and agencies against clandestine activity, including penetration operations, carried out by our adversaries.
+
+James Angleton
+
+Attachments: as stated
+
+37
+
+SECRET SENSITIVE
+
+Photography
+from
+Gerald R. Ford Library
+
+NW 50955 DocId:32112721 Page 38

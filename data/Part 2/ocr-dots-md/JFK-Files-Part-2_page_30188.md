@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_30188.png
+
+Convert to Markdown# USHOROOZ A
+US HOUSE OF REP
+WASH. DC
+
+224 N. Wakefield Dr. Arlington
+Va.
+
+U.S.
+
+m B1 5 11 165 Br Br Jersey City N.J.
+
+H. S. Comm. On Assassinations
+3331 H. O. B. No. 2
+
+086-46-9506
+
+NW 88326 DocId:32269709 Page 89

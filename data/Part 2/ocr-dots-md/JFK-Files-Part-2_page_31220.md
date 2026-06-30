@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_31220.png
+
+Convert to MarkdownSECRET
+
+0002265
+
+FBI memo
+- 21 Dec 1960 no phone number
+- 18 Jan 1961 identified individuals
+
+RFT scowdy called on 4 March 67 to oopin mind; always sum article of 7 March 67
+
+15 March 65
+Bango in Madrid & claims group in Cuba really. Failed in July 62.
+
+1 March 66 Arrests in Cuba
+Trial wird mituto bull 24 oulyes w/ Artine meetings SECRET
+
+10 June 64 Report "Brando Retort approach With

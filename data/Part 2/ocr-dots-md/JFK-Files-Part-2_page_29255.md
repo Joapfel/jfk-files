@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_29255.png
+
+Convert to MarkdownSergy Alexandrovech Uslov Interview
+
+It is surmised that as Golovachev became
+garrulous while drinking, the KGB discovered that he was
+still in possession of a group photograph depicting Lee,
+Marina and Golovachev among other people. Accordingly,
+sometime in 1971 or 1972, the KGB took the photo.
+
+Uslov explained that he wrote the complete story
+in Russian and submitted it to the CIA for transmittal to
+the HSCA. They advised that it be translated to English.
+In November of 1977, he sent the manuscript to Radio Freedom
+on 42nd Street in New York City for translation and to be
+forwarded to the Committee. It is his belief that he was
+contacted by the HSCA as a result of reading his manuscript.
+He is presently attempting to locate his copy, which is in
+Russian, for our perusal.
+
+After giving a full dissertation on life in Russia,
+Uslov requested that his identity remain anonymous. He wanted
+to give his information only to the HSCA.

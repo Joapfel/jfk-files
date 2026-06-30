@@ -1,0 +1,37 @@
+# JFK-Files-Part-2_page_26640.png
+
+Convert to Markdown# TOP SECRET TRINE
+
+No Foreign Dissem
+
+## CLASSES OF SOVIET SUBMARINES
+
+<table><thead><tr><th>Nuclear Powered</th><th></th><th>Diesel Powered</th><th></th></tr></thead><tbody><tr><td>Ballistic Missile</td><td>Y H</td><td>Ballistic Missile</td><td>G Z Conversion</td></tr><tr><td>Cruise Missile</td><td>E-1 E-11</td><td>Cruise Missile</td><td>J W Conversion</td></tr><tr><td rowspan="3">Attack</td><td>N</td><td rowspan="3">Attack</td><td>F</td></tr><tr><td>V</td><td>Z</td></tr><tr><td>C</td><td>R</td></tr><tr><td colspan="2">One New Class "B"</td><td></td><td>W</td></tr></tbody></table>
+
+91870 8-68 CIA
+
+SECRET
+NO FOREIGN DISSEM
+RELEASABLE TO UK AND CANADA
+
+to the USSR and in the Mediterranean.
+
+### Deployment Patterns
+
+Soviet submarines are assigned to each of the four fleets--Northern, Pacific, Baltic, and Black Sea. Because of the restricted exits from the Baltic and Black Seas, however, most of the missile-equipped units and all of the nuclear-powered units are based in ice-free ports of the Kola Peninsula (Northern Fleet) and in the Pacific Fleet.
+
+The Soviets are apparently trying to reduce the disproportion between the two major fleets--the Northern and the Pacific. Although the Northern Fleet still holds the favored position, several nuclear submarines have been transferred under the polar ice to the Pacific and a number of modern diesel units have joined the
+
+Northern Sea Route convoy in past summers.
+
+The Baltic Fleet is responsible for protecting Soviet coastal waters and for furnishing diesel submarines for patrols off the US Polaris base at Holy Loch. Moscow has also begun sending Baltic Fleet submarines to the Mediterranean to take some of the strain off the Northern Fleet, which has been furnishing most of the units operating there. There are no nuclear submarines in the Baltic, and the few cruise-missile units there operate in coastal waters.
+
+The Montreux Convention of 1936 places severe limitations on the passage of Soviet submarines through the Turkish Straits. Black Sea-based submarines can pass into the Mediterranean only if they are headed for another fleet area for repairs. For this reason, only older diesel units are based in the Black Sea. Once in the Mediterranean, however, these units operate there for about 60 days on their way to and from Baltic shipyards.
+
+### Patrol Activity
+
+Most of the increase in the level of Soviet submarine operations during the past year is attributable to the stationing of a force of six to ten submarines--mostly diesel attack units--in the Mediterranean since
+
+# TOP SECRET TRINE
+
+Page 4 SPECIAL REPORT 13 Sep 68

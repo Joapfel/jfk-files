@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_26450.png
+
+Convert to MarkdownJFK Assassination System
+Identification Form
+
+Date: 8/26/201
+
+Agency Information
+
+AGENCY : LBJ
+
+RECORD NUMBER : 177-10001-10060
+
+RECORD SERIES : NSF, COUNTRY FILE, CUBA, TDCS, VOL. I, BOX 32
+
+AGENCY FILE NUMBER :
+
+Document Information
+
+ORIGINATOR : CIA
+
+FROM :
+TO :
+
+TITLE :
+
+DATE : 12/18/1963
+PAGES : 2
+
+SUBJECTS :
+CUBA
+
+DOCUMENT TYPE : REPORT
+CLASSIFICATION : Unclassified
+RESTRICTIONS : 1B
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 10/02/1998
+
+OPENING CRITERIA :
+
+COMMENTS : DOC. #158
+
+v9.1
+
+HW 50955 DocId:32282900 Page 1

@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_25240.png
+
+Convert to MarkdownPERSONS/ENTITIES:
+
+DATES:
+11/1/63
+
+CATEGORIES:
+
+DINH
+MINH
+DON
+
+TOP SECRET
+
+OCCURRENCE:
+
+Then this did not
+affect him by early October, the crop principals realized that
+they had Dinh actively thinking against the regime. It is
+obvious from statements during the series of meetings with
+General Don and General Van Anh Anqing the month of October that
+they stated they did not want Dinh but felt they had compromised him
+positively so use his troops and, if necessary, no élite unit
+Dinh if he showed any sign of compromising the generals. Dinh
+wasBARRED by officers who survived him 30 hours a day
+including K劃區北 Co, his deputy, now IV Corps Commander and
+nearly eliminated to Brigadier General.
+
+SOURCE: Hearings, S.S.C.I., 6/20/75, Conein, Exhibit one,
+page 13.
+
+FILE:
+
+STAFF: Dawson
+DATE: 6/30/75
+
+WM 50655 paged 129

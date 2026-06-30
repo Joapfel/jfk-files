@@ -1,0 +1,39 @@
+# JFK-Files-Part-2_page_32412.png
+
+Convert to MarkdownCONFIDENTIAL
+
+CUBA
+
+Central "Non" Radio Transmitting Station,
+Rancho Boyeros Airport, Habana Provincia (O)
+
+19-20 January 1962
+
+Rancho Boyeros, Jan 62
+O-3
+MUJ 316/37-1-62
+
+30 January 1962
+
+1 of 1
+
+Kone
+
+MUJ
+MUJ
+MUJ-39-62
+
+I. Sub-source reports that the Government of Cuba had planned to inaugurate a new seatour radio transmitting station at the Rancho Boyeros Airport, south of Matanzas City, on the 19th or 20th of January 1962.
+
+2. The purpose of the station was to be communication between Cuba and Tezacoalpa, Houduras, on the 9077 frequency.
+
+DISTRIBUTED AT 12 YEARS
+INTERVALS NOT NEEDED-
+NATURALLY DECLASSIFIED
+DUE LIR 5200.10
+
+CONFIDENTIAL
+
+CONFIDENTIAL
+
+UN 50955 DocId:32423736 Page 36

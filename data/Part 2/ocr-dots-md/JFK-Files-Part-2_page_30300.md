@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_30300.png
+
+Convert to MarkdownI N T R O D U C T I O N
+
+40
+
+interrogate me in two days. They interrupted -- I don't know
+interrogate a month, two, made break; then again, then again
+period of no interrogation; then again interrogations, up to
+24 hours, not giving me possibility to sleep.
+
+Mr. Klein. And this was all after April 4, 1964?
+
+Mr. Nosenko. Yes; sir.
+
+That is why I will not take as a document anything what
+concerns interrogations in hostile, absolutely hostile,
+situation.
+
+Mr. Klein. You testified in detail yesterday about the
+cable which you saw which was sent from Mexico City to the First
+Chief Directorate in Moscow, and you testified that you actually
+read that cable and that it told that Oswald was in Mexico City
+and he wanted permission for visa to come to the Soviet Union.
+
+Do you remember reading that cable and describing it for
+us in detail, how long it was?
+
+Mr. Nosenko. Yes, sir.
+
+Mr. Klein. Did you ever say to anyone that after Oswald
+went to Minsk, the next time you heard of him was in connection
+with Oswald's application to the Soviet Embassy in Mexico City
+for a Soviet reentry visa, and you did not know how Mexico City
+advised Moscow of the subject's application; your knowledge
+resulted from an oral inquiry of your department by M.I. Turalin.
+
+Did you ever say that, that you did not know how Mexico
+City advised Moscow of Oswald's application?
+
+TOP SECRET
+
+HW 50955 DocId:32277209 Page 42

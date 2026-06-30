@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_29625.png
+
+Convert to Markdown# Classification:
+
+(This form is to be used for material extracted
+from CIA-controlled documents.)
+
+- 210 -
+
+an "American Communist" who rented a room from Elena Garro. 831/ In addition, the informant claimed that Elena had also told her story to an American official at the Embassy, who claimed to represent the Warren Commission. 832/ The Chief of Station noted that he had asked LICHANT/1 to pursue the story 833/ but there is no indication that the Chief of Station followed through with the request. 834/
+
+4. November 24, 1964 Elena Garro meeting with Mexico City Legal Attache officers
+
+Elena and her daughter reported their story to the Mexico City Legal Attache on November 24, 1964. 835/ (The Legal Attache in 1964 was Clark Anderson.) They recounted the same story previously given to June Cobb Sharp in October 1964. 836/ Elena gave the date of the party as September 30, October 1 or October 2, 1963. 837/ The agent who wrote the report 838/ noted that Lee Harvey Oswald could not have been identical with the American 839/ allegedly observed by Mrs. Paz at the party if this party were held on the evening of October 1 or October 2, 1963. 840/
+
+Elena was questioned regarding the identity of other persons attending the party at the Ruben Duran home.
+
+Classification:
+
+377
+
+Classified by derivation:

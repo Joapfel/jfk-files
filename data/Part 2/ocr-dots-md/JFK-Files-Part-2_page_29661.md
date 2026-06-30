@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_29661.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted from CIA-controlled documents.)
+
+246
+
+Report. **1093/** (See Section V, C, for details.) Eusebio Azcue's description of Oswald was similar to Silvia Duran's, but more detailed. **1094/** Perhaps the most remarkable thing about these descriptions is their similarity to Elena Garra de Paz' description of one of Oswald's alleged companions. **1095**
+
+Another possible incication that an imposter may also have visited the Consulate is the 9/28/63 intercepted conversation. **1096/** Silvia Duran adamantly denies that Oswald or any other American visited the Cuban Consulate on Saturday, September 28, 1963. **1097/** In light of the CIA intercept of that date, Ms. Duran has either lied to the Committee or the individual who visited the Consulate on September 28 was not Oswald. **1098/** Ms. Duran, in light of the inconsistencies detailed in Sections V, C and VI, A above, may not be the most credible witness, but there are indications that she was truthful when she stated that Oswald did not visit the Consulate on September 28. The September 28, 1963 conversation was linked to Oswald because of the marginal notations made by the CIA translator on the transcript. **1099/** The translator noted on the transcript that the caller spoke "terrible, hardly recognizable"
+
+2000350
+
+Classification:
+
+- 409
+
+Classified by derivation:

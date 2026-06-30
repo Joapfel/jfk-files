@@ -1,0 +1,25 @@
+# JFK-Files-Part-2_page_31898.png
+
+Convert to MarkdownUNITED STATES ARMY INTELLIGENCE COMMAND
+
+EXHIBIT
+COVER SHEET
+
+SUBJECT: Manuel MARTI
+
+FILE NUMBER: 8240-6019
+093 36 4601
+
+PREPARING UNIT: 108th Military Intelligence Group (I-SIB)
+
+AGENT REPORT DATED: 18 November 1968
+
+DESCRIPTION: Ten FBI Reports, FBI New York, file number 100-100474, subject Adrian Sotomayor; reports dated 30 Jan ary, 12 May, 26 August, and 29 October 1953; 19 November 1956; 11 April 1957;
+
+16 April 1958; 27 April 1961; 2 May 1962 and 20 June 1964.
+
+Regraded FOR OFFICIAL USE ONLY when separated from CLASSIFIED inclosures
+
+IC FORM 171
+
+17 NOV 67

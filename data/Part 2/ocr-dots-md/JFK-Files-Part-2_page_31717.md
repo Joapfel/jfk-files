@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_31717.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+WEH:jb
+
+Grand Ballroom, Student Union Building, UCLA, Los Angeles, on November 12, 1965. ROBERT SCHEER was one of the speakers who talked in opposition to United States foreign policy regarding Vietnam. During his talk, SCHEER stated "The Viet Cong is a party of peace and if I was in Vietnam I would be on the side of the Viet Cong."
+
+SF T-39
+November 29, 1965
+
+"The Daily Californian" newspaper, which is published daily by the Associated Students of UCB, in its issue of February 2, 1966, contained a news article which described the march by Vietnam Day Committee on Congressman COHELAN's office on January 31, 1966, in which ROBERT SCHEER participated. This article stated in part, "According to SCHEER, the primary goal of his campaign is not to defeat his opponent but rather to engender support for the anti-Vietnam war movement."
+
+G. Communist Party (CP) Affiliation
+
+SCHEER for Congress issued a press release January 19, 1966, stating that ROBERT SCHEER announced his candidacy for the Democratic Party nomination for Congressman in the 7th Congressional District of California. In his opening speech, SCHEER called for negotiations with the National Liberation Front leading to the withdrawal of American troops from Vietnam. SCHEER said, "The United States should never have gone into Vietnam, should not have stayed in and should now get out." SCHEER added, "The Johnson Administration is waging an increasingly vicious war against the Vietnamese people and this campaign will be aimed at halting it."
+
+The SCHEER for Congress office, 2214 Grove Street, Berkeley, California, issued a letter on the letterhead of this group pointing out that ROBERT SCHEER was running in the Democratic Party primary election in June 1966, for the congressional seat presently held by JEFFREY COHELAN. The letter stated this challenge was being undertaken because
+
+- 39 -
+
+1281
+
+SECRET
+
+Copy of Copies
+Page of Pages
+
+NW 88613
+DocId:34517445 Page 40

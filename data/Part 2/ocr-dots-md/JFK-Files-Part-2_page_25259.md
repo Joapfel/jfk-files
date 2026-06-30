@@ -1,0 +1,45 @@
+# JFK-Files-Part-2_page_25259.png
+
+Convert to MarkdownNHU
+
+**OCCURRENCE:**
+
+Lt. Colossi 'Tso' and Lt. Indak agreed that Diem and Nhu could
+use modified telephone communications from the Cholon
+villages throughout the day, since lines ran from G.Ia. Long
+
+place to Panacan from China Due to the Cholon village.
+
+**SOURCE:** Hearings, S.S.C.I., 6/20/75, Conein, Exhibit One,
+Pages 24 - 25.
+**FILE:**
+
+**PERSONS/ENTITIES:**
+DIEM
+DON, GENERAL
+MINH, GENERAL
+CONEIN
+JGS headquarters
+
+**DATES:**
+2 Nov 1963
+
+**CATEGORIES:**
+DIEM
+
+**STAFF:**
+Dawson
+**DATE:**
+6/30/75
+
+**OCCURRENCE:** "According to one of CONEIN's reports, DIEM called GENERAL DON at 0650 hours 2 November and offered to surrender unconditionally. GENERAL MINH immediately ordered all telephones removed from rooms in their JGS command post area. This cut off all communication with the outside except for radios under MINH's control."
+
+TOP SECRET
+
+**SOURCE:**
+
+**STAFF:** R. DAWSON
+
+M 50955 P1 148
+
+DocID: 324233615 Page 18

@@ -1,0 +1,46 @@
+# JFK-Files-Part-2_page_29580.png
+
+Convert to MarkdownClassification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 3. -
+
+446/ See JFK Classified Document No. 146; HSCA Classified Staff Summary of Review of CIA Documents, undated; HSCA Classified Staff Summary of Review of CIA Documents, 5/12/78; JFK Classified Document No. 142; and Sections II, A, 4 and II, B, 3 above.
+
+447/ See JFK Classified Document No. 142; JFK Classified Docu-
+ment No. 146
+
+448/ HSCA Deposition of John Scelso, 5/16/78, pp. 37, 96; HSCA
+Deposition of Ann Elizabeth Goldsborough Egerter,
+5/17/78, p. 73; HSCA Deposition of Robert Shaw, 5/16/78,
+p. 56; HSCA Deposition of Allen White, 5/18/78, p. 25;
+HSCA Deposition of H. Manell, 4/28/78, pp. 20, 47;
+David Phillips Testimony, 11/27/76, p. 67; David Phillips
+Testimony, 4/25/78, p. 44; Ann Goodpasture Testimony,
+4/13/78, pp. 77, 97.
+
+449/ HSCA Deposition of Elsie Scaleti, 5/19/78, pp. 6-7.
+
+450/ Elsie Scaleti Interview, 3/30/78, pp. 3-4.
+
+451/ Ibid.
+
+<u>452</u>/ <u>Ibid.</u>
+
+<u>453</u>/ <u>Ibid.</u>
+
+<u>454</u>/ HSCA Deposition of John Scelso, 5/16/78, p. 31.
+
+<u>455</u>/ <u>Ibid.</u>
+
+456/ In addressing this question, the HSCA staff reviewed all the cable and dispatch traffic between Mexico City and Headquarters for the period from October 1, 1963 to 26 November 1963 in an attempt to determine whether Oswald's photo may have been sent to Headquarters. This examination also revealed no evidence that a photograph of Oswald was sent to CIA Headquarters. This Committee did find that there were several types of communications between Headquarters and field stations that were treated as non-record material. Because of the non-record nature of these communications, it was not possible to review that material.
+
+Classification:
+
+Classified by derivation: 332
+
+20018002
+
+NW 48327 DocId:32263889 Page 228

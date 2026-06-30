@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_32717.png
+
+Convert to MarkdownStevenson and Zorin, which exposed the truth beyond doubt.
+
+STEVENSOK: Wall, let me say something to you, Mr. Ambassador: We do
+have the evidence. We have it, and it is clear and incontrovertible. And
+let me say something else: Those weapons must be taken out of Cuba.
+
+Nort, let me say to you that, if I understood you, you said -- with a
+trespass on credulity that excels your best -- that our position had changed
+since I spoke here the other day because of the pressures of world opinion
+and a majority of the United Nations. Well, let me say to you, sir: You
+are wrong again. We have had no pressure from anyone whatsoever. He came
+here today to indicate our willingness to discuss U Thant's proposals -- and
+that is the only change that has taken place.
+
+But let me also say to you, sir, that there has been a change. You,
+the Soviet Union, have sent these weapons to Cuba. You, the Soviet Union,
+have upset the balance of power in the world. You, the Soviet Union, have
+created this new danger -- not the United States....
+
+Finally, Mr. Zorin, I remind you that the other day you did not deny
+the existence of these weapons. Instead, we heard that they had suddenly
+become defensive weapons. But today -- again, if I heard you correctly --
+you say that they do not exist, or that we have not proved they exist -- and
+you say this with another fine flood of rhetorical scorn. All right, sir,
+let me ask you one simple question: Do you, Ambassador Zorin, deny that
+the U.S.S.R. has placed and is placing medium and intermediate-range
+missiles and sites in Cuba? Yes or no? Do not wait for the interpretation.
+Yes or no?
+
+ZORIN: I am not in an American courtroom, sir, and therefore I do not
+wish to answer a question that is put to me in the fashion in which a
+prosecutor puts questions. In due course, sir, you will have your reply.
+
+/STEVENSON:
+
+HW 50955 DocId:32424709 Page 98

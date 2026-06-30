@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_31784.png
+
+Convert to MarkdownSF 100-46832
+WEH/dp
+
+April 23, 1968
+
+"The Spectrum," weekly newspaper of the State University of New York at Buffalo, New York, in its issue of April 23, 1968, carried an article announcing that a series of talks by new leftists on the central issues of the day, would begin April 23, 1968. ROBERT SCHEER was listed as one of the speakers, noting that he had spoken at the University in 1967, and was very well received.
+
+"The Spectrum" did not carry a follow up news story concerning SCHEER's talk, and there was no reference to SCHEER's plans in the Buffalo, New York, area in the local daily papers.
+
+May 11, 1968
+
+The "Bozeman Daily Chronicle," newspaper, Bozeman, Montana, issue of May 12, 1968, carried an article relating to the speech of ROBERT SCHEER at Montana State University, May 11, 1968. The portion of the article relating to ROBERT SCHEER reads as follows:
+
+"Robert Scheer, 31-year-old editor of the New Left Ramparts Magazine, who flew here directly from Havana, Cuba, said our simplistic reason for intervention in Vietnam was the 'myth of the international communist conspiracy' also called the 'Devil Theory.' The Devil Theory has disintegrated, whether our state department will admit it or not, he said.
+
+"This reality plays havoc with the most cherished tenant of our foreign policy,' he said. Scheer cited the squabbling between Russia and Red China, and more recently between Czechoslovakia and Russia, as evidence of the disintegration of the international conspiracy. He said that our foreign policy should be humanistic rather than jingoistic. Americanization of the rest of the world should not be our goal, he added.
+
+"Scheer said the United States should swallow its pride and get out of Vietnam. He said it might be good for the U.S. to lose a little face in Vietnam. Maybe it would be healthy for us to admit we made a mistake, that we can't be wrong." Copies
+Page.../06 of.../34 Pages
+
+SECRET
+
+1348 106
+
+NW 88613 DocId:34517445 Page 107

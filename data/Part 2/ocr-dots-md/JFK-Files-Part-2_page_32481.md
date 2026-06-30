@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_32481.png
+
+Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revocation of which in any manner to an unauthorized person is prohibited by law.
+
+S-E-C-R-E-T
+NO FOREIGN DISSEM
+
+COUNTRY Colombia/Cuba
+SUBJECT Cuban Support of Guerrillas in Colombia
+
+DATE OF INFO.
+PLACE & DATE ACQ.
+October 1962
+Germany, Munich (14 December 1962)
+
+REPORT NO. CS-3/536,069
+DATE DISTR. 4 February 1963
+NO. PAGES 1
+REFERENCES RD
+
+FIELD REPORT NO.
+
+THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.
+
+SOURCE: An official German service, from "a fairly reliable source with contacts in Buenos Aires." Appraisal of Content: 6.
+
+1. Maximo Gruber, a major in the Cuban Army and one of the leaders of the G-2 section, has been appointed technical leader of the Communist guerrillas in Sumapaz, Colombia.¹ Gruber, a Polish Jew, was formerly a commissar in Spain. His wife is European. His son Maximo is a graduate of the Lenin Institute in Moscow. On his frequent trips to Bolivia, Uruguay, and Cuba he carries a Bolivian diplomatic passport identifying him as "traveling inspector of the Bolivian Foreign Ministry."
+
+2. Gruber is being assisted in his tasks in Colombia by Jaime Guerra, also known as Captain Veneno. One of his liaison officers to the Communist Party of Colombia is Blanca Diaz y Collazo, a lawyer and former member of the Cuban Embassy in Bogota, who was trained in Prague in 1952.
+
+1. Headquarters Comment. An official British service reported in April 1961 that Maximo Grobart, nationality unknown, was training guerrillas in the Sumapaz area; Grobart, who claimed to be of Hungarian origin, had a Cuban passport in the name of Jose Blanco and might have had other passports of different nationalities.

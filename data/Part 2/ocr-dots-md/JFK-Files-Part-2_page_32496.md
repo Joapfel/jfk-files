@@ -1,0 +1,11 @@
+# JFK-Files-Part-2_page_32496.png
+
+Convert to MarkdownExtremist And Police Activities In Venezuela
+
+Venezuela has been afflicted over the past several months with a rash of Castro-Communist terrorist actions. Many incidents, involving shootings and robberies, are connected with the Movement of the Revolutionary Left, the Venezuelan Communist Party, and the Armed Forces of National Liberation -- the Castro-Communist group credited with the destruction at the Maracaibo oil fields during the Cuban crisis. These activities are probably designed to discredit and weaken the Betan-court Government.
+
+The police have demonstrated considerable proficiency in preventing major outbreaks and in acting rapidly to arrest terrorists. They have rounded up extremists responsible for the holdup and looting of a printing supply warehouse and the burning of the Dupont paint warehouse and have captured the Communist leader of guerrilla bands operating in the Falcon area of northwestern Venezuela. (CONFIDENTIAL)
+
+SOURCE: VARIOUS
+
+SECRET-NO FOREIGN DISSEM

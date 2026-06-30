@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_29292.png
+
+Convert to MarkdownDate of
+Request
+
+5/3/78
+(con't)
+
+4. Leonard Calvery - no record identifiable.
+
+5. Jack Brown - no record identifiable.
+
+6. Robert Augg - all information previously forwarded.
+
+7. Zack Stout - all information previously forwarded.
+
+8. Richard Call - all information previously forwarded.
+
+9. Nelson Delgado - no record identifiable.
+
+10. Aline Mosley - no record identifiable.
+
+11. Pauline Bates - no record identifiable.
+
+12. Carson Roberts - no record identifiable.
+
+13. Adrian Alba - no record identifiable.
+
+14. Mrs. G. Stanley Brown Vera - no record identifiable.
+
+15. Emmet Charles Babe, Jr. - no record identifiable.
+
+16. Lt. Francis Martello - no record identifiable.

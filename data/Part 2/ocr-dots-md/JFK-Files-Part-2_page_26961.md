@@ -1,0 +1,84 @@
+# JFK-Files-Part-2_page_26961.png
+
+Convert to MarkdownSECRET
+
+Photocopy from
+Gerald Ford Library
+
+HW 50955 DocId:32275454 Page 84
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Q. You mean a source of--
+
+A. Source of information of another agent. Another agency agent.
+
+Q. Do the files of the Agency reflect any matter?
+
+A. To my knowledge I don't recall anything like that but it is entirely possible that that could have happened without being a matter of record.
+
+Q. Do the files of the Agency reveal any instance whatever in which Frank Sturgis was ever asked to undertake any kind of an operation or activity on behalf of the Agency?
+
+A. To my knowledge, nothing.
+
+Q. Do the files of the Agency reveal any evidence whatever that Frank Sturgis was ever paid anything directly or indirectly by the Agency?
+
+A. To my knowledge, no.
+
+Q. Now, when you say "to my knowledge, no", in answer to some of these questions, do I understand that to mean that you are giving us the full benefit of your knowledge on the basis of a full review of the Agency's records and files?
+
+A. On Frank Sturgis, yes.
+
+Q. Okay. During the period of time that you were with the Special Activities Group from 1963 to '66, first of all, can you tell us when that began in 1963?
+
+A. When the Special Activities Group --
+
+Q. No. When your contact with the Special Activities Group --

@@ -1,0 +1,89 @@
+# JFK-Files-Part-2_page_32114.png
+
+Convert to MarkdownStatement of TRINKALA, Victor Lee, taken at 108th MI Group, Region I, 26 Federal Plaza, Room 1332, New York, New York 10007, dated 19 February 1970, continued:
+
+A. No, no one that I can recall.
+
+Q. If you were contacted by someone with a more than casual interest in your military assignments, career, or duties, what would you do?
+
+A. I would report them to the FBI, CIA, or the CID.
+
+Q. Do you know Mr. Trinkala, still consider yourself to be a Conscientious Objector?
+
+A. NOT YES
+
+Q. You do not consider yourself to be a Conscientious Objector?
+
+A. I consider myself to be a Conscientious Objector to a certain point.
+
+Q. Explain, if you will, Mr. Trinkala.
+
+A. I do not believe in killing someone for no reason. I just can not bring myself to kill a man because someone tells me to.
+
+Q.. What are your Conscientious Objector grounds based upon?
+
+A. I have religious and moral objections to killing people.
+
+Q. When were you discharged?
+
+A. I was discharged on 3 December 1969.
+
+Q. What were the reasons given for your discharge?
+
+A. I really cannot recall the reasons for my discharge.
+
+Q. Were you told why you were discharged?
+
+A. There were several reasons involved. A friend of mine helped me to get discharged.
+
+Q. How did he help you obtain a discharge?
+
+A. I do not know how he helped, or if, in fact, he did help me to get discharged.
+
+Q. What is your friend's name?
+
+A. His name is Richard Nagel.
+
+Q. Where does Richard Nagel reside?
+
+A. I do not know where he lives. I have never met him in person and do not know him personally. He is a friend of-a friend.
+
+Q. How did you become acquainted with Mr. Nagel.
+
+A. Mr. Nagel is actually the friend of Tony Muneer of whom I have known for three or four years.
+
+Q. Where does Mr. Muneer reside and what is his occupation?
+
+A. Tony Muneer resides at the Hotel Woodstock, 127 West 43d Street, Manhattan, New York. He is employed there as a Desk Clerk.
+
+Q. Have you ever resided in the same residence with Mr. Muneer previous to your discharge?
+
+A. Yes, we both lived in the Hotel Strand, 206 West 43d Street, Manhattan, New York.
+
+Q. What was his occupation at that time?
+
+A. He was working as a Desk Clerk and going to school at IBM.
+
+Q. What was your occupation at that time?
+
+A. I was working at the Clinton Hotel, 19 West 31st Street, Manhattan, New York.
+
+Q. So, Mr. Muneer told you he would help you get out of the Army?
+
+A. Yes, he said he would speak to a friend, Richard Nagel, and see what he could do.
+
+Q. Did he ever tell you what he did to help you get out of the Army?
+
+A. No.
+
+Q. Have you ever associated with any dissident, anti-Army, or anti-war groups?
+
+A. No.
+
+Q. Have you ever been contacted by any individual who is a representative of any dissident, anti-Army, or anti-war groups?
+
+A. I do not know.
+
+Q. Has any person ever asked you to attend meetings of such groups?
+
+505

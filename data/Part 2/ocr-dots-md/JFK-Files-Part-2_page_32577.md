@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_32577.png
+
+Convert to Markdown# S-E-C-R-E-T
+## Security Information
+
+(3) Maintenance of sufficient cover to permit credible denial of official connection by U.S. or host country government.
+
+c. That no direct broadcast operation be undertaken by CIA until every possibility has been exhausted to have the task undertaken by another country (or countries) through penetration, manipulation and/or control of, or covert purchase of time on, indigenous radio facilities.
+
+Our foremost objective should be to exploit the broadcasting systems of friendly and neutral countries. This generally is possible in two ways:
+
+(1) To stimulate our friends to greater aggressive effort in their international broadcasts to the Soviet orbit; and
+
+(2) To influence the output of the domestic services of friendly and neutral states in the interests of the Western cause.
+
+Within this frame of reference we made the following recommendations:
+
+(1) Proceed to exploit the many possibilities to use indigenous radio systems in friendly and neutral nations with the objectives of (a) increasing the amount and effectiveness of their propaganda efforts against USSR and the satellites, (b) exposing and inhibiting Communist fifth column activities and (c) the maintenance of pro-U.S. and pro-Western attitudes.
+
+These missions should be undertaken in closest collaboration with the USIS missions to the end that all that can be accomplished overfly.
+
+(2) Undertake a recruitment and training program to make available highly qualified and thoroughly indoctrinated officers preferably with natural cover to undertake and to support such missions.
+
+(3) In cooperation with State, develop a positive program for information support of all propaganda activities through maximum use of intelligence and defector sources.
+
+(4) Strengthen and streamline the machinery for policy guidance, with Washington headquarters responsible for broad policy only and the field missions to be given the widest possible latitude in the application of those policies to local requirements and the exploitation of targets of opportunity. A mature staff officer experienced in P.W. should be available in the mission to (a) feed propaganda lines, (b) expedite P.W. support (c) coordinate with USIS and (d) generally
+
+-ll-
+
+HW 50955 DocId:32424022 Page 15
+
+S-E-C-R-E-T

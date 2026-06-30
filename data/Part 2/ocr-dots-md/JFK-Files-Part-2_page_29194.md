@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_29194.png
+
+Convert to Markdown# SCHEDULE F — SHAREHOLDERS SHARE OF INCOME AND CREDITS
+
+(If additional space is needed, attach schedule)
+
+<table><thead><tr><th>(1)<br>Name and Address of Each Shareholder</th><th>(2)<br>Social Security<br>Number</th><th>(3)<br>Number of<br>Shares</th></tr></thead><tbody><tr><td>(a) ESTATE OF RUBY K. STONEY RIVER DR. BIRM. MI 48010</td><td rowspan="5"></td><td rowspan="5">7,500</td></tr><tr><td>(b) ESTATE OF GEORGE MARCUS D.W. WASHINGTON #1150 CHICAGO, IL 60602</td></tr><tr><td>(c)</td></tr><tr><td>(d)</td></tr><tr><td>(e)</td></tr><tr><td>(f)</td><td rowspan="6"></td></tr><tr><td>(g)</td></tr><tr><td>(h)</td></tr><tr><td>(i)</td></tr><tr><td>(j)</td></tr></tbody></table>
+
+<table><thead><tr><th>(4)<br>Amount taxable as ordinary income (schedule K, total of lines 4 and 8, U.S. 1120-S)</th><th>(5)<br>Distributive Income from page 1, line 5, or page 2, schedule B, line 6</th><th>(6)<br>Amount to be used by shareholder on MI-1040 (enter on page 2, schedule 1, line 37 or on page 2, schedule 2, line 46) difference between column 4 and column 5 (see instructions)</th><th>(7)<br>Enter here and on form MI-1040, page 1, line 25 each shareholder's proportionate share of personal property taxes paid on inventories or the credit for franchise fees paid. (see instructions)</th></tr></thead><tbody><tr><td>(a) $ 36,331.38</td><td>36,331.38</td><td></td><td>91.94</td></tr><tr><td>(b) 36,331.37</td><td>36,331.37</td><td></td><td>91.94</td></tr><tr><td>(c)</td><td></td><td></td><td></td></tr><tr><td>(d)</td><td></td><td></td><td></td></tr><tr><td>(e)</td><td></td><td></td><td></td></tr><tr><td>(f)</td><td></td><td></td><td></td></tr><tr><td>(g)</td><td></td><td></td><td></td></tr><tr><td>(h)</td><td></td><td></td><td></td></tr><tr><td>(i)</td><td></td><td></td><td></td></tr><tr><td>(j)</td><td></td><td></td><td></td></tr></tbody></table>

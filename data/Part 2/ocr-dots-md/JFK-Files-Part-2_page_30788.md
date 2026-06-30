@@ -1,0 +1,31 @@
+# JFK-Files-Part-2_page_30788.png
+
+Convert to Markdowncan't remember nature of
+individual (201) filing
+system on individuals.
+
+Canad file would lead to
+the CO if you got a hit.
+CO would have an project
+file & part of it would
+be on personnel.
+
+first time heard allega:
+LHO was an agent:
+
+1975- FOIA learned
+of allegations of "assassin-
+nations hooks."
+
+Wilcott:
+remember him vaguely
+as finance clerk at
+[Illegible]
+(FT CHU) Fiet individual,
+
+can't remember any
+associations or any of
+Wilcott's duties.
+
+Jack Randall was Chief
+of Finance.

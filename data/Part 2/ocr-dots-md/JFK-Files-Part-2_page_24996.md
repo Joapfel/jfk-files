@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_24996.png
+
+Convert to Markdown# TOP SECRET
+
+My other duty, which was a more particular duty, was to be in charge of the economic side of our foreign policy, which included economic areas of the State Department, and also included oversight and general direction of the ICA, which was the name at that time of the Foreign Aid Agency. And I had the responsibility for Congressional relations of the Foreign Aid Program, and for getting the legislation passed each year, for not the detailed operation, there was a director of the ICA but I had the general oversight of it. And also a military program, which was not under the ICA, but which was run through the Defense Department, and I was the senior State Department official involved in that area.
+
+So I had those two different functions. And for that reason the setup in this area of working with the CIA and on intelligence matters was somewhat different than it had been prior to that. Prior to my advent as Under Secretary the Under Secretary had always handled that. Mr. Herter, who was my immediate predecessor, handled it, and Mr. Hoover before. When I became Under Secretary I became so under a new law that had been passed in 1953, at which time I was promoted to Deputy Under Secretary to the new position, which was called Under Secretary of State for Economic Affairs, which was the number three job in the Department. That legislation provided that this third Under Secretary could either be an Under Secretary for Economic Affairs, as I was, or an Under Secretary
+
+TOP SECRET

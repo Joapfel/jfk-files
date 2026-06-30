@@ -1,0 +1,24 @@
+# JFK-Files-Part-2_page_31484.png
+
+Convert to MarkdownSF 100-35836
+FTD/mes
+
+San Francisco, on April 12, 1963. The film was captioned "The Un-Americans" and depicted scenes from the San Francisco riots held in the City Hall during an appearance of the House Committee on Un-American Activities (HCUA).
+
+At this affair, FRANK WILKINSON spoke on recent bills which were introduced into Congress attempting to do away with the House Committee on Un-American Activities. He said the first bills were worked on by only six people and at present they have a working force of 86 Congressmen who are attempting to abolish the HCUA.
+
+SF T-2 - 4/18/63
+SF T-1 - 4/22/63
+
+See appendix on SFCOPAF for characterization of FRANK WILKINSON.
+
+## G. Continuations Committee of the World Congress on General Disarmament and Peace (CCWCDP)
+
+Subject attended a meeting sponsored by CCWCDP held at ILAW auditorium, 400 North Point Street, San Francisco, on May 7, 1963. The featured speaker was former Brigadier General IWHB B. HESTER, who said that after World War II, the United States of America refused to negotiate with the other four big powers on the disposition of Berlin. He said now the big issue in the world is Berlin, and he said it should be declared a free city under the United Nations with a treaty guaranteeing the right to come and go through Germany. HESTER said that he was in East Germany the previous year and the East German's are willing to make concessions for the unification of all Germans. HESTER also said that if the United States would take the trouble to understand China, they would find that there is nothing wrong with that nation. He said that China should be a member of the United Nations and the United States should trade with China.
+
+SF T-4 - 5/8/63
+SF T-13 - 5/23/63
+
+323
+
+NW 88613 DocId:34528578 Page 51

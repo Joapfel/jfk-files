@@ -1,0 +1,73 @@
+# JFK-Files-Part-2_page_30346.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Mr. Nosenko. No, I couldn't, you are absolutely right, I couldn't know. But in '63 when happened assassination of the President, when it was mentioned that Oswald shot the President, when it start, demanded the file back from Minsk, when started conversation with Minsk, started in KGB investigation, detailed approach. This is what --
+
+Mr. Preyer. So you convinced that seeing the first section--
+
+Mr. Nosenko. Seeing the first section in which the most important material in the whole file will be this in first section of the first volume.
+
+Mr. Preyer. Were the rest of the sections of that file, incidentally, wire -- telephone taps?
+
+Mr. Nosenko. It will be information from agents in second part. In third part will be from telephone conversations, from surveillance. In fourth part, photocopies of letters, different mail, when they checking Soviet connections, Soviet friends of Oswald.
+
+Mr. Preyer. Well, on this question of your knowledge of Oswald and being in position to know about him, you knew about the cablegram from Mexico yet you did not know he had gone back to the United States. Is that because you had moved to--
+
+Mr. Nosenko. Again, I returned in Seventh Department and I was working '62, '63, up to '64 in Seventh Department and the cablegram has come in Seventh Department. Seventh Department was started against Oswald in '59.
+
+HW 50955 DocId:32277209 Page 88
+
+TOP SECRET
+
+111
+
+TOP SECRET

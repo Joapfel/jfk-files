@@ -1,0 +1,27 @@
+# JFK-Files-Part-2_page_25557.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+WASHINGTON,D.C. 20505
+
+2 June 1976
+
+Honorable Mike Mansfield
+United States Senate
+Office of the Majority Leader
+Washington, D.C. 20510
+
+Dear Senator Mansfield:
+
+On 27 January 1975, following adoption of S. Res. 21 creating the Select Committee on Intelligence, you and Senator Hugh Scott requested that the Central Intelligence Agency "not destroy, remove from [its] pos- session or control, or otherwise dispose or permit the disposal of any records or documents which might have a bearing on the subjects under investigation, including but not limited to all records or documents per- taining in any way to the matters set out in section 2 of S. Res. 21."
+
+In response to this request, the Agency placed in effect a complete moratorium on the destruction of records, including normal administrative records scheduled for routine destruction.
+
+The purpose of this letter is to advise you that it is our intention to proceed with destruction of records, now that the Select Committee has completed its investigation and issued its final report. We have so advised Senator Church.
+
+Along with the backlog of routine administrative records, the Agency will destroy records which were collected and maintained by the Agency and which were subject to investigation by the Rockefeller Commission and the Select Committee. The Agency is required to destroy much of this latter material by the Privacy Act of 1974 (P. L. 93-579) and by Executive Order 11905. Of course, all records destruction will be fully consistent with other applicable laws, Presidential directives, and the requirements of pending litigation and Justice Department investigations.
+
+I trust you agree that this action is now necessary and appropriate, and I would appreciate your confirmation of this understanding.
+
+I am sending a duplicate of this letter to Senator Hugh Scott.
+
+HW 50955 DocId:32423630 Page 290

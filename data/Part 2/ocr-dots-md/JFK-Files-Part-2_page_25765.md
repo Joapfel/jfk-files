@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_25765.png
+
+Convert to MarkdownSECRET-SENSITIVE
+
+- 2 -
+
+lift. They are:
+
+1. The realization in the Cuban Government that the continuing high sugar prices in the world market have enabled Cuba to expand its convertible currency reserves from about $20 million to almost $100 million during the year.
+
+2. The Soviet-Cuban trade protocol for 1964, signed on January 11, and the Khrushchevassurances of January 22, demonstrated a Soviet willingness to maintain its aid and trade program at a very substantial level and to support Cuban sugar prices. The protocol calls for Cuban-Soviet trade to increase by 22 per cent over 1963. Soviet exports, about 40 per cent of which will be on credit, will increase by at least 10 per cent.
+
+3. The distinct possibility that the United States policy of economic and diplomatic isolation of Cuba may not be able to stand in the face of increasing pressures from Western countries to expand trade with Cuba, extending credit if necessary. The British bus deal, with payment spread over a five-year period, is an important political and psychological triumph for Castro. Its erosive effects on potential Cuban suppliers are already clear,
+
+4. The recent rioting and violence in Panama, in which Castro had some hand, will inject new revolutionary fervor into Castro's activities. In addition, Panama and its aftermath will take the play away from the incident of the Venezuela arms cache.
+
+5. The revolt in Zanzibar, in which Castro also had a hand, is bound to impress Latin America as well as other unstable areas with the length of Fidel's arm and the potency of his doctrine.
+
+These
+
+SECRET-SENSITIVE
+
+Lyndon B. Johnson Library
+
+Copy
+
+7
+
+HW 50955 DocId:32423630 Page 498

@@ -1,0 +1,30 @@
+# JFK-Files-Part-2_page_31460.png
+
+Convert to MarkdownSF 100-33836
+FTD/lr
+
+SAUL LANDAU is editor and publisher of Studies on the Left (See Appendix Page).
+
+(SP T-16, 1962)
+
+JOSEPH P. MORRAY described himself as a former officer in Naval Intelligence, a lawyer and a former professor in Havana. He said that when the revolution in Cuba was started, the CP was against it and told CASTRO it was ill-advised, ill-timed, however, CASTRO went ahead with the revolution and when the Communist saw he was accepted as the national leader, they joined forces and accepted his leadership.
+
+MORRAY said the first president after the revolution was a conservative who demanded that CASTRO kick out the Communists and close the Communist papers. He also wanted appropriate compensation to be paid for land and factories which were nationalized. MORRAY said that CASTRO agreed only to pay the value which had been declared for these properties in their tax returns.
+
+MORRAY said that CASTRO is a Leninist and disagrees somewhat with Communists. He said that the Cuban people are proud of being socialists and that CASTRO is in Cuba to stay.
+
+He said he was skeptical about Russian missiles being in Cuba and decided that the Russians were trying to build a nuclear wall between Russia and Cuba.
+
+(SF T-4, 11/23/52)
+
+III. MISCELLANEOUS
+
+On October 27, 1962, the Subject was present at a demonstration held in Civic Center Plaza, San Francisco, California, to protest the blockade of Cuba by the United States Navy.
+
+(SF T-4, 10/29/62)
+
+Subject was observed at this demonstration by Special Agents of the FBI.
+
+- 11 -
+
+299'

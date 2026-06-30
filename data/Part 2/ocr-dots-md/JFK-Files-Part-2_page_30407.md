@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_30407.png
+
+Convert to Markdownor was of interest and so on and maybe there are reasons for
+debriefing, I can visualize a 201 being opened if the matter
+were of apparent continuing interest. I can see no reason why
+a 201 would be opened in this case.
+
+Mr. Goldsmith. What if this telegram was followed by a
+able indicating that the individual had decided to defect?
+
+Mr. Tovar. What do you mean? He is applying for Soviet
+citizenship, so he is defecting here?
+
+Mr. Goldsmith. You are correct. I withdraw the question.
+
+Mr. Tovar. I think basically my point is that it is a
+fact that a 201 need not be opened up on this type -- this is
+a casual piece of information. If one could eliminate the
+name Lee Harvey Oswald, which raises flages, it is John Doe
+and there is nothing in this -- someone might say what an SOB
+this is but there is nothing to indicate anything but an
+unfortunate incidental event, I would say today, "why bother."
+We have enough to do without opening 201 files on people of
+that nature." The encyclopedic approach is not one that we
+try to apply.
+
+Bear in mind, I am doing a lot of speculating here. I
+perhaps shouldn't.
+
+Mr. Goldsmith. You really aren't aware of what the
+procedure would be in 1959 for dealing with a telegram like
+this?
+
+Mr. Tovar. No. I would still say today I would not expect
+
+TOP SECRET

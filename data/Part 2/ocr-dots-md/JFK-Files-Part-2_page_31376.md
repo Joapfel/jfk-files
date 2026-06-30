@@ -1,0 +1,36 @@
+# JFK-Files-Part-2_page_31376.png
+
+Convert to Markdown07D 18-1
+
+DETAILS
+
+1. This investigation was requested by the Commander, Eglin AFB, Florida on 7 July 1969, based on a request from the Commander, Air Force Armament Laboratory (AFATL), Eglin AFB, to determine the circumstances surrounding the importation of three boxes of captured enemy weapons by PAUL ARNOLD MARRIOTT (SUBJECT), Lt Col, 513-10-4236FR, AFATL, during the approximate period of November 1968 - July 1969.
+
+2. On 7 July 1969, at Eglin AFB, Florida, a letter dated 3 July 1969, from the Commander, AFATL, was reviewed and the body of the letter is set forth as follows:
+
+"1. It is requested that an investigation be conducted to determine if the laws/regulations regarding the importation of firearms have been complied with in the following instance:
+
+a. Approximately the first week in June Mr Beard of ARPA called Colonel Berkow of ADTC and inquired about a box of enemy weapons that had been shipped through the transportation capabilities of ARPA to Eglin AFB, Attention of Lt Colonel P. A. Marriott. Colonel Berkow called the Armament Laboratory (AFATL) since Lt Colonel Marriott is assigned to AFATL.
+
+b. A search was made to locate the shipment. Two boxes were found each containing North Vietnamese weapons. Both boxes were addressed as follows: FB2823 USAF (DOL-AFSC) Attn L/C P. A. Marriott.
+
+c. Subsequently, it was discovered that a shipment of North Vietnamese weapons and ammunition had been received at Eglin in early March and had been reshipped to Sionics Corporation, 1655 Peachtree Street, N.E., Atlanta, Georgia. The attached documents pertain to this shipment.
+
+2. Colonel J. H. Hobaugh, telephone 882-2763, will be available to discuss in more detail the above information."
+
+The above letter is being retained in the files of OSI District 7 and will be available to proper authority upon request.
+
+3. On 9 July 1969, J. T. KING, Lt Col, 472-12-2614FR, Staff Judge Advocate, 3201st Air Base Group, Eglin AFB, Florida, was apprised of the information contained in the above letter, by SA WILLIAM D. DIXON. KING advised that in his opinion, there existed probable cause to warrant the issuance by the Base Commander of an authorization for search and seizure of any captured enemy weapons contained in the storage facilities of the 3207th Armament and Munitions Test Support Squadron (AMTS), Eglin AFB.
+
+Reviewed By AFOSI
+For Public Disclosure
+In Accordance With
+JFKARCA, 1992
+
+14 AUG 95
+
+1457
+
+2
+
+NW 88613 DocId:34530447 Page 3

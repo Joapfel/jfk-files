@@ -1,0 +1,33 @@
+# JFK-Files-Part-2_page_26522.png
+
+Convert to MarkdownSECRET
+
+that this woman is a cut-out in the communica-
+tions between the pro-Communist Peasant Leagues,
+which have run the camps, and the Cuban embassy.
+
+II. The principle that guerrillas must be self-sustain-
+ing has obviously been applied to finances as well.
+Communists have staged waves of bank robberies in
+Venezuela, Peru, and Argentina.
+
+A. The most spectacular hold-up was that of a bank
+in a Lima suburb last year which netted almost
+$100,000. Some of the participants have been
+caught and are being tried in the mass trials
+of more than 200 Communists just starting in
+Peru. We know that the hold-up was carried out
+by a combination of guerrillas and ordinary
+criminals, who divided the loot fifty-fifty.
+Some of the share of the common criminals has
+been recovered, but the Communist half is be-
+lieved to have reached the sizeable guerrilla
+forces of Hugo Blanco in the Cuzco Valley.
+
+B. Just last week a bank in an outlying Venezuelan town was robbed of $25,000 by men wearing FALN armbands.
+
+C. Argentine police last July raided a Buenos Aires warehouse and found evidence that it had been the headquarters for a gang of terrorists--apparently working with both the Peronists and the
+
+SECRET
+
+H:W 50955 DocID:32205165 Page 5

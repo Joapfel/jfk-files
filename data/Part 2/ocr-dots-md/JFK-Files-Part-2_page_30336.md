@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_30336.png
+
+Convert to MarkdownTOP SECRET
+
+1. story makes no sense.
+
+2. The rejection of Oswald's offer to defect makes absolutely
+3. no sense to me.
+
+4. Mr. Sawyer has just pursued that momentarily. I think that
+5. can be rejected by us, by reasonable people prima facie. I see
+6. no reason to accept that part of your story whatsoever.
+
+7. The exposition, taking you off to worry about the exposi-
+8. tion, and so forth, was demonstrated a fraud.
+
+9. No reprisals against your family. Nobody was working
+10. against Oswald, you said, yet later on you said you had seven
+11. to eight large files, you only read the first portion of one
+12. file. You said no KGB ever talked to Oswald regarding
+13. letting him defect. The reason you gave us for that was that he
+14. slashed his wrists and you concluded he was unstable. Yet prior
+15. to that discovery of his instability, you granted him a visa
+16. in two days and he asked to be permitted to defect prior to
+17. slashing his wrists, and therefore you had to make the decision
+18. prior to slashing his wrists, prior to knowing that he slashed
+19. his wrist, that you were going to reject him. That doesn't
+20. hold water either.
+
+21. Finally, you said in your testimony American defection was
+22. very rare. All the more reason, if it only happens once every
+23. year or a couple of times a year, or three times between '56
+24. and '59, it is totally incredible to me that he would not have
+25. been interrogated. No reasonable person can believe that story.
+
+HW 50955 DocId:32277209 Page 78
+
+TOP SECRET

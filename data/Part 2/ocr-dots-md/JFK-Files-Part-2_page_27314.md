@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_27314.png
+
+Convert to MarkdownA - Pencil or ink statements
+
+B - 444 Federal Reporter, 2d Series - July 17, 1946
+
+C - The Record of the Assn. of the Bar of the City of New York
+December 1974
+
+D - Ltr from Knoche to Roethe - 5 Apr '75
+
+E - Ltr fr Knoche to Belin - 21 Mar 75
+
+SECRET
+
+F - Ltr from Knoche to Roethe - 8 Apr 75
+
+G - Memo for DD/PSI from Meehan with attached pencil notes
+
+H - Ltr from Keeney to Kline - Re: U.S. v. Fhrlichman - 9 May 75
+
+I - National Security Council Intell. Dir. No. 1 -
+
+SECRET
+
+Photocopy from
+G R Ford Library
+
+NW 50955 DocId:32105598 Page 145

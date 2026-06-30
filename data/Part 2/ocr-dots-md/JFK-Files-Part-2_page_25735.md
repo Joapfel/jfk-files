@@ -1,0 +1,8 @@
+# JFK-Files-Part-2_page_25735.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE
+ACTIVITIES (SSC)
+
+We are also furnishing 3 Bureau memoranda in response to the latter part of request item 18 asking for all memoranda prepared between November 22, 1963, and December 30, 1963, which relate to the interrogation of witnesses concerning Oswald's trip to Mexico City, including his visits to the Soviet Embassy and Cuban Consulate.

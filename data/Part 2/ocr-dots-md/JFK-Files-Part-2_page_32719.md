@@ -1,0 +1,9 @@
+# JFK-Files-Part-2_page_32719.png
+
+Convert to Markdown# Weekend Negotiations: The Kennedy-Khrushchev Letters
+
+That weekend (October 26-28) there was an exchange of letters between Moscow and Washington which transformed the nature of the Cuba crisis. On October 26, Khrushchev sent a letter to President Kennedy making certain proposals on the removal of offensive weapons from Cuba. On October 27, another letter from Khrushchev, which was broadcast before delivery, also expressed willingness to withdraw the weapons but proposed to link the question of Soviet offensive weapons in Cuba to the unrelated issue of strategic weapons in Turkey. The USSR would "agree to remove from Cuba those means which you regard as offensive means; we agree to carry this out and made a pledge in the United Nations. Your representative will make a declaration to the effect that the United States of America, on its part, considering the uneasiness and anxiety of the Soviet State, will remove its similar means from Turkey...After that persons entrusted by the United Nations Security Council may check on the spot the fulfillment of the pledge made by either side." Of course, he added, "the authorisation of the Governments of Cuba and of Turkey would be necessary for the entry into those countries of these agents." In addition, Khrushchev proposed that the United States and the USSR give pledges against invasion of Cuba and Turkey respectively and solemnly promise to respect the sovereignty and the inviolability of the frontiers of these countries.
+
+This tie-in of Turkey with Cuba was immediately rejected by the United States. A statement issued by the White House that day noted that several inconsistent and conflicting proposals had been made by the USSR in the past twenty-four hours, including the one just broadcast.
+
+/The proposal

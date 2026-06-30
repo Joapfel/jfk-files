@@ -1,0 +1,32 @@
+# JFK-Files-Part-2_page_31747.png
+
+Convert to MarkdownSECRET
+
+SF 100-46832
+
+WEH:ay
+
+then stated that SCHEER described a recent trip he had taken to Cambodia, which he described as "one of the few neutral governments in the world, very jealous of its prerogatives." SCHEER said he visited Cambodia at the invitation of its government and was sent there by "Ramparts" Magazine, of which he is Foreign Editor. He said he was accompanied by STANLEY SCHEINBAUM, "an adviser to the Diem Government in Vietnam from 1955 to 1961." SCHEER asserted that after exploring the entire frontier between Cambodia and South Vietnam, he concluded that "Cambodia was not being used in any significant way, to support the fighting in South Vietnam." He explained that by any significant way he meant that Cambodia was not a "major staging area for the Viet Cong."
+
+A CP contact class was held February 4, 1966, at 631 Redwood Street, San Francisco, during which it was stated that ROBERT SCHEER had left San Francisco February 4, 1966, for Cambodia and there was a very good possibility that SCHEER would also visit North Vietnam.
+
+SF T-75
+February 7, 1966
+
+ROBERT SCHEER was invited to visit Cambodia by its ruler, Prince SIHANOUK, and planned to leave for Cambodia with his wife, ANNE, about February 7, 1966. SCHEER intended to report on this trip for "Ramparts" Magazine upon his return. An unidentified member of the VDC received a cablegram indicating that ROBERT SCHEER was in Cambodia on February 8, 1966.
+
+Officer CHARLES HARRISON
+Berkeley Police Department
+Berkeley, California
+2/11/66
+
+An item in the column of JACK ROSENBAUM appeared in the "San Francisco Examiner and Chronicle" newspaper issue of February 13, 1966, reading: "Federal authorities hear that ROBERT SCHEER, candidate for Congress in the East Bay opposing JEFFREY COHELAN, is in Cambodia, presumably headed for Vietnam. If so, they can't wait to pick up his passport."
+
+SECRET
+
+1311
+
+- 69 -
+
+Copy ............... of ......... Copies
+Page ............... of ......... Pages

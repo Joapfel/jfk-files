@@ -1,0 +1,59 @@
+# JFK-Files-Part-2_page_29558.png
+
+Convert to Markdown# Classification:
+
+(This form is to be used for material extracted
+from CIA—controlled documents.)
+
+- 10 -
+
+131/ See above chart.
+
+132/ Keenan Interview, 3/24/78, p. 4.
+
+133/ Ibid.
+
+134/ Ibid.
+
+135/ Review of Project LIEMPTY, attachment to HMMA 15979, 11/18/60.
+Emphasis added. "LIMERICK" is a CIA cryptonym meaning
+"Soviet."
+
+136/ Review of Project LIEMPTY, attachment to HMMA 17999, 10/31/61.
+
+137/ See Review of Project LIEMPTY, attachments to HMMA 20052,
+10/18/62 and HMMA 22387, 10/25/63.
+
+138/ Memorandum from Chief of FI/OPS to Chief of Operations/DDP,
+1/8/60.
+
+139/ HMMA 14793, 4/8/60, para. 3.
+
+140/ HMMA 23343, 4/30/64, para. 2. Emphasis added.
+
+141/ Memorandum for the Record, 5/19/78 from Gabielson/Cornwell.
+
+142/ Letter from Blakey to Breckinridge, 7/25/78.
+See also JFK Classified Documents #’s 142
+and 146.
+
+143/ Memorandum entitled "Response to HSCA request of 25 July
+1978," 8/20/78; HSCA Classified Staff Summary of Review
+of CIA Documents, 10/31/78, p. 1. CF. Goodpasture Testi-
+mony, 4/13/78, pp. 47-51, Goodpasture Deposition, 11/20/78,
+pp. 50-51, where Ms. Goodpasture testified that although
+the logs and the contact prints from the LILYRIC base
+are missing, thenegatives are on file at the CIA.
+
+144/ Memorandum entitled "Response to HSCA request of 25 July
+1978," 8/20/78; HSCA Classified Staff Summary of Review
+of CIA Documents, 10/31/78, p. 1.
+
+145/ Goodpasture Testimony, 4/13/78, p. 41. HMMA 23343, 4/30/64,
+para. 2. Win Scott was the Chief of Station in Mexico
+
+Classification:
+
+Classified by derivation: 310
+
+HW 48327 DocId:32263889 Page 206

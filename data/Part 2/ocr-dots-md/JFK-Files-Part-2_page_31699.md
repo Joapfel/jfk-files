@@ -1,0 +1,29 @@
+# JFK-Files-Part-2_page_31699.png
+
+Convert to MarkdownSF 100-46832
+
+WEH:jb
+
+SF T-9
+July 29, 1968
+August 9, 1968
+September 26, 1968
+October 14, 1968
+October 22, 1968
+
+The above information may not be made public except in a usual proceeding following issuance of a subpoena duces tecum addressed to Mr. AARON C. ORTON, Operations Manager, Bank of America, 6201 College Avenue, Oakland, California.
+
+ROBERT SCHEER received a check from "Ramparts" magazine, July 31, 1968, in the amount of $200 drawn on the Commonwealth National Bank of San Francisco. He also received a payroll check dated July 31, 1968 in the amount of $517.90 from "Ramparts" magazine. He received a check August 13, 1968 in the amount of $300 from "Ramparts" magazine. Each of these checks was drawn on the Commonwealth National Bank, San Francisco.
+
+SF T-10
+August 27, 1968
+
+The above information may not be made public except in a usual proceeding following issuance of a subpoena duces tecum addressed to Mr. DON FAZACKERELY, Commonwealth National Bank, Montgomery and Sacramento Streets, San Francisco.
+
+- 21 -
+SECRET
+
+1263
+
+Copy of Copies
+Page of Pages

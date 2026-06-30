@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_32761.png
+
+Convert to Markdownlies at the heart of the entire TFX endeavor. My instructions on this point
+were clear and consistent.
+
+Another aspect of the Fourth Evaluation Report struck me as I reviewed
+the report and consulted with my technical advisors, including Dr. Charyk,
+who was then Under Secretary of the Air Force, and Dr. Brown, the Direc-
+tor of Defense Research and Engineering. On the basis of my studies, dis-
+cussions with my advisers, and my experience over the years in judging
+development and production programs, it became clear to me that the
+General Dynamics proposal was generally more straightforward in approach
+than that of Boeing, although the General Dynamics design was fully acceptable.
+There were aspects of the Boeing proposal which, on their face, complicated
+the development of the aircraft. Three problems in particular stood out in
+my mind.
+
+The first problem was Boeing's proposed use of engine thrust reversers for in-flight deceleration, as well as for reducing ground roll after landing touch down. To date, engine thrust reversers have never been used in flight on operational fighter aircraft, nor have they ever been employed on supersonic aircraft. The only operational experience has been on subsonic commercial jet transports and cargo-type aircraft in which the engines are mounted on outboard pylons underneath the wings. The Air Force does have one fighter aircraft in which a research and development type installation has been made. This is a single engine aircraft with the exhaust on the airplane centerline
+
+HW 50955 DocId:32424709 Page 142

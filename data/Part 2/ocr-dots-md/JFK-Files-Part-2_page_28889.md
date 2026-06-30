@@ -1,0 +1,38 @@
+# JFK-Files-Part-2_page_28889.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10072-10186
+RECORD SERIES : NUMBERED FILES.
+AGENCY FILE NUMBER : 010313
+
+Document Information
+
+ORIGINATOR : SOCIAL SECURITY ADMINISTRATION
+FROM :
+TO : HESS, JACQUELINE.
+TITLE :
+
+DATE : 07/31/1978
+PAGES : 64
+
+SUBJECTS :
+OSWALD, MARINA; FINANCES, INCOME TAXES.
+OSWALD, LEE; PRE-RUSSIAN PERIOD, MILITARY SERVICE,
+COURT-MAR
+
+DOCUMENT TYPE : REPORT.
+CLASSIFICATION : Unclassified
+RESTRICTIONS : 3
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 07/10/1996
+
+OPENING CRITERIA :
+
+COMMENTS : Includes insurance forms, death certificate, & military documents of Oswald. Box 189.
+
+Released under the John F. Kennedy
+Assassination Records Collection Act of
+1992 (44 USC 2107 Note). Case#: NW
+88326 Date: 2025

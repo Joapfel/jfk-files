@@ -1,0 +1,20 @@
+# JFK-Files-Part-2_page_27978.png
+
+Convert to MarkdownSelect Committee on Assassinations
+U.S. House of Representatives
+
+WASHINGTON, D.C. 20515
+
+December 10, 1976
+
+To: Mr. Sprague
+
+From: Sue
+
+Re: Rita Morton
+
+Mr. Gay has interviewed Rita and recommends her.
+
+Joan Thornell, who worked with us on the Joint Committee as a consultant for one of our Bicentennial projects, also recommends Rita.
+
+I would recommend her to be a Typist/Secretary for her skills are excellent.

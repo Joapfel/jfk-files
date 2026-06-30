@@ -1,0 +1,3 @@
+# JFK-Files-Part-2_page_25626.png
+
+Convert to MarkdownThe Senate Select Committee on Intelligence is conducting a limited inquiry into certain leads which the Church Committee did not have time to finish checking out. The Committee is continuing to explore theuestioa of Mr. Roseoli's murder also seeming to be some whether or in church appearances was related in any way to his KILLING before the Committee.

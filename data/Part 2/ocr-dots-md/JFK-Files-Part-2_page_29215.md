@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_29215.png
+
+Convert to MarkdownINVESTIGATION INTERVIEW SCHEDULE
+
+1. Identifying Information:
+
+Name Juanita Brown
+Address 561 Andrews St.
+City/State Metairie, La.
+Date of Birth 5-21-29
+Social Security 438-28-1981
+
+Date 6-1-78
+Place 640 Magazine St.
+Telephone 504-835-4860
+M or S M
+Spouse 
+Children
+
+2. Physical Description:
+
+Height 5'1"
+Weight 110
+Ethnic Group Caucasian
+
+Color Eyes Brn Bld Hair
+Special Characteristics
+
+3. Personal History:
+
+a. Present Employment: William B. Rielly Coffee Co.
+
+Address 640 Magazine St. New Orleans, La.
+Telephone 504-524-6131 X 225
+
+b. Criminal Record
+
+1. Arrests
+
+2. Convictions
+
+1. Additional Personal Information:
+
+a. Relative(s): Name
+
+Address
+
+b. Area frequented:
+
+c. Remarks: Saw LHO in Alba's Garage
+
+Investigator Robert Buras
+
+Date 6-1-78
+
+Form #4-B

@@ -1,0 +1,19 @@
+# JFK-Files-Part-2_page_29672.png
+
+Convert to Markdown# Classification: ____
+
+(This form is to be used for non-CIA, unclassified documents from CIA-controlled documents.)
+
+in conducting such an investigation in a foreign country; 3) there is a close and delicate relationship between the CIA Station Chief and the former Minister of Interior—President Gustavo Diaz Ordaz; and 4) some of the people appearing in the Elena Garro scenario may well be agents of the CIA. Under the circumstances it is unlikely that any further investigation of this matter will ever take place unless it is ordered by a high official in Washington. 1170/
+
+The Committee attempted to locate Elena Garro.
+
+Although the Committee established telephonic contact with Ms. Garro, the Committee was totally frustrated in this aspect of its investigation, but yet believes that there is a possibility that Lee Harvey Oswald did attend a twist party at the home of Ruben Duran.
+
+The Committee also considers it possible that Lee Harvey Oswald contacted pro-Castro students at the National Autonomous University of Mexico (Universidad Nacional Autonoma de Mexico, hereinafter UNAM) as claimed by Oscar Contreras Lartigue. 1172/ Silvia Duran admitted that she had told Oswald of two ways in which he could get a Cuban visa: 1) he could get an intransit visa by first obtaining a visa to another Communist country such as Russia; 2) he could obtain a regular Cuban visa by knowing someone in Cuba who would vouch for him. 1173/
+
+Classification: TOP SECRET
+
+2000390
+
+Classified by derivation: 420

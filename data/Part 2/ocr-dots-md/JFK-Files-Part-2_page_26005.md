@@ -1,0 +1,5 @@
+# JFK-Files-Part-2_page_26005.png
+
+Convert to MarkdownO'BRIEN: This is Mongoose, isn't it?
+
+LANSDALE: Yes. This was a national security group of top executives close to the president, with the undersecretary of State, and the deputy secretary of Defense, and so on, and the national security advisors and Taylor sat in on those meetings after he got his CI group going. But in forming the CI group initially, Taylor was starting to do some studies for Kennedy, and Kennedy had asked me to help him. So I put my staff in the Pentagon at Taylor's disposal. Initially, in Kennedy's presence, I offered to put together a study for Taylor on resources in the United States and among our allies for such things--not allies as much as friends of the United States in many countries--and this was done with some CIA and some of the military services and the intelligence part of State. They had a little working group, and we had several sessions in my office.

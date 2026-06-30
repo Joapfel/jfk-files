@@ -1,0 +1,56 @@
+# JFK-Files-Part-2_page_29555.png
+
+Convert to Markdown**Classification:**
+
+(This form is to be used for material extracted
+from CIA-controlled documents.)
+
+87/ Zamberardi Interview, 6/3/78, p. 2.
+
+88/ Ibid., p. 4.
+
+89/ Ibid.
+
+90/ HMMA 26414, 6/22/65, para. 5.
+
+91/ See pages 24-27, above
+
+92/ Classified Staff Summary of Review of CIA Documents,
+undated, pp. 1-2.
+
+93/ Ibid.
+
+94/ Ibid.
+
+95/ Ibid.
+
+96/ Ibid.
+
+97/ Ibid.
+
+98/ Ibid.
+
+99/ Ibid.
+
+100/ Goodpasture Testimony, 4/13/78, p. 47.
+
+101/ Robert Shaw Testimony, 5/16/78, p. 35; HMMA 26006, 4/30/65,
+para. 8.
+
+102/ Ibid.; HMMW 13645, 5/13/65; HMMA 26160, 5/21/65, paras. 1 and 2.
+
+103/ See MEXI 9440 and HMMA 26411.
+
+104/ JFK Classified Document #142.
+
+105/ Notes made by A. Goodpasture for John Leader, IG Staff,
+re: "Background on Mexico Station Support Assets (Coverage
+of Soviet and Cuban Embassies)", 2/10/77, p. 1. Here-
+inafter cited as Goodpasture Notes. See also: Tab F
+Draft, p. 1; Goodpasture Testimony, 4/13/78, p. 15.
+
+Classification:
+
+307
+
+Classified by derivation:

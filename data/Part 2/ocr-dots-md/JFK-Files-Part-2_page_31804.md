@@ -1,0 +1,22 @@
+# JFK-Files-Part-2_page_31804.png
+
+Convert to MarkdownSECRET
+
+1. "The World Federation of Democratic Youth brought into being the International Union of Students, which held a meeting in Prague on August 17-31, 1946. The administration and direction of this project was entrusted to a 17-man executive committee, of whom 12 were known Communists." Also cited as one of the "long-established Soviet-controlled international organizations" which speak identical lines of propaganda and stand together on all phases of Soviet foreign policy and which has "affiliated organizations in the United States, which consequently have also been turned into instruments in the 'peace' campaign."
+
+(Committee on Un-American Activities, House Report 271 on American Youth for Democracy, April 17, 1947, p. 13; and House Report 378 on the Communist "peace" Offensive, April 25, 1951, originally released April 1, 1951, p. 77.)
+
+2. Cited as being among "international Communist fronts * * * functioning at the present time."
+(Internal Security Subcommittee of the Senate Judiciary Committee, Handbook for Americans, S. Doc. 117, April 23, 1956, p. 93, also p. 59.)
+
+APPENDIX
+
+SECRET
+
+1368
+
+Page 126 of 134 Copies
+Pages
+
+NW 88613 Doct:34517445
+Page 127

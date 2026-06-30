@@ -1,0 +1,41 @@
+# JFK-Files-Part-2_page_26267.png
+
+Convert to MarkdownThis material contains information affecting the National Defense of the United States within the meaning of the Espionage Law, 18 U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+<table><tr><td>SECRET<br/>(When Pilled In)</td></tr></table>
+
+CLASSIFICATION - DISSEMINATION CONTROLS
+
+<table><tr><td>COUNTRY</td><td>CUBA</td></tr><tr><td>SUBJECT</td><td>CUBAN EXILE PLANS</td></tr><tr><td>DATE OF INFO.</td><td>MID-JUNE 1963</td></tr><tr><td>PLACE & DATE ACQ.</td><td>ENGLAND, LONDON (27 JUNE 1963)</td></tr><tr><td>APPRaisal</td><td>3</td></tr></table>
+
+REPORT NO. TDCS-3/551, 86 FORRESTAL
+HIRSCH
+DATE DISTR. 28 JUNE 1963 JOHNSON
+KAYSEN
+PRECEDENCE ROUTINE KILDUFF
+KLEIN
+KOMER
+REFERENCES
+~~N60083~~
+PHILLIP
+SAUNDERS
+BROOKE
+SCHLESINGER
+SMITH
+FIELD REPORT NO. OEL 3566
+
+THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPRAISAL OF CONTENT IS NEGATIVE.
+
+SOURCE
+
+AN OFFICIAL BRITISH SERVICE FROM A SOURCE DESCRIBED AS "WELL KNOWN AND EXPERIENCED IN REPORTING, PROBABLY RELIABLE, QUOTING THE PERSONS MENTIONED".
+
+1. AMAURY FRAGINALS ALONSO, ONE OF THE LEADERS IN THE ALLIANCE BETWEEN THE MOVIMIENTO REVOLUCIONARIO POPULAR (POPULAR REVOLUTIONARY MOVEMENT - MRP), THE SECOND FRONT OF ESCAMBRAY AND ALPHA 66, CLAIMED IN CONFIDENTIAL DISCUSSION DURING A VISIT TO VENEZUELA IN MID JUNE 63 THAT THE ALLIANCE WILL CONTINUE TO ATTACK THE CUBAN MAINLAND. AT THE SAME TIME, PLANS ARE GOING AHEAD TO LAUNCH PLAN OMEGA. FRAGINALS SAID THAT PLAN OMEGA HAS THREE STAGES: (A) REORGANIZATION AND ARMING OF GUERRILLA GROUPS THROUGHOUT CUBA WHICH WILL BE LED BY LOCAL MEN WHO KNOW THEIR AREA; (B) INCESSANT GUERRILLA ATTACKS AGAINST RUSSIAN BASES, THE CUBAN
+
+<table><tr><td colspan="14">STATE/INR</td><td colspan="2">DIA</td><td colspan="2">ARMY/ACS</td><td colspan="2">NAVY</td><td colspan="2">AIR</td><td colspan="2">JCS</td><td colspan="2">SECDEF</td><td colspan="2">NSA</td><td colspan="2">NIC</td><td colspan="2">AID</td><td colspan="2">USIA</td><td colspan="2">OCI</td><td colspan="2">ONE</td><td colspan="2">OCR</td><td colspan="2">ORR</td><td colspan="2">OBI</td><td colspan="2">OO</td><td colspan="2">EXO</td></tr><tr><td>TATE/DIR</td><td colspan="2"></td><td>FBI</td><td>I&NS</td><td></td><td></td><td>TREASURY</td><td colspan="2"></td></tr></table>
+
+TELEGRAM INFORMATION REPORT TELEGRAM
+
+FORM 1K OBSOLETE PREVIOUS EDITIONS.
+
+(15-20)

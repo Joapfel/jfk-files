@@ -1,0 +1,43 @@
+# JFK-Files-Part-2_page_30456.png
+
+Convert to MarkdownSECRET
+
+1-31.
+
+Mr. Goldsmith. Please take a look at CIA 208.
+
+Mr. Shaw. 208.
+
+Mr. Goldsmith. And read paragraph number four. Read it to yourself, please.
+
+(Pause)
+
+Mr. Shaw. Yes.
+
+Mr. Goldsmith. According to paragraph number four, it indicates that it seems a voice comparison of some kind was made.
+
+Mr. Shaw. Yes, or it could well be that this guy, Fine-glass —
+
+Mr. Goldsmith. Mr. Tarasoff?
+
+Mr. Shaw. Remembered the poor Russian of the first tape and the poor Russian of the second tape and figured that it was the same guy.
+
+Mr. Goldsmith. How long were tapes normally retained prior to being erased?
+
+Mr. Shaw. I have no idea. It would seem to me if you had a very productive tape, you probably would not keep it very long, once you transcribed it.
+
+(Pause)
+
+Mr. Goldsmith. I would like you to read the CS comment on CIA 239.
+
+Mr. Shaw. I have read it.
+
+Mr. Goldsmith. According to that, it indicates that the
+
+SECRET
+
+ALDERSON REPORTING COMPANY
+
+100 7TH STREET, S.W., WASHINGTON, D.C. 20024 (202) 554-2345
+
+NW 50955 DocId:32277214 Page 32

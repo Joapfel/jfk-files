@@ -1,0 +1,60 @@
+# JFK-Files-Part-2_page_32468.png
+
+Convert to MarkdownINCOMING TELEGRAM
+
+Department of State
+
+CONFIDENTIAL
+
+48
+
+Action
+
+FROM: Kingston
+
+TO: Secretary of State
+
+NO: 567, February 11, 6 p.m.
+
+GEN. CARROLL ☐
+GEN. QUINN ☐
+GEN. HALL ☐
+
+COL. GILLIS ☑
+
+Control: 7384
+Rec'd: February 11, 1963
+9:11 p.m.
+
+CONFIDENTIAL
+
+**PARAPHRASE NOT REQUIRED**
+*Ref by ms# number in*
+*unclassified reply prohibited.*
+
+Permanent Secretary External Affairs Ministry told Embassy today that GOJ concerned over reports it had received that USSR furnishing Cubans not only fishing vessels, but also torpedo boats and submarine chasers. He foresaw Soviet-supplied ships as having potential adverse effect on Jamaican fishing industry as well as presenting possible security problem. He asked whether US could provide more detailed information on these ships which would operate from Soviet-built "fishing base" in Cuba.
+
+In view of reports, he planned to urge Cabinet to take early action on deciding and publicizing limits of Jamaican territorial waters in order to avoid incidents with Soviets and Cubans.
+He is considering recommending to Cabinet that Jamaica claim territorial waters of six-and-six miles. Jamaica now apparently claims three-mile limit.
+
+Although GOJ obviously counting on receipt US military equipment, seems unlikely that this expression GOJ concern motivated primarily by desire to speed up delivery. Embassy inclined to view Jamaican approach as healthsome indication GOJ at technical level beginning to appreciate ramifications of Cuban problem.
+
+ACTION: STATE (ARMY ACSI)
+INFO : DCSOP, OSA, JCS, USDEL IADB
+DA IN 16465
+
+SMD:CT
+
+DOHERTY
+
+CONFIDENTIAL
+
+REPRODUCTION FROM THIS COPY IS PROHIBITED UNLESS "UNCLASSIFIED"
+
+000
+
+AAP-3
+
+HW 50955 DocId:32423736 Page 92
+
+CONFIDENTIAL

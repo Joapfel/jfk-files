@@ -1,0 +1,35 @@
+# JFK-Files-Part-2_page_25823.png
+
+Convert to MarkdownJanuary 28, 1976
+
+The Honorable Frank Church, Chairman
+Select Committee on Intelligence
+United States Senate,
+Russell Office Building,
+Washington, D. C. 20510
+
+Ref: My letter 11/20/74 & encl. to Son. Weikor forwarded & acknowledged your letter 1/7/75; your acknowledgement data 5/5/75; my letter 7/11/75.
+
+Dear Senator Church:
+
+I commend the diligent efforts of you, the members and the staff in producing and especially in publishing the Committee's report on "Alleged Assassination Plots Involving Foreign Leaders."
+
+Nevertheless, I must advise you that over 200 pages of counterintelligence on domestic and foreign assassinations of the CIA I have provided or made available to staff and members has been disregarded or deliberately withheld from members.
+
+Consequently, as members are preparing to sign a final report, it is timely to list some of the disastrous errors of the interim report. The errors are the result of intentional misrepresentation and deceit of the Congress and the American electorate by the CIA, its directors and employees.
+
+(1) The ZR/RIFLE Executive Action program begun in 1960, headed by William Harvey, was designed as a domestic assassination capability.
+
+(2) Under the direct planning and implementation of Harvey, a number of domestic and foreign assassinations were executed.
+
+(3) Harvey's real name is William S. Wood, alias William Boxley, alias W. J. Wood. His assassinations in USA I have already reported.
+
+(4) Among foreign assassinations with participation by Wood's domestic team members on foreign duty are those of Lumumba and Trujillo.
+
+(5) Orders passed by CIA for execution, rather than exiling or kidnapping, caused the deaths of Ngo Diem, Ngo Nhu and Rene Schneider.
+
+(6) CIA gave the code name WJ/WIN to the organized crime assassination consultant employed to insure the killing of Patrice Lumumba. His real name is Michael Genovese, alias Victor Resignio, son of Vito Genovese, boss of bosses of the Mafia in Atlanta federal prison until he died. Genovese enjoyed assassination authority independent of CIA directors delegated by Meyer Lansky, boss of the American international crime syndicate then. Neither President Eisenhower nor President Kennedy conferred assassination authority upon CIA.
+
+(7) Genovese, as Victor Resignio, directed an arms and supplies diversion and currency manipulation racket in South Vietnam in 1966-67 that cost the Treasury $51.8 billion, Executive Departments' total, not mine.
+
+(8) Wood's crime team member that aided Genovese to assure Lumumba's death was code named WI/ROGUE. He is Frank Sturgis, Watergate burglar.

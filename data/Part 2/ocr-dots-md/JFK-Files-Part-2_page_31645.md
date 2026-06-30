@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_31645.png
+
+Convert to Markdown1
+SF 14-207
+FSP:mb
+
+SF T-13 reported on November 1, 1965, that at a general membership meeting of the VDC on October 26, 1965, in Room 204, Engineering Building, UCB, there was a vote which was subsequently set aside to distribute the leaflet, "ATTENTION ALL MILITARY PERSONNEL."
+
+A review of all information furnished by SF T-13 failed to reveal any information indicating who conducted the above-described meeting, or when, where or to whom the leaflets would be distributed.
+
+SF T-13 is currently employed in a foreign country, and there is no information indicating whether he will return to the United States in the near future.
+
+SF T-14 reported on May 6, 1966, he was unable to recall who conducted the VDC general membership meeting in Room 204, Engineering Building, UCB, on October 26, 1965, or if mention was made when, where, or to whom the "soldier's leaflet" would be distributed.
+
+SF T-3 informed on May 6, 1966, that the VDC general membership meeting which was held in Room 204, Engineering Building, UCB, was chaired by SYDNEY STAPLETON. SF T-3 recalled that the persons attending the meeting voted on a decision to distribute the "soldier's leaflet"; however, the majority vote postponed action on the leaflets until a later meeting. SF T-3 also recalled that JACK KURZWEIL, BOB KAUFMAN, and (CONN) "RINGO" HALLINAN informed those present that the leaflets should be distributed to civilians rather than to soldiers.
+
+SF T-3 commented he had no knowledge as to when, where, or to whom the leaflets may have been distributed.
+
+SF T-15 reported in October 1965, that as of September 1965, JACK WEINBERG was a member of the Steering Committee of the VDC.
+
+SF T-12 informed on October 9, 1964, that on October 11, 1964, JACK WEINBERG attended a general membership meeting of the W.E.B. Du Bois Club of America, Berkeley Branch.
+
+976

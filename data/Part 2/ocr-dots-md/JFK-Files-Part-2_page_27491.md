@@ -1,0 +1,26 @@
+# JFK-Files-Part-2_page_27491.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Tom Lambeth
+
+FROM: Robert J. Lehner
+
+DATE: May 26, 1977
+
+SUBJECT: Con Hitchcock
+
+This is to request a salary adjustment from $15,000 to $20,000 per year for Con Hitchcock. Mr. Hitchcock was hired in December at a salary of $15,000. The thought of the then Staff Director and Chief Counsel was that after members of the staff were working here for a period of time and we were able to evaluate their work, salary adjustments would be made. Unfortunately those salary adjustments were never made because of the delay in reconstituting and re-budgeting the Committee.
+
+Mr. Hitchcock graduated from Law School in 1975. The only other attorney on the King Task Force that graduated that year was Sheila Jackson Lee. Her salary is $23,000 per year.
+
+Mr. Hitchcock has demonstrated a quick ability to assimilate factual situations, gives insightful legal analysis of those situations and writes cogently in these areas. He is a definite asset to our team and one of the brightest people we have on the staff.
+
+I had recommended to Al Lewis this same adjustment. Mr. Lewis agreed and was prepared to make that recommendation to the Committee.
+
+For the above reasons, I hereby recommend Mr. Hitchcock's salary adjustment be made forthwith.
+
+RJL:ek
+
+NW 88326
+DocId:32239450 Page 12

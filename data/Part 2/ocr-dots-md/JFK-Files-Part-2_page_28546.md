@@ -1,0 +1,23 @@
+# JFK-Files-Part-2_page_28546.png
+
+Convert to MarkdownMEMORANDUM
+
+TO: Thomas Howarth, Budget Officer
+Elizabeth Berning, Chief Clerk
+
+FROM: I. Charles Mathews, Special Counsel
+
+DATE: May 22, 1978
+
+RE: Charlotte Green
+
+Please be advised that effective Friday, May 12,
+1978, Ms. Charlotte Green joined the Committee staff as
+a summer intern. Her effective starting salary will be
+$6240.00 per annum.
+
+If you have any questions concerning this matter,
+
+please contact me at your convenience.
+
+ICM:j
