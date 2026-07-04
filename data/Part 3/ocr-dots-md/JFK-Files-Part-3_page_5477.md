@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_5477.png
+
+Convert to MarkdownSECRET
+
+5-140 (Rev. 1-21-74) FEDERAL
+
+AU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☒ LHM ☐ Memo ☐ Report dated 7/27/75
+
+U. S. Senate Select Committee on Intelligence
+(Caption of Document: Activities. Re: Incommunicado)
+Interrogation. (Appendix A, Req No. 5, g., & Appendix B, Req No. 4, a & b.)
+
+FBI
+
+Originating Office:
+
+Delivered by: Department of Energy Date: Aug 1, 1975
+
+Received by:
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI
+
+SECRET
+
+ENCLOSURE
+
+62-116 395-480 NW 88608 DocId:32989626 Page 208

@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_904.png
+
+Convert to MarkdownMr. William D. Ruckelshaus
+The Deputy Attorney General - Designate
+Director, FBI
+
+1 - Mr. Baker
+1 - Mr. E. S. Miller
+1 - Mr. T. J. Smith
+
+September 17, 1973
+
+1 - Mr. Sizoo
+
+# SUBSTANTIVE ISSUES REGARDING THE FUTURE OF THE FBI
+
+Reference is made to your memorandum to me captioned "Substantive Issues Regarding the Future of the FBI" dated July 20, 1973, enumerating issues on which you desired the Bureau's comments.
+
+Concerning Issue Three in your memorandum, I call your attention to memorandum from me to the Attorney General captioned "Scope of FBI Jurisdiction and Authority in Domestic Intelligence Investigations," dated August 7, 1973, as well as my August 24, 1973, memorandum to you under the same caption.
+
+My August 7, 1973, memorandum proposed an Executive order to define FBI responsibilities concerning Federal statutes relating to national security. Mr. Jack Goldklang, Office of Legal Counsel, Department of Justice, pursuant to his analysis of the proposal in my August 7, 1973, memorandum, requested a copy of Section 87 of our Manual of Instructions concerning Investigation of Subversive Organizations and Individuals, as well as a copy of a study prepared in August, 1972, at the request of former Acting Director L. Patrick Gray, III. These were furnished with my August 24, 1973, memorandum.
+
+Inasmuch as this Bureau's extensive analysis regarding authority for our intelligence gathering was previously furnished for the Department's consideration in August 7 and 24, 1973, memoranda, I assume that your needs to study Issue Three can be met by reference to those communications without additional submissions.
+
+JMS: rlc
+
+(7)
+
+NOTE:
+
+<table><tr><td>MAILED 2</td></tr><tr><td>SEP 19 1973</td></tr><tr><td>FBI</td></tr></table>
+
+REC-52
+
+SEP 19 1973
+
+See memorandum T. J. Smith to Mr. E. S. Miller dated 9/13/73, captioned as above, prepared by JMS: rlc.
+
+SEP 21 73
+
+This document is prepared in response to your request and is not for dissem- ination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized person-

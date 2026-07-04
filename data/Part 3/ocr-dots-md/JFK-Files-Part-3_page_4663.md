@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_4663.png
+
+Convert to MarkdownTP 92-1
+
+subject was from FRANK CHAPPELL of the Miami, Florida Intelligence Unit, who indicated to him that subject was observed in Miami with other individuals who were interested in opening some new restaurant. He advised that as of November 15, 1962, it had been agreed upon by the various Intelligence Unit representatives from Miami, Orlando, St. Petersburg, and Tampa, that they were going to advise one another as to subject's appearance and location should he leave one city and go to another.
+
+It has previously been reported that Houston, Texas authorities had made some inquiry of Tampa Police Department concerning subject and therefore the Houston Office advised that on November 8, 1962, SA JAMES W. RUSSELL contacted Chief Deputy Sheriff LOYD FRAZIER of the Harris County Sheriff's Office regarding SANTO TRAFFICANTE, JR. FRAZIER advised that he had requested background regarding subject and such had been done because he had been told by a source, not now recalled by him, that TRAFFICANTE may come to Houston, Texas, to contact an Italian by the name of VICTOR S. GUFFRIA. FRAZIER said that he had no background information on GUFFRIA and has received no information to date that TRAFFICANTE has made trips to Houston.
+
+Relative to the information as indicated at Miami, Florida, that subject may have been in Brazil, SAM JOHNSON, United States Customs Agency, Tampa, Florida, has advised that United States Customs and United States Immigration and Naturalization Service stops have been maintained on subject for several years for any entry into the country and that the last stop was renewed for another year as of October 31, 1962. He advised United States Customs agents are on duty 24 hours per day and that he considered it most difficult to get into the United States and pass Immigration and Naturalization and United States Customs officials. He said going out of the country the person could get on any airlines, but it was the airlines responsibility for having the person have his correct documents and that the airlines are subject to heavy penalties should a person be found not having proper documents.
+
+# IV. ASSOCIATES
+
+## A. SIDNEY HOROWITZ, Aka Sid Howard
+
+TP T-6 advised on October 25, 1962, that HOWARD was contacted in Miami, Florida, that HOWARD claimed he was hanging out at Miami Beach, and that he intended to remain there because things were too quiet in Tampa. Source reported that HOWARD's girlfriend in Miami, Florida, has telephone
+
+- 21 -

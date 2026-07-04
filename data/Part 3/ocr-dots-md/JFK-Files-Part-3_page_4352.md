@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_4352.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+June 12, 1970
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [BLACK PANTHER PARTY]
+
+You have previously authorized this Bureau to initiate a telephone surveillance on the national headquarters of the Black Panther Party (BPP), 3106 Shattuck Avenue, Berkeley, California and on March 13, 1970, you authorized the continuance of this surveillance for an additional three months effective March 17, 1970. By memorandum dated May 25, 1970, you were advised that one phase of the operations of BPP national headquarters moved from the Berkeley address to 1046 Peralta Street, Oakland, California and that we would also cover that phase of BPP operations under your authorization for coverage of BPP national headquarters. This installation provides extremely valuable information on the operations and activities of the BPP on a nationwide and international scale. Examples of some of the voluminous amount of intelligence data obtained include the following.
+
+On various dates in March, April, and May, 1970, this source furnished details concerning activities, speaking engagements, and extensive travels in the United States and abroad by BPP officials. On March 5, 1970, this source furnished data regarding the arrival in the United States of BPP Scandinavian representative Connie Matthews in company with Jean Genet, notorious French author, felon, and homosexual who planned a publicity tour on behalf of the BPP. Information from this source on March 16, 1970, revealed that BPP national headquarters had ordered its members not to take part in a
+
+SECRET
+Group 1
+Excluded from automatic downgrading and declassification
+
+This document is prepared in response to your request and is not for dissemination outside your Committee without the express approval of the FBI.
+
+NW 88608 DocId:32989583 Page 94

@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_4418.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+May 21, 1970
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: BLACK PANTHER PARTY -
+NATIONAL COMMITTEE TO COMBAT FASCISM
+WASHINGTON FIELD OFFICE
+
+The Black Panther Party (BPP) is a black extremist organization with national headquarters in Berkeley, California, and has affiliated groups in 39 cities throughout the United States with a hard-core membership of approximately 900.
+
+The National Committee to Combat Fascism (NCCF), which is described as an organizing bureau of the BPP, has been formed in Washington, D. C. It is actually a BPP Chapter under the strict discipline of the BPP national headquarters. [Its headquarters in Washington, D. C., is located at 2587 18th Street, N.W., Washington, D. C.]
+
+The public statements of the leaders of the BPP repeatedly stress that the organization's objective is an armed black revolution against the Government of the United States by means of guerrilla warfare. Information is regularly received showing that its members are required to possess guns and have been instructed in their use. They have been trained in the preparation of fire bombs and explosives. The organization strongly supports the Cuban and Chinese Communist revolutionaries.
+
+The NCCF in Washington, D. C., has a membership of from 10 to 20. It shares office space with the Patriot Party, a group of radical whites concerned with aiding the oppressed
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure .
+
+Subject to Criminal Sanctions
+
+- SECRET -
+Group-1-
+- Excluded-from-automatic-
+downgrading-and-
+declassification-
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FEI.

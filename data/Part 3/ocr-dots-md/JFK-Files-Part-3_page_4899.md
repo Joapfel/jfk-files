@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_4899.png
+
+Convert to Markdown# ASSOCIATES
+
+On October 22, 1962, MAX LURIE advised he represents NORMAN ROTHMAN. LURIE stated he recently received a letter from NORMAN ROTHMAN, who was in the Federal Penitentiary, Atlanta, Georgia, telling him that he, ROTHMAN, had made a statement to the FBI in Atlanta, that he had loaned PATSY ERRA approximately $100,000. LURIE stated that he prepared a mortgage for ROTHMAN to cover a loan from ROTHMAN to ERRA in 1959. LURIE stated that he knows of no other loans made by ROTHMAN to ERRA, and that he has no record of any other loans made by ROTHMAN to ERRA.
+
+Recorded in Official Record Book 1503, Page 35, Records of Dade County, Florida, is a mortgage deed executed June 26, 1959, by PATRICK ERRA and FRANCES ERRA, his wife, Mortgageors, to NORMAN ROTHMAN, Mortgagee. The deed was given to secure a promissory note dated June 26, 1959, for $59,000 payable in five years with no interest. The deed was signed by PATRICK and FRANCES ERRA, witnessed by MAX LURIE and one other witness, name illegible. It was notarized before STANLEY HILLMAN, Notary Public, State of Florida at Large, and filed for record June 29, 1959.
+
+On August 20, 1965, ROTHMAN was interviewed by Agents of the Miami Office. During the course of this interview, ROTHMAN related quite readily that among his closest associates and friends are SANTO TRAFFICANTE, JR., DAVID YARAS, PASQUALE MICHAEL ERRA and SAMMY MANNARINO. SANTO TRAFFICANTE, JR. and PATSY ERRA are reported members of the La Cosa Nostra (LCN).
+
+MM T-6 advised on November 4, 1966, that he learned that a close friend of NORMAN ROTHMAN is "CHUBBY" GREEN, a route supervisor for Budweiser Beer Company, who also runs the coffee shop in the Sea Brook Motel in Surfside, Florida.

@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_5090.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TOP SECRET
+
+TO : Mr. W. R. Wannall
+
+FROM : S. S. Mignosa SSN
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. W. R. Wannall
+
+DATE: 8/18/75
+
+1 - Mr. W. O. Cregar
+1 - Mr. S. S. Mignosa
+1 - Mr. T. J. McNiff
+1 - Mr. C. H. McCarthy
+
+ALL INFORMATION CONTAINED BECAUSE IS UNCLASSIFIED, EXCEPT WHERE SHOWN OTHERWISE
+
+Reference is made to memorandum dated 7/24/75, captioned as above, which requested review, assessment and recommendations pertaining to the contents of pages extracted from a 693-page CIA document in order to fully identify the subject matter and to assess whether FBI operations were compromised.
+
+Section CI-3 conducted the following review and makes the assessment pertinent thereto:
+
+RE: Page 00026, "Siesta" and pages 00059-61, captioned "Subject: General: Office of Security Survey." (S)
+
+This matter concerns Orlando Nunez-Toro (Bufile 105-141367), a United States citizen of Cuban extraction, who was suspected by CIA of attempting to recruit for intelligence purposes CIA personnel, one Miss Deborah Fitzgerald. By letter dated 8/4/70, the first communication to the FBI by CIA relating to Toro-Nunez and Fitzgerald, the FBI was requested to advise whether it interposed any objections to CIA investigative action CIA deemed necessary to explore questions raised by the association of Nunez-Toro and Fitzgerald with CIA employees. (S) EX-101 REC-56 (1-2-11-70-565)
+
+In response to that inquiry, FBIQ advised CIA by letter dated 8/14/70, that the FBI interposed no objection to CIA investigation for such a purpose. At the same time, CIA was specifically requested to provide the FBI with any information developed relating to FBI internal security responsibilities. 10/19/70, MDR 16 CLASSIFIED BY SP-2 ALM/EHL DEC 1972 ON: 25X TOP SECRET
+
+62-116395
+
+CHM: cla cltr (6)
+
+9 AUG 27 1975
+
+CONTINUED - OVER
+
+Classified by 6098 CHM Exempt from GOS, Categories 2 and 3 Date of Declassification Indefinite 5-27m
+
+ROUTE IN ENVELOPE
+
+84 AUG 28 1975
+
+NW 88608 DocId:32989633 Page 4

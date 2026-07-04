@@ -1,0 +1,60 @@
+# JFK-Files-Part-3_page_2541.png
+
+Convert to MarkdownThe Deputy Attorney General
+
+July 10, 1975
+
+Director, FBI REC-88
+
+1-Mr. Hotis
+1-Mr. Daly
+
+SENATE SELECT COMMITTEE ON
+INTELLIGENCE ACTIVITIES
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 9/27/00 BY SPA ALM/EHL
+
+Reference is made to memorandum dated June 30, 1975, from K. William O'Connor, Special Counsel for Intelligence Coordination, captioned "O & C Files." You requested this Bureau advise you of its views concerning the Senate Select Committee on Intelligence Activities (SSC) request that they be allowed to conduct interviews of current Bureau employees concerning the "Official and Confidential" files prior to the conclusion of the Department's inquiry concerning that matter.
+
+Our inquiry into this matter has been completed and the results have been furnished the Office of the Attorney General. It would appear in view of this our response or observations concerning this particular problem are moot. However, it is possible similar situations might arise in the future. With that in mind, we would suggest that in those areas where we are conducting an ongoing investigation or inquiry it would be proper for the Department to request the SSC to refrain from interviews if it would impair ongoing operations.
+
+1-K. William O'Connor
+Special Counsel for
+Intelligence Coordination
+
+PVD: lgp JUP
+(11)
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec.
+
+NOTE: The Inspection Division conducted an inquiry concerning this matter at the request of Doug Marvin, Assistant to the Attorney General. This response has been coordinated with the Inspection Division.
+
+MAIL ROOM [x] TELETYPE UNIT [ ]
+
+GPO 951-546
+
+UNRECORDED COPY FILED IN
+
+GPO 951-546
+
+008608 Good 07589618 Page 221

@@ -1,0 +1,86 @@
+# JFK-Files-Part-3_page_7689.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+JUN 20 1975
+
+TO: Antonin Scalia
+Assistant Attorney General
+Office of Legal Counsel
+
+Douglas R. Marvin
+Special Assistant to the
+Attorney General
+
+FROM: Michael E. Shaheen, Jr.
+Deputy Special Counsel for
+Intelligence Coordination
+
+SUBJECT: Senate Select Committee Request: Appendix D, Item 17 -
+Joseph Kraft
+
+The SSC's request of Item 17, Appendix D, seeks "All memo-
+randa and other materials reflecting written or oral authorization
+and re-authorization by the Attorney General and/or the Director of
+the FBI for electronic surveillance of Joseph Kraft".
+
+By letter of May 2, 1975, to Kraft's attorney, Lloyd Cutler,
+the Attorney General gave, inter alia, the following assurances:
+"Pending further Departmental action relating to the policies
+which will govern records of the type involved in Mr. Kraft's
+case, all documents, recordings, or other records of any type in
+the Department's custody or control which constitute, summarize,
+or describe the contents of the overhearings obtained as the result
+of any electronic surveillance directed against Mr. Kraft and
+members of his family will be placed under seal". (emphasis mine)
+
+REC-102 62-1/6 395-285
+
+It is my view (shared by Mr. O'Connor) and articulated, as
+well, by Cutler in telephone conversations with me on June 12, and
+June 16, 1975 (the second call came after Cutler had conferred with
+Kraft) that the material sought by the Senate Select Committee is
+distinct from that protected by seal and that, therefore, the
+requested material be found, reviewed and forwarded to-the SSC...
+(Cutler advised that the Ervin Committee was given same).
+
+May I have your views on this matter?
+
+3 JUL 1 1975
+
+NW 88608 DocId:32989609 Page 92
+
+THE INFORMATION CONTAINED HEREIN IS UNCLASSIFIED. DATE 10-27 86 BY SCRN#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED. DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-27 86 BY SCR#17126 Senstudy -75
+
+THE ALL INFORMATION CONTAINED HEREIN

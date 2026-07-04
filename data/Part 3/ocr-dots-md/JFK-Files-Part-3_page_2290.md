@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_2290.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams Memo
+
+Re: SENSTUDY
+
+2. The draft bill and the other proposals provided by Senator Ribicoff be reviewed by Legal Counsel Division for the information of the Director by the close of business January 16, 1976.
+
+(2)

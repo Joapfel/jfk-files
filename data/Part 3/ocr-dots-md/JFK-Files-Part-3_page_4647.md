@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_4647.png
+
+Convert to MarkdownTP 92-1
+
+AT TAMPA, FLORIDA
+RE: 259-2393
+
+This number is presumably a GARCIA call on July 26,
+1962, to Miami, Florida, from this number It is also noted
+that this number in Tampa was called again on September 24,
+1962, as set forth above.

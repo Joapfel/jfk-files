@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_5611.png
+
+Convert to Markdown630b N. Lakewood
+Chicago, Ill. 60626
+
+April 17, 1967
+
+District Director
+Internal Revenue Service
+Chicago, Ill. 60602
+
+Dear Sir:
+
+Enclosed is our 1967 income tax return. Salary for which there is no W-2 forms comes from several short or part time jobs which did not withhold.
+
+Just as last year we cannot, of course, voluntarily pay our tax so long as the war in Vietnam continues.
+Should the government run short of funds in the meantime we suggest repeal of the oil depletion allowance or any other of the tax breaks for the wealthy.
+
+ENCLASURS
+
+NW 88614 DocId:32989673 Page 108

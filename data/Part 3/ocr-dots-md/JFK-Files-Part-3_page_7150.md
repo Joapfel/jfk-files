@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_7150.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+
+RE: SENSTUDY 75
+62-116395
+
+Attached is a copy of the paper Colby provided to the White House responsive to this request. It does encompass recommendations of member agencies of the Group including the FBI.
+
+At a subsequent meeting Mr. Colby had with unidentified persons at the White House, the above list was discussed. Colby recommended the Intelligence Community had three options to deny a congressional committee sensitive information. They were:
+(A) to refuse providing sensitive information to a congressional committee and face the possibility of a contempt citation,
+(B) have the President refuse to authorize the release of such information, presumably through the exercise of Executive Privilege, or (C) the President could call the majority and minority leaders of the congressional committee to the White House, furnish to them the answer to the question with the added caveat that they were the only persons being informed of the answers and, therefore, would be personally accountable for any leak of information.
+Representatives of the White House were not very enthusiastic to the options put forth by Mr. Colby and indicated that they would be calling a meeting at the White House of senior officials of the Department of Defense, Justice Department, CIA and the FBI to review what position the Intelligence Community should take in responding to a request for extremely sensitive and highly classified information.
+
+(3) Members of the Group were allowed to read an internal memorandum from Mr. David W. Belzin, Executive Director of the Commission on CIA Activities Within the U. S. (The Rockefeller Commission), to Mr. Philip Buchen, Counsel to the President. This memorandum reports the results of a conversation between Mr. Belzin and Mr. William Miller, Chief of Staff for the SSC. The memorandum revealed that Miller believes that within two weeks his staff will be in three-quarters gear. He plans to have a total staff of about 40, 10 to 12 of whom will be lawyers. The initial work of the staff will concentrate on a review of documents, interviews, and what Miller called "depositions." Miller does not plan to have any hearings of the SSC for several months and believes the September deadline could not be met, rather that the investigation would take at least the rest of the year.
+
+CONTINUED - OVER
+
+NWI 88608 DocId:32989530 Page 115

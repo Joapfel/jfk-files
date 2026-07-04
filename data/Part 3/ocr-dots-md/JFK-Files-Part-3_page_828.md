@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_828.png
+
+Convert to MarkdownNR007 MP CODE
+
+6:47 PM NITEL JUNE 20, 1975 L B
+
+TO DIRECTOR
+WFO
+OMAHA (62-3439)
+FROM MINNEAPOLIS (66-3610)
+
+<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files &amp; Com.</td></tr><tr><td>Gen/Inv./</td></tr><tr><td>Ident.</td></tr><tr><td>Inspection</td></tr><tr><td>Intell.</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. &amp; Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>
+
+ATTENTION: JOHN C. GORDON, ROOM 5078, GENERAL CRIMES UNIT,
+GENERAL INVESTIGATIVE DIVISION.
+
+SENATOR CHURCH'S COMMITTEE INVESTIGATING CIA ACTIVITIES, SENSTAT
+75, INFORMATION CONCERNING.
+
+RE OMAHA NITEL TO DIRECTOR JUNE 19, 1975.
+
+INFORMATION HAS BEEN DEVELOPED THAT THE PURPOSE OF THE
+CHURCH COMMITTEE INVESTIGATOR'S TRAVEL TO GORDON, NEBRASKA, IS
+FOR THE PURPOSE OF CONTACTING AND INTERVIEWING A FORMER MEMBER OF
+THE MILITARY INTELLIGENCE. THIS INDIVIDUAL WHO OWNS A BUSINESS
+IN GORDON, NEBRASKA, IS BELIEVED TO BE JERRY BORMAN, WHO OPERATFS
+A CHEVROLET DEALERSHIP IN GORDON AND PRESUMABLY WAS A MEMBER
+OF THE MILITARY INTELLIGENCE SERVING OVERSEAS.
+EX104 REC-56
+END
+
+MOLD
+
+MDR-16 10/5/00
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/5/00 BY SRAM/S

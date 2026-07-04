@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_7284.png
+
+Convert to Markdownhis designees or upon my separation from the Select Committee,
+any classified material which has come into my possession as a
+result of my employment or assignment with the Select Committee.
+
+I hereby agree that I will never divulge, publish or reveal
+by word, writing, conduct, including interviews for radio and
+television broadcasts or otherwise any classified information which
+has come to my knowledge as a result of my employment or assign-
+ment with the Select Committee without prior written consent of the
+Chairman or the President of the Senate or their duly authorized
+representative.
+
+I hereby agree that any information learned during my
+employment or assignment with the Select Committee which is
+related to intelligence and prepared for publications by me will be
+submitted to the Chairman or the President of the Senate or their
+duly authorized representative prior to discussing with or showing.
+to any publisher, editor or literary agent for the purpose of deter-
+mining whether said material contains any classified information as
+defined in Executive Order 11652. I agree that the Chairman of the
+Select Committee, President of the Senate or their duly authorized

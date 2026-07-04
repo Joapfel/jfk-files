@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_3645.png
+
+Convert to MarkdownMemorandum J. Cochran, Jr. to Mr. Jenkins
+
+RE: REQUEST BY SENATE JUDICIARY SUBCOMMITTEE ON ADMINISTRATIVE PRACTICE AND PROCEDURE FOR INFORMATION CONCERNING USE OF DRUGS FOR INTERROGATION
+
+might be used to great advantage on espionage suspects. Navy offered to inform us about this. A notation by Mr. DeLoach indicated that Mr. Parsons would meet with Navy on 8/11/50.
+
+Memorandum dated 11/6/75 from W. O. Cregar to Mr. W. R. Wannall is attached which sets forth details of our review of Navy files on this project, including a Bureau press release which was to have been made in the event that the Navy mentioned the FBI in their press release on this matter.
+
+A review of Bureau files for information relating to drugs designed to modify behavior indicates an interest dating back to 1922. However, this interest has not extended to the point where the Bureau has conducted research on behavior modifying drugs nor has it funded such research. We have maintained liaison with other agencies, primarily the U. S. Army, and industrial organizations in order to be aware of developments in this area.
+
+On 7/30/74, Laboratory and Training Division representatives met with representatives of the Biomedical and Chemical Laboratories of Edgewood Arsenal, Maryland, to discuss the potential use of incapacitating chemical agents in hostage situations. Although we have developed an awareness of various agents which may be used in these situations, we have not conducted any research with these agents. Memoranda on this matter are located in Bufile 80-807.
+
+A single instance occurred where "truth serum" was administered in a Bureau case. Truth serum was administered to Thurman Scruggs Wilkins at his own request while being interviewed in the Los Angeles Office, April 26, 1947. Wilkins was allegedly involved with one Ignacy Samuel Witezak, the subject of a Soviet espionage case (100-343077). The actual drug used was sodium amytal and the actual administration was done by a physician. Prior Bureau authority was not obtained by the Los Angeles Office in connection with this incident. SAC Hood submitted a letter of explanation to the Bureau on July 2, 1947. This incident resulted in the following information being set forth in SAC Letter 84-47 dated July 3, 1947:

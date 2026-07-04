@@ -1,0 +1,110 @@
+# JFK-Files-Part-3_page_9381.png
+
+Convert to MarkdownTHE BLACK PANTHER, SATURDAY, OCTOBER 17, 1970 PAGE 9
+
+NATIONAL GUARD ARMORY BOMBED,
+HEROES SUCCESSFULLY ESCAPE
+
+Newburyport, Mass. is a small re-
+sidential New England town basically
+composed of people from the White
+working class. Until last Saturday,
+September 19, Newburyport's only
+claim to fame was that it is one of
+the many small towns surrounding
+Boston which are strongholds for
+groups like the Minutemen and other
+right-wing fascist reactionaries. Last
+Saturday, however, at 6:00 a.m. in
+the morning a National Guard Armory
+was bombed, hundreds of rounds of
+ammunition ripped off, military
+personnel records taken and to top it
+off, they left the scene in a one ton
+army pick-up truck. They (the bomb-
+ers) attempted to open the vault holding
+
+the weapons of the pig army, M-1
+rifles, .45 caliber pistols and .30
+caliber sniper carbines, but were not
+able to do so. The act was accom-
+plished in one fast motion, and the
+heroes escaped capture and one week
+later, "law enforcement officials" are
+still scratching their heads in wonder-
+ment.
+
+And although the weapons, them-
+selves, tools of our liberation were not
+liberated from the oppressor, the
+success of this action cannot be denied.
+
+As has been the case in liberation
+movements all over the world, the guns
+and arms made by and for the op-
+pressor eventually ends up in the hands
+of the oppressed. More important, the
+unknown people who accomplished this
+act, obtained hundreds of rounds of
+desperately needed ammunition. Again,
+past experiences has shown that while
+the guns themselves can be obtained
+in ample supply, the ammunition, the
+bullets, that actually inflicts death upon
+our enemy, becomes very scarce. One
+of the necessities of our struggle is
+our ability to liberate, stockpile, and
+then accurately use the ammunition of
+our oppressor upon our oppressor.
+
+As for the military personnel
+records, they can obviously be put to
+good use. Our oppressors must be
+harassed and intimidated day and night.
+They must not sleep, nor rest, these
+are the devils who plot the genocide
+of Black people. The National Guard
+Armory in the small town of New-
+buryport, like other small time towns
+surrounding the Black colony in Bos-
+ton is designed to be used against us
+in the fascist genocidal plot devised
+by the treacherous minds of the Nixon-
+Agnew-Mitchell clique. It is to be
+carried out by those men whose names
+and addresses are now in the hands of
+the people. Unknown members of the
+fascist majority now appear before the
+people's tribunal and will be judged
+according to their actions.
+
+This action is just one of many blows
+which will be dealt out to the op-
+pressor. If this action was intended
+to help and serve the people, we wel-
+come their help to our just liberation
+struggle against the Babylonian
+Empire.
+
+ARM YOURSELF
+
+Michael-Fultz
+Boston Chapter
+Black Panther Party
+
+SISTER MURDERED IN
+COLD BLOOD BY
+RENT-A-PIG
+
+FIVE SERVANTS OF THE PEOPLE RAILROADED
+BY TUCSON GRAND JURY
+
+STORM TROOPERS INVADE COMMUNITY
+
+THREE PIGS BEAT
+FIFTEEN YEAR OLD
+BLACK YOUTH
+
+ENTIRE FAMILY BEATEN AND JAILED
+
+NW 88614 DocId:32989606 Page 148

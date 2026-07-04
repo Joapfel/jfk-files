@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_9923.png
+
+Convert to MarkdownUNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+4. Investigative guidelines with reference to Title 11, Organized Crime Control Act of 1970, Regulation of Explosives, prepared by the Attorney General of the United States, submitted by letter to the FBI on January 11, 1973.
+
+The various other requests contained in the Committee's letter of March 19, 1975, are receiving attention and response will be forthcoming at the earliest possible time.
+
+Enclosures (4)
+
+1 - The Attorney General

@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_4430.png
+
+Convert to MarkdownIN REPLY, PLEASE REFER TO
+FILE No. 65-58190
+
+June 29, 1954
+
+PERSONAL AND CONFIDENTIAL
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+(S) [ ] CONSULATE OF ISRAEL (NEW YORK CITY N.Y.)
+INTERNAL SECURITY - IS (S)
+
+In several communications to you during the past year concerning Israeli intelligence operations in the United States, information has been forwarded regarding an espionage ring operated by the Israeli Government in New York City. This ring was headed by Youval Tal who until March 29, 1954, when he departed from the United States, was an adviser to the Israeli Delegation to the United Nations. Also included in this ring were Yigal Gilaad and Efraim Pillersdorf, employees of the Consulate of Israel, New York City. (S)
+
+The Department of State has informed this Bureau that on April 14, 1954, Assistant Secretary of State Henry A. Byroade conferred with Israeli Ambassador Abba Eban and expressed to him the disquiet of our Government at the activities of Tal, Gilaad, and Pillersdorf. Mr. Byroade noted the fact that Tal had recently left the United States and told the Israeli Ambassador that our Government considered it desirable that Gilaad and Pillersdorf also be withdrawn. (S)
+
+It is anticipated that the departure of these three men from the United States probably will not result in the discontinuance of Israeli intelligence activities in the New York area. Since the activities have centered about the Israeli Consulate there in the past it is possible that they will continue to be conducted from that establishment. Accordingly, it is recommended that you authorize technical coverage at (S)(S).
+
+RECORDED - 25 EX-125 SECRET
+
+13 JUL. 8 1954
+
+UNRECORDED COPY FILED IN
+
+CLASSIFIED BY SP-2 RUM/76
+DECLASSIFY ON: 25X J/6
+
+ALL INFORMATION CONSIDERED
+HEREIN IS UN LASSIFIED
+WAS SHOWN OBEVINENTLY.
+
+NW 88608 DocId:32989555 Page 2

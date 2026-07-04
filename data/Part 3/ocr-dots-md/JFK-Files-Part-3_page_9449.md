@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_9449.png
+
+Convert to MarkdownMr. Don Jones
+
+May 28, 1975
+Page 2
+
+7. I have read with interest of the Special Weapons and Tactics course given under Bureau auspices at the Santa Rita Rehabilitation Facility in Alameda County. I would appreciate your forwarding to me a description of the activities undertaken in this course, and the relationship of UCPD and BPD to the course. In addition, I would appreciate being provided any relevant information on SWAT that you have available.
+
+Thank you for your cooperation in this matter. I will look forward to your reply.
+
+Sincerely,
+Ronald V. Dellums
+Member of Congress
+
+RVD/djc
+
+NW 88614 DocId:32989606 Page 216

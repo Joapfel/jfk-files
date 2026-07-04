@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_5338.png
+
+Convert to MarkdownMemorandum to Mr. Adams
+Re: Inventory of Documents Received
+from Former Associate DAG Wilderotter, etc.
+
+The Deputy requested a copy of the inventory marked by Mr. Wilderotter and I furnished a Xerox copy of the original. He said that he would discuss this matter with K. William O'Connor and that he would contact me to discuss further the disposition of the materials presently being held by the Bureau.
+
+RECOMMENDATION:
+
+For information.

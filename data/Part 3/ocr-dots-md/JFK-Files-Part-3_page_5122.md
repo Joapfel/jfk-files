@@ -1,0 +1,190 @@
+# JFK-Files-Part-3_page_5122.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+FROM : W. O. Cregar
+
+SUBJECT: SENSTUDY 75
+
+3r - Mr. J. A. Mintz
+
+(1 - Mr. J. B. Hotis)
+
+(1 - Mr. P. V. Daly)
+
+DATE: 8/18/75
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. S. F. Phillips
+
+MDR-16
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/75 BY SP2ARM/SHL
+
+At the request of the Senate Select Committee (SSC), we recently furnished to it superseded material dated back to 1960 and relating to various sections of the Manual of Instructions, including Section 87. In furnishing this material, we did not furnish the various cover sheets relating to the many revisions since 1960.
+
+We have received a telephonic request from Miss Martha Talley of the SSC Staff for additional information which would help her to better understand the various revisions to Section 87. She also specifically desired a copy of page 1 of that Section as it existed on 1/1/60.
+
+We have secured the various cover sheets for the many revisions, as well as a copy of page 1 which bears the revision date of 8/13/56 and which, according to Mrs. Alene T. Smith of the Training Division, was the page 1 in force as of 1/1/60.
+
+In order to comply with the request of Miss Talley, it is not believed necessary to obtain from the SSC a formal, written request; neither is it believed necessary to transmit the requested material by formal correspondence to the SSC through the Attorney General.
+
+EX 104 REC-56 62-116-375-559
+
+ACTION: Attached to Supervisor P. V. Daly's copy of this memorandum is the material which it is requested he furnish to Miss Talley. Attached to this memorandum is a file copy of the page 1 alluded to above. Mrs. Smith has available in the Training Division duplicate copies of the cover sheets referred to above.
+
+AUG 25 1975
+
+ENCLOSURE
+
+Enclosure
+
+62-116395
+
+SFP:1hblh* (7)
+
+84 AUG 26 1975
+
+NW 88608 DocId:32989633 Page 36
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+WRN-16
+UNCLASSIFIED
+DATE 10/17/66 BY SP2ARM/SHL
+NEW
+WAS
+REDAILED
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PUBLIC
+SECRET
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UNCLASSIFIED
+NEW
+REDAILED
+WAS
+REDCOPY
+CONFIDENTIAL
+SECRET
+TOPICAL
+PRIVATE
+CONFIDENTIAL
+UN

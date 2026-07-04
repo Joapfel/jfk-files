@@ -1,0 +1,68 @@
+# JFK-Files-Part-3_page_1808.png
+
+Convert to Markdown# Telephone Surveillances of SCLC
+
+| Dates of Surveillance | Location |
+|---|---|
+| October 23, 1963 - January 24, 1964 | SCLC Office, New York City |
+| July 13-31, 1964 | Room 1202, 14 E. 40th Street, New York City |
+
+November 8, 1963 - June 21, 1966 | SCLC Office, Atlanta, Georgia
+
+In an effort to respond to that portion of the NSCA's request concerning existence or nonexistence of electronic surveillance of individuals directly or indirectly associated with the SCLC, personnel of the Congressional Inquiry Unit, FBI Headquarters, familiar with certain aspects of the King, SCLC and related files, compiled a list of individuals with the SCLC for the approximate period January, 1962, through 1968. Although this list is not all inclusive due to the large number of persons affiliated with the SCLC, an effort was made to include those individuals in key positions and who were most active in the organization. Most of the individuals listed were identified with the SCLC Headquarters in Atlanta, Georgia. Based on review of appropriate records at FBI Headquarters, none of the below-listed individuals has been subject of electronic surveillance by the FBI:
+
+Ralph Abernathy
+Jessie Jackson
+Bernard S. Lee
+Hosea Williams
+James Orange
+James Devel
+Andrew Young
+Walter Fauntroy
+Coretta Scott King
+John Rutherford
+William Rutherford
+Bernard Lafayette
+Dorothy Cotton
+J. T. Johnson
+Joseph E. Lowery
+Fred L. Shuttlesworth
+Cordy T. Vivian
+Adela Kanter
+
+Thomas G. Kilgore
+Dora McDonald
+James Harrison
+Wyatt Walker
+Logan Kearse
+Stoney Cooks
+Fred C. Bennett
+Booker T. Bonner
+Henry Brownlee
+Golden Frinks
+Joseph Lester Hankerson
+Samuel B. Wells
+Benjamin Johnson
+Herbert V. Coulton
+Thomas Offenburger
+New Soong-Li
+James Lawson
+Lillian Hunter
+
+Gloria Fraction
+David Wallace
+Jess Gill
+Carole Hoover
+Albert Turner
+Frank Ditto
+C. K. Steel
+Samuel Williams
+Curtis Harris
+Cirillo A. McSween
+Major Jones
+Lawrence D. Reddick
+I. M. Augustine
+Septima Clark
+T. Y. Rogers, Jr.
+
+SECRET

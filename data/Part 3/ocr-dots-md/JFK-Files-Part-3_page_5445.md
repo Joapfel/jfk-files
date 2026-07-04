@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_5445.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO Mr. W. R. Wannall
+
+FROM W. O. Cregar
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. B. Adams
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+DATE: 7/30/75
+
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+Attached is a "Superceding Request For FBI Materials," dated 7/28/75, which was received from Mr. John Elliff, SSC Staff Representative, on the afternoon of 7/28/75.
+
+This request is in the form of six categories (Roman numerals I through VI), the first four requested by Friday, 8/1/75, and the latter two by Friday, 8/8/75.
+
+Set forth is a brief description of the separate categories with comments under each, where applicable:
+
+I. Materials to which the Committee Staff has been given prior access and now requests delivery.
+
+II. Outstanding previously requested materials for delivery to the Committee.
+
+Item E. pertaining to mail surveillances is being deferred pending receipt of guidelines from the Department of Justice since there is a problem with possible future litigation in the areas of mail opening and intercept. The Department, by letter from the Director 7/29/75, was advised of our position in this matter.
+
+Item H. refers to materials pertaining to COINTELPRO. During discussions on 7/28/75, the Committee Staff decided to defer the deadline for this material for 8/8/75.
+
+Enclosure
+
+62-116395
+
+EWL: lhb , (6)
+
+34 AUG 6 1975
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY SLAUM CONTINUED - OVER
+
+MOR-16
+
+NW 88608 DocId:32989626 Page 176

@@ -1,0 +1,8 @@
+# JFK-Files-Part-3_page_1666.png
+
+Convert to MarkdownAssistant Attorney General
+Criminal Division
+
+Attention: Mr. Robert L. Keuch
+
+**NOTE:** Dates and places of electronic surveillance of King were compiled through file reviews conducted in connection with previous law suits filed against the FBI by the Southern Christian Leadership Conference (SCLC) and a former SCLC officer and aide to King, Bernard S. Lee. Although names of specific SCLC affiliates were not provided by the HSCA in its request, all names are readily available to the Committee, which has received access to our files concerning King and SCLC.

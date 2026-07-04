@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_566.png
+
+Convert to Markdown**SECRET**
+
+Counterintelligence Programs
+
+The Cincinnati Office advised on March 19, 1969, that Reverend Augustus Taylor, Steubenville, Ohio, had visited Huey Newton, Black Panther Party (BPP) leader, and as a result wrote an article favorable to Newton published in the "National Catholic Reporter." Since Taylor had a regular television show on WSTV-TV, Steubenville, Ohio, to air his black nationalist views, FBI Headquarters approved on March 28, 1969, that an anonymous letter be mailed to WSTV-TV criticizing Taylor and revealing that his article had been reprinted in the BPP newspaper.
+
+On May 15, 1969, Cincinnati advised that Father Mitchell Wilamoski, Principal of Catholic Central High School, Steubenville, Ohio, disclosed on April 9, 1969, that at a meeting at the Bishop's Office it was decided Reverend Taylor could no longer continue his Sunday television program. The Bishop had given Reverend Taylor a job requiring constant travel and was considering a transfer for Taylor.
+
+JTA:lfj
+(9)
+
+100-448006-785, 876, 923
+
+**SECRET**
+
+90

@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_32.png
+
+Convert to MarkdownThe importance to a President of a steady flow of first-class intelligence is self-evident. Whatever scope and depth of in- formation he can obtain from the public media, he still needs the intelli- gence that comes from the utilization of sensitive technogical means and clandestine operations. He is entitled to objective appraisals based on all sources, public and governmental. In planning American positions and actions, ~~Should have~~ seeks the possible and probable development of ~~the matrix~~ the most soundly based estimates of how foreign situations are likely to develop.
+
+CIA and its predecessor, the CIG, have met these Presidential intelligence needs. What they have furnished the Presidents has been determined by the interplay between the intelligence organization and the White House.
+
+learn what each The Agency has been prepared and eager to receive from the President wanted and it has tried in terms of subject matter, timing, format, /style, For the most part, it has tried to meet these requirements. ~~has tried to give each President just what he wanted, and not bother him with~~ anything else. At the same time, CIA having the intelligence in its possession before the President has been obligated to see that he receives the reports. ~~The President's intelligence~~

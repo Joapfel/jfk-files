@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_6617.png
+
+Convert to Markdownin connection therewith. This brochure reflected that ABERNATHY at that time served as President of the Montgomery (Alabama) Improvement Association.
+
+### F. RESIDENCE
+
+Records of the Credit Bureau of Greater Atlanta, supra, reflected ABERNATHY resided at 76 Cerro Street, SW, Atlanta from 1961 until 1967. His current residence is 690 Laverne Drive, NW, Atlanta.
+
+In having his current residence constructed, ABERNATHY as of early 1967 had incurred substantial expense.
+
+### G. MARITAL STATUS
+
+The January 21, 1967-January 27, 1967, issue of the "Chicago Defender", supra, reflected ABERNATHY was married to JUANITA ABERNATHY, Nee JONES.
+
+### H. MILITARY SERVICE
+
+Mrs. THELMA TURNER, Georgia State Driver's License Bureau, Atlanta, advised IC MARI. W. DAVIS on May 17, 1968, that her records reflect ABERNATHY was inducted into the United States Army at Fort Benning, Georgia, on August 12, 1944. He received an honorable discharge October 27, 1945 at Foster General Hospital, Jackson, Mississippi. His Army Serial Number was 349 94 505. On March 22, 1938, ABERNATHY was issued a new State of Georgia Veteran's Driver's License number V-018305.
+
+### I. CREDIT
+
+Records of the Credit Bureau of Greater Atlanta, supra, reflected ABERNATHY has a satisfactory credit rating. These records contain a report dated February 20, 1962, from the Montgomery, Alabama Credit Bureau indicating that as of February 2, 1961, ABERNATHY
+
+-NW 88614 DocId:32989673 Page 348-

@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_6494.png
+
+Convert to Markdowninsure that all developments of this type occurring within his territory are promptly reported to his office and upon receipt thereof furnished to the Bureau by whatever form of communication is warranted under the circumstances.
+
+b. Since the Bureau does not have investigative jurisdiction in general racial matters, no open investigation is to be conducted concerning general racial matters as such.
+
+c. In instances in which civil rights may be involved or in which a racial incident may involve an act which constitutes a criminal violation over which the Bureau has jurisdiction, be guided by instructions concerning the specific violation. Likewise, if the incident involves a bombing or attempted bombing having religious or racial aspects or involving a religious or educational institution, be guided by the specific instructions relating to bombings and attempted bombings.
+
+d. In instances in which some subversive influence is determined to be at work, be guided by instructions pertaining to investigation of the specific subversive influence involved.
+
+e. CAUTION. By their very nature racial matters are extremely delicate and great care must be exercised in the approach to such matters.
+
+### 3. Procedures
+
+a. Information dealing with general racial matters, such as proposed or actual activities of individuals, officials, committees, legislatures, organizations, etc., in the racial field, must be furnished to the Bureau expeditiously by whatever means of communication is warranted by the specific nature of the information and the circumstances involved.
+
+b. Pertinent information bearing on general racial matters which would not otherwise be available to interested Government agencies, such as that obtained through sources and informants, and which is of such a nature that it would normally be furnished to the Bureau by letter or airtel must be transmitted to the Bureau in form suitable for dissemination. In general, pertinent information bearing on general racial matters appearing in newspapers or publications need not be furnished to the Bureau in form suitable for dissemination. In such instances merely submit copies of pertinent newspaper articles and publications to the Bureau. Of course, if such data is clearly of a nature as to require contacts with appropriate sources, such as information of unusual local or national importance, submit same expeditiously in form suitable for dissemination. Concisely summarize the pertinent article and include therein the results of contacts with appropriate sources.
+
+c. Maintain contact with pertinent informants and sources and keep Bureau and local intelligence agencies advised of any additional pertinent developments. Unless circumstances clearly indicate necessity for more expeditious handling, furnish such additional data to the Bureau promptly in form suitable for dissemination.
+
+d. In many instances situations involving members of the Negro and Caucasian races result in violations of criminal statutes over which the Bureau has investigative jurisdiction. While such matters are to be handled in accordance with instructions pertaining to the substantive violation involved, the Bureau has the additional responsibility of disseminating pertinent information concerning any racial aspects of such situations to appropriate Government officials and agencies that do not ordinarily receive reports in criminal matters. Therefore, the submission of a report concerning the criminal violation involved alone is insufficient. In general, pertinent data concerning the racial situation involved must be submitted immediately to Bureau in form suitable for dissemination in order that it may reach interested agencies as soon as possible.

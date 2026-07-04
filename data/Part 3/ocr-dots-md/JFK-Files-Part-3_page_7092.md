@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_7092.png
+
+Convert to MarkdownCONFIDENTIAL
+
+delegated to the head of an office or organization as set forth in inter-departmental agreements. All exceptions granted will be a common sense determination based on all available information, and shall be recorded by the agency making the exception. In those cases in which the individual has lived outside of the United States for a substantial period of his life, a thorough assessment of the adequacy of the investigation in terms of fulfillment of the minimum investigative requirements, and a judicious review of the information therein must be made before an exception is considered.
+
+## Investigative Requirements
+
+6. The investigation conducted on an individual under consideration for access to sensitive compartmented information shall be thorough and shall be designed to develop information as to whether the individual clearly meets the above Personnel Security Approval Criteria.
+
+7. The investigation shall be accomplished through personal interviews by trained investigative personnel and shall establish affirmatively to the adjudicating agency complete continuity of identity to include birth, residences, education, employments and military service. Where the circumstances of a case indicate, the investigation shall exceed the basic requirements set out below to ensure that those responsible for adjudicating access eligibility have in their possession all the relevant facts available.
+
+8. During the course of the investigation the individual shall furnish a signed personal history statement and a certificate of non-affiliation with those organizations designated by the Attorney General pursuant to Executive Order 10450. Fingerprints of a quality acceptable to the Federal Bureau of Investigation shall be obtained. Photographs of the individual shall also be obtained where additional corroboration of identity is required.
+
+9. The individual under investigation shall be given a personal interview by trained security or counterintelligence personnel whenever feasible.
+
+10. Minimum standards for the investigation are as follows:
+
+a. Verification of date and place of birth and citizenship of the individual.
+
+b. Check of the subversive and criminal files of the Federal Bureau of Investigation, including submission of fingerprint charts, and other national agencies as appropriate. An additional check of Immigration and Naturalization Service records shall be made if members of the individual's immediate family are other than United States citizens by birth.
+
+c. Local checks in all areas of the United States where the individual has resided for at least six (6) months during the past fifteen years
+
+3
+CONFIDENTIAL
+
+<table><tr><td>GROUP I<br/>Excluded from automatic<br/>downgrading and<br/>declassification</td></tr></table>
+
+COPY № 301
+
+NW 88608 DocId:32989530 Page 57

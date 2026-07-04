@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_7780.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+Space required should be sufficient to accommodate three desks and three chairs plus two or three file cabinets; and including the necessary desks, chairs and cabinets. Space should approximate that currently used to accommodate Section Chief's offices in the INTD.
+
+Because the SSC Staff has already commenced some of its review of Bureau material and has already engaged in some briefings, it is essential that urgent attention be given this request. INTD has already surveyed its space and would be unable to accommodate the need involved.
+
+ACTION:
+
+Upon approval, Administrative Division will immediately take necessary steps to provide for the necessary space and equipment described above.

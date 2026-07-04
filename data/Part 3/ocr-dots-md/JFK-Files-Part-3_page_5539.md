@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_5539.png
+
+Convert to MarkdownUpon his return, he learned the BPP was no longer functioning on a democratic basis but was now being dominated by Bobby Rush, Illinois Minister of Defense. Junior sought to bring the party back to its former state, by calling for reforms and reorganization, which was resisted by Rush and he was subsequently removed from the Central Staff and he resigned from the party in September, 1970.
+
+He is in no way involved with the BPP, or other extremist activities, at this time nor does he have any plans to resume his association with the BPP, as he feels "The BPP and other organizations are being duped by white intellectual revolutionary hobbyists, who are taking advantage of the hopelessness and frustrations of the Black community to exercise their theories on political and social democracy."
+
+Junior claims to have no knowledge of any BPP underground, now or in the past, but admits that preliminary discussion regarding an underground cell of the BPP was had in the early development of the Illinois BPP, but that plan like most others never got off the ground.
+
+The BPP was, and is, a big disappointment to Junior in that they departed from their original concept of neighborhood protection against police brutality, to one of international identification with communism. He maintained his association with the BPP in spite of this change in philosophy because of his respect and confidence in Fred Hampton, who rationalized that in order to further the cause of neighborhood control they'd need the financing and good will of governments opposed to people oppression, no matter where these people were.
+
+Junior feels that the BPP is dead in Illinois and blames its demise to its identification with communism and coalitions with white revolutionary groups.
+
+He has three things to show for his membership in the BPP: (1) probation on the Federal Firearms charge, (2) three years probation on State narcotics case (which he claims was a frame by police, but to which he entered a plea, "as part of a deal", at the urgency of his BPP attorney); and (3) an outstanding

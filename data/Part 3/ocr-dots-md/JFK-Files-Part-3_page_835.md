@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_835.png
+
+Convert to MarkdownMr. William D. Ruckelshaus
+The Deputy Attorney General - Designate
+
+However, we recognize that these two documents may assist the Department in analyzing our proposal concerning the issuance of an Executive order and therefore I am enclosing a copy of the two documents requested by Mr. Goldklang. We request that these documents not be disseminated outside the Department of Justice; that the documents not be duplicated or photographed; and that, if possible, they be returned to the FBI after they have served their purpose.
+
+If you, or members of your staff, feel that additional information would clarify our proposal, it is suggested that consideration be given to arranging conferences between members of your staff and the FBI officials in the Intelligence Division and our Legal Counsel's Office who have conducted considerable research into the matter.
+
+Enclosures - 2
+
+NOTE:
+
+See memo T. J. Smith to Mr. E. S. Miller dated 8/23/73, captioned as above, prepared by TJS:bjr.

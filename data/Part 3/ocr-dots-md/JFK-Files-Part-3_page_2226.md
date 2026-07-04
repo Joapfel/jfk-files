@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_2226.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SA J. BROOKE BLAKE BY SSC
+
+then he politely asked me to leave the room. The informal way the deposition was taken surprised but didn't bother me. It could catch someone off guard if strong cross examination developed.
+
+"Kelley informed me of my constitutional rights, the right to have a senator present and the right to request a senator and/or attorney at any time throughout the deposition. He had hinted while walking to the room of an interest in how Klan informants are developed and Bureau policy. He did not have a form on my rights or any form for me to sign. After his advisement, I advised him I had been briefed by the FBI only on procedure and the limitation of the waiver of oath as pertained to information only on Tom Rowe. He was informed I would not answer policy questions because I had been out eleven years and of the availability of the Bureau executives to answer those questions. He explained a notary would be waiting to notarize my deposition when we returned to Room G-308. I stated that I would only allow the oath she gave me to apply to the fact I was the person who gave the deposition. He agreed. The preliminary conversation and advisement of my rights was not recorded to my knowledge. Apparently he predicated the inquiry as the result of Rowe's testimony and to corroborate same. He made it clear Rowe was most complimentary to the Bureau and all Agents he knew."
+
+"Set forth below are briefs of his questions and my answers: (He was using a statement or memo of about six pages which recorded testimony from Gary Thomas Rowe, Jr.)"

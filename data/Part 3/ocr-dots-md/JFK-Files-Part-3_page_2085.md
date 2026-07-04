@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_2085.png
+
+Convert to MarkdownSECRET
+
+House Select Committee on Assassinations
+
+### Dates of Surveillance
+* April 23-24, 1964
+* July 7-9, 1964
+* September 28, 1964 - October 2, 1964
+* January 8-11, 1965
+* January 20-31, 1965
+* March 29-31, 1965
+* May 12-13, 1965
+* October 14-15, 1965
+* October 28-30, 1965
+* November 29-30, 1965
+* January 22, 1966
+
+### Location
+* Senator Hotel, Sacramento, California
+* Hyatt House Hotel, Los Angeles, California
+* Manager Hotel, Savannah, Georgia
+* Park Sheraton Hotel, New York City
+* Americana Hotel, New York City
+* Park Sheraton Hotel, New York City
+* Sheraton Atlantic Hotel, New York City
+* Astor Hotel, New York City
+* New York Hilton Hotel, New York City
+* Americana Hotel, New York City
+* Americana Hotel, New York City
+
+### Telephone Surveillances of King
+#### Dates of Surveillance
+* August 22-27, 1964
+* November 8, 1963 - April 30, 1965
+* April 24-26, 1964
+* July 7-9, 1964
+* August 14, 1964 - September 6, 1964
+
+#### Location
+* Claridge Hotel, Atlantic City, New Jersey
+* Martin Luther King's residence
+* Hyatt House Hotel, Los Angeles, California
+* Hyatt House Hotel, Los Angeles, California
+* Apartment 2B, 125 H. 72nd Street, New York City
+
+SECRET
+
+- 2 -

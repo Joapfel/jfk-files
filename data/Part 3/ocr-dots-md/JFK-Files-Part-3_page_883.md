@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_883.png
+
+Convert to Markdownwhere there exist compelling reasons for nondisclosure and the factual materials involved are neither voluminous nor require complex judgments. United States v. Lemonakis, F.2d No. 71-1745, D.C. Ct. of App., June 29, 1973, pp. 35-40.
+
+In the Lemonakis case, the Court, like the majority of the Court in the case at bar, pretermitted the constitutional issues involved in the executive authorization of foreign intelligence gathering by means of electronic surveillance and hence, based on its own in camera examination of the logs in question, that material contained therein had no relevance to the issues or evidence in appellant's trial and that, because of the national interest involved in the revelation of logs of foreign intelligence operations, the logs need not be revealed. Id.
+
+If the teachings of both Alderman and Lemonakis be applied to the case at bar in its present posture, it is clear that the logs in question need not be disclosed for two reasons. First, as the Court has assumed, there has been no Fourth Amendment violation. Second, as the Court can readily ascertain from its own examination of Government Exhibits A-1, A-2 and A-3, the logs are not voluminous and the task of evaluating them is neither burdensome nor complex.
+
+1/ In this connection, it should be noted that the Supreme Court has not yet directly addressed the question of whether disclosure of logs of foreign intelligence surveillances is required. In United States v. United States District Court, 407 U.S. 297, 310 n. 2 (1972), in which the Court expressly reserved decision to the constitutional issues involved in foreign intelligence
+
+(cont'd)
+
+NW#: 88608 DocId: 32989541

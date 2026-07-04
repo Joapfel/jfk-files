@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_4177.png
+
+Convert to Markdown# Memorandum
+
+: Mr. W. C. Sullivan,
+
+DATE: March 29, 1968
+
+OM : G. C. Moore
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED.
+
+DATE 10/30/68 BY J. ROBERT SARGENT
+
+**OBJECT:** COUNTERINTELLIGENCE PROGRAM
+BLACK NATIONALIST - HATE GROUPS
+RACIAL INTELLIGENCE
+(MARTIN LUTHER KING)
+
+## PURPOSE:
+
+To publicize hypocrisy on the part of Martin Luther King.
+
+## BACKGROUND:
+
+Martin Luther King has urged Negroes in Memphis, Tennessee, to boycott white merchants in order to force compliance with Negro demands in the sanitation workers' strike in Memphis.
+
+When violence broke out during the march King led in Memphis on 3-28-68, King disappeared. There is a first class Negro hotel in Memphis, the Hotel Lorraine, but King chose to hide out at the white owned and operated Holiday Inn Motel.
+
+## RECOMMENDATION:
+
+The above facts have been included in the attached blind memorandum and it is recommended it be furnished a cooperative news media source by the Crime Records Division for an item showing King is a hypocrite. This will be done on a highly confidential basis.
+
+Enclosure
+
+TJD:ted
+
+(7)
+1 - Mr. C. D. DeLoach
+1 - Mr. T. E. Bishop
+1 - Mr. W. C. Sullivan
+1 - Mr. G. C. Moore
+1 - Mr. D. Ryan (Mass Media)
+1 - Mr. T. J. Deakin
+
+REC-20
+
+22 MAR 11 1968
+
+NSCLASURKE
+
+This document is prepared in response to your request and is not for disseminated without the express approval of the FBI.
+It is limited to official purposes by authorized persons by this office.

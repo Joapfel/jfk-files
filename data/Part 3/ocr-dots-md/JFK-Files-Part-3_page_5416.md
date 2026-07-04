@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_5416.png
+
+Convert to Markdownthe file and send it on up. We have already submitted a great deal of it and intend within the next 10 days to complete the entire matter.
+
+**QUESTION:** Is in any of that material now in the Justice Department awaiting approval of the Attorney General?
+
+**MR. KELLEY:** Yes, some of it is in the hands of the Department ready to be transmitted. That's our first step--after we make our survey, to ship it over to them, they review it and then send it on through.
+
+**QUESTION:** Well, has it been there for a while?
+
+**MR. KELLEY:** I can't tell you exactly what length of time but I can say that within about 10 days, we'll have ours completed and you can gage thereafter what type of delay is experienced through the Department.
+
+**QUESTION:** Mr. Kelley, Senator Church says that you won't allow him and his staff to interview FBI Agents and that's one of the complaints he makes about the lack of cooperation. Is that true that you will not allow the Senate staff to interview FBI Agents?
+
+**MR. KELLEY:** We have gone through a procedure whereby ex-FBI Agents may have available to them our people in order to consult with them as to any matter which might be thought to violative of some of the confidentiality provisions; and

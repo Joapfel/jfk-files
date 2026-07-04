@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_6939.png
+
+Convert to Markdown<table><tr><td colspan="3">5-88 (2-20-58)</td></tr><tr><td>1. Name</td><td colspan="2">NATIONAL MOBILIZATION COMMITTEE TO END THE WAR IN VIETNAM</td></tr><tr><td>IN VIETNAM (Last)</td><td>(First)</td><td>(Middle)</td></tr><tr><td colspan="3">2. Address<br/>Any office in the U.S. - National Headquarters are in New York, New York.</td></tr><tr><td>(Apt. No.)</td><td>(No. and Name of Street)</td><td></td></tr><tr><td>(City)</td><td>(State)</td><td>(Country)</td></tr><tr><td colspan="3">3. Treatment<br/>Photograph outside and contents.</td></tr><tr><td colspan="2"><input type="checkbox" /> One-Time Check</td><td><input type="checkbox" /> Watch List, until concluded</td></tr><tr><td colspan="2">Duration _______</td><td></td></tr><tr><td>HUNTER Request No.</td><td colspan="2">193</td></tr></table>
+
+This document is prepared in response to your request and is not for dissemi-nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.

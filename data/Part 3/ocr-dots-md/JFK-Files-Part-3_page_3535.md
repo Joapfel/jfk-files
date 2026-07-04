@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_3535.png
+
+Convert to MarkdownDRAFT
+MEMORANDUM
+
+December 4, 1975.
+
+FBI LEGISLATION - PROPOSED OPTIONS
+
+In preparation for the testimony of FBI Director Kelley and Attorney General Levi on December 9 and 10, the Domestic Intelligence Task Force is pulling together various proposals for legislation dealing with FBI intelligence. This paper sets forth some of the basic options.
+
+A: Current Statutes and Executive Orders
+
+The basic statute governing the FBI is 18 U.S.C. 533, which reads as follows:
+
+The Attorney General may appoint officials:
+(1) to detect and prosecute crimes against
+the United States, (2) to assist in the
+protection of the person of the President,
+and (3) to conduct such other investigations
+regarding official matters under the control
+of the Department of Justice and the Depart-
+ment of State as may be directed by the
+Attorney General.
+
+Clauses (2) and (3) are a possible statutory basis for intelligence investigations going beyond the investigation of specific federal crimes. Under (2), the FBI may "assist" the Secret Service in the protection of the President by providing
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/31/00 BY SP2ALMKP
+
+62-116395-1215X
+
+ENCLOSURE
+
+NW-886-14 DocId:32989602 Page 12

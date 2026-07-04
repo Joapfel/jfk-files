@@ -1,0 +1,83 @@
+# JFK-Files-Part-3_page_2105.png
+
+Convert to Markdown<table>
+   <thead>
+    <tr>
+     <td>Case Agent</td>
+     <td>Period assigned</td>
+     <td>Division, Section, or Squad of Assignment</td>
+     <td>Nature of Agent's Assign-ment prior to involvement in Cointelpro</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>ROBERT R. NICHOLS</td>
+     <td>1/1/64 - 8/20/64</td>
+     <td>Atlanta - #3</td>
+     <td>Security/extremist investigations</td>
+    </tr>
+    <tr>
+     <td>ALDEN F. MILLER</td>
+     <td>2/4/64 - 8/21/64</td>
+     <td>Atlanta - #3</td>
+     <td>Security investigations</td>
+    </tr>
+    <tr>
+     <td>ALAN G. SENTINELLA</td>
+     <td>7/22/65 - 4/15/69</td>
+     <td>Atlanta - #3</td>
+     <td>Security/extremist investigations</td>
+    </tr>
+   </tbody>
+  </table>
+
+3. Identity of case agent(s) involved in the security investigation of MARTIN LUTHER KING, JR., and the SCLC
+
+<table>
+   <thead>
+    <tr>
+     <td>Case Agent</td>
+     <td>Period assigned</td>
+     <td>Division, Section, or Squad of Assignment</td>
+     <td>Nature of Agent's Assign-ment prior to involvement in KING and SCLC investigations</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td colspan="4">MARTIN LUTHER KING, JR.</td>
+    </tr>
+    <tr>
+     <td colspan="4">SM-C</td>
+    </tr>
+    <tr>
+     <td>ROBERT R. NICHOLS</td>
+     <td>3/7/61 - 5/12/61</td>
+     <td>Atlanta - #3</td>
+     <td>Security/extremist investigations</td>
+    </tr>
+    <tr>
+     <td>ROBERT R. NICHOLS</td>
+     <td>2/28/62 - 10/16/62</td>
+     <td>Atlanta - #3</td>
+     <td>"</td>
+    </tr>
+    <tr>
+     <td>ROBERT R. NICHOLS</td>
+     <td>1/9/63 - 7/31/63</td>
+     <td>Atlanta - #3</td>
+     <td>"</td>
+    </tr>
+    <tr>
+     <td>ROBERT R. NICHOLS</td>
+     <td>11/6/63 - 5/21/65</td>
+     <td>Atlanta - #3</td>
+     <td>"</td>
+    </tr>
+    <tr>
+     <td>ALAN G. SENTINELLA</td>
+     <td>5/21/65 - 6/5/68</td>
+     <td>Atlanta - #3</td>
+     <td>"</td>
+    </tr>
+   </tbody>
+  </table>

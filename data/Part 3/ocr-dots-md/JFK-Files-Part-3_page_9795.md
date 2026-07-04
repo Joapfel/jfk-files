@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_9795.png
+
+Convert to MarkdownINTELLIGENCE COLLECTION
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/18/61 BY SP-2 Alm/185
+
+The FBI's intelligence function is well established and documented. Yet, our work in gathering intelligence has been the subject of continuing criticism from segments of the press with charges being made that the FBI is conducting without authority security investigations of persons who are not in violation of the law. It has also been charged that our intelligence collection is uncontrolled, capricious and dwells on personal idiosyncrasies without there being any security interest involved. Fragments of information, distorted and twisted to convey the false impression that the FBI is wantonly disregarding the privacy of citizens, have been published.
+
+The FBI does not conduct security investigations of individuals without clear-cut authority and tight controls. Critics have taken fragments of intelligence which have come to their attention and built them up into what is represented as the end product of security investigations with political overtones. In these instances, the items upon which such importance was placed have been fragmentary intelligence from substantive

@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_2945.png
+
+Convert to MarkdownFBI
+
+Date:
+
+Transmit the following in _______________________________
+
+(Type in plaintext or code)
+
+Via _________________________
+
+(Priority)
+
+<table>
+   <tr>
+    <td>
+     PAGE TWO
+    </td>
+   </tr>
+   <tr>
+    <td>
+     COMMITTEE'S APPARENT OBJECTIVES. HE SAID HE WILL RECEIVE ANY COMMITTEE MEMBER WHO CONTACTS HIM, BUT HE WILL NOT TAKE ANY INITIATIVE.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     THE FOLLOWING IS QUIGLEY'S ADDRESS: JOHN LESTER QUIGLEY, THE FOUNTAIN, APT. 107, 4120 TIVOLI COURT, LAKE WORTH, FLORIDA, PHONE: (305) 967-7610.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     ANY CONTACT BY PHONE SHOULD BE MADE BETWEEN 8:30 AND 9:00 ANY MORNING IN THE NEXT SEVERAL DAYS.
+    </td>
+   </tr>
+   <tr>
+    <td>
+     END
+    </td>
+   </tr>
+  </table>
+
+Approved: __________ Sent __________ M Per __________
+
+Special Agent in Charge
+
+U.S.Government Printing Office: 1972 - 455-574
+
+NW 88608 DocId:32989820 Page 92

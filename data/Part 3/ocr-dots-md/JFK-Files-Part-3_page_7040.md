@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_7040.png
+
+Convert to MarkdownAssistant Attorney General for Administration
+
+March 7, 1975
+
+Nicholas P. Callahan
+Associate Director, FBI
+
+INQUIRY BY GENERAL ACCOUNTING OFFICE (GAO) AND
+THE OFFICE OF MANAGEMENT AND BUDGET (OMB)
+CONCERNING INTELLIGENCE ACTIVITIES
+
+On the afternoon of March 7, 1975, Mr. James F. Hoobler, Director, Management Programs and Budget Staff, furnished a copy of a memorandum from GAO to the Deputy Director of the OMB which requested information concerning appropriations, outlays and legislative authority for such appropriations and expenditures.
+
+With regard to the FBI's Intelligence Division, a response was requested concerning the amounts of budget authority for fiscal years 1974 and 1975 and actual outlays for fiscal year 1974; an indication of where in the Federal budget these amounts or any portion of them appear; any language in the budget which explains or indicates the purpose or purposes for which such amounts will be spent; and the legislative authority for each of the listed appropriations and expenditures.
+
+The FBI does not receive budget authority or account for budget outlays specifically for internal security or intelligence activities or for any organizational component handling such matters. The FBI's budget request for funds to handle internal security or intelligence matters is set forth under the budget activity "Security and Criminal Investigations." Based on manpower utilization surveys which have been conducted, it is estimated that approximately 23 percent of the FBI's resources go to support activities under the supervision of the Intelligence Division. It is estimated, therefore, that in the fiscal year 1975 the FBI's budget authority contained funds amounting to some $91 million and that it had outlays of about $83 million for the fiscal year 1975 is estimated to be $162 million. (Ref. Mkt'l Res'g Off'c' Rep.)
+
+ Assoc. Dir. 
+ Dep. AD Adv 
+ Dep. AD Inv 
+
+Asst. Dir. 
+ Aerln. 
+ Comp. Syst. 
+ Ext. Affairs 
+ Files & Com. 
+ Gen. Inv. 
+ Ident. 
+ Inspection 
+ Intell. 
+
+LCG:jmb
+
+The purpose for which these funds are expended are set forth in justification material accompanying budget estimates submitted to the Congress.
+
+See designated and note on page two....
+
+ENCLOSURE
+
+Spec. Inv.
+Vainlg
+Date: May 12, 1975
+MAY 1 1075 ALL ROOM V CHLT'D UNIT ☐
+
+NOT RECORDED
+
+MAY-1-1975
+
+Original Filed In 66-1925-94
+
+**DATE:** 11-7-75
+**INSIGNIA IS UNCLASSIFIED**
+**NUMBER ON PAGE:** 2
+**REDACTED**
+**SPECIFIC INDEX TO BE KEPT SECRET**
+
+**SSEEEREE**<br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br

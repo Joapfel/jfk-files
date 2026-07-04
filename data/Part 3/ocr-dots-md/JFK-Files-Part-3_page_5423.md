@@ -1,0 +1,3 @@
+# JFK-Files-Part-3_page_5423.png
+
+Convert to MarkdownMR. KELLEY: You cannot infer anything because I have not told you of any number. I can only say that they were stopped in 1966. As to the number, I cannot actually tell you how many nor can I say that it's quite a number or very few.

@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_10145.png
+
+Convert to MarkdownSECRET
+
+INTELLIGENCE DIVISION
+
+W. Raymond Wannall
+Assistant Director
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED EXCEPT
+WHERE SHOWN OTHERWISE.
+
+Thomas W. Leavitt
+Inspector - Deputy Assistant Director
+Counterintelligence Branch
+
+Hunter E. Helgeson
+Inspector - Deputy Assistant Director
+Internal Security Branch
+
+4:00 p.m. to midnight Supervisor
+F. Anthony Tansey
+
+Midnight to 8:00 a.m. Supervisor
+Harry E. Morris, Jr.
+
+COUNTERINTELLIGENCE BRANCH
+
+Section CI-1
+
+William A. Branigan
+
+Eugene C. Peterson
+
+Special Cases Unit
+James P. Lee
+Five Special Agents
+
+New York Unit
+Alfred E. Smith
+Five Special Agents
+
+Washington Unit Chief
+Wilfred R. Schlarman
+Four Special Agents
+
+One Special Agent on special assignment at National War College.
+
+Section CI-2
+
+William O. Cregar
+
+James W. Redfield
+
+This document is prepared in response
+to your request and is not for dissemination
+outside your Committee. Its use is limited
+to official proceedings by your Committee and
+the content may not be disclosed to unauthorized
+personnel without the express approval of the FBI.

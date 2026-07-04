@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_2613.png
+
+Convert to Markdownsmnll
+
+2457
+
+1 the appearances of impropriety.
+
+2 I am pleased to report to this Committee as I have to the
+
+3 Attorney General that during my nearly two and one half years as
+
+4 Director under two Presidents and three Attorneys General, no
+
+5 one has approached me or made overtures, directly or otherwise,
+
+6 to use the FBI for partisan political or other improper
+
+7 purposes.
+
+8 I can assure you that I would not for a moment consider
+
+9 honoring any such request.
+
+10 I can assure you, too, in my administration of the FBI
+
+11 I routinely bring to the attention of the Attorney General and
+
+12 the Deputy Attorney General major policy questions, including
+
+13 those which arise in my continuing review of our operations and
+
+14 practices. These are discussed openly and candidly in order
+
+15 that the Attorney General can exercise his responsibilities
+
+16 over the FBI.
+
+17 I am convinced that the basic structure of the FBI today
+
+18 is sound. But it would be a mistake to think that integrity
+
+19 can be assured only through institutional means..
+
+20 Integrity is a human quality. It depends upon the
+
+21 character of the person who occupies the office of the
+
+22 Director and every member of the FBI under him.
+
+23 I am proud of the 19,000 men and women with whom it is
+
+24 my honor to serve today. Their dedication, their professionalism,
+
+25 their standards, and the self-discipline which they personally
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 88608 DocId:32989820 Page 18

@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_2551.png
+
+Convert to MarkdownINSPECTION DIVISION ADDENDUM
+
+F.B. GRIFFITH:wmj
+
+6/26/75
+
+In response to Legal Counsel's request there are attached three excised sets of inventory sheets totaling 164 pages each pertaining to the official and confidential files of former Director Hoover. The excisions were by Special Agent Fred B. Griffith, Inspection Division, with review and concurrence by Special Agent Joseph L. Tierney, FOIA Section, Files and Communications Division. Only names of individuals were deleted from the captions. Items number 36 ("Black Bag" Jobs) and 142 (Specialized Mail Coverage) were specifically brought to the attention of Mr. Mintz in view of the issues involved. He noted no excisions could be made.
+
+NWW 88608 DocId:32989618 Page 231

@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_2170.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+JAN 8 1976
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation.
+
+FROM: Michael E. Shaheen, Jr.
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Senate Select Committee Request
+
+Attached is a letter dated January 7, 1976, and received on January 8, 1976, from the Senate Select Committee requesting Bureau review of certain mail opening documents delivered, I assume, to the Bureau on January 7, "for clearance and/or declassification". The request seeks Bureau clearance "on or before January 9, 1976". I would appreciate your earliest attention to this request.
+
+cc: Paul Daly
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11/3/76 BY SP 211B/EHL
+
+ENCLOSURE
+
+NW 88608-DocId:32989570 Page 5

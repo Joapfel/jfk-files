@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_2748.png
+
+Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1944
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Senator Huddleston. Now, the Committee has received documents which indicated that in one situation the FBI assisted an informant who had been established in a white hate group to establish a rival white hate group, and that the Bureau paid his expenses in setting up this rival organization.
+
+Now, does this not put the Bureau in a position of being responsible for what actions the rival white hate group might have undertaken?
+
+Mr. Adams. I'd like to see if one of the other gentlemen knows that specific case, because I don't think we set up a specific group.
+
+This is Joe Deegan.
+
+Mr. Deegan. Senator, it's my understanding that the informant we're talking about decided to break off from the group he was with. He was with the Macon Klan group of the United Klans of America, and he decided to break off. This was in compliance with our regulations. His breaking off, we did not pay him to set up the organization. He did it on his own. We paid him for the information he furnished us concerning the operation. We did not sponsor the organization.
+
+Senator Huddleston. Concerning the new organization that he set up, he continued to advise you of the activities of that organization?
+
+Mr. Deegan. He continued to advise us of that organization.

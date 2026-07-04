@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_939.png
+
+Convert to MarkdownFor a number of years we have followed the practice of furnishing significant intelligence information, both in the domestic and foreign areas, on a timely basis directly to the White House concurrent with the dissemination of the same data to the Attorney General and other interested agencies. The Bureau disseminates by teletype to the White House and other interested agencies summary data concerning civil unrest and acts of violence as they occur in the U.S. We also provide the White House by letter or teletype, as circumstances indicate, top-level intelligence data developed through our sources when it appears the President or senior members of his staff would have an interest. Much of this originates with our Legats and through our coverage of foreign establishments in the U.S. Simultaneous dissemination is made to the Attorney General who is advised of our dissemination to the White House.
+
+It is noted that frequently the value of information being disseminated depends entirely on the timeliness of our dissemination. Therefore, direct and immediate dissemination to the White House is the only effective way to handle these matters.
+
+FBI Legal Counsel on 7/20/72, set forth the opinion that the FBI had no legal basis to disseminate information to the White House concerning a current criminal case. It is the obligation of the FBI to keep the Attorney General fully informed and leave further dissemination to him. Acting FBI Director Gray instructed this policy be followed and we have been complying with this direction.
+
+### c. Exceptions
+
+#### 1. Congressional Committees
+
+The Attorney General on 6/14/54, ruled that the FBI shall make name checks and investigations of individuals being considered for staff positions of the following Congressional Committees when such requests are made by the chairmen:
+
+a. Senate and House Appropriations Committee
+
+b. Senate and House Judiciary Committee
+
+c. Joint Committee on Atomic Energy (Cooperation extended to this Committee pursuant to the Atomic Energy Act of 1946)
+
+d. Senate Armed Services Committee

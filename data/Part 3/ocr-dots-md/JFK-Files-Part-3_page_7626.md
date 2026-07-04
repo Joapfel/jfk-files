@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_7626.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : MR. FELT
+
+FROM : L. M. WALTERS
+
+DATE: December 14, 1972
+
+SUBJECT: SUPERVISORY REORGANIZATION OF FUNCTIONS AND PERSONNEL; CRIME RESEARCH DIVISION
+
+per prior approval of Mr. Gray
+Effective immediately all functions and personnel formerly assigned to the Crime Research Division are reassigned as indicated below. Recipient Inspectors, Section and Unit Chiefs promptly report to respective offices of assignment.
+
+Agent personnel are set forth together with assigned functions. Clerical personnel utilized in handling these assignments are to transfer with listed Agents in accordance with the functions formerly handled by them.
+
+OFFICE OF ACTING DIRECTOR
+
+To assume supervision of contacts with the Congress, press and other news media formerly handled in the Front Office of the Crime Research Division as well as the Administrative Review Unit which has been redesignated as the Congressional Services Unit and will be handled by
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-26-72 BY SLACNIEL
+
+Functions and Related Responsibilities:
+
+Congressional liaison: Congressional correspondence; Congressional telephone calls; progress of legislation of interest to or affecting the FBI; review of bills and resolutions introduced into both Houses of Congress and all public and private laws enacted; and review and analysis of the Congressional Record,
+
+Press, radio, television and motion picture contacts; field matters concern press, radio and television; correspondence relating to an editorial or to a com- mentator; liaison with the White House and Department press offices; review of editorials and articles; review of magazines, newspaper clippings and Washington News Service ticker items; news releases and press inquiries; SAC calls regarding press releases; press contact program; coordinate press matters of possible future use from FBHQ Divisions.
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Com-
+Tommy C.
+J. E. Limited to official proceedings by
+nel without the express approval of the FBI.
+
+NW 88608 DocId:32989609 Page 29
+
+FOR DISCLOSURE TO SPECIFIC AUTHORIZED PERSONS.
+
+FOR DISCLOSURE TO SPECIFIC NON-NEGOTIABLE AUTHORITIES.
+
+FOR DISCLOSURE TO SPECIFIC OTHERS.

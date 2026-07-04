@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_5211.png
+
+Convert to Markdown- 13 -
+
+# PART B: GAMBLING MATTERS
+
+1. In the San Francisco Division there appears to be two gambling operators that lead all others in terms of handle, volume, coverage, number of accounts, and number of employees. These operators are CARL EZEKIAL ECKSTEIN and CHARLES FRANCIS LEAHY, JR., both of whom are based in San Francisco. While they both handle substantial individual accounts, ECKSTEIN and LEAHY are primarily associated with and rely on lessor local bookmakers for "action."
+
+CARL EZEKIAL ECKSTEIN, age 40 years, has been engaged in gambling activities most of his adult life. ECKSTEIN was formerly associated with TONY RUIZ and other San Francisco bookmakers, but in the last year ECKSTEIN has set up his own independent operation. ECKSTEIN has been arrested on several occasions on charges of bookmaking but has never been convicted of this violation. In 1965 ECKSTEIN was convicted for failure to pay Federal wagering tax which conviction was subsequently overturned. Details regarding his current operation are set forth below in Paragraph 3.
+
+CHARLES FRANCIS LEAHY, JR., a native San Franciscan, in his middle 40's, has been engaged in bookmaking activities throughout his adult life. He was convicted in United States District Court, San Francisco, in 1961 for arrest on 9/28/60 for violation of Title 26, Section 7203, U.S. Code, failure to report and pay wagering tax, and was sentenced to six months in jail and five years probation. Subsequent to his incarceration, LEAHY moved to Medford, Oregon. He returned to the San Francisco area in the Spring of 1969 and resumed his bookmaking activities. During his absence from San Francisco, his ex-brother-in-law, KENNETH JOSEPH ZAHND, reportedly handled his, LEAHY's, bookmaking operation. LEAHY was recently arrested by the San Francisco Police Department on local bookmaking charges and is currently awaiting trial.

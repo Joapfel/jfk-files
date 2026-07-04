@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_5321.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+ALDEN F. MILLER BY SSC STAFF MEMBERS
+
+SA Miller was asked whether a feasibility study was made prior to the actual installation or a survey conducted. SA Miller replied that he did not recall at this late date whether such a feasibility study was made prior to the installation. SA Miller was asked whether if such a study or survey was made whether it was reviewed by high officials prior to ordering such an installation. SA Miller replied that he did not specifically recall whether such a review as that was made on a feasibility or survey, as if this were done, it would have been done in Washington, and SA Miller would not have been in a position to know of such a review.
+
+SA Miller was asked in making the telephone tap did the Atlanta Office have sufficient equipment here and if not, where did we get such equipment to make this installation. SA Miller replied that the Atlanta Office did not have equipment available for such an installation and at this date it is unknown where the equipment came from, however, a request for such equipment would have been made of FBI Headquarters in Washington, D. C. SA Miller was asked whether he dealt with the phone company in conjunction with this installation and he replied that he undoubtedly had requested line information which relates to pair and cable data for phones to be covered in this technical installation. Inquiry was made of SA Miller as to the identity of the person at the Southern Bell Telephone Company who provided such information and it was stated that at this late date it was impossible to say definitely who furnished this data as the phone company during this era was in the process of setting up a security office who would normally provide such information under the proper circumstances and that if such an office were then in existence Mr. Theodore King would have provided the line information desired.
+
+SA Miller was asked whether leased lines were obtained from the phone company in conjunction with this installation, to which he replied he did not specifically recall whether leased lines were utilized or whether other telephone service was ordered with subsequent adaptation enabling the use of this service for the technical installation.

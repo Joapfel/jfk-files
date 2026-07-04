@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_8005.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+Cabinet 6 Drawer 2
+Folder X File (check one)
+First Communication Dated Undated material
+Last Communication Dated
+Approximate Pages 24
+Derogatory Information: Yes No X (check one)
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Miscellaneous
+Ticklers Only Originals Only X Both
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Contains large envelope with writing "The Metlakahtla Case - Illegality of The Seizures of the Property of William Duncan and of The Metlakahtla Christian Mission." Personal and Confidential. Inside are two copies of a printed pamphlet captioned "The Metlakahtla Case - Illegality of The Seizures of the Property of William Duncan and of The Metlakahtla Christian Mission."
+
+Cannot determine basis for having this folder or significance of contents.

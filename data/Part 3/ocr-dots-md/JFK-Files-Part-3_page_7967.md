@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_7967.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Date: __________
+
+Aides Initial: __________
+
+Cabinet 6 Drawer 2
+
+Folder X File (check one) First Communication Dated 12/10/65 Last Communication Dated 6/10/69 Approximate Pages 3 Derogatory Information: Yes X No (check one) Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Prominent Persons Ticklers Only ________ Originals Only ________ Both X
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Deals with possible telephone surveillance of [ ] Bureau reluctant to install.
+AG not concerned about repercussions, Surveillance approved 10/10/63.

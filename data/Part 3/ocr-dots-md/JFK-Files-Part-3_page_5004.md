@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_5004.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO: THE FILE (100-44963)
+
+FROM: SAC M. W. JOHNSON
+
+SUBJECT: DEMCON
+
+DATE: 8/15/68
+
+At 9:15 AM today, the Director telephonically contacted me to advise that he had just been in touch with the Vice President of the United States and had just gotten off the phone with the Vice President's Executive Assistant, Mr. WILLIAM CONNELL. Mr. HOOVER stated that the Vice President has requested that we furnish the same type of service in connection with the Democratic National Convention in Chicago as was furnished to the President during the Atlantic City Convention four years ago. This, of course, refers to intelligence information which will be of value to the Vice President and specifically relates to the possibility of demonstrations, violence and related matters. Mr. HOOVER stated that he had advised the Vice President and Mr. CONNELL that this service would be performed and that Mr. CONNELL should contact me for the necessary arrangements.
+
+Mr. HOOVER advised me that Mr. CONNELL is presently in New York and it is not known when he will arrive in Chicago. I advised Mr. HOOVER that his instructions would be followed, that we had set up appropriate arrangements so that we would be in a position to furnish valuable intelligence and that upon Mr. CONNELL'S arrival in Chicago, I would immediately contact him and perfect the necessary arrangements.
+
+My secretary has been instructed to notify all switchboard operators, complaint agents and supervisors that any call from Mr. CONNELL should be immediately referred to me when I am in the office or if I am not in the office to determine where I can contact Mr. CONNELL immediately.
+
+MWJ/stf
+(1)
+
+This document is preserved in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.

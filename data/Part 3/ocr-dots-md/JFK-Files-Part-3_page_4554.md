@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_4554.png
+
+Convert to MarkdownFBI
+
+Date: 10/12/66
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via AIRTEL AIR MAIL
+(Priority)
+
+TO: DIRECTOR, FBI (92-2781)
+FROM: SAC, TAMPA (92-1) (P)
+SANTO TRAFFICANTE, JR., aka
+AR
+(00:TP)
+
+One copy being furnished Las Vegas as information has previously been obtained by Tampa indicating TRAFFICANTE's alleged presence in Las Vegas although contact with logical Las Vegas informants and source of information has not established TRAFFICANTE's presence.
+
+Enclosed for Butte is one photo of SANTO TRAFFICANTE, JR., taken 9/30/66.
+
+For info Butte and WFO, SANTO TRAFFICANTE, JR., along with 12 other reported LCN figures, were located by the New York City PD on the evening of 9/22/66 at La Stella Restaurant, Queens, New York. TRAFFICANTE has been reported to be the "boss" of LCN in Florida.
+
+On 9/23/66, TP 41-C advised that during the Labor Day weekend TRAFFICANTE had been at his St. Petersburg Beach residence and made the statement that he had recently been in London, England and that gambling was profitable. At this time, TRAFFICANTE indicated that he
+
+3 - Bureau
+2 - Butte (Enc. 1)
+1 - Las Vegas (92-681) (Info) REC-58 92-2781-1/34
+2 - WFO
+2 - Tampa
+JAA:bb
+(10)
+
+Approved:
+C.C. WICK
+70 OCT 1966
+
+Sent M Per
+
+Special Agent in Charge
+
+NW 78318
+DocId:34489573 Page 2

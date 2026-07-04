@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_4490.png
+
+Convert to MarkdownNO 87-14835
+
+On February 14, 1969, it was determined that ANTHONY ROSSI's telephone number former at 119 South Claiborne, was transferred to 8917 Apple Avenue.
+
+Attempts to contact the resident at 8917 Apple
+Avenue were negative on February 27, 1969, and March 5, 1969.
+
+The following investigation was conducted by
+SA DELBERT W. HAHN and SA ANDRE N. FORTIER, on March 25, 1969,
+at New Orleans, Louisiana:
+
+ANN OLE, 8917 Apple Avenue, advised she is the step-daughter of NINO NOLTE. Her mother had ANTHONY ROSSI's telephone transferred to the OLE residence in order to avoid the $25.00 deposit. She knows ROSSI only as the business partner in the Bus Restaurant with her step-father. She has not seen ROSSI and has no knowledge of his present whereabouts. She has nothing to do with her step-father and he has nothing to do with her; they do not get along.
+
+An attempt was made to contact NINO NOLTE at 8908 Nelson Avenue. ESSIE MAE GUILLOUT, 2909 Willow Street, telephone number TW.1-7914, was at the residence and advised she is the maid. She does not know ROSSI and his photograph was not familiar to her.
+
+On April 11, 1969, SALVADORE ESCOTO advised he had met ROSSI by frequenting the Bun Restaurant, which ROSSI apparently owned.
+
+On one occasion, ROSSI asked him to help him get seaman's papers as he desired to go to sea. ESCOTO stated he then asked his friend, BOB LUNA, to get a letter of intent for ROSSI. The letter was obtained and ESCOTO gave it to ROSSI at the Bun. ROSSI never told him that he had obtained a job and never mentioned that he would be taking a trip. ESCOTO stated he knew nothing about ROSSI's personal life and only knew him by contacting him at the Bun Restaurant when he went there to eat or drink coffee.
+
+she agreed
+
+-4-

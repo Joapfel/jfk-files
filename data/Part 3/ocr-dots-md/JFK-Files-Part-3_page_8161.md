@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_8161.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+
+Select Committee staff on how the Director of Central Intelligence manages the intelligence community. Later in the month, Colby is hopeful that those senators making up the Committee will also visit CIA Headquarters for a similar briefing.
+
+KEY ISSUES
+
+My memorandum of 4/7/75 reporting the results of the last EXCOM meeting identified eleven key issues which the White House was particularly interested in (copy of the key issues attached). As reported in the 4/7/75 memorandum the FBI has been designated to prepare the paper entitled "Intelligence Files and Privacy." Mr. J. Dennis Miller, Legal Counsel Division, will prepare this paper. He will work with Mr. John Brock, Office of the Secretary of Defense, as well as Mr. Bob McBrien of Treasury. The White House is very interested in the preparation of these key issue papers and has asked that the person responsible for preparing each paper have ready a comprehensive outline as to how the paper will be constructed on the occasion of the next EXCOM meeting scheduled for Friday 4/18/75.
+
+THIRD AGENCY RULE
+
+Attached herewith is a paper entitled "Third Agency Rule" prepared by CIA's General Counsel. It is designed to acquaint the intelligence community with a background of the third agency rule and to insure that all members of the community adhere to the third agency rule when responding to requests from the Select Committees of the Congress. It is to be noted Mr. Wilderotter expressed the hope that all agencies in the intelligence community will respond to a third agency request within a 48 hour deadline. Both the military and CIA felt such a short deadline was impossible but all indicated they would try to provide responses within 48 hours when clearance to pass information to the Select Committees of Congress under the third agency rule is requested.
+
+CONTINUED - OVER

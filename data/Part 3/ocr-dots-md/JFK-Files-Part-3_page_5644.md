@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_5644.png
+
+Convert to MarkdownThe Attorney General
+
+January 23, 1963
+
+Director, FBI
+
+HUNTER PITTS O'DELL
+INTERNAL SECURITY - C
+INTERNAL SECURITY ACT OF 1950
+
+1 - Mr. Belmont
+1 - Mr. Mohr
+1 - Mr. Evans
+1 - Mr. DeLoach
+1 - Mr. Sullivan
+1 - Mr. Baumgardner
+1 - Mr. Bland
+1 - Mr. Reddy
+
+On December 6, 1962, you were furnished information indicating that despite the Reverend Martin Luther King's statement of October 31, 1962, that Hunter Pitts O'Dell had resigned his position with the Southern Christian Leadership Conference (SCLC), O'Dell had continued to represent himself as being affiliated with the New York Office of the SCLC and, during late November and early December, 1962, was actively engaged in the work of this organization. Reverend King's public statement of October 31, 1962, was occasioned by an editorial in the October 25, 1962, edition of the "Augusta Chronicle," Augusta, Georgia, which identified O'Dell as a concealed member of the National Committee, Communist Party, USA, who was employed by the SCLC under the alias Jack H. O'Dell.
+
+I thought you would be interested in the fact that on three occasions during early January, 1963, O'Dell registered at an apartment in Atlanta, Georgia, as J. H. O'Dell. On each occasion, O'Dell represented himself as being with the New York Office of the SCLC. When checking out on January 7, 1963, O'Dell requested that the bill be charged to the SCLC. An inquiry by the manager resulted in telephonic confirmation from the Atlanta Office of the SCLC that that organization would pay O'Dell's bill. Also, on January 10, 1963, O'Dell, Reverend Martin Luther King and eight other officials of the SCLC traveled together via Delta Airlines from Atlanta to Savannah, Georgia.
+
+100-358916
+
+SEE NOTE ON YELLOW PAGE TWO
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+EBR:erc
+
+(13)
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+NW 88614 Doc#032989673 Page 14

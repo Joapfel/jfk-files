@@ -1,0 +1,46 @@
+# JFK-Files-Part-3_page_7645.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. Felt
+
+FROM : T. J. Jenkins
+
+SUBJECT: SUPERVISORY REORGANIZATION OF
+FUNCTIONS AND PERSONNEL
+CRIME RESEARCH DIVISION
+
+DATE: December 21, 1972
+
+Reference is made to memorandum L. M. Walters to Mr. Felt,
+dated December 14, 1972, in captioned matter.
+
+Bureau Library at FBI Headquarters
+
+A survey has been made of the library, its books, facility and personnel. At the present time, the library is housed in six rooms in the 4200 corridor at FBI Headquarters and has a staff of the following:
+
+- Inspector Bernard M. Suttler, GS-16
+- Librarian Iona G. Swann, GS-9
+- Assistant Librarian Eleanor L. Denich, GS-6
+- Secretary Connie Hutchison, GS-4 (position is GS-5)
+
+3 Librarian Technicians
+- Alica Brand, GS-4 (on extended leave without pay - due to illness)
+- Patricia Lauber, GS-3 (GS-4 position)
+- Ester Villanueva, GS-4
+
+From a survey of the books, all books can be removed from the library to the library at Quantico with exception to certain reference books and out-of-town telephone directories which are necessary to be maintained at FBI Headquarters for ready-reference purposes by the Bureau staff at Headquarters. From the survey, it was determined these books can be maintained in two rooms presently occupied by the library, thus freeing four rooms as surplus space.
+
+In the library is a lending library which has about 100 members.
+These members pay $1 every six months for membership dues and have the privilege of using the library. Because of the minor use of this lending library, I am proposing that we phase out this part of the library during the next six months, removing the books at the end of that period to Quantico.
+
+This document is prepared in response to your request and is not for dissem-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.
+
+CONTINUED - OVER
+
+NW 88608 Dcld:32989609 Page 48

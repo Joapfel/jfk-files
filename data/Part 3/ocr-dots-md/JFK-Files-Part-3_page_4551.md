@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_4551.png
+
+Convert to MarkdownSTANDARD FORM NO. 64
+
+Office M
+um • UNITED
+VERNMENT
+
+TO : Director, FBI (92-2781)
+
+FROM : Legat, Havana (92-1)
+
+SUBJECT: SANTO TRAFFICANTE, JR., aka ANTI-RACKETEERING
+
+July 13, 1959
+
+Reference Havana letter dated June 10, 1959.
+
+HAV-33 advised on June 15, 1959, that both the subject and HENRY SAAVEDRA, who represented subject's interests in the Hotel Capri, continue to be detained by Cuban police. Source said it appeared that subject and SAAVEDRA might be deported from Cuba in the near future.
+
+On June 29, 1959, HAV-33 informed that TRAFFICANTE was temporarily released from jail on June 21, 1959, in order to attend his daughter's wedding at the Hotel Havana-Hilton. Source said that TRAFFICANTE appeared at the hotel in the company of representatives of the Cuban Ministry of Justice and the Cuban Secret Police. Source noted that several hundred people attended the wedding celebration at the Hotel Hilton and that most of these individuals were persons employed by the gambling casinos in the Havana area. Source said that Miami Top Hoodlum, JACK LANSKY, and Boston Top Hoodlum, JOHN WILLIAMS, were observed at the wedding celebration.
+
+On July 1, 1959, PCI Arthur Newman (conceal), Credit Manager of the gambling casino at the Hotel Nacional, advised that the majority of the persons in attendance at the wedding of subject's daughter were individuals employed in the gambling casinos in Havana. Source noted there was only one small group of persons comprising TRAFFICANTE's immediate family and close friends in Tampa, who came from the United States to be present at the wedding. Source noted that most of the hoodlums in the United States are well aware that police authorities would be on the look-out for individuals possibly attending the wedding of TRAFFICANTE's daughter in Havana and for that reason many hoodlums who might have attended stayed in the United States.
+
+6 - Bureau (1-cc: Albany and New York 2-cc: Miami 92-88) CX-132
+
+1 - Havana
+
+DJB: MEG
+
+REC. 89 92-2781-1066
+
+JUN 12 3-08 CW 520
+
+RECD
+
+JUL 20 1959
+
+CHG:
+
+NW 78318
+
+DocId:34489550 Page 2

@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_4762.png
+
+Convert to MarkdownMM 92-1870
+
+A review of the 1969 Miami Criss Cross Directory on January 13, 1969, revealed that telephone number 757-1695 is subscribed to by Webb Realty Associates, Biscayne Shopping Plaza, Miami, Florida.

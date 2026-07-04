@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_2213.png
+
+Convert to MarkdownUNITED STATES SENATE SELECT
+COMMITTEE ON INTELLIGENCE (SSC)
+
+NOTE:
+
+SECRET
+
+Samuel Adason Jaffe was a symbol number informant of the New York Office from 1958 to 1961 and was later in contact with the Washington Field Office. During these periods of contact, Jaffe furnished information on his numerous contacts with Soviet and People's Republic of China officials, which were occasioned by his employment with ABC and CBS and with other news media.
+
+Following his identification by Soviet defector "[Sammy]" as having been recruited by the KGB while assigned to Moscow, Jaffe was extensively interviewed and advised that he believed he had been the subject of a recruitment approach but denied being a KGB agent. Our relations thereafter were conducted with caution in view of "[Sammy's]" allegations and he is not currently being contacted.
+
+Jaffe filed a request under the Freedom of Information Act in March, 1975, and subsequently appealed our denial of access to information concerning him as contained in our files. Jaffe has alleged that the FBI, or his association with the FBI, has prevented him from obtaining work in the news media field. This allegation is not supported by any material contained in his file.
+
+The material being furnished the Senate Committee represents all information contained in Jaffe's main file, with certain exceptions which are explained in the memorandum to the Committee. There are also some 200 to 250 references which are not being furnished following an agreement between Special Agent Paul V. Daly of the Legal Counsel Division and Mr. Robert Kelley of the SSC that it would be agreeable if we furnished the SSC the same material which was furnished to the HSC. Classified by 4091, X6DS 2 and 3, Indefinite.
+
+SECRET
+
+- 2 -

@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_5096.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+AUG 21 1975
+
+TO: John Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Michael E. Shaheen, Jr.
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Senate Select Committee Request
+
+Attached is a letter dated August 19, 1975, from the Senate Select Committee requesting the names and addresses of various former and present Agents of the Bureau. Please arrange for compliance with this request as soon as possible.
+
+The Department has determined that SSC staff interviews with these present and former agents would not interfere with any current criminal investigation by the Department and will so advise the Select Committee when the requested information is transmitted.
+
+RECs
+
+EX-101
+
+9 AUG 27 1975
+
+ENCLOSURE
+
+ADHERS TO ALL FEDERAL INFORMATION CONTAINED IN THIS DOCUMENT ARE UNCLASSIFIED UNTIL JAN 14 1986 BY SLA ALM/EHC
+
+Treat as Original
+
+cc Ad Hoc
+62-116395
+5-V
+
+84 AUG 28 1975
+
+NW 88608 Doctd:32989633 Page 10

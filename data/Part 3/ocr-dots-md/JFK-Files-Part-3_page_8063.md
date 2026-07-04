@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_8063.png
+
+Convert to Markdown*shall notify every member of the Committee, any person designated by the Chairman or member. Each subpoena shall contain a copy of Senate Resolution 21, 94th Congress, 1st Session.*
+
+RULE 6. PROCEDURES RELATED TO THE TAKING OF TESTIMONY
+
+6.1 Notice.—Witnesses required to appear before the Committee shall be given reasonable notice and all witnesses shall be furnished a copy of these Rules.
+
+6.2 Oath or Affirmation.—Testimony of witnesses shall be given under oath or affirmation which may be administered by any member of the Committee.
+
+6.3 Interrogation.—Committee interrogation shall be conducted by members of the Committee and such staff personnel as is authorized by the Chairman, the Vice Chairman, or the presiding member.
+
+6.4 Counsel for the Witness.—(a) Any witness may be accompanied by counsel. A witness who is unable to obtain counsel may inform the Committee of such fact, and if consistent with the notice given under Section 6.1 hereof, at least 24 hours prior to his appearance before the Committee, the Committee shall then endeavor to obtain voluntary counsel for the witness, but failure to obtain such counsel will not excuse the witness from appearing and testifying.
+
+(b) Counsel shall conduct themselves in an ethical and professional manner. Failure to do so shall, upon a finding to that effect by a majority of the members present, subject such counsel to disciplinary action which may include warning, censure, removal, or a recommendation of contempt proceedings.
+
+(c) There shall be no direct or cross examination by counsel. However, counsel may submit in writing any questions he wishes propounded to his client or to any other witness and may, at the conclusion of his client's testimony suggest the presentation of other evidence or the calling of other witnesses. The Committee may use such questions and dispose of such suggestions as it may see fit.
+
+6.5 Statements by Witnesses.—A witness may make a statement, which shall be brief and relevant, at the beginning and conclusion of his testimony. Such statements shall not exceed a reasonable period of time as determined by the Chairman, or other presiding member. Any witness desiring to make a prepared or written statement for the record of the proceedings shall file a copy with the Clerk of the Committee, and in so far as practicable and consistent with the notice given, shall do so at least 72 hours in advance of his appearance before the Committee.
+
+6.6 Objections and Rulings.—Any objection raised by a witness or counsel shall be ruled upon by the Chairman or other presiding member, and such ruling shall be the ruling of the Committee unless a majority of the Committee present overrules the ruling. In the case of tie votes the rule of the chair will prevail.
+
+6.7 Lights and Broadcasting.—(a) A witness may request, on grounds of distraction, harassment, or physical discomfort, that during his testimony, television, motion picture, and other cameras and lights shall not be directed at him, such requests to be ruled on in accordance with Rule 2.4.
+
+(b) No witness subpoenaed by the Committee shall be required against his will to be photographed at any hearing or to give evidence or testimony while the broadcasting of that hearing, by radio or television, is being conducted. At the request of any witness who does not wish to be subjected to radio, television, or still photography coverage, all lenses shall be covered and all microphones used for coverage turned off. So far as is practicable, a witness desiring to make such a request shall so inform the Chief Counsel of the Committee at least 24 hours prior to the time that witness is scheduled to testify.
+
+**Inspection and Correction.**—All witnesses testifying before the Committee shall be given a reasonable opportunity to inspect, in the office of the Committee, the transcript of their testimony to determine whether such testimony was correctly transcribed. The witness may be accompanied by counsel. Any corrections the witness desires to make in the transcript shall be submitted in writing to the Committee within five days of the availability of the transcript. Correction shall be limited to grammar and minor editing, and may not be made to change the substance of the testimony. Any questions arising with respect to such corrections shall be decided by the Chairman. Upon request, those parts of testimony given by a witness in Executive session which are subsequently quoted or made part of a record shall be made available to that witness at his expense.
+
+6.9 Persons Affected by Testimony.—A person who believes that testimony or other evidence presented at a public hearing, or any comment made by a Committee member or Committee counsel, may tend to affect adversely his reputation, may request to appear personally before the Committee to testify on his own behalf, or may file a sworn statement of facts relevant to the testimony, evidence, or comment, or may submit to the Chairman proposed questions in writing for the cross-examination of other witnesses. The Committee shall take such action as it deems appropriate.
+
+6.10 Contempt Procedures.—No

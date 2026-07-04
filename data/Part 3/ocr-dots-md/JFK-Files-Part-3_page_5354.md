@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_5354.png
+
+Convert to MarkdownSECRET
+
+Memorandum to Mr. W. R. Wannall
+Re: Senstudy 75
+62-116395
+
+and of San Francisco Division, October, 1970, and Dan Dwyer reviewed Records Section Classifying Unit Guides (9 volumes) on 7/31/75 and 8/1/75.
+
+Jim Dick reviewed materials regarding Photo and Physical Surveillance on 7/25/75.
+
+ACTION:
+---
+
+None. For record purposes.

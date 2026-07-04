@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_9314.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+DATE: 5/7/70
+FROM : A. W. Grayly
+SUBJECT: THOMAS RIHA MISCELLANEOUS - INFORMATION CONCERNING
+
+Rememo A. W. Gray to Mr. W. C. Sullivan, same caption, dated 5/6/70, by which the Director instructed we interview Dr. Joseph Smiley, President, University of Texas, El Paso, Texas.
+
+At 1:40 p.m., 5/7/70, I telephoned ASAC Jay Cochran, Jr., El Paso, and furnished him background of this matter. I instructed him to have Dr. Smiley contacted immediately, to make it clear that the FBI was not investigating the Riha matter and to inquire of Smiley if he has any new information regarding Riha's disappearance or current whereabouts.
+
+ASAC Cochran was told to send the results of this interview of Dr. Smiley immediately by teletype to the Bureau. He was also told that in the event Dr. Smiley is out of town or otherwise unavailable for interview, a teletype should be sent immediately to the Bureau advising as to when the interview would be conducted.
+
+ACTION:
+
+None. For record purposes.

@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_4787.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date 7/5/68
+
+The following observations were noted concerning
+the Albion Lounge, 1650 James Avenue:
+
+12:50 PM FABIO DI CRESTOFARO's automobile observed double parked at entrance of Hotel Albion.
+
+12:53 PM Yellow Chevrolet bearing 1968-69 Florida License 1E-3962 observed parked in alley by Albion Lounge.
+
+12:54 PM NORMAN ROTHMAN's car observed parked on James Avenue heading north, one half block from Albion Lounge.
+
+12:55 PM DI CRESTOFARO's car leaves the area.
+
+1:30 PM ROTHMAN leaves Albion Lounge. DI CRESTOFARO observed to move his automobile into ROTHMAN's parking place. ROTHMAN leaves the area driving his automobile.
+
+2:00 PM ROTHMAN arrives at parking lot in N. Miami Avenue and First Street. ROTHMAN observed to park his car and walk toward the Dade County Courthouse.
+
+2:01 PM Observation discontinued.
+
+On 7/2/68 at Miami Beach, Florida File# Miami 92-1870
+
+by SA ALLAN M. TRANKLEY:cmr Date dictated 7/5/68
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+b
+
+NW 88608 DocId:32300025 Page 37

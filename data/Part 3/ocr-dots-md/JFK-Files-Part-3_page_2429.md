@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_2429.png
+
+Convert to MarkdownJune 24, 1969
+
+BY LIAISON
+
+Mr. Tom Charles Huston
+Staff Assistant to the President
+The White House
+Washington, D. C.
+
+Dear Mr. Huston:
+
+I have received your memorandum of June 20, 1969,
+requesting a report on foreign communist support of
+revolutionary protest movements in the United States.
+
+In compliance with your request, a comprehensive,
+in-depth review of our coverage in this field is presently
+being conducted and you will be furnished the results on
+June 30, 1969. This analysis will cover foreign support of
+revolutionary youth activities in the United States emanating
+from all strata of international communism, whether they be
+pro-Russian, pro-Chinese or pro-Cuban oriented.
+
+When you have had sufficient opportunity to
+evaluate this material, I will be happy to make a member
+of my staff available to you for further discussion at
+your convenience.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11/15/69 BY SPAM/EHL

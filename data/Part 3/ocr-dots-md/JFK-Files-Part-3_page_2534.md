@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_2534.png
+
+Convert to MarkdownHonorable Frank Church, Chairman
+
+NOTE: On July 1, 1975, K. William O'Connor, Special Counsel for Intelligence Coordination advised the Rockefeller Commission files have been furnished to the Senate Select Committee on Intelligence Activities by the White House. We have not reviewed these documents nor have we been advised of their contents, but it is likely that they contain information regarding sensitive Bureau operations. In an effort to avoid any inadvertent compromise of sources or ongoing investigations by the Bureau, this letter requests an opportunity for us to brief Senators Church and Tower on those areas of our activities which might warrant special consideration.

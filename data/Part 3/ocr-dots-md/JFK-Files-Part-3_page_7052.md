@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_7052.png
+
+Convert to MarkdownINTELLIGENCE COMMUNITY STAFF
+
+20 March 1975
+
+This represents a working paper. It attempts to outline a course the DCI can take in dealing with the Senate/House Select Committees' inquiries. The details herein have not yet been discussed or coordinated with representatives of the Ad Hoc Group of USIB.
+
+John M. Clarke
+AD/DCI/IC
+
+ACTION
+
+ENCL:

@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_4383.png
+
+Convert to MarkdownOFFICE OF THE DIRECTOR
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+September 21, 1970
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [WHITE PANTHER PARTY - YOUTH INTERNATIONAL PARTY] INTERNAL SECURITY - ANARCHIST
+
+Reference is made to this Bureau's memorandum dated August 18, 1970, concerning captioned organizations. By your approval of that memorandum on August 19, 1970, you authorized the installation of a telephone surveillance on the headquarters of this group at 1520 Hill Street, Ann Arbor, Michigan for a period of 30 days. This telephone surveillance was installed on September 9, 1970. Its installation was delayed because of unforeseen technical difficulties.
+
+Since this surveillance has been established, it has furnished information concerning the location of planned conferences between the White Panther Party and other New Left organizations. It has also furnished information concerning the whereabouts of a White Panther Party leader and the fact that leaders of this organization were in contact with individuals residing elsewhere in the United States and in London, England.
+
+You were previously advised that White Panther Party leaders and other individuals having access to 1520 Hill Street, Ann Arbor may become involved in violations of the Harboring statute, the Antiriot Law, the Sabotage statute, the Kidnapping statute, the Bank Robbery statute and Federal Bombing and Gun Control statutes. You were also advised that the interceptions on the phone at this address
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.

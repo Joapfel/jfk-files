@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_7108.png
+
+Convert to Markdown2. All agreements on jurisdiction or operational authority between the CIA and other U.S. intelligence and law enforcement agencies.
+
+3. All legal opinions, memoranda or other materials analyzing the 1947 and 1949 Acts, Executive Orders or National Security Intelligence Directives in regard to:
+   (a) the authority of CIA to conduct covert actions
+   (b) the authority of CIA to conduct particular categories of activity, or specific activities, within the U.S., including without limitation:
+      (i) the collection or maintenance of information or files on U.S. citizens;
+      (ii) the conduct of domestic surveillance on U.S. citizens or foreign nationals;
+   (iii) the organization and operation of proprietary organizations
+   (c) the appropriate scope or application of the agreements requested in #2 supra, including documents prepared in connection with their negotiation
+   (d) the applicability to CIA of restrictions placed by Congress on the use of funds included in appropriations from which CIA funds are transferred
+   (e) the generation or use of funds from any source other than appropriations transferred to CIA, and the investment for profit of funds from any source
+
+4. All legal opinions, memoranda or other material analyzing the desireability or effect of legislation proposed or considered to alter the authority of the DCI or the nature, structure or powers of the Agency in areas other than employee compensation and benefits or headquarters construction. This should include analyses of the CIA amendment to the 1974 Military Aid Act, whether prepared before or after its adoption.
+
+5. All Director Central Intelligence Directives ("DCIDS")
+
+## B. Operating Procedures
+
+1. An index of all major directives, guidelines, regulations, manuals or similar materials which prescribe or explain authorization and reporting procedures
+
+2. Directives, guidelines, manuals or similar materials describing the various filing systems of the Agency
+
+3. Specifically, all directives, guidelines, manuals or other materials prescribing or explaining procedures to be followed and the authorization and documentation required in connection with covert operations, including without limitation:
+   (a) field or headquarters initiation of proposals
+   (b) planning and modification of proposals
+   (c) approval for commencement, continuation or renewal, and termination
+   (d) field reports on the conduct or results of operations
+   (e) evaluations following operations
+
+The materials should indicate the criteria which determine the level of authorization required--Division Director, Deputy Director for Operations, DCI or Forty Committee--for a particular operation. They should also indicate the procedures and documentation involved in CIA inter-agency staff coordination and CIA staffing for the review by the principals on the Forty Committee. To the extent the procedures described differ from those previously in effect, furnish earlier directives, guidelines, manuals or similar material regarding such previous procedures and provide a narrative description of how and when these procedures have changed from 1948 to present.
+
+(Request #3 is confined to procedures so that the Committee can subsequently better understand CIA operations in the covert action area.)
+
+## C. Financial Procedures
+
+In addition to budgetary and cash flow figures, the Committee will need explanatory information to understand the financial operations of CIA. This request consists of all directives, guidelines, manuals and other materials governing or describing:
+
+1. Procedures for preparing and discussing budgets with OMB, including identification of the documents involved in the process
+
+2. The general procedures for expenditure approval, accounting or auditing which are used either within the CIA or in connection with Executive or Congressional oversight
+
+3. All special procedures for expenditure approval, accounting or auditing in regard to particular funds or types of activity, e.g., proprietary organizations, currency transactions, or the discretionary fund of the Director.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_2227.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SA J. BROOKE BLAKE BY SSC
+
+"Q - Manner of reporting from Informant Rowe?
+
+A - He reported in person, in writing and by telephone depending on the urgency of the information. All information received from him was recorded in FBI files and disseminated to local, state and federal authorities on a need-to-know basis.
+
+"Q - Instructions by me to Rowe as to what information he should report?
+
+A - All information, with main interest in intelligence activities discussed by action groups.
+
+"Q - My knowledge of any interest regarding an arrest record for Rowe?
+
+A - None recalled nor did I ever recall seeing a rap sheet on him.
+
+"Q - Any actions of violence which were planned which he reported to me and what was done with the information?
+
+A - None recalled, only evidence recalled was a report of another Klansman carrying blasting caps on his person while at a Klan convention. This information was disseminated to fellow Agents on the scene with me surveilling the convention.
+
+"Q - Rowe claimed that I had told him about the Bureau's activities in Cointel.
+
+A - His statement had to be false because I had never heard of the code word until used recently in newspaper reports covering the Church Senate Subcommittee on Intelligence Activities.
+
+"Q - Any directions I had given to Rowe to attend political campaigns and/or disrupt them?
+
+A - Did not recall such.

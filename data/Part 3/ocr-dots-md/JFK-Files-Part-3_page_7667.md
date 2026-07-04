@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_7667.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
+
+he was asked how many men worked under him on his Squad, he told Epstein that he desired to consult with the FBI representative who had accompanied him to the interview but who was not present during the actual interview, that representative remaining in an outer lobby of the SSC quarters. Belter requested this consultation privilege as he believed the question was outside the indicated scope of the interview. Epstein indicated he was withdrawing the question, thus eliminating the necessity for the consultation.
+
+Belter was questioned and furnished information concerning the organization of WFO, from the Special Agent in Charge down to the squad level. Belter indicated that there were several squads handling criminal cases, some handling applicant-type investigations, and other squads handling security work. He indicated that the security squads were under a security coordinator, Ludwig W. R. Oberndorf, now deceased.
+
+Epstein advised Belter that the SSC Staff had read Belter's deposition in the Halperin case. (Morton H. Halperin, et al, vs. Henry A. Kissinger, et al, United States District Court, District of Columbia Civil Action File Number 1187-73.) On the basis of the deposition, Epstein indicated he was familiar with the administrative procedure for instituting telephone surveillances and asked Belter about the administrative procedures for instituting microphone surveillances. It was Belter's reply that the administrative procedures were essentially the same for both types of surveillances.
+
+Epstein then had Belter recite the procedure from when an SA would request from FBI Headquarters by form letter authority for installing a microphone surveillance. Belter told how the Headquarters would first authorize the field to

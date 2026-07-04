@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_9419.png
+
+Convert to MarkdownDate of Mail 6/13/75
+
+Has been removed and placed in the Special File Room of Records Section.
+
+See File 66-2554-7530 for authority.
+
+Subject JUNE MAIL SENSTUDY 75
+
+Removed By 79 JUN 24 1975
+
+File Number 62-116395-242
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/24/75 BY SJA Amsuf
+MDR-16
+
+Permanent Serial Charge Out
+
+DOJ/FBI

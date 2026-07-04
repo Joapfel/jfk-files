@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_2410.png
+
+Convert to MarkdownTOP SECRET
+
+During 1967, Julius Lester traveled to Hanoi, North Vietnam, as a member of the International Affairs Department of SNCC. His trip was sponsored and paid for by the Bertrand Russell Peace Foundation, London, England.
+
+Dale A. Smith, who resides in Denmark, was designated as the Northern European Field Secretary for SNCC as of January 1, 1968. His functions include fund raising, public relations and coordination with other groups in northern Europe.
+
+A group known as the Friends of the Student Nonviolent Coordinating Committee is active in Paris, France. The leader of this group is William Gardner Smith, who is aided by a female group of American SNCC adherents. They are attached to the International Office of SNCC in New York City. This group has been engaged in raising funds for SNCC.
+
+Smith, an employee of the French Press Agency in Paris, France, resided until 1953 in Philadelphia, Pennsylvania, where he was actively associated with the Philadelphia branch of the Socialist Workers Party.
+
+James Rufus Forman, International Director of SNCC, has had many contacts with representatives of foreign countries. On December 27, 1967,
+
+While he was in Sweden during 1968, Forman was part of a group which met with individuals representing the North Vietnamese and the National Liberation Front of South Vietnam.
+
+In June, 1968, three Republic of New Africa (RNA) leaders, including Milton Henry and his brother, Richard, visited Africa to determine what kind of assistance RNA could obtain from Tanzania and what type of assistance they could
+
+TOP SECRET
+
+24 -

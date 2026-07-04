@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_6373.png
+
+Convert to MarkdownALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/13/00 BY SP2ALM/716
+
+ROBERT MARVIN SHELTON
+UNITED KLANS OF AMERICA, INC.
+KNIGHTS OF THE KU KLUX KLAN
+
+June 16, 1970
+
+Robert Marvin Shelton, Social Security Number
+424-34-0016, resides Number 18, Lake Sherwood Star Route,
+Northport, Alabama. His wife is Betty Lou Shelton. He is
+employed as the Imperial Wizard of the United Klans of
+America, Inc., Knights of the Ku Klux Klan.
+
+The United Klans of America, Inc., Knights of
+the Ku Klux Klan, sometimes known as the Alabama Rescue
+Service, is located in Northport, Alabama.
+
+Please furnish two certified copies each of
+the 1969 Federal Tax Return filed by Shelton; the United
+Klans of America, Inc., Knights of the Ku Klux Klan and/or
+the Alabama Rescue Service.
+
+HEH:jlm
+
+(9)
+
+NOTE:
+
+It is requested no investigation of
+subject be instituted solely on the basis
+of the above information.
+
+See memorandum G. C. Moore to Mr. W. C. Sullivan
+dated 6-15-70, captioned "Counterintelligence Program,
+Disruption of Hate Groups, RM," prepared by HEH:cae/mkz.
+
+REC-35
+
+EX-109
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.

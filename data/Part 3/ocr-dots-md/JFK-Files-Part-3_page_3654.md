@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_3654.png
+
+Convert to MarkdownThe Attorney General
+
+ST. 115
+Director, FBI
+
+REC-5T
+
+U. S. SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+December 24, 1975
+
+1 - Mr. J. G. Deegan
+2 - Mr. R. L. Shackelford
+1 - Mr. F. J. Cassidy
+1 - Mr. W. O. Cregar
+
+This is in response to the SSC letter dated December 18, 1975, wherein Senators Mondale and Baker requested rather detailed information to be made available during the last week of December, 1975, and the first week of January, 1976.
+
+It is noted that most of the requests in this letter are so ambiguous that they require clarification from the SSC before the FBI can logically respond. In one instance, there is no way this Bureau could respond short of obtaining the recollections of Bureau Supervisors who worked in the Intelligence Division extending back almost 20 years. Because of this, we are attaching for your approval and forwarding to the SSC the original of a memorandum which delineates the problems attendant to the request of December 18, 1975, and, in most instances, requests a meeting between Mr. John Elliff, Domestic Task Force Director, SSC, and representatives of this Bureau in the hope that some alternatives or clarifications can be developed. A copy of the memorandum is furnished for your records.
+
+Enclosures (2)
+62-116395
+
+1 - The Deputy Attorney General
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+WOC: lhb
+(12)
+
+SEE NOTE PAGE 2
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/30/80 BY: SPAMKOTAK
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+GPO : 1975 O - 569-920
+
+D8861N D3d5289602 Page 131

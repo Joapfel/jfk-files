@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_10051.png
+
+Convert to MarkdownNR Ø03 KC CODE
+
+6:15 PM 3/25/75
+
+TO: DIRECTOR
+
+(DTN:BUDGET AND ACCOUNTING SECTION)
+
+FROM: KANSAS CITY (100-Ø)
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+REBUNITEL 3/24/75.
+
+KANSAS CITY DIVISION HAS ONE SUPERVISOR ASSIGNED TO HANDLE INTERNAL SECURITY AND COUNTERINTELLIGENCE MATTERS. TIME SPENT IS 50 PERCENT COUNTERINTELLIGENCE AND 40 PERCENT INTERNAL SECURITY.
+
+TWO AGENTS ARE ASSIGNED FULL TIME TO COUNTERINTELLIGENCE AND NO AGENTS ARE ASSIGNED FULL TIME TO INTERNAL SECURITY.
+
+KANSAS CITY HAS THIRTEEN ADDITIONAL AGENTS HANDLING BOTH COUNTERINTELLIGENCE AND INTERNAL SECURITY MATTERS, BROKEN DOWN AS FOLLOWS: FIVE AGENTS, 90 PERCENT, INTERNAL SECURITY AND ONE AGENT, 90 PERCENT, COUNTERINTELLIGENCE: TWO AGENTS, 30 PERCENT ON EACH; FOUR AGENTS, 10 PERCENT ON EACH, AND ONE AGENT 50 PERCENT ON INTERNAL SECURITY.
+
+END
+
+HOLD
+
+<table><thead><tr><th></th><th>Assoc. Dir.</th><th>Dep.-A.D.-Adm.</th><th>Dep.-A.D.-Inv.</th><th>Asst. Dir.:</th><th>Admin.</th><th>Comp. Syst.</th><th>Ext. Affairs</th><th>Files & Com.</th><th>Gen. Inv.</th><th>Ident.</th><th>Inspection</th><th>Intell.</th><th>Laboratory</th><th>Plan. & Eval.</th><th>Spec. Inv.</th><th>Training</th><th>Legal Coun.</th><th>Telephone Rm.</th><th>Director Sec'y</th></tr></thead></table>
+
+All information contained within this document has been removed from its original location.
+Health is unclassified.
+Date: 1/17/75
+By: SP-2-1/7/75
+
+# made
+HOLD BY SP-2-1/7/75
+
+NWI 88608 DocId:32989628 Page 328

@@ -1,0 +1,278 @@
+# JFK-Files-Part-3_page_2312.png
+
+Convert to MarkdownThe Attorney General
+
+January 19, 1976
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+DATE 1-6-89 BYSPS cichar
+
+On December 3, 1975, Douglas Frank Durham, who confidentially furnished information to the FBI concerning extremist activities of the American Indian Movement (AIM) until publicly identified as an FBI informant in March, 1975, contacted our Minneapolis Division and furnished information which should be brought to your attention.
+
+He said on May 7, 1975, he was interviewed by Patrick Shea and Mary DeOreo, investigators for the Senate Select Committee on Intelligence Operations, who indicated a strong desire to discredit the FBI and asked if he, Durham, could "come up with some dirt" on the FBI because there was strong support to "nail the FBI to the cross." This interview took place in the Washington, D. C., office of Reverend John Adams of the United Methodist Church. Adams, who was present during the interview, paid Durham transportation and other expenses, plus $125 in testimony fees. Adams appeared to be very anxious to "personally smear the FBI."
+
+Adams has previously been described by Durham as a nonmember advisor to AIM.
+
+ST-TT
+
+5 JAN 30 1976
+
+Durham said during the initial interview he got the impression that Don Rothberg, 2021 "K" Street, N. W., Washington, D. C., a reporter for the Associated Press, was very close to the investigative Staff of Senator Frank Church's Committee. He said Rothberg later traveled to Des Moines, Iowa, and reviewed Durham's conversation with the Senate investigators, at which time Rothberg informed Durham that "I feel as they do. We have to control these police departments and the FBI."
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Soc'y
+
+62-116395
+1 - 137-33264
+RWH/JPG:eks (13)
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+SEE NOTE PAGE 3
+
+UNRECORDED COPY FILED N
+
+GPO : 1975 O - 569-920
+
+NEW-8868 DECID:92/89570 Page 147
+
+1976
+
+368-88
+C
+W
+L
+P
+N
+H
+F
+E
+M
+B
+J
+A
+V
+S
+O
+N
+O
+V
+E
+R
+Y
+O
+R
+C
+E
+S
+O
+N
+A
+M
+E
+L
+C
+D
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N
+O
+V
+E
+R
+N

@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_9538.png
+
+Convert to MarkdownOPTIONAL FORM NO. 10
+MAY 1967 EDITION
+GSA GEN. REG. NO. 27
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+
+FROM : D. J. Brennan, Jr.
+
+SUBJECT: THOMAS RIHA
+INTERNAL SECURITY - CZECHOSLOVAKIA
+
+DATE: February 25, 1970
+
+On February 24, 1970, James Angleton, CIA, advised the Liaison Agent that Richard Helms had instructed him to transmit the following message to the Director.
+
+Pursuant to instructions from Helms, Mike/Todorovich, CIA representative in Denver, arrived in Washington, D. C., on February 24, 1970, and Helms initiated his interview. Helms expects to complete the interview including an examination of various CIA records within two days, upon the completion of which he will be transmitting a personal letter to the Director.
+
+ACTION:
+
+For information.

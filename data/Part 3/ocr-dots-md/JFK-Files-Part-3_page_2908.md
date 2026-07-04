@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_2908.png
+
+Convert to Markdown2494
+
+understand that to be at the time anything that was unusual.
+
+I have to admit that maybe I made a mistake.
+
+Senator Mondale. What you are saying in effect is that
+in effect, the rights: of the American people can be determined
+not by the Director of the FBI but by the courts and by the
+law.
+
+You meant that.
+
+Mr. Kelley. Indeed, yes, sir.
+
+Senator Mondale. All right.
+
+Thank you.
+
+end t. 3
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+NWW 88608 DocId:32989820 Page 55

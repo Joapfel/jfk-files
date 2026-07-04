@@ -1,0 +1,64 @@
+# JFK-Files-Part-3_page_7115.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : Mr. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+DATE: 2-6-75
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: ____
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 9/25/00 E1SP2 ALM17G
+
+Reference McDermott to Jenkins memorandum of 1-31-75 recommending contact with Senator Frank Church (D-Idaho) concerning the procedure for clearing staff personnel for captioned Committee.
+
+Contact was made with the Senator's office on the morning of 2-6-75 to arrange an appointment. The Senator's secretary advised that his schedule was so crowded that it would be impossible for him to discuss this matter for several days. She said he requested that we discuss this situation with William Miller, who the Senator intends to have head the Select Committee staff.
+
+EX-110 HEC-78 6-116395-40
+
+Miller was contacted on the morning of 2-6-75 by Inspector Bowers, accompanied by Inspector Hotis. It was explained to him that the FBI has no authority to issue clearances as such but that in conference with Central Intelligence Agency officials it had been agreed that the FBI will investigate prospective staff personnel, furnish results of the investigation to Senator Church as the Select Committee Chairman, and CIA will issue actual clearances based on certification from Church. Miller agreed to this procedure. He was furnished a small supply of SF 86, Security Investigation Data for Sensitive Position forms. It was pointed out to him these forms should be filled out in complete detail and furnished to us along with a current set of fingerprints. It was suggested the applicants for these positions be fingerprinted by the Capitol Police Department.
+
+Miller stated they would need results of these investigations as soon as possible and after some discussion he agreed that a two week deadline would be reasonable. It was suggested to him that in cases involving clerical-type personnel that perhaps a longer deadline might be in order, and he said he would keep this in mind. It was pointed out to Miller that results of the investigations will be furnished to Senator Church personally. He also was advised that representatives of various intelligence agencies currently are drawing up proposed guidelines to suggest to the Committee for use in determining whether or not an
+
+1 - Mr. Callahan
+1 - Mr. Adams
+1 - Mr. Wannall
+1 - Mr. Cleveland
+1 - Mr. Mintz
+1 - Mr. McDermott
+1 - Mr. Cregar
+1 MAR Bowers
+
+DWB:kjs (9)
+
+CONTINUED - OVER
+
+58MAR1975
+
+NW 88608 DocID:32989530 Page 80

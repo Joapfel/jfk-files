@@ -1,0 +1,72 @@
+# JFK-Files-Part-3_page_2332.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+The Attorney General
+
+6/25/75
+
+Director, FBI
+
+UNITED STATES SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to a letter from the SSC dated May 14, 1975, and appendices thereto, requesting certain documents and other information from the FBI.
+
+Enclosed for your approval and forwarding to the Committee is an original of a memorandum which constitutes a response to some of the requests. A copy of the memorandum and a copy of each of the c8: documents responsive to the Committee's request are being furnished for your records.
+
+In accordance with the request of Mr. K. William O'Connor, we are deferring to him any action necessary to obtain appropriate clearance from the White House, prior to giving the Committee Staff access to the above six documents.
+
+The documents involved and which are being furnished, herewith, are not for forwarding to the SSC inasmuch as only access for review at FBIHQ is being afforded the Committee Staff.
+
+REC-102
+
+Enclosures (10)
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: K. William O'Connor
+Special Counsel for
+Intelligence Coordination
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+
+JWJ:dan
+(8) MDR 16
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+
+DATE 11/5/75 BY SPA ALM/EHL
+
+TOP SECRET MATERIAL ATTACHED
+
+ROUTE IN ENVELOPE
+
+GPO 954-545
+
+Telephone No.: 1-704-206-1320
+Director Sec.: MAIL ROOM [ ] TELETYPE UNIT [ ]
+NW 88608 Doctd:32989618 Page 12

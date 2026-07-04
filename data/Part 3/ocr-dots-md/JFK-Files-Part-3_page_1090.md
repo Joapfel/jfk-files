@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_1090.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+On 1/27/65 the Birmingham Office made anonymous mailings to fifteen Negro churches identifying Carl Ridout, Manager of Ensley Finance Company, Inc., Birmingham, as a member of the National Executive Committee of the National States Rights Party. Ridout was then transferred to the Fairfield Finance Company, 5011 Gary Avenue, Birmingham, which was under same ownership as Ensley Finance Company. Fifteen letters were then anonymously mailed to Negro churches identifying Ridout as Manager of the Fairfield Finance Company and also a member of the National Executive Committee of the National States Rights Party.
+
+Ridout was subsequently fired but we are unable to determine if this was a direct result of the Counter-intelligence Program activities.
+
+The National States Rights Party is a white hate group that has been involved in violent activities directed toward minority groups.
+
+TED:cah/lm
+(9)
+
+157-9-4-12, 16, 17, 20
+
+SECRET
+
+111

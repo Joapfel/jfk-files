@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_3706.png
+
+Convert to Markdownhave expressed public support for, an organization which has
+as its objective activities which may involve violence. The
+purpose of the preliminary investigation is to verify or refute
+the allegations or information. However, the vagueness of the
+standard is obvious. Therefore, to be consistent with the
+criteria for full investigations, the FBI should be authorized:
+
+4. <u>to conduct preliminary domestic intelligence inves</u>
+   <u>tigations on the basis of allegations or other information that</u>
+   <u>an individual, or individuals acting in concert,</u>
+
+a. advocate the use of violence as described in 1 above;
+
+b. are engaged in activities which are likely to involve the use of violence as described in 1 above;
+
+c. . are members of or have expressed public support for an organization engaged in activities which involve, or are likely to involve, the use of violence as described in 1 above, provided that other members of the organization are currently the subject of a full domestic intelligence investigation or a regular criminal investigation.
+
+Unless these changes are made in the guidelines, they would per-
+mit investigations similar to past investigations which have
+been seriously criticized. For instance, they would allow in-
+vestigations of all SDS members or all Black Student Union lead-
+ers on the ground that their activities may involve violence,

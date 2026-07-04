@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_155.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+In February, 1960, an anonymous letter was mailed to the publisher of the Chicago neighborhood weekly newspaper "Southwest News Herald," which enclosed a copy of a "Chicago Daily Tribune" article dated December 5, 1956, which names Vicki Starr and her husband Ed Starr as communists. Vicki Starr was a candidate for the President of the Parent Teacher Association (PTA) of the Mark Twain Public School in Chicago. The "Southwest News Herald" was a conservative neighborhood newspaper which regularly reported the activities of this PTA. The December 3, 1959, issue carried a photograph of Vicki Starr and described her as vice president of this PTA group.
+
+It was learned from an informant that Vicki Starr was no longer considered a candidate for the position of PTA President.
+
+PWC:vb
+(9)
+
+100-3-104-1485, 1497
+
+SECRET
+
+50
+
+NW 88608 DocId:32989640 Page 67

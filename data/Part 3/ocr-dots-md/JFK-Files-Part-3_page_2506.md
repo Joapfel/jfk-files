@@ -1,0 +1,66 @@
+# JFK-Files-Part-3_page_2506.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. CALLAHAN
+FROM : H. N. BASSETT
+SUBJECT: UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+DATE: 7/17/75
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intel.
+Laboratory
+Legal Counsel
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+Reference is made to Bureau's memorandum to the Attorney General dated 7/16/75 concerning interviews conducted regarding "Official and Confidential Files."
+
+Attached hereto is a list of persons interviewed in connection with the "Official and Confidential Files." The Attorney General and captioned Committee have been advised by referenced letter that this list would be made available for review.
+
+ACTION:
+
+This memorandum be furnished to the Intelligence Division for handling.
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY SPAM/EHL DATE 4/29/75
+
+1 - Mr. Mintz
+
+1 - Mr. Wannall
+
+1 - Mr. Hotis
+
+1 - Mr. Daly
+
+1 - Mr. Cregar (With Enc.)
+
+Enclosure
+
+JCM:wmj
+(7)
+
+12 JUL 25 1975
+
+ENCLOSURE
+
+6/7/75
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88608 DocId:32989618 Page 186

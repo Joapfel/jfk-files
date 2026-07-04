@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_7643.png
+
+Convert to Markdown3791 (6.75)
+
+NW 88608 DocId:32989609 Page 46
+
+CLASSIFY AS APPROPRIATE
+
+<table><tr><td>TO:</td><td colspan="3">Intelligence Community Staff</td><td rowspan="2">FROM:</td></tr><tr><td>ATTN:</td><td colspan="3">Central Index</td></tr><tr><td colspan="5">SUBJECT: Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="3"><strong>1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</strong></td><td colspan="2"><strong>2. DATE PROVIDED</strong><br/>6/17/75</td></tr><tr><th>X</th><th>DOCUMENT</th><th>BRIEFING</th><th>INTERVIEW</th><th>TESTIMONY</th><th>OTHER</th></tr><tr><td colspan="6"><strong>3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</strong></td></tr><tr><td>X</td><td>SSC</td><td colspan="4">C. Benz, Office Manager</td></tr><tr><td></td><td>HSC</td><td colspan="4"></td></tr><tr><td colspan="6"><strong>4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</strong></td></tr><tr><td colspan="6" style="text-align:center;">Further Documents Pertaining to the FBI and Department of Justice.</td></tr><tr><td colspan="2"><strong>5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)</strong></td><td colspan="3"><strong>6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)</strong><br/>"U"</td></tr><tr><td colspan="5" style="text-align:center;"><strong>SSC letter 5/14/75; Appendix B, Part II, Item 15.</strong></td></tr><tr><td colspan="6"><strong>7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)</strong></td></tr><tr><td colspan="6" style="text-align:center;">Organization and Staffing</td></tr><tr><td colspan="6"><strong>8. SUMMARY (see reverse side before completing this item)</strong></td></tr><tr><td colspan="6" style="text-align:center;">At the request of the SSC, documents relating to the elimination of the FBI Crime Records Division in late 1972 were furnished to the SSC for review.</td></tr><tr><td colspan="6" style="text-align:center;">ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY SPAM WRITER MDR-16 DATE 10-16-2000 WO C</td></tr><tr><td colspan="6" style="text-align:center;">TREAT AS YELLOW</td></tr><tr><td colspan="6"><strong>62-116395</strong></td></tr><tr><td>TJM:lhb<br/>(4)</td><td colspan="5">ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75. LFS 7-2-75</td></tr></table>
+
+CLASSIFY AS APPROPRIATE
+
+3791 (6.75)

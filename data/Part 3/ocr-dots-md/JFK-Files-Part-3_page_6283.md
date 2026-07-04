@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_6283.png
+
+Convert to Markdownd. The document which was the "current revision of the previous analysis captioned 'Communism and the Negro Movement - A Current Analysis'." and which document was enclosed with Mr. Brennan's April 10, 1967 memorandum to Mr. Sullivan captioned "Communist Influence in Racial Matters - A Current Analysis."
+
+e. The "current study" entitled "Martin Luther King, Jr. - A Current Analysis" which was enclosed with Director Hoover's March 14, 1968 letter to Mrs. Mildred Stegall.
+
+25. All materials reflecting the printing of any of the documents identified in Item 24. a. - e. above. (Do not supply the documents themselves.)
+
+26. An identification of any materials (e.g. transcripts) which were attached to any of the documents identified in Item 24
+a. - e. above. (Do not supply the attachments themselves.)
+
+27. All materials reflecting that:
+
+a. "Mr. Tolson has suggested," and
+
+b. "the Director agreed,"
+
+that "the monograph on Martin Luther King, Jr. be brought up
+to date as reflected in the first paragraph of Mr. Moore's
+2/29/68 memorandum to Mr. Sullivan, subject "Martin Luther
+King, Jr., Security Matter - C."
+
+28. All materials which reflect any recommendations for, and/or decisions relating to, the sending of Director Hoover's August 25, 1967 letter to specified field offices captioned "Counterintelligence Program, Black Nationalist - Hate Groups, Internal Security."
+
+29. All materials reflecting the approval of proposals contained in Mr. G. C. Moore's February 29, 1968 memorandum to Mr. W. C. Sullivan, captioned "Counterintelligence Program, Black Nationalist - Hate Groups, Racial Intelligence."

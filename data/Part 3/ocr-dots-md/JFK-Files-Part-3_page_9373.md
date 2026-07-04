@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_9373.png
+
+Convert to MarkdownCONFISCATED PANTHER WEAPONS
+
+The perpetrators of the courtroom incident were lauded by the Panthers as setting another "revolutionary example for black people." In commenting further, *The Black Panther* of August 15, 1970, stated:
+
+> "The example that these brothers have set will be followed by many and many will rise to choose revolutionary suicide rather than reactionary suicide. Black people will unleash in great numbers the Black kamakazi..."
+
+In his eulogy at services for the slain Negroes, Newton said: "Our comrades have taught us all a revolutionary lesson. They have intensified the struggle and placed it on a higher level."

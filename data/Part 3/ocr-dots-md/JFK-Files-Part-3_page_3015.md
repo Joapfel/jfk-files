@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_3015.png
+
+Convert to Markdowngsh 2
+
+1953
+
+evidence in our hands that this individual is here conducting espionage, we again would fall short of this, and that's why we're still groping with it.
+
+Senator Mathias. When you say fall short, you really, you would be falling short of the requirements of the Fourth Amendment.
+
+Mr. Adams. That's right, except for the fact that the President, under this Constitutional powers, to protect this nation and make sure that it survives first, first of all national survival, and these are the areas that not only the President but the Attorney General are concerned in and we're all hoping that somehow we can reach a legislative middle ground in here.
+
+Senator Mathias. Which we discussed in the other national security area as to curtailling a warrant to that particular need.
+
+Mr. Adams. And if you could get away from probable cause and get some degree of reasonable cause and get some method of sealing indefinitely your interest, say, in an ongoing espionage case and can work out those difficulties, we may get their yet.
+
+Senator Mathias. And you don't despair of finding that middle ground?
+
+Mr. Adams. I don't because I think that today there's more of an open mind between Congress and the Executive Branch
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+N.W. 88608 DocId:32989820 Page 162

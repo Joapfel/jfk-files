@@ -1,0 +1,79 @@
+# JFK-Files-Part-3_page_2225.png
+
+Convert to Markdown1 - Mr. J. A. Mintz
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. J. G. Deegan
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. S. J. Miller
+
+62-116395
+
+January 13, 1976
+
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SPECIAL AGENT (SA) J. BROOKE BLAKE BY AN SSC STAFF MEMBER
+
+The following concerns an interview on November 21, 1975, of former FBI SA J. Brooke Blake by an SSC Staff Member.
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE #11-00 BY SPD ALM/16H
+
+The FBI released Mr. Blake from his confidentiality agreement for the purpose of the interview.
+
+Mr. Blake's account of the interview follows:
+
+"On November 21, 1975, I met Committee attorney-investigator Robert K. Kelley at Room G-308, Dirksen Senate Office Building, Washington, D. C.
+
+"Kelley took me to Room 155 of the Russell Building, where he introduced a Committee contract court reporter, Fred Ward. The room contained many empty conference tables and chairs and is one used by senators' wives for some program they have with the Red Cross.
+
+"Ward and Kelley were the only persons present throughout the deposition which was tape-recorded by Ward using the court reporter's transcribing equipment. The official deposition started at 2:07 p.m., and ended at 2:52 p.m. There was an approximate 4-minute interruption by a telephone call for Kelley, which I had to answer, and
+
+1 - 67- (Personnel File Former SA J. Brooke Blake)
+
+SJM:1hb lhb ORIGINAL AND ONE COPY TO AG SEE NOTE PAGE 6
+
+(9)
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO-1975 O - 569-920
+
+NW 88608 DocId:32989570 Page 60
+
+ESTIMATED COSTS
+
+INVOICE FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+INVOICE FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+INVOICE FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+INVOICE FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+INVOICE FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+INVOICE FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+ESTIMATE TOTAL COSTS FOR SERVICE PERIOD: 1-131975 0 - 131975 - 131975
+
+INVOICE FOR SERVICE PERIOD: 1-13197

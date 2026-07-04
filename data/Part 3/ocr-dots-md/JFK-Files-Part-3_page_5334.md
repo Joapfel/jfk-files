@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_5334.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+EDWARD A. SHEA BY SSC STAFF MEMBERS
+
+In handling this project, SA Shea was primarily interested in classifying the documents in these COINTELPRO files and little notice was made of any specific COINTELPRO actions actually being recommended in these documents. SA Shea pointed out that in his review he did not recall any COINTELPRO action that had been directed or recommended against Reverend King, his wife, Coretta, or SCLC.
+
+SA Shea was then questioned as to whether he could recall in his review, having to classify any Atlanta COINTELPRO document in which a copy may have been designated for the case file on SCLC, and SA Shea indicated that he could not recall or remember anything specific on this.
+
+Mr. Epstein then inquired if the Atlanta Office had any COINTELPRO files which only pertained to organizations, in which all information relative to a particular organization like the Young Socialist Alliance (YSA), or the Socialist Workers Party (SWP) would be located. SA Shea indicated there was no such specific breakdown in the Atlanta COINTELPRO files as they were set up under broad group categories, such as Hate Groups, Black Hate Groups, New Left, etc.
+
+Mr. Epstein then asked if SA Shea had ever been involved in handling any COINTELPRO matters when he was assigned to the Cleveland Office or whether the Cleveland Office ever had any COINTELPRO actions against Reverend King or SCLC. SA Shea indicated that he understood that the questioning of him would be limited to his review of the Atlanta COINTELPRO files earlier in the year, for the classification purposes; SA Shea suggested that this should be discussed with the FBIHQ representative, who was in the Atlanta Office at the time, to resolve this; however, Mr. Epstein did not pursue this.
+
+Mr. Epstein then inquired, that prior to the FBI instituting the COINTELPRO, and prior to the various field offices setting up COINTELPRO files, if some Agent made a suggestion about a counterintelligence action, would such a

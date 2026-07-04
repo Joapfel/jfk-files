@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_5544.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+Of course, it would be desirable if no documents were released by the SSC; however, Mr. Elliff advises that the senators are desirous of furnishing some documents to the press. If, in fact, Bureau documents have to be released, it appears that the ones the SSC plans to use are favorable to the Bureau.
+
+For the information of Bureau officials reviewing the attached documents, no excisions have been made; however, the brackets in red ink show what information will be obliterated from the documents prior to their release to the press.
+
+ACTION:
+
+For information.

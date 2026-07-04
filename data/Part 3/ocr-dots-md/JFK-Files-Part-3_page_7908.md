@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_7908.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+BUREAU RECORDING INSTRUMENTS
+
+Cabinet 6 Drawer 1
+Folder X File (check one)
+First Communication Dated 2/25/41
+Last Communication Dated ------
+Approximate Pages 1
+Derogatory Information: Yes No X (check one)
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Administrative
+Ticklers Only ______ Originals Only X Both ______
+
+Describe General Content of File' or Folder: (use separate page if necessary)
+
+Internal memorandum reporting to Hoover that 5 telephone recording instruments were in possession of FBI.

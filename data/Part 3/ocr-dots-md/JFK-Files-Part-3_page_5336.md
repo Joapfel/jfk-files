@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_5336.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+EDWARD A. SHEA BY SSC STAFF MEMBERS
+
+Mr. Epstein also asked if SA Shea was aware of any COINTELPRO action or recommended action being made after FBIHQ has discontinued the COINTELPRO, and SA Shea indicated he knew of no actions or recommendations being made.
+
+During the interview, Mr. Epstein did most of the questioning and Mrs. DeOreo took extensive notes; both SSC Staff Members were pleasant and cordial during the entire interview, which ended at approximately 10:37 A. M.

@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_29.png
+
+Convert to Markdownbe written in full knowledge of this what was in the morning press.
+
+As E. Drexel Godfrey commented, the schedule put "the highest premium on making the publication up to the minute." 15/
+
+Because the PDB now had to be delivered to the White House
+
+Situation Room by 6 a.m., the PDB writers were no longer had a member of
+the President's staff up and available to receive the book and comment on it.
+
+having make This meant that there was no point in/the writers making the trip to the White House. From this time on, the PDB was delivered by couriers. To make up for the loss of the morning conversations with Bromley Smith, an OCI staff member would visit him occasionally to check on how things were going, and there was also communication by phone.
+
+Shortly after the changeover to the new schedule,
+commenting on the President's reaction,
+Bromley Smith said emphatically
+that "we are much more certain now that he's reading it." He also made a
+point he was to make several times subsequently, which was that he disapproved
+of annexes to the Brief. He was afraid that if the Brief were burdened with
+an Annex, the President would put it aside for later reading--and then not
+
+NWW 88608 DocId:32401332 Page 29

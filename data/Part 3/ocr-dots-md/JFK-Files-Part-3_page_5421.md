@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_5421.png
+
+Convert to Markdownall such activity was terminated with the exception of
+a small amount of actions which were conducted in connection
+with foreign counterintelligence investigations which we
+felt had a grave impact upon the security of the Nation.
+And again, as I just said, I feel that the FBI personnel
+participating in or approving such activities acted in
+good faith with the belief that national security interests
+were paramount and their actions were reasonable. I'm
+always mindful of a story I heard many years ago about two
+neighbors who started some arguments which, obviously,
+were going to terminate into difficulties. One of the
+neighbors started a campaign to build himself up with
+shadowboxing, punching the bag and so forth, and it appeared
+very likely that he was going to be in pretty good shape
+in order to beat up his neighbor and so the neighbor,
+thereafter, concerned as to what would happen to him,
+started to defend himself. You don't wait until the
+climax which could be the putsch--you start preparing
+yourself and so I think that the FBI and its officials
+construed this as paramount again in the protection of
+the country.
+
+QUESTION: You said that in 1966, there were a small amount of
+burglaries. I'm just wondering how small is small and
+
+NW 88608 DocId:32989626 Page 152

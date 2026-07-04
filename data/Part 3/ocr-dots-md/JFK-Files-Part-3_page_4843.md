@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_4843.png
+
+Convert to MarkdownSECRET
+
+story concerning a dummy customs raid at his residence and the fact that because of this raid he could not produce the requested explosive devices for ROSENTHAL.
+
+During the late evening hours of July 11, 1967, [POSADA] telephonically contacted SA WEISH and advised him that he had just been contacted by his CIA supervisor. He informed him that he was no longer in the employment of CIA due to an order emanating in Washington, D.C. He was told that this action by CIA headquarters in Washington had nothing to do with either his previous work record with CIA or his present contact with the FBI Office in Miami.
+
+[POSADA] further stated at this time that ROSENTHAL had contacted his home at approximately 10:45 PM at which time his wife explained that her husband had been in trouble and that he would contact ROSENTHAL tomorrow.
+
+14. SA WEISH contacted LUIS POSADA via telephone on July 12, 1967.
+
+[POSADA] stated that at approximately 10:30 AM on this date he contacted ROSENTHAL at his residence. ROSENTHAL would not talk on his home phone and requested [POSADA] to contact him at a pre-arranged number and time.
+
+After making this telephonic contact, [POSADA] indicated that ROSENTHAL was extremely aggravated over the stalling tactics of [POSADA]. She gave [POSADA] an ultimatum to either produce the material in ten days or forget about everything.
+
+[POSADA] also related that on this date, DOMINGO ECHEMENDIA had contacted him and he informed ECHEMENDIA that the customs had raided his house the previous day. ECHEMENDIA stated that this raid meant nothing and he
+
+- R -
+
+COVER PAGE -
+
+SECRET
+
+NW 88608 DocId:32300025 Page 93

@@ -1,0 +1,120 @@
+# JFK-Files-Part-3_page_8124.png
+
+Convert to MarkdownDISSERTATION ON PROCEDURES FOR
+OPENING, CLOSING AND MAINTAINING
+DOMESTIC SECURITY CASES IN PENDING STATUS
+
+FBI authority to investigate domestic security cases is derived from numerous criminal statutes and Presidential Directives and Executive Orders concerning internal security and employee loyalty matters. Procedurally, the Bureau opens, continues, and closes such cases on the basis of these legal considerations.
+
+Upon receipt of a fact situation from any
+of a myriad of sources, an Agent must necessarily make
+a judgment as to whether this situation appears to fall
+within the scope of FBI jurisdiction,
+
+More specifically, domestic security investigations are initiated when allegations clearly indicate a person, either as an individual or as a member of a group, acts to unlawfully alter the Government in violation of the Smith Act, the Rebellion or Insurrection Statute, the Seditious Conspiracy Statute, or other related enactments. Special emphasis is placed on those engaged in violent furtherance of such illegal acts. A full investigation continues so long as these indications of illegal activity exist.
+
+When allegations do not clearly indicate that activities on the part of an individual fall within this jurisdictional area, self-imposed regulations require that a "preliminary investigation" be conducted. This inquiry consists of obtaining information from established sources (such as records maintained by police departments, local governments, and private agencies); informants; public source information; and FBI records. These investigations are limited to 90 days during which an honest effort is made to distinguish as soon as possible between legitimate political activity and illegal acts. If more than 90 days are required to resolve this question, authority to exceed this period must be obtained from FBI Headquarters. In seeking this extension, a full statement must be made of the allegation, the jurisdictional authority involved, and facts that appear to justify the continuance.
+
+TDH/JAH:djm (8)
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+ENCLOSURE
+
+GP 954-395 - 13
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+# more contained
+THIS INFORMATION IS UNCLASSIFIED
+DATE: 6/29/78
+BY: Sp-2
+
+ALL INFORMATION CONTAINED
+BEFORE THIS DATE IS TO BE
+RELEASED IMMEDIATELY BY THE
+UNITED STATES DEPARTMENT OF
+DEFENSE. ALL USE OR DISSEMINATION
+OF THIS DOCUMENT WITHOUT THE
+ written permission of the
+ Department of Defense is
+prohibited.
+All Rights Reserved.
+No Part of this publication may
+be reproduced without prior written
+permission of the publisher.
+The United States government may
+furnish, as part of a service, data
+which may be subject to copyright
+protection. Reproduction of all or part
+of this publication may be restricted
+bySection 805 of the PATRIOT act
+(Title 18, United States Code).
+Title 18 of the Code provides for
+the creation of special entities called
+"mini-computers" which are subject to
+certain restrictions on their use.
+These mini-computers are also
+subject to other restrictions on
+use.
+This document is issued by the
+Department of Defense
+and is not a formal policy of
+the Department.
+There may be errors, especially in
+print. The Department of Defense
+has employed all reasonable care in preparing
+this document, but cannot ensure
+its freedom from errors. These
+errata will be corrected in future
+editions. Reproduction of this
+document, in whole or in part,
+without the prior written permission
+of the author(s) is forbidden.
+Copyright © 1978 by the United
+States Government.
+All rights reserved.
+No part of this publication may
+be reproduced without prior written
+permission of the
+Government of the United
+States of America.
+All material on this disk is
+protected by Federal law
+as classified information.
+Distribution of this disk
+is restricted to authorized users
+only.
+The author(s) of this document
+retains all rights not expressly
+granted by this license.
+THE UNITED STATES GOVERNMENT
+PROHIBITS ALL COMPILATION,
+DISSEMINATION, REPRODUCTION,
+DISCLOSURE, DISTRIBUTION
+AND/or USE OF THIS DOCUMENT
+BY ANY MEANS OR方式,
+EXCEPT AS EXPRESSLY
+PERMITTED BY SECTION 805
+OF THE PATRIOT ACT (Title
+18, United States Code).
+The author(s) of this document
+RETAINS ALL RIGHTS NOT

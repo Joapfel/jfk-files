@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_730.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+JUL 18 1975
+
+TO: John Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: K. William O'Connor
+Special Counsel for Intelligence
+Coordination
+
+Attached for your information is a letter regarding the "proposed procedures" to the Attorney General from Senate Select Committee. I am attaching two extra copies of it, as I am sure that Mr. Adams and the Director may also wish to see it.
+
+REC-56
+
+EX 104
+
+7. AUG 6 1975
+
+ENCLOSURE
+
+“ENCLOSURE ATTACHED”
+
+ALL FBI INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 10/16/75 BY SP2ALMXP
+
+84 SEP 8 1975
+
+NW 88608 DocId:32989640 Page 272

@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_4771.png
+
+Convert to MarkdownMM 92-1870
+
+On October 7, 1968, Miss JO PRESSLEY, Atlanta, Georgia, Police Department (APD) Identification Division, and Mr. JOHN TALLENT, station captain's office, APD, advised records of their department were negative for a RONALD GELET or a R. J. HAYES.
+
+Mr. JOHN RITTER, Credit Bureau of Greater Atlanta, advised records of his department were negative for a RONALD GELET or R. J. HAYES.
+
+Mrs. BARBARA WAGER, Georgia State Motor Vehicle Bureau, Atlanta, advised she could locate no record of the vehicle registered under the name of RONALDGELET. Also, due to a large number of R. J. HAYES, ROBERT HAYES, and so forth, she could not identify a vehicle registered to R. J. HAYES without specifically knowing local address other than business address.
+
+Mrs. DOT MERRIT, Georgia State Department of Public Safety, Driver's License Bureau, Atlanta, advised records were negative for RONALD GELET. Mrs. MERRIT further advised that she could not identify a R. J. HAYES in the files of her department without more specific information.
+
+Atlanta City Directories reflect the address of 708 Spring Street was listed for Sol Mica of Georgia, Inc., contractors in aluminum siding.
+
+On October 17, 1968, MM T-1 advised that ROTHMAN received a telephone call from one EDDIE (Last Name Unknown) out of Atlanta, Georgia, at about 11:45 p.m. on October 14, 1968. Informant stated he did not know the identity of EDDIE, or from where EDDIE was calling.
+
+MISCELLANEOUS
+
+ROTHMAN was not observed at his residence or at any of his known haunts on the following dates:
+
+September 27, 30;
+
+October 3, 4, 25, 29, 30;
+
+November 5, 7, 13, 14, 18, 20, 1968.

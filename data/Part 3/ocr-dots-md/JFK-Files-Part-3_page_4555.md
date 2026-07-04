@@ -1,0 +1,63 @@
+# JFK-Files-Part-3_page_4555.png
+
+Convert to MarkdownTP 92-1
+
+had flown from London to California, then to Las Vegas,
+Nevada, then to New York, and then to Miami, before return-
+ing to Tampa for the Labor Day weekend. TRAFFICANTE appar-
+ently did not detail time in London, nor give any indication
+of how much time he had spent in each of the above-mentioned
+locations. TP 41-C of the opinion from TRAFFICANTE's
+remarks that he had had a companion on his London, England,
+trip, but identity not known at this time. Investigation
+has indicated that British officials are aware that DINO
+CELLINI is Managing Director of the Colony Club, Berkley
+Square, London, and CELLINI has in the past been identified
+as an associate of SANTO TRAFFICANTE, JR.
+
+In addition, on October 7, 1966, TP 120-C ad-
+vised that sometime prior to 9/22/66, TRAFFICANTE's 5-year-old
+grandson, SANTOS PANIELLO, who resides with his mother, Mrs.
+AUGIE (MARY JO) PANIELLO, at 2505 Bristol, Tampa, had re-
+ceived a box containing a very expensive-looking cowboy
+suit. TP 120-C indicated that this box containing the
+cowboy suit was from the Indian Trading Post, Yellowstone
+National Park, but that the wrapping, which would indicate
+air mailed and how addressed, had been removed from the box.
+
+For the additional information of Butte and WFO,
+TRAFFICANTE has in the past, when securing air passage,
+used the names contained on the LCN membership card index
+and the names T. MOETOS, JAMES BRUNO, ED VALDEZ, and JOE
+GARCIA, the latter name having been used by TRAFFICANTE in
+traveling to the meeting in New York during September 1966.
+TRAFFICANTE has a current U. S. passport issued in the
+name of SANTO TRAFFICANTE, JR., # F-391387, issued 5/28/65
+at Miami, Fla. Previous investigation has indicated that
+Bureau of Customs had placed stops with INS concerning
+TRAFFICANTE's foreign travels, but Tampa not in possession
+of any indication that INS or Bureau of Customs has infor-
+mation that TRAFFICANTE recently out of the U. S.
+
+Tampa has submitted FD-315 requesting F-1 and
+F-3 type stops.
+
+LHM to be forwarded to LEGAT, London, being pre-
+pared and will be furnished to the Bureau for dissemination.
+
+LEADS:
+
+**REVIEWED BY**
+
+~~WSC~~ JFK TASK FORCE
+
+ON 9/M/98 dlt
+
+☐ RELEASE IN FULL
+☐ RELEASE IN PART
+
+2 ☐ TOTAL DENIAL
+
+NW 78318
+
+DocId:34489573 Page 3

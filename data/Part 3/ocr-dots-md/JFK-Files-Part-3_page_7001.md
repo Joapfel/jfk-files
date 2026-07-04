@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_7001.png
+
+Convert to MarkdownAT 157-257
+
+was the defendant in a slander action brought by
+one L. B. SULLIVAN seeking $500,000 damages. This
+matter was still pending as of February 20, 1962.
+
+J. ARRESTS
+
+On May 17, 1968, Mr. JOHN TALLENT, Station
+Captain's Office, Atlanta Police Department, Atlanta,
+advised IC MARION V. DAVIS he could not locate a
+record identifiable with ABERNATHY.
+
+Miss JO PRESSLEY, Identification Division,
+Atlanta Police Department, on May 20, 1968, advised
+her records reflect ABERNATHY was arrested as
+follows:
+
+| Date | Charge | Disposition |
+|---|---|---|
+| March 28, 1963 | Red Light | Fined $20; City of Atlanta Municipal Court |
+| September 13, 1963 | Red Light | Fined $30; City of Atlanta Municipal Court |
+| November 17, 1964 | Lane Ordinance | Fined $25; City of Atlanta Municipal Court |
+
+II. ACTIVITIES OF SUBJECT
+
+Unless indicated otherwise activities referred
+to took place in Atlanta, Georgia.
+
+Characterizations of individuals and organizations
+where available are set forth in the appendix section
+of this report.
+
+On July 6, 1965, Rev. MARTIN LUTHER KING, JR.,
+President, SCLC, conferred with ANDREW J. YOUNG, Executive
+Vice-President, SCLC; RANDOLPH T. BLACKWELL, Program
+Director, SCLC; HARRY WACHTEL and ABERNATHY regarding
+the recent arrest in Selma, Alabama, of a Rev. REESE
+affiliated with SCLC, who had been accused of embezzling

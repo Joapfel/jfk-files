@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_152.png
+
+Convert to Markdown# Counterintelligence Programs
+
+St. Louis Office of FBI furnished to Richard Amberg, Publisher, St. Louis "Globe Democrat," a copy of Law Enforcement Bulletin plus 19 newspaper articles relating to W. E. B. DuBois Club of America (DCA). Information was used to publicize appearance of Herbert Aptheker, theoretician of Communist Party (CP) and member of National Committee CP, before DCA group in St. Louis on February 14, 1965. Publicity in newspapers resulted.
+
+Adverse publicity resulting was assessed by St. Louis Office as having dealt DCA in St. Louis a severe blow.
+
+HPB:lfj
+(9)
+
+100-3-104-42-71, 72
+
+SECRET
+
+47

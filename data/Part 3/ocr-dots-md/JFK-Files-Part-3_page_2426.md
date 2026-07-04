@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_2426.png
+
+Convert to MarkdownMemorandum to Mr. W. C. Sullivan
+
+RE: FOREIGN SUPPORT FOR REVOLUTIONARY PROTEST
+MOVEMENTS IN THE UNITED STATES
+
+Our report shows that the FBI has been aware from
+the inception of the New Left and black extremist movements
+that they pose new and unique threats to our internal security.
+It shows we have readjusted our investigative intelligence
+efforts to cope with the new problems created. It stresses
+the fact that these movements are developing increasingly
+into hard-core revolutionary elements which will demand
+still greater attention in the form of increased coverage
+as it appears there will be increasingly closer links between
+these movements and foreign communists in the future.
+
+We have prepared a transmittal letter to Mr. Huston submitting our report. Inasmuch as this document is not going directly to the President, no copy is being forwarded to the Attorney General at this time.
+
+**ACTION:**
+
+With your approval, the attached report and letter
+will be forwarded to Mr. Huston.

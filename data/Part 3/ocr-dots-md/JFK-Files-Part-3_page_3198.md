@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_3198.png
+
+Convert to Markdown1810
+
+Senator Hart of Colorado. Every group that was placed under the efforts of the COINTELPRO supported the violent overthrow of this country?
+
+Mr. Adams. The concept of COINTELPRO was directed toward those organizations. I would have to refresh my memory on each one of the organizations that were targets of it, but they were basically New Left, Communist Party, Socialist Workers Party, New Left, black extremists, white hate groups, those were the five basics.
+
+Senator Hart of Colorado. The Southern Christian Leadership Conference?
+
+Mr. Adams. The Southern Christian Leadership Conference, I don't know if it was involved specifically in COINTELPRO.
+
+Three minor actions were taken against the Southern Christian Leadership Conference.
+
+Senator Hart of Colorado. Well, its leader, I think you could say, for eight years was subject to a lot more than three minor actions.
+
+Mr. Adams. That's right, and that gets into the other area that the activities taken against him were primarily COINTELPRO type activities but weren't really under the control of--
+
+Senator Hart of Colorado. You're saying that basically every organization and individual that was swept into the net of the five COINTELPRO nets supported the violent overthrow
+
+smn 2
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

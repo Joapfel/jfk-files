@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_857.png
+
+Convert to MarkdownUnited States citizens, unless it has a "significant connection" with a foreign power, its agents or agencies; by "significant connection" the FBI and the Department of Justice understand that the domestic organization must be substantially financed by, controlled by, or in active collaboration with such foreign power for the purposes of committing unlawful activities against the United States Government. The FBI presents its request to the Attorney General with all the facts and circumstances on which the request is based, and he must exercise an independent judgment as to whether the request falls within this standard and the letter, spirit, and rationale of the Keith decision.
+
+***
+
+Senator Kennedy has expressed concern in the past that a political appointee, the Attorney General, rather than career professionals, is the final authority on these matters. This is a two-edged sword. If the ultimate authority were non-public career professionals, there would be less response from them than from the appointee of an elected official to public pressure criticizing procedures and decisions.
+
+On the other hand, the Attorney General's decision could possibly be based more on personal political attitudes and motivation than on his interpretation of the law.
+
+The present procedure attempts to meet both shortcomings. The Attorney General does not recommend or initiate electronic surveillance requests; they are initiated by and processed through several levels of career professionals who at each step judge whether the request falls within the standard. The request is then sent to the Attorney General, who refers it to the Internal Security Section, Criminal Division, of the Department for its independent judgment, before he makes the ultimate decision. Thus, any electronic surveillance request, if it makes it to the Attorney General, has already been approved by the career professionals. It is arguable that a career professional might be more cautious if he, and his agency, bore the final authority and responsibility rather than passing both on to another agency. There is no airtight response to this; it is a question of human motivation, sense of obligation, duty and responsibility. The impulse to be less than diligent is countered by an employee's professionalism and career considerations.
+
+***
+
+NWI:88608 DocID:32989541

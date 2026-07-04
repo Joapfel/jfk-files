@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_1048.png
+
+Convert to Markdown# Counterintelligence Programs
+
+Between February and April, 1969, the Miami Office furnished a number of items or topics which could be explored by Managing Editor, Mr. Milt Kelly, "Ft. Lauderdale News" in a follow-up news article concerning Klan activity in Broward County, Florida.
+
+A two-article series was published in the "Ft. Lauderdale News" which ridiculed Klan secrecy. Two Klansmen, Robert Quarterman and Jack Mavro, resigned as a result of the articles being published. Dissension and suspicion were created within the Klan.
+
+WDF:tdp (9)
+157-9-29-206, 210
+
+SECRET
+
+70
+
+WW 88608 DocId:32989640 Page 87

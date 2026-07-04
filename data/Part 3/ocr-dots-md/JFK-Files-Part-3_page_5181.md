@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_5181.png
+
+Convert to MarkdownIn deserter and Selective Service matters, hippie coverage is maintained in Guerneville, California (Sonoma County) through 137-5462. This latter town is largely a summer resort town for the area, but does have a hippie population in the winter months as well. Also, in the Indian and Mexican deserter fugitive matters, 137-1412 gives coverage to the skid row section of Santa Rosa, California.
+
+## WALNUT CREEK RA
+
+Criminal investigations in the Walnut Creek RA are handled by SAs RUDOLPH H. MANCINI and FRANKLIN S. BURROUGHS.
+
+This RA covers a territory which consists of several large "bedroom" communities and a large section that is rural in nature.
+
+The only problem high crime rate area in the territory is the City of Pittsburg, which is a Negro ghetto-type area and specific efforts have been made to develop informant coverage in this area. The following informants have been developed and furnish general criminal and racial information for the Pittsburg area:
+
+* 137-674
+* 137-5079
+
+In addition, the RA handles four other informants and they are:
+
+* 137-3135
+* 137-5395
+* 137-3529
+* 137-4685
+
+4. Yes, in line with the answer to question two above, agents are expected to submit a replacement at the earliest possible date.
+
+5. Supervisors participate in the informant program in that they must approve all expenditures to informants furnishing information in classifications handled on their respective

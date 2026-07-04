@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_4349.png
+
+Convert to Markdown# MEMORANDUM FOR THE ATTORNEY GENERAL
+
+This source also furnished information on January 20, 1970, which indicated that BPP official Kathleen Cleaver, wife of Eldridge Cleaver, had left him and traveled to Sweden for medical treatment.
+
+On February 22, 1970, this source advised of unsuccessful efforts by Eldridge Cleaver to obtain a "diplomatic passport" in order to travel to France. On February 23, 1970, this source advised that Eldridge Cleaver in Algiers ordered BPP official Elbert Howard to travel immediately to Algiers. Subsequently, this source furnished detailed information on Howard's travel on February 27, 1970. This source furnished detailed information on February 27, 1970, regarding the expelling by Eldridge Cleaver of two members of the BPP International Committee overseas. These individuals were soliciting funds in Europe and had instructed donors to contribute through them rather than through Cleaver.
+
+The monitoring of this surveillance will be conducted in accordance with instructions contained in your letter of July 14, 1969, entitled "Electronic Surveillances."
+
+Your authority is requested to continue this telephone surveillance at the present location for an additional three months effective March 17, 1970.
+
+APPROVED
+DATE 3/13/70
+
+SECRET
+
+-2-

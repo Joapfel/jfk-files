@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_4828.png
+
+Convert to MarkdownSECRET
+
+Conduct credit, criminal and indices checks on HERBERT TULZMAN who was contacted at 283-3431.
+
+## CHARLOTTE
+
+### At Charlotte, North Carolina:
+
+Determine subscribers to telephone numbers 334-3061 and 375-8444. Conduct credit, criminal and indices checks.
+
+## CHICAGO
+
+### At Chicago, Illinois:
+
+Determine subscribers to telephone numbers RO 1-0449, 527-3730, CA 6-5300, and MO 6-8300. Conduct credit, criminal, and indices checks.
+
+## CINCINNATI
+
+### At Cincinnati, Ohio:
+
+Determine subscriber to telephone number 731-8246. Conduct credit, criminal and indices checks:
+
+## COLUMBIA
+
+### At Greenville, South Carolina:
+
+Will conduct same lead as above regarding telephone number 235-8955.
+
+## DETROIT
+
+### At Detroit, Michigan:
+
+Will conduct same lead as above regarding telephone number 965-2426.
+
+## HOUSTON
+
+### At Houston, Texas:
+
+- C -
+- COVER PAGE -
+
+SECRET

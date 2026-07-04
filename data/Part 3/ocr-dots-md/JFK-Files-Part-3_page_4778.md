@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_4778.png
+
+Convert to MarkdownMM 92-1870
+
+MM T-2 advised on September 12, 1968, that ROTHMAN is extremely close to one ARMANDO, who reportedly is business organizer for Local 255 of the Hotel, Restaurant and Bartenders Union and is the one largely responsible for obtaining jobs for Cubans in the hotels and restaurants in the Miami area.
+
+MISCELLANEOUS
+
+It has previously been reported that a Cadillac bearing 1967-68 Florida license 6WW-6273 has been observed in the area of the Albion Lounge on frequent occasions.
+
+On July 30, 1968, SA ROBERT W. WISEMAN determined that the records of the Palm Beach County Auto License Agency, 810 Datura Street, West Palm Beach, Florida, reflected that 1967-68 Florida license 6WW-6273 was issued October 18, 1967 to HENRY FEINTUCH, M.D., for a 1968 Cadillac coupe, Vehicle Identification Number (VIN) J8123239.
+
+The records of the Palm Beach County Credit Bureau, the West Palm Beach Police Department and the Palm Beach County Sheriff's Office examined July 31, 1968, failed to reflect any identifiable reference to FEINTUCH.
+
+JAMES L. DISMUCKES, Schooley-Cadillac, advised SA ROBERT W. WISEMAN on July 31, 1968, that instant car was sold October 18, 1967 to Dr. FEINTUCH of 3050 Lincoln Road, Miami Beach, Florida. This was a telephone call sale, for cash, and the customer was referred by one EMIL MORTON, 5646 North Bay Road, Miami Beach, Florida. There is nothing further available in the company records.

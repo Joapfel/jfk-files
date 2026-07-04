@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_5177.png
+
+Convert to MarkdownAgents handling Selective Service matters and deserter matters are SAs ROBERT M. LEONARD, DONALD E. LOVEJOY, GEORGE W. SMITH and GEORGE P. WILLIAMS, JR. In this regard, the following informants have been developed:
+
+137-5342
+
+137-1667
+
+## PALO ALTO RA
+
+The Palo Alto RA is basically a metropolitan area and its investigative problems are primarily in the security field. The agents working the criminal classifications in the Palo Alto RA are SAs TROY F. WILDER and JEAN G. HUGHES. There have been no specific target areas assigned in Palo Alto due to the general nature of the criminal assignments given these two resident agents. The following informants have been developed, giving general criminal coverage to the territory covered by the Palo Alto RA:
+
+137-1807
+
+137-5031
+
+137-5518
+
+137-5815
+
+137-975
+
+## RICHMOND RA
+
+The Richmond RA covers northwestern Contra Costa County with its basic population located in the City of Richmond itself. As related to criminal investigations, its one problem area in the Richmond RA is the Negro ghetto area located in North Richmond. There are two agents working criminal matters in this RA, GERARD JAMES NORTON and RICHARD L. WEAVER. Inasmuch as the above-mentioned ghetto area is their primary problem area, they have been instructed to develop informants, giving as much coverage as possible for this area. In this regard, the following informants have been developed:
+
+137-2818
+
+137-5287
+
+137-2575
+
+137-5091

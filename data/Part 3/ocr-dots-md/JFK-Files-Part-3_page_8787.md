@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_8787.png
+
+Convert to MarkdownI cannot tell you whether I have briefly indicated there what it did not appear King was necessarily aware of the past or present C.P. Connections of this persons
+
+Re page 14 and the Answer you inquired about.
+
+I'm sure my answer was as it now appears on page 14, i.e. correct.
+
+I did not say there was no connection. I'm sure I only introduced the negative when he asked if I would deny it. There was such a connection.
+
+I believe "Yes" may have come in here in answering a question raised by your stereo.

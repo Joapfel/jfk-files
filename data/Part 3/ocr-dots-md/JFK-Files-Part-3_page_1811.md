@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_1811.png
+
+Convert to Markdown<table><thead><tr><th></th><th>PRECEDENCE:</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>☐ Teletype</td><td>☑ Immediate</td><td>☐ TOP SECRET</td></tr><tr><td>☐ Facsimile</td><td>☐ Priority</td><td>☐ SECRET</td></tr><tr><td>☑ Airtel</td><td>☐ Routine</td><td>☐ CONFIDENTIAL<br>☐ EFTO<br>☐ CLEAR</td></tr></tbody><tfoot><tr><td colspan="2"></td><td>Date 1/23/78</td></tr></tfoot></table>
+
+FD-36 (Rev. 7-27-76)
+
+FBI.
+
+**TRANSMIT VIA:**
+
+**PRECEDENCE:** ☐ Immediate ☐ Priority ☐ Routine
+
+**CLASSIFICATION:** ☐ TOP SECRET ☐ SECRET ☐ CONFIDENTIAL ☐ EFTO ☐ CLEAR
+Date 1/23/78
+
+TO: DIRECTOR, FBI (62-117290) ATTN: Records Management Division, Congressional Inquiry Unit
+
+FROM: SAC, SPRINGFIELD (62-2567) (RUC)
+
+SUBJECT: HOUSE SELECT COMMITTEE ON ASSASSINATIONS (HSCA)
+
+Reurtel to SI, 1/19/78. 395 1-10-86 Springfield
+
+Enclosed for the Bureau is one photocopy of each serial in the following Springfield Division main files:
+
+(1) 157-1792, serials 1-85 (189 pages);
+
+(2) 44-1120, serials 1-5 (10 pages);
+
+(3) 170-445, serials 1-23 (48 pages);
+
+(4) 170-445A, serials 1-6 (11 pages).
+
+Also enclosed for the Bureau is one photocopy of the following serial in the following Springfield Division file, reference identifiable with RICHARD GEPPERT:
+
+(5) 157-1791, serial 23 (8 pages).
+
+## ADMINISTRATIVE DATA:
+
+Numerous serials contained in these files have been classified "Confidential". ST-120
+
+Springfield file 157-1792, Serial 82, is a correlation memo showing GEPPERT was the subject of Springfield main
+
+2 - Bureau (62-117290) (Encl 5)
+1 - Springfield (62-2567)
+
+ENCLOSURE 62-117290-405
+
+JAN 26 1978
+
+DJC/pme (3)
+
+54 FEB 6 1978
+
+Approved: 49 Transmitted: (Number) Per: (Time)
+
+GPO : 1977 O - 225-539
+
+NNW 88608 Doctd:32989749 Page 63 GPO : 1977 O - 225-539

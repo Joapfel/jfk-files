@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_2733.png
+
+Convert to Markdownthat they had all the information they needed to clamp down on the conspiracy and could arrest people at that point in time, and yet no arrests were made.
+
+Why, Mr. Wannall, was this true?
+
+Mr. Wannall. Well, I can answer that based only on the material that I have reviewed, Senator Schweiker. It was not a case handled in my division but I think I can answer your question.
+
+There was, in fact, a representative of the Department of Justice on the spot counselling and advising continuously as that case progressed as to what point the arrest should be made and we were being guided by those to our mentors, the ones who are responsible for making decisions of that sort.
+
+So I think that Mr. Hardy's statement to the effect that there was someone in the Department there is perfectly true.
+
+Senator Schweiker. That responsibility rests with who under your procedures?
+
+Mr. Wannall. We investigate decisions on making arrests, when they should be made, and decisions with regard to prosecutions are made either by the United States attorneys or by Federals in the Department.
+
+Mr. Adams. At this time that particular case did have a departmental attorney on the scene because there are questions of conspiracy. Conspiracy is a tough violation to prove and sometimes a question of do you have the added value of catching
+
+1929
+
+gsh 16
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

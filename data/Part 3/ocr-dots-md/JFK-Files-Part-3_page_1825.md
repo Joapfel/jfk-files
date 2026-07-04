@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_1825.png
+
+Convert to MarkdownAT 66-2242
+
+Atlanta has reviewed pertinent files as requested by FBIHQ, and the information sought by the HSCA is set forth below in chart form:
+
+1. MURKIN
+(Atlanta file 44-2386)
+
+| Case Agent | Period assigned | Division, Section, or Squad of Assignment | Nature of Agent's Assignment prior to involvement in MURKIN investigation |
+|---|---|---|---|
+| ALAN G. SENTINELLA | 4/8/68 - 4/29/68 | Atlanta - #3, Security/extremist Squad | Security/extremist investigations |
+| ROBERT R. PERRY | 4/29/68 - 7/30/68 | Atlanta #4 Fugitives | Fugitive investigations |
+| O. RICHARD HAMILTON | 7/30/68 - 7/31/69 | Atlanta - #3 | Extremist investigations |
+| O. RICHARD HAMILTON | 5/30/70 - 7/13/70 | Atlanta - #3 | " |
+| O. RICHARD HAMILTON | 2/8/71 - 3/16/71 | Atlanta - #3 | " |
+| O. RICHARD HAMILTON | 3/31/71 - 4/7/71 | Atlanta - #3 | " |
+| O. RICHARD HAMILTON | 7/13/73 - 8/31/73 | Atlanta - #3 | " |
+| O. RICHARD HAMILTON | 6/19/74 - 6/27/74 | Atlanta - #3 | " |
+| O. RICHARD HAMILTON | 8/13/74 - 9/24/74 | Atlanta - #8 Civil rights, thefts from interstate shipment (TFIS) Etc. | Civil rights matters |
+
+NW 88608 DocId:32989749 Page 77

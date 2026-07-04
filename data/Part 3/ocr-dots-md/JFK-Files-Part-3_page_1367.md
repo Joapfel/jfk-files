@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_1367.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No. 62-604
+
+Your Ref.:
+
+Office of Legal Attache
+American Embassy
+Grosvenor Square
+London, W1A 1AE
+
+January 18, 1978
+
+Mr. G. L. Angel
+British Home Office
+G-4 Division
+Queen Anne's Gate
+London, S.W. 1
+
+Re: Request from House Select Committee on Assassinations to Meet with British Police Authorities
+
+Dear Mr. Angel:
+
+By way of background, the House Select Committee on Assassinations, as authorized by the U. S. House of Representatives, is investigating the circumstances surround-ing the murders of President J. F. Kennedy and Dr. Martin Luther King, Jr.
+
+The Chief Counsel and Staff Director requested con-tact be made with appropriate officials in the British Govern-ment to obtain authority to interview appropriate police officials who were involved in the arrest of James Earl Ray in London on June 8, 1968.
+
+Assistant Legal Attache Dennis Dickson had contact with you on December 6, 1977 regarding this matter. At that time you requested the following:
+
+A) Purpose or scope of inquiry;
+
+B) Names of individuals to be interviewed and reasons therefor;

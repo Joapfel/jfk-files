@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_2015.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Memphis, Tennessee
+
+December 5, 1977
+
+JAMES EARL RAY;
+
+Dr. MARTIN LUTHER KING, JR. - VICTIM;
+CIVIL RIGHTS - CONSPIRACY
+
+On November 21, 1977, retired Special Agent Joe C. Hester appeared at Washington, D. C., at the request of the House Committee on Assassinations.
+
+Mr. Hester met with the Committee staff in their offices at Washington, D. C., and was interviewed for a total of four hours by two different groups of five persons each. Both groups were affable and were not in any way critical of the investigation conducted in this case.
+
+The first group of five interviewers asked a variety of questions but seemed to be particularly preoccupied with the investigation conducted by Legats in Mexico. Mr. Hester was able to answer many of the general questions regarding the activities of Legats but referred them to Assistant Director Richard Long when they began to ask more specific questions regarding the investigations by Legats and the manner of transmittal of this information to FBI Headquarters.(c)
+
+The second group of five interviewers asked more general questions regarding the Bureau's investigation of the King murder. They seemed to be greatly concerned with the allegation of conspiracy. Mr. Hester advised them that he believed the conspiracy theory was an invention by the Department of Justice to be used to justify the FBI's investigation of Dr. King's murder. Mr. Hester advised them that he had never personally believed there was a conspiracy and he did not believe that any of his FBI superiors had ever believed in the conspiracy theory. Mr. Hester further advised that it was his personal opinion that James Earl Ray, acting alone, had murdered Dr. King and that his subsequent travels were probably financed by armed robbery.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+MEMO: LHG, 12-29-77
+
+62-117290-3L6L
+
+5/11/10
+
+NW 88808-Dated: 3/29/89 7:49 Page 128

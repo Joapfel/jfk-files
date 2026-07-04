@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_9416.png
+
+Convert to MarkdownThe Attorney General
+
+NOTE:
+
+On 6/11/75 Legal Counsel advised Mr. K. William O'Connor of the Department of our objection and our desire that excisions be made if we are overruled. Mr. O'Connor suggested the excised material be prepared on an expedite basis. It appears the Department will make available these exhibits to the Senate Select Committee but we feel we should be on record as relates to FBI recommendations and objections.
+
+This letter and exhibits A through E, which will be made available to Legal Counsel, should be delivered to Mr. O'Connor at the Department by Legal Counsel Division.

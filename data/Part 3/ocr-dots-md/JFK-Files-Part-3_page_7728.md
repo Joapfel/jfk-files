@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_7728.png
+
+Convert to MarkdownThe Attorney General
+
+NOTE:
+
+By memorandum 5/6/75, we advised the AG that the position paper in question was an internal deliberative document which was the direct basis for a formal statement on FBI authority to conduct internal security investigations embodied in a memorandum from the Director, FBI, to the AG dated 8/7/73. On this basis, we felt it was inappropriate that the requested position paper be made available to the SSC.
+
+In conversation between Deputy Assistant Attorney General O'Connor and SA Daly, referred to above, O'Connor indicated that it was the decision of the Department to make this paper available to the SSC. Since we have already expressed our position concerning the paper to the AG, it does not appear that there would be any purpose served disputing his decision. However, since it is an internal deliberative document, it is felt that the paper should be made available for review rather than given outright to the SSC. Also, we are setting a condition that no notes be taken during the initial review, subject to negotiation of further requests by the Committee.

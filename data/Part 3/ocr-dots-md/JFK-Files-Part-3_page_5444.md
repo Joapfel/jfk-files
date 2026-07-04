@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_5444.png
+
+Convert to MarkdownMemorandum to Mr. W. O. Cregar
+Re: Senstudy 75
+
+Item 6. Three Special Agents, Neil Rice, Larry McWilliams, and John McCaffrey, attended this Soviet Operations course at CIA Headquarters. The course ran from May 14 to May 25, 1973. Special Agent McCaffrey only attended one week while Rice and McWilliams attended for two weeks.
+
+The primary reason for FBI inclusion in this course was because, at that time, the three Special Agents were members of the new Training Unit, INTD, and we were seeking educational guidance and ideas for our basic CI courses then under development. We benefited from this course because we borrowed a few educational ideas and techniques from CIA's method of handling its course.
+
+**RECOMMENDATION:**
+
+None. For information.

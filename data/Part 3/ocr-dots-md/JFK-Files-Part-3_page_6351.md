@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_6351.png
+
+Convert to MarkdownRe: United States Senate Select Committee To Study Governmental Operations With Respect To Intelligence Activities (SSC)
+
+NOTE:
+
+This memorandum and memorandum dated 9/29/75 furnishes complete response to SSC requests of 9/4/75 and 9/23/75 relating to origination and use of information of an income tax nature by the FBI. The material being furnished was reviewed by SA R. D. Shea, IS-1 and SA L. E. Dean, IS-2.
+
+Copies of nine documents are being retained in instant file.

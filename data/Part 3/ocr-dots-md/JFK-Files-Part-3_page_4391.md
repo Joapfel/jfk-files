@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_4391.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+January 18, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: WHITE PANTHER PARTY - YOUTH
+INTERNATIONAL PARTY
+INTERNAL SECURITY - ANARCHY
+
+Reference is made to this Bureau's memorandum dated August 18, 1970, concerning captioned organizations. By approval of that memorandum on August 19, 1970, you authorized the installation of a telephone surveillance on the headquarters of the White Panther Party at 1520 Hill Street, Ann Arbor, Michigan, for a period of thirty days. Continuation of this surveillance was approved by you on December 12, 1970, for a period of thirty days, effective December 19, 1970.
+
+The [White Panther Party] is a self-described revolutionary organization which is a strong white support group for the Black Panther Party. Some of its current leadership presently advocates the use of violence to achieve revolutionary change in the United States. Recent communications from incarcerated [White Panther Party] leaders John Sinclair and Lawrence Plamondon indicate that the [White Panther Party] must strengthen its ties with all revolutionary peoples and nations throughout the "Third World" by participating fully in the new world liberation front. Furthermore, if the [White Panther Party] is moved against "in an unlawful violent manner by the force of reaction or their pawns, we will defend ourselves with arms and force."
+
+SECRET
+
+GROUP I
+
+Excluded from automatic
+downgrading and
+declassification
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.

@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_10210.png
+
+Convert to MarkdownADDENDUM: LEGAL COUNSEL DIVISION
+
+PVD:dkg 4-14-75
+
+Regarding the observations of the Intelligence Division concerning the making available the amount of manpower dedicated to counterintelligence and domestic intelligence work in the FBI, the Legal Counsel Division has the following observations:
+
+(1) Based on our analysis and conversations this Division has had with Fred B. Griffith of the Inspection Division, it appears that the information contained in this memorandum may be classified confidential under Executive order 11652.
+
+(2) Before making any determination as to whether we make such information available to the Senate Select Committee, it would appear we should determine from CIA what their response to such a request will be so that our position and that of CIA will be consistent in this area. In this regard SA Paul V. Daly has contacted Leon F. Schwartz, Liaison Section of Intelligence Division, and requested he determine from CIA what their position in this regard is.
+
+(3) It is not believed that we should take a hard and fast position that this information not be made available to the Committee or that we make an effort to have the Committee withdraw their request for this information. We should rather develop some fallback position such as that this information will be made available to the Chairman of the Committee or will be made available during an oral briefing, etc.
+
+NW 88608 DocId:32989628 Page 47

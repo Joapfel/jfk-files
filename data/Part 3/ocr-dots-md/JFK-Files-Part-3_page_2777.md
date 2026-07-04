@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_2777.png
+
+Convert to Markdownto be a Klansman and he happened to be with someone and they decided to do something, he couldn't be an angel. These are words of the Agent. And be a good informant. He wouldn't take the lead but the implication is that he would have to go along or would have to be involved if he was going to maintain his liability as a —
+
+MR. ADAMS: There is no question that an informant at times will have to be present during demonstrations, riots, fistfights that take place but I believe his statement was to the effect that, and I was sitting in the back of the room and I do not recall it exactly, but that some of them were beat with chains and I did not hear whether he said he beat someone with a chain or not but I rather doubt that he did, because it is one thing being present, it is another thing taking an active part in a criminal action.
+
+QUESTION: It's true. He was close enought to get his throat cut apparently.
+
+QUESTION: How does the collection of information about an individual's personal life, social, sex life and becoming involved in that sex life or social life is a requirement for law enforcement or crime prevention.
+
+MR. ADAMS: Our Agent handlers have advised us on Mr. Rowe that they gave him no such instruction, they had no such knowledge concerning it and I can't see where it would be of any value whatsoever.

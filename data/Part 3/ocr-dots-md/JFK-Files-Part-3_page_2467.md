@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_2467.png
+
+Convert to MarkdownWashington Field Division
+Room 1706
+Washington, D.C.
+January 31, 1948
+
+REN:HS
+
+DECLASSIFIED BY SP2 ALM/EHL ON 1/14/00
+
+PERSONAL AND CONFIDENTIAL
+
+DIRECTOR, FBI
+
+RE: Z COVERAGE
+INTERNAL SECURITY - C and R
+
+Dear Sir:
+
+Reference is made to your Personal. and Confidential Memorandum dated January 8, 1948, requesting to be advised what steps are taken by this office in the handling of material received from Confidential Informant %.
+
+Please be advised that this coverage was inaugurated in 1940 and since then it has been the practise to furnish copies of material believed to be of interest to other offices with a cover letter indicating the source of the material and that under no circumstances could this source be disclosed. In cases where the material examined appeared to be of interest to the Bureau photostatic copies of same were transmitted by letter.
+
+The confidential character of Informant % is generally understood throughout the Field. In cases where the material does not appear to be of any value it is destroyed and disposed of through the regular channels at the Seat of Government.
+
+GUY HOTTEL
+Special Agent in Charge
+
+NW 88608 DocId:32989618 Page 147

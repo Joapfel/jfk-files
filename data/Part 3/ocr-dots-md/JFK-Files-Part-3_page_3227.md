@@ -1,0 +1,94 @@
+# JFK-Files-Part-3_page_3227.png
+
+Convert to Markdowngsh
+
+10
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+getting advice from a person who had or was thought to have
+Communist leanings.
+
+And so without using the name, because we are trying to
+protect privacy as we conduct this investigation --
+
+Mr. Adams. I think we have a little more problem than
+that, too, Senator.
+
+The Chairman. I am just using a Mister X in place of
+the name. What I am trying to get at is when the Bureau,
+what the criteria is for pursuing an investigation, for
+pursuing the matter, and this is the kind of a statement that
+leaves me so perplexed. This has to do with a reply to the
+New York office by the Bureau here in Washington.
+
+The part I read to you is as follows:
+
+"The Bureau does not agree with the expressed belief
+of the New York office that Mr. X is not sympathetic to the
+Party cause. While there may not be any direct evidence that
+Mr. X is a Communist, neither is there any substantial
+evidence that he is anti-Communist."
+
+And so the directions are to continue the investigation
+of this matter. And in cases of this kind, do you pursue
+the investigation until you prove the negative?
+
+Mr. Adams. No. I believe in that particular case, if
+it is the one I am thinking about, that there was evidence
+that at one time he had been a Communist and that there was
+a question of whether the office felt -- well, it's like we
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1839

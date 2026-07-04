@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_7573.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams Memo
+Re: Senate Select Committee on
+Intelligence Activities
+
+(2) The attached airtel to the Washington Field Office be approved and sent making inquiry of that Office concerning allegations contained in the aforementioned letters.
+
+5/6-
+SAC Kun keh - Key
+SAC STames - wo
+Advis e w0 Pecaniwet
+Thone or fects went to
+Mr Hoover's home after
+Mr Tolson's dea ds RAH
+have invok ed A transPa cts
+recs oA may mat erial ,10
+ connection w1 wa y -

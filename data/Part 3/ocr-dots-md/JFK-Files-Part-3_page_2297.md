@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_2297.png
+
+Convert to Markdown(b) If after timely receipt of a certification by the President made pursuant to subsection (a), the Committee on Intelligence Activities determines that such information should be publicly disclosed, such committee shall refer the question of disclosure of such information to the Senate for such action as the Senate deems appropriate.
+
+(c) Any question referred to the Senate by the Committee on Intelligence Activities pursuant to subsection (b) shall be disposed by the Senate within three calendar days following the day on which the question is reported to the Senate, excluding days on which the Senate is not in session.
+
+SEC. 12. The Committee on Intelligence Activities of the Senate is authorized to permit any personal representative of the President, designated by the President to serve as a liaison to such committee, to attend any closed meeting of such committee.
+
+SEC. 13. (a) Notwithstanding any other provision of law, it shall be the duty of the head of each department and agency of the United States to keep the Committee on Intelligence Activities of the Senate fully and currently informed with respect to all intelligence activities which in any respect are the responsibility of or are planned, supervised, financed, or engaged in by such department or agency.
+
+(b) Notwithstanding any other provision of law, it shall also be the duty of the head of any department or agency of the United States involved in any intelligence activities to furnish any information or document in its possession, custody, or control, or witness in its employ, whenever requested by the Committee on Intelligence Activities of the Senate with respect to any matter within such committee's jurisdiction.
+
+(c) In order that the Committee on Intelligence Activities of the Senate may have sufficient time to consult with and advise any department or agency of the United States regarding certain kinds of intelligence activities proposed to be carried out by such department or agency, before such department or agency initiates such activities, such
+
+NWW 88608 DocId:32989570 Page 132

@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_8110.png
+
+Convert to MarkdownALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/22/01
+
+BY LIAISON
+
+May 16, 1975
+
+Mr. William J. Cotter
+Chief Postal Inspector
+U. S. Postal Service
+Washington, D. C.
+
+Dear Bill:
+
+I have been advised that a representative of the Senate Select Committee has recently made a request of your Service to furnish the identities of all FBI mail covers placed since 1980.
+
+In view of the fact that such information directly relates to the investigative responsibilities of this Bureau, it is requested that you advise the Senate Select Committee that such a request should be made to the FBI through the Office of the Attorney General.
+
+Your cooperation in this matter is sincerely appreciated.
+
+LAC:tdp (10)
+
+NOTE:
+
+See memorandum Flemister to Wannall dated 5/15/75, captioned "Mail Covers," prepared by LAC:tdp.
+
+MAIL ROOM ☐ TELFTYPE UNIT ☐
+
+**NOT RECORDED**
+40 MAY 27 1975
+
+Original filed in
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+84 MAY 27 1975

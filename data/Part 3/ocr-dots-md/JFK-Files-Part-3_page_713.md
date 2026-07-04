@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_713.png
+
+Convert to MarkdownUNITED STATES SENATE
+SELECT COMMITTEE ON
+INTELLIGENCE ACTIVITIES
+(SSC)
+
+INTERVIEW OF SPECIAL AGENT
+(SA) LAWRENCE F. WIRICK BY
+SSC STAFF MEMBER
+
+On July 31, 1975, at 11:45 a.m. Mr. Lester Seidel of the United States Senate Select Committee (SSC) interviewed SA Lawrence F. Wirick at the San Diego Office of the FBI. No Advice of Rights was furnished SA Wirick and it was not necessary for the interviewee to consult with an FBI representative. The interview was terminated at 12:50 p.m. and as best recalled included the following discussion in the form of questions and answers:
+
+**Seidel:** You understand that this is an informal interview and is in connection with the Bureau's COINTELPRO as it relates to the FBI investigation of the BPP?
+
+**Wirick:** Yes, but for what purpose is the Senate conducting this survey?
+
+**Seidel:** To aid in formation of new legislation so that the FBI and other Government agencies will have more definite guidelines to follow.
+
+**Wirick:** I believe the Congress already through lack of information, isolated instances and some hysteria have enacted too many restrictive laws that prevent the FBI and other Government agencies from protecting the law abiding element of our society from the "bad guys".
+
+**Seidel:** (He was in general agreement) Did you handle the COINTELPRO from 1970 through March, 1971?
+
+**Wirick:** Yes, but I believe the BPP ceased to function locally about November or December, 1970. As I recall my function was to write a progress type letter regarding progress which described the illegal activities of members of the BPP and to report that this information had been furnished local police agencies but information generally emanated from confidential informants.

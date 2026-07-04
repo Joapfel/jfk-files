@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_2168.png
+
+Convert to MarkdownThe Attorney General
+
+NOTE:
+
+The documents relating to the Hunter Project; Z Coverage; CHIPROP Survey; SAM Survey; GUS Survey; CHICAN Survey; JOE Survey; and the CHICLET Survey were reviewed by personnel of the Intelligence Division.

@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_4356.png
+
+Convert to Markdown# MEMORANDUM FOR THE ATTORNEY GENERAL
+
+In view of the violence-prone nature of the [BPP] it can be reasonably anticipated that subjects involved in past or future criminal violations may be monitored. The guidelines to be followed, as previously furnished by you, will be strictly complied with in such instances.
+
+If you approve, a telephone surveillance will be placed on the headquarters of the [Boston chapter of the BPP at 21-23 Winthrop Street, Roxbury, Massachusetts]. If the coverage proves productive, it will be continued for an indefinite period. There will be no trespass involved regarding the installation of this telephone surveillance.
+
+APPROVED John N. Pitutell
+DATE 8/31/70
+
+SECRET

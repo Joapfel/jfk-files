@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_4556.png
+
+Convert to MarkdownTP 92-1
+
+# AT YELLOWSTONE NATIONAL PARK
+
+Will, at Indian Trading Post, attempt to determine details of purchase including date purchased, name used in making purchase, and any other information that would aid in placing TRAFFICANTE at any location at any given time.
+
+## WFO
+
+### AT WASHINGTON, D. C.
+
+Will, at Bureau of Customs, determine nature of stop requested and any information obtained by Customs as a result of such stop.
+
+### ARMED AND DANGEROUS.

@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_8231.png
+
+Convert to MarkdownThe Honorable Elliot L. Richardson
+
+October 10, 1973
+Page 5
+
+d. Do the figures refer to the number of premises at which interceptions were made, the number of persons who were the primary targets of such interceptions, the number of listening devices installed, or some other number?
+
+e. For each of the years involved, do the figures refer to wiretapping by all governmental agencies or only by the Federal Bureau of Investigation? If the reference is to agencies other than the F.B.I., please indicate which agencies. How many of the interceptions referred to related to organized crime investigations?
+
+f. If the answers to the above questions do not explain the inconsistencies between the figures released by the White House and those supplied to me, please indicate any other explanation that may account for the differences.
+
+13. a. Please provide the number, names, and the present status of all criminal prosecutions in which electronic surveillance was used in any way in cases involving domestic security, as described in Question 9a above.
+
+b. Deputy Assistant Attorney General Maroney testified before this Subcommittee that in "practically all cases" in which a criminal defendant was overheard without a warrant, the government disclosed the surveillance to the trial court. Please indicate the number, names, and the present status of any cases in which an electronic surveillance or a criminal defendant was made but in which such a disclosure was not made to the trial court. Please also specify the nature of any standards and procedures adopted by the Department to ascertain and review such cases.
+
+14. With respect to all electronic surveillances newly installed between January 1, 1973, and September 30, 1973, please indicate the number of surveillances authorized under each of the five statutory categories contained in Section 2511(3) of Title 18, United States Code. Please also provide the same information with respect to all electronic surveillances in place on September 30, 1973, regardless of when they were installed.
+
+15. a. Please set forth the standards and procedures that the Department has adopted with respect to assuring compliance with the Supreme Court decision in United States v. United States District Court. Please also indicate the nature and timing of any changes in the Department's practices and procedures in this respect.
+
+b. Please indicate the nature of any standards or procedures adopted by any other department, agency, bureau, division, or any other entity of the United States government to assure compliance with the Supreme Court decision.

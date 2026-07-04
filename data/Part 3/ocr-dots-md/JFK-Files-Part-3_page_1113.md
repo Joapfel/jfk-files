@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_1113.png
+
+Convert to Markdown# SECRET
+
+## Counterintelligence Programs
+
+On February 17, 1970, the St. Louis Office sent an anonymous letter to Richard Simon, the husband of Jane Simon. She is an officer in ACTION, a biracial black extremist group. The letter accused her of infidelity. This letter, sent to Richard Simon, was designed to confirm his suspicions about the relationship between his wife, white, and black males associated with ACTION.
+
+It was learned that shortly after the receipt of this letter, the couple involved separated following a series of marital arguments.
+
+EEG:lfj
+(9)
+
+100-448006-1603, 1863
+
+SECRET
+
+134

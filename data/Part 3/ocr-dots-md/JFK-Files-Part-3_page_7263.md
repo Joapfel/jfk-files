@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_7263.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+DRAFT
+
+DEPARTMENT OF JUSTICE
+
+SECRET - EYES ONLY
+
+TO : See Addressees Below
+
+FROM : Robert C. Mardian
+Assistant Attorney General
+Internal Security Division
+
+SUBJECT: Intelligence Evaluation Committee
+
+DATE:February 10, 1971
+
+I. AUTHORITY:
+
+Interdepartmental Action Plan for Civil Disturbances.
+
+II. MISSION:
+
+To provide intelligence estimates to the responsible Government departments and agencies on a need-to-know basis in order to effectively evaluate and anticipate problems to appropriately respond to civil disorders. In carrying out this mission, the Committee shall have access to all pertinent intelligence in the possession of the United States Government.
+
+III. MEMBERSHIP:
+
+Members of the Committee shall consist of representatives of the following departments and agencies: Department of Defense; Department of Justice; Central Intelligence Agency; Federal Bureau of Investigation; Secret Service; National Security Agency, and, when necessary, representatives of other departments or agencies designated by the Committee.
+
+IV. STAFF:
+
+The Committee will be supported by a permanent intelligence estimation staff* consisting of representatives from member
+
+* The Federal Bureau of Investigation advised it would not provide personnel for this staff.

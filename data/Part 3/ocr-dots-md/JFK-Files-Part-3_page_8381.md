@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_8381.png
+
+Convert to Markdown9. We want all black people when brought to trial to be tried in court by a jury of their peer group or people from their black communities, as defined by the Constitution of the United States.
+
+We believe that the courts should follow the United States Constitution so that black people will receive fair trials. The 14th Amendment of the U.S. Constitution gives a man a right to be tried by his peer group. A peer is a person from a similar economic, social, religious, geographical, environmental, historical and racial background. To do this the court will be forced to select a jury from the black community from which the black defendant came. We have been, and are being tried by all-white juries that have no understanding of the "average reasoning man" of the black community.
+
+10. We want land, bread, housing, education, clothing, justice and peace. And as our major political objective, a United Nations-supervised plebiscite to be held throughout the black colony in which only black colonial subjects will be allowed to participate, for the purpose of determining the will of black people as to their national destiny.
+
+When, in the course of human events, it becomes necessary for one people to dissolve the political bands which have connected them with another, and to assume, among the powers of the earth, the separate and equal station to which the laws of nature and nature's God entitle them, a decent respect to the opinions of mankind requires that they should declare the causes which impel them to the separation.
+
+We hold these truths to be self-evident, that all men are created equal; that they are endowed by their Creator with certain unalienable rights; that among these are life, liberty, and the pursuit of happiness. That, to secure these rights, governments are instituted among men, deriving their just powers from the consent of the governed; that, whenever any form of government becomes destructive of these ends, it is the right of the people to alter or to abolish it, and to institute a new government, laying its foundation on such principles, and organizing its powers in such form, as to them shall seem most likely to effect their safety and happiness. Prudence, indeed, will dictate that governments long established should not be changed for light and transient causes; and, accordingly, all experience hath shown, that mankind are more disposed to suffer, while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed. But, when a long train of abuses and usurpations, pursuing invariably the same object, evinces a design to reduce them under absolute despotism, it is their right, it is their duty, to throw off such government, and to provide new guards for their future security.
+
+5
+
+NW 88614 DocId:32989606 Page 128

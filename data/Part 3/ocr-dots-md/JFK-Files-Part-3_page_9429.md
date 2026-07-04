@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_9429.png
+
+Convert to MarkdownAll documents constituting or relating to agree-
+ments with other agencies regarding participation by the
+IRS in Organized Crime Strike Forces, including any docu-
+ments relating to the desirability of participating on such
+strike forces.
+
+D. Special Service Staff
+
+In addition to the documents requested in Part I,
+please furnish the following documents relating to Special
+Service Staff (SSS):
+
+1. any document which established the SSS;
+
+2. a detailed organizational chart of the SSS indicating the number of employees in each unit of the SSS and the duties and responsibilities of the employees of each unit, as well as the chain of command from the Commissioner of Internal Revenue to the head of SSS;
+
+3. a document or documents indicating the names of all employees of SSS during its existence, and indicating the position occupied by each such employee;
+
+4. all documents relating to the policies, operations and procedures of the SSS relating to the collection, analysis, storage and dissemination of information;
+
+5. all documents relating to the transfer of any SSS files to IGRS.
+
+E. Audit Division
+
+In addition to any documents relating to the Audit
+Division which may be encompassed by Part I, please furnish:
+
+1. the rules, regulations and guidelines, including
+employee manuals, for selection of taxpayers for audit
+and the legal authority for such rules, regulations and
+guidelines;
+
+2. the rules, regulations and guidelines relating to the storage, use and dissemination of information gathered through audits;
+
+3. all documents relating to any of the following occurring since 1950
+
+NW.88614 DocId:32989606 Page 196

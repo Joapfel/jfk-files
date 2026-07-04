@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_6864.png
+
+Convert to MarkdownSSC REQUEST 9/29/75
+ITEM 18
+
+#MDE16 SP2 ALM/FG
+
+SEI 4/65
+
+10/13/00
+
+NW 88614 DocId:32989673 Page 212

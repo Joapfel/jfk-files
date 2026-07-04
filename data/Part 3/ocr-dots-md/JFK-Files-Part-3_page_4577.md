@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_4577.png
+
+Convert to MarkdownDate : 02/11/98
+Page : 1
+
+JFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+
+AGENCY INFORMATION
+
+AGENCY : FBI
+RECORD NUMBER : 124-10204-10278
+RECORDS SERIES : HQ
+AGENCY FILE NUMBER : 2-1821-28
+
+DOCUMENT INFORMATION
+
+ORIGINATOR : FBI
+FROM : DIRECTOR, FBI
+TO : SAC, MM
+TITLE :
+DATE : 08/02/63
+PAGES : 2
+SUBJECTS : ACA, VDEH, EXPLOSIVES, SEIZED, BOMBING RAID
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : UNCLASSIFIED
+RESTRICTIONS : 4
+CURRENT STATUS : RELEASED WITH DELETIONS
+DATE OF LAST REVIEW : 02/11/98
+OPENING CRITERIA : INDEFINITE
+COMMENTS :
+
+<table>
+   <tr>
+    <td>2025 Release under the</td>
+   </tr>
+   <tr>
+    <td>President John F. Kennedy</td>
+   </tr>
+   <tr>
+    <td>Assassination Records</td>
+   </tr>
+   <tr>
+    <td>Collection Act of 1992</td>
+   </tr>
+  </table>

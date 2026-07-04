@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_3012.png
+
+Convert to Markdownsmn 11
+
+1950
+
+if a person wants to tell an informant something that isn't protected by the Supreme Court.
+
+An actual search for legal evidence, that is a protected item, but information and the use of informants have been consistently held as not posing any constitutional problems.
+
+Senator Mathias. I would agree, if you're talking about the fellow who walks in off the street, as I said earlier, but is it true that under existing procedures informants are given background checks?
+
+Mr. Adams. Yes, sir.
+
+Senator Mathias. And they are subject to a testing period.
+
+Mr. Adams. That's right, to verify and make sure they are providing to us reliable information.
+
+Senator Mathias. And during the period that the relationship continues, they are rather closely controlled by the handling agents.
+
+Mr. Adams. That's true.
+
+Senator Mathias. So in effect they can come in a very practical way agents themselves to the FBI...
+
+Mr. Adams. They can do nothing--
+
+Senator Mathias. Certainly agents in the common law use of the word.
+
+Mr. Adams. That's right, they can do nothing, and we instruct our agents that an informant can do nothing that the agent himself cannot do, and if the agent can work himself into
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

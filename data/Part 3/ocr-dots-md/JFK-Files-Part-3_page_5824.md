@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_5824.png
+
+Convert to MarkdownLA 157-2325
+
+Records of the Los Angeles Traffic Court were reviewed by Special Employee GAREY D. PONELL.
+
+Records of the Retail Merchants Credit Association, Los Angeles, California, were reviewed by IC BERNARD P. BLAIS.
+
+Records of the Los Angeles County Voters Registration were reviewed by Special Employee GAREY D. PONELL.
+
+LEADS
+
+LOS ANGELES
+
+AT LOS ANGELES, CALIFORNIA: Will upon Bureau approval include DAVIS in the Security Index, and disseminate copy of this report to Secret Service.
+
+BOSTON
+
+AT BOSTON, MASSACHUSETTS: Will submit results of investigation per referenced letter dated 3/27/69.
+
+SAN DIEGO
+
+AT SAN DIEGO, CALIFORNIA: Will submit results of investigation per referenced letter dated 3/27/69.
+
+INFORMANTS
+
+| SOURCE | LOCATION |
+|---|---|
+| LA T-1 <br> Records Clerk <br> UCSD <br> San Diego, <br> California | 157-2325-11 |
+| LA T-2 <br> SOURCE | 157-2325-13 |
+
+-- C --
+
+COVER PAGE
+
+NW 88614 DocId:32989673 Page 321

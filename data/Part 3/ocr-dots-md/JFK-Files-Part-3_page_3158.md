@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_3158.png
+
+Convert to Markdown1770
+
+he knew any negro of outstanding intelligence or ability, let me know and we would have a discussion.
+
+"He has submitted to me the name of the above-named person. Enclosed with this memorandum is an outline of X's biography, which is truly remarkable. In scanning this biography, it will be seen that X does have all of the qualifications of the kind of a negro I have in mind to advance to positions of national leadership."
+
+And skipping: "I want to make it clear at once that I don't propose that the FBI in any way become involved openly as the sponsor of a negro leader to overshadow Martin Luther King. If this thing can be set up properly without the Bureau in any way becoming directly involved, I think it would be not only a great help to the FBI, but would be a fine thing for the country at large."
+
+"While I'm not specifying at this moment, there are various ways in which the FBI could give this entire matter the proper direction and development. There are highly placed contacts at the FBI who it might be very helpful to further such a step. This can be discussed at a later date when I have probed more fully into the possibilities and this recommendation is that approval be given for me to explore the whole matter as set forth above," and to that Mr. Hoover says, "I'm glad to see the light has finally come. I have struggled for months to get over the fact that the communists
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+NW·88614 DocId:32989543 Page 47

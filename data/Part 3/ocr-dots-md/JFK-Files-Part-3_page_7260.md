@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_7260.png
+
+Convert to MarkdownSECRET
+
+- 2 -
+
+4. That the Inter-Departmental Information Unit (IDIU) of the Department of Justice would be used as a cover for the proposed domestic intelligence unit.
+
+5. That Justice Sharp would meet with Jim Devine of the IDIU for the purpose of informing himself as to the character of the IDIU operation and developing with Devine a strategy for the use of the IDIU as the operating entity for the proposed domestic intelligence unit.
+
+Justice Sharp, Dean, and Mardiian met on Wednesday, November 11, and reviewed the history of the government's attempt to create a domestic intelligence unit, including the efforts of the Ad Hoc Inter-Agency Committee (under the Chairmanship of Director Hoon.) that recently made a study of the domestic intelligence gathering process and proposed steps that could be taken to improve that process.
+
+--- 
+It was generally agreed that, initially, the proposed domestic intelligence unit should limit itself to obtaining and evaluating the available intelligence information from the existing sources of the government and developing a more sophisticated method of collating and evaluating such information.
+---
+
+If you approve the foregoing and will advise us that preliminary contact has been made with the heads of the affected Agencies, we will proceed in accordance with your instructions.
+
+SECRET
+
+NWW 88608 DocId:32989530 Page 225

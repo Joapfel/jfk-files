@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_7296.png
+
+Convert to MarkdownREC-111
+
+February 3, 1975
+
+SENATE SELECT COMMITTEE
+TO CONDUCT AN INVESTIGATION AND STUDY OF
+GOVERNMENTAL OPERATIONS WITH RESPECT TO
+INTELLIGENCE ACTIVITIES
+
+Concern for the security and survival of the nation dictates that discussion of details of highly-sophisticated intelligence-gathering techniques and methods employed by the FBI be held only under controlled conditions, such as in Executive Session before only Senators serving as members of the Committee. This includes not only those techniques and methods used in furtherance of FBI responsibilities, but also those utilized in support of missions of other members of the United States intelligence community.
+
+62-116395
+
+ORIGINAL AND ONE FURNISHED DIRECTOR COLBY, CIA, BY LIAISON
+
+HFC:JPT:dsh
+
+(9)
+
+NOTE:
+
+See memorandum W. O. Cregar to Mr. W. R. Wannall,
+dated 2/3/75, captioned "Select Committee of the Senate,"
+prepared by WOC:ebc/bcw.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+GPO 954
+
+NW 88608 DocId:32989530 Page 261

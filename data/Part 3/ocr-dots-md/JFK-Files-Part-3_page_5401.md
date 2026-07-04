@@ -1,0 +1,91 @@
+# JFK-Files-Part-3_page_5401.png
+
+Convert to MarkdownHughes, Brent H.
+Exhibits Section
+Exhibits Section
+
+Isner, James D.
+Messenger Unit
+Correlation Unit
+
+Jones, Robert B.
+Director's Office
+(Clerk)
+Director's Office
+(Clerk)
+
+Koerner, Julian A.
+Security Patrol Clerk
+New York
+(Special Agent)
+
+Kuhn, Daniel F.
+Supervisor
+Supervisor
+
+Kunkel, Robert G., SAC
+SAC
+(Washington Field)
+SAC
+(Alexandria)
+Contract Specialist
+
+Lockhart, Lois W.
+Supply Supervisor
+Contract Specialist
+
+Lovelace, James
+Security Patrol Clerk
+Philadelphia
+(Special Agent)
+
+Lovelace, Melvian
+Exhibits Section
+Exhibits Section
+
+Lyles, Everett A.
+Mechanical Section
+Out of Service
+4561 North Capitol Street, N. W
+Washington, D. C.
+
+Marsden, Robert B.
+Mechanical Section
+(Supervisor)
+Mechanical Section
+(Supervisor)
+
+McCord, Ruth, Miss
+Director's Office
+Director's Office
+
+McMichael, G. Speights
+Procurement Section
+Procurement Section
+
+Metcalf, Erma, Mrs.
+Director's Office
+Director's Office
+
+Mohr, John P.
+Director's Office
+Out of Service
+3427 North Edison, Arlington,
+Virginia
+
+Mooney, Nancy A., Miss
+Director's Office
+Director's Office
+
+Moten, Thomas E., SA
+Chauffeur
+Chauffeur
+
+Ness, Ronald H.
+File Delivery Unit
+Out of Service
+3410 Manis Road, Clinton,
+
+Filing Unit
+Mail Room
+Maryland

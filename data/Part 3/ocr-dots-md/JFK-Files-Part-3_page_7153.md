@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_7153.png
+
+Convert to MarkdownI hereby agree that any information learned during my employment or assignment with the Select Committee which is related to intelligence and prepared for publication by me will be submitted to the Chairman or the President of the Senate or their duly authorized representative prior to discussing with or showing to any publisher, editor or literary agent for the purpose of determining whether said material contains any classified information as defined in Executive Order 11652. I agree that the Chairman of the Select Committee, President of the Senate or their duly authorized representative has the authority to make the final determination as to whether information is classified and thus should be deleted from the material submitted.
+
+I have been informed of the provisions of 18 U.S.C. 793, 794, 798 and 952; and 50 U.S.C. 783 (b); and 42 U.S.C. 2274; and Executive Order 11652, all of which relate to the protection of classified information, and understand their meaning.
+
+Further, I agree to abide by such rules and procedures as the Select Committee shall institute for the protection of classified material. I understand that any breach of any part of the obligations in this agreement could subject me to legal and/or administrative action.
+
+I further agree that all the conditions and obligations imposed on me with respect to the protection of classified information by this agreement and applicable security regulations apply during my employment or assignment and continue after that relationship has terminated.
+
+I take the obligations set forth above freely and without any mental reservations or purpose of evasion.
+
+WITNESS:
+
+Signature
+
+Date
+
+Signature
+
+Date
+
+NW 88608 DocId:32989530 Page 118

@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_8134.png
+
+Convert to MarkdownMemorandum to Mr. J. B. Adams
+
+RE: SENSTUDY 75
+62-116395
+
+indicating in most instances what other Divisions would have an input to furnish the primary Division. Even if auxiliary Divisions are not designated for input purposes, if the primary Division desires the views of another Division, it should obtain same prior to preparing the material.
+
+Because of the involved coordination necessary, it is requested that each Division except OPE designate a representative to appear at a conference at 10:00 A.M. Friday, 5/9/75, in the Intelligence Division Conference Room, Room 4017, JEH Building, where the details for preparation of the necessary material will be discussed.
+
+The following are the assignments corresponding with the 4/30/75 SSC memorandum and its appendices which deal with four main requests.
+
+(1) The portion dealing with Superseded Sections of the Manual of Instructions will be handled by the Training Division which will gather all of the necessary information from Bureau files after which Intelligence Division will review and make a final determination as to the necessary response to the SSC.
+
+(2) Concerning Sections of the Manual of Instructions Not Previously Produced and the corresponding Appendix B, the following assignments are made.
+
+| Section | Subject | Assignment |
+|---|---|---|
+| 4 | Surveillances and Raids | (Training Division with input to be supplied by the three investigative Divisions. Note should be taken that this Section was previously made available to GAO in connection with its audit of Bureau operations.) |
+| 8R | Data Processing Section,<br>Computer Systems Division | (Computer Systems Division) |
+
+CONTINUED - OVER

@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_5126.png
+
+Convert to MarkdownAugust 20, 1975
+
+REQUEST FOR FBI MATERIALS
+
+# Part I -- requested for delivery by August 26, 1975
+
+1. Materials pertaining to the origins, approval, and implementation of SAC letter 70-48 dated September 15, 1970, which authorized development of Security Informants between the ages of 18 and 21.
+
+2. Materials pertaining to a two-day conference held at FBI headquarters on September 17-18, 1970, with racial supervisors from 39 field offices plus two legal attaches, including the initiation of the conference, the subjects discussed, and any advice or instructions to the field related thereto.
+
+3. Materials pertaining to the origins, approval, and implementation of decision in 1970 to grant approvals for Special Agents in Charge on their own initiative to authorize use of concealed recording devices by a Special Agent or proven source in covering public appearances by black and New Left extremists except where such appearances are at educational institutions.
+
+4. Materials pertaining to the Attorney General's testimony on February 27, 1975, regarding "types of abuse for which the Bureau has been susceptible in the past." (This material was previously made available for review per III. D. of your letter of August 1, 1975. Delivery is now requested.)
+
+5. All SAC letters and SAC memoranda previously made available for access by SSC staff at FBIHQ. (Cf., Part IV, item 3.)
+
+ENCLOSURE
+
+62-116395-5560
+
+ENCLASIFIED
+THIS PAGE CONTAINED ALL INFORMATION CONTAINERE HEREIN IS UNCLASSIFIED DATE 10/18/75 BY SPA 1/17/75 M/L ET AL

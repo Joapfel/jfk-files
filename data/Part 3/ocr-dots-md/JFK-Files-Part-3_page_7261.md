@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_7261.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+SECRET - EYES ONLY
+
+TO : The Attorney General
+
+FROM : Robert C. Mardian
+Assistant Attorney General
+Internal Security Division
+
+SUBJECT: Intelligence Evaluation Committee Meeting
+
+DATE: December 17, 1970
+
+The second meeting of the Intelligence Evaluation Committee took place at the hour of 9 AM in the Conference Room of the Vice President, Executive Office Building, on Wednesday, December 16, 1970. Attending were Justice Morell Sharpe, Egil Krogh, John Dean, Robert Froehlke (DOD), James Angleton (CIA), Thomas Kelly (Secret Service), Benson Buffham (NSA), George Moore (FBI), John Doherty (Technical Advisor to the Chairman), and myself.
+
+Assistant Secretary Froehlke explained that he had been requested by Secretary Laird to attend the preliminary meetings and that after he had had an opportunity to brief the designee (probably 'Colonel Downey') that said designee would attend future meetings. He requested that I meet with him and Don Bennett of the DIA preliminary to Secretary Laird's making any designation. This I agreed to do.
+
+I opened the meeting by briefly outlining the conclusions reached at our first meeting for the benefit of those who were not present. We then discussed how best to approach a solution to the problem and it was unanimously agreed as follows:
+
+That on or before January 6, 1971, the operative agencies represented would furnish to me under appropriate security measures: (1) organizational targets and (2) intelligence targets (such as the extent and nature of foreign influence on our organization targets and the extent and nature of the financing of our organization targets).
+
+Inspector Moore disclosed that the FBI had compiled a calendar of demonstrations and events planned by certain of the target organizations. He agreed to furnish a copy of the calendar to
+
+SECRET - EYES ONLY
+
+NW-88608-DocID:32989530 Page 226

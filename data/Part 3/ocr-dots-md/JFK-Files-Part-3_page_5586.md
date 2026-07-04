@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_5586.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 10/15/75
+
+U.S. SENATE SELECT COMMITTEE.
+Caption (Document:
+9/23/75 request and 9/4/75
+
+Originating Office: FBI
+
+Delivered by: Dennis Miller Date: 10/20/75
+
+Received by: Ben Marshall
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI
+
+ENCLASURÉ

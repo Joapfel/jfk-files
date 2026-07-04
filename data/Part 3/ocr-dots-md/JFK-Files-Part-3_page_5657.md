@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_5657.png
+
+Convert to MarkdownDRAFT - 9/12/63
+
+TO: J. Edgar Hoover
+Director, Federal Bureau of Investigation
+
+FROM: Burke Marshall
+Assistant Attorney General
+
+SUBJECT: Hunter Pitts O'Dell
+
+This relates to your letterhead memorandum of September 5 to the Attorney General, relating to Hunter Pitts O'Dell and their prior memorandum. I appreciate your having sent copies of these to me.
+
+This matter had been brought to the attention of Dr. King some time ago by me, but in accordance with conversations which the Attorney General had with Courtney Evans, it was not felt to be wise in view of the sources of the Bureau's information to state that I knew O'Dell to be under Communist control at any time. I did inform Dr. King and two members of his organization -- Reverend Andrew Young and Reverend Wyatt Walker -- some time ago -- that since O'Dell was believed by many people to have had Communist connections, his association with their organization was not in the best interests of the organization.
+
+At that time, inconclusive steps were taken to remove O'Dell, and his job with the Southern Christian
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI. / . - 2/10
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11-8-63 BY SPA A1W 1-516
+
+~~FMR16~~
+
+~~THIS ~~
+~~MAY BE~~
+~~FILTERED~~
+~~FOR RELEASE~~
+~~WITHin 72 hours~~
+~~BY THE AUTHORIZED DISSEMINATOR~~
+
+~~NOTE: This document has been classified as-sensitive and is intended for the specific use of the addressee only.~~
+
+~~NOTE: If you are a member of this committee, please keep all other members of the committee informed on matters within your purview.~~
+
+~~NOTE: All inquiries concerning this document should be directed to the designated contact listed below.~~
+
+NOTE: This document is prepared in response to your request and is not for dissem-
+ination outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.
+
+NOTE: All information contained in this document is confidential and should not be used or distributed without written permission from the source. The authoritativeness of this document is limited by its age and the availability of supporting evidence. Refer to the latest official statement or report on the subject.

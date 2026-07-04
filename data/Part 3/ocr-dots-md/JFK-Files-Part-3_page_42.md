@@ -1,0 +1,125 @@
+# JFK-Files-Part-3_page_42.png
+
+Convert to MarkdownAnd, in addition to this,
+spelling both (B. L.) and
+will do so, the hernia
+deals with the added
+solace, unlike Beatrice A.,
+tely of having a private
+affinity, a family friend,
+who will represent their
+son in court.
+
+"The Paseygoing"
+
+"Oscar was so quiet, so
+easily going, he stayed
+home most of all the time,"
+says Helen Hernandez,
+proudly, "I watched tele-
+vision, he read a lot of
+books and sport; made
+zines. And he always
+helped me around the
+house. Every morning we
+made the beds together
+and washed the dishes."
+
+Abruptly, she vanished into a back room, returning unexpectedly with a bulging photograph album. It turned out to be what, in her heart, Helen Hernandez considers immutable proof of her son's inoccuence in this bizarre episode.
+
+The book was filled with pictures Oscar had taken in Vietnam -- photos of children. Waifs, orphans, refugees who hung around with Oscar and Oscar's friends.
+
+"He loved children," said Helen Hernandez, as Antonio nodded vigorous agreement. She looked suddenly grim, as if she had realized, maybe for the first time, how seriously important that point might eventually become.
+
+"I haven't visited him yet," she said, self-consciously admitting she was "afraid to see that he's really locked up in jail." She would probably just cry, she said.
+
+But, she added, she's gotten past her initial hysteria with a dose of tranquilizers—and by having her telephone number changed. Like Mrs. Antelo, she was getting hate calls at a daily rate.
+
+"I've been trying to get
+clothing, shoes, clothes to
+(heal)," she said nervously
+fingering the album in her
+lap. "But, I guess I'm
+anxious. I just don't know
+what to say to her. Except
+that I know how she must
+be feeling. And I cry for
+her child, too, just as I cry
+for Oscar."
+
+Normally, 12 people live
+in the four-room house-
+hold of Miguel Ramirez,
+38, a disabled construction
+worker. At present,
+however, there are only 10
+because his wife Rose is
+visiting an ailing brother
+in Mexico and his son Mi-
+chael, 17, is in jail.
+
+On a recent hot weekday morning, eight family members were scattered about the tiny squalid living room, dank with the sour odors of diapers, cooking foods and too many bodies packed too close together without benefit of even a fan.
+
+There was Ramirez himself, a raw, grizzled man who sat in his undershirt in a corner chair, somehow projecting rock solid stability in an otherwise incredibly fluid human scene unfolding before him.
+
+Three of his four daugh-
+ters—all mothers, all un-
+
+n married and two of them
+to him, pregnant again,
+sat sprawled on the
+ragged, dirty air and
+coaches. All three ren-
+dered inordinately ill-tem-
+pered by the miserable
+heat, they said:
+
+And four of Hernandez's
+grandchildren—two boys
+and two girls, aged 2 to 4
+—crawled, ran ... scrambled
+into a shrinking, laughing
+fur through the
+house, chasing a single re-
+vared dog and, more often
+than not, taking advan-
+tage of one of their own,
+too—a pathologic 4-year-old
+boy, the red-eyed victim of
+chicken pox.
+
+Senior daughter
+
+On a couch, half covered
+by a sheet, Yolanda Rami-
+rez, 24, the senior daughter,
+was outshouting a Popeye
+cartoon blaring on the
+television. Now seven-
+months pregnant, for the
+third time, she was trying
+to resolve the question of a
+missing blouse with her
+sister Marina, 21, six
+months pregnant, who sat
+methodically rolling
+breakfast beans into torta-
+las, burrito style, at the
+end of the room.
+
+A near-obese third daughter, Sylvia, mother of two of the rampaging children, sat bulging out of her tight shorts, fanning herself with a purple crochet doily which she had snatched from a screaming baby who had spun it wildly in the air long enough finally to knock the fire off her cigarette and get smacked for it.
+
+"God, they'll all get the
+pox and what a mess
+that'll be," lamented Syl-
+via.
+
+"Well, hell, they all gotta
+get it sometime," observed
+Yolanda sagely, demon-
+strating that, of the three
+women, she is by far the
+most philosophic.
+
+"None of us are mar-
+ried," she said,

@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_1878.png
+
+Convert to MarkdownRE: JAMES EARL RAY; Dr. MARTIN LUTHER KING, JR. - VICTIM
+
+The Committee indicated that they might desire to interview Mr. Hester again, either personally or telephonically, and they were assured that he would be available and agreeable to assisting them in any way possible.

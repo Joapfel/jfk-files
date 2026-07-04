@@ -1,0 +1,66 @@
+# JFK-Files-Part-3_page_5553.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. SULLIVAN ✓
+
+FROM : MR. BRANIGAN
+
+SUBJECT: [DOSNAR] [ESPIONAGE - RUSSIA]
+
+1 - Mr. Belmont
+1 - Mr. Mohr
+1 - Mr. DeLoach
+
+DATE: 8-14-64
+
+1 - Mr. Sullivan
+1 - Mr. Taylor I - Mr. Moore
+1 - Mr. Branigan
+
+[ROUTE IN ENVELOPE]
+
+Tolson ✓
+Belmont ✓
+Mohr
+Casper
+Callahan
+Conrad
+DeLoach
+Evans
+Gale
+Rosen
+Sullivan
+Tavel
+Trotter
+Tele. Room
+Holmes
+Gandy
+
+The captioned code word covers our investigation of the unknown subject at San Diego, California, who offered to sell information concerning Sonar to the Soviets for $60,000.
+
+**BACKGROUND:**
+
+Information concerning this first came to our attention on 7-17-64 when our highly confidential coverage detected a letter addressed to Soviet Ambassador Dobrynin, postmarked 7-16-64 at San Diego, California. We followed up on this by inserting a message in a San Diego newspaper indicating that we were interested in the offer. The unsub then telephonically contacted an Agent of the Washington Field Office at the telephone number furnished him in the message in the personal column of the San Diego newspaper. Thereafter, we intercepted a telephone call that the subject made to the Soviet Embassy during which he attempted to verify that he was dealing with Soviet citizens. Acting on the subject's instructions, a package containing a camera suitable for document photography and $500 was dispatched by United Airlines air freight from Washington to San Diego during the early morning of 8-13-64.
+
+In the meantime, another resident of San Diego, one R. Tobin, advised our office there that he had been engaged by an unidentified individual to pick up a package at United Airlines Freight Terminal which he was to subsequently turn over and for which he would be paid $20.
+
+**CURRENT DEVELOPMENTS:**
+
+According to SAC C. Williams, an Agent of the San Diego Office posing as R. Tobin in the latter's automobile picked up the package at 8 p.m., PDT, and, thereafter, proceeded as he had been instructed to a drive-in in the San Diego area. SAC Williams advised that the coverage by San Diego Agents at the Air Freight Terminal uncovered a suspect who appeared to be closely observing
+
+WAB:BST:hrt
+(8)
+
+REC-38
+CONTINUED - OVER
+
+EX-108
+
+65 AUG 21 1964
+
+10 AUG 19 1964
+
+NW-886-14 Doctd:32989673 Page 50

@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_8026.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+WHITE HOUSE EMPLOYEES
+
+Cabinet 6 Drawer 2
+Folder X File, (check one)
+First Communication Dated 4/17/57
+Last Communication Dated 5/10/57
+Approximate Pages 14
+Derogatory Information: Yes X No (check one)
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Investigative
+Ticklers Only ______ Originals Only ______ Both X ______
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Folder captioned "White House Employees." Folder contains memoranda and report re investigation by FBI re 2 employees at White House who are homosexuals. This investigation referred to the FBI by White House in view of possibility of breach of security concerning these individuals.

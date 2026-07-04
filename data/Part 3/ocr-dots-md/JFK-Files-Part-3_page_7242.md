@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_7242.png
+
+Convert to MarkdownAssistant to the President H. R. Haldeman; Assistant to the
+President for Domestic Affairs John D. Ehrlichman and Robert H.
+Finch, Secretary of the Department of Health, Education and
+Welfare.
+
+An initial meeting of the Interagency Committee on
+Intelligence (AD HOC) was held in Mr. Hoover's office on
+6/8/70. This meeting was attended by Mr. Helms, Vice Admiral
+Gayler, General Bennett and Mr. Huston. Mr. Hoover
+emphasized the President's keen interest in the problem of
+intelligence collection and outlined the general objectives to
+which the Committee was to address itself. He instructed
+that a working subcommittee be established, composed of
+representatives of all the member agencies which subcommittee
+was to be headed by FBI Assistant Director William C. Sullivan.
+
+The first meeting of the working subcommittee was
+held on 6/9/70. At this meeting Mr. Huston presented
+the subcommittee with an outline which he stated the President
+desired the subcommittee to follow in preparing its report.
+The outline addressed itself mainly to the purpose, procedures
+and objectives of the subcommittee's review. The following
+from the outline is quoted:
+
+"**PURPOSE:**"
+
+(A) To define and assess the existing internal security threat.
+
+(B) To evaluate the collection procedures and techniques presently employed and to assess their effectiveness.
+
+(C) To identify gaps in our present collection efforts and recommend steps to close these gaps.

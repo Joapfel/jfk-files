@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_8159.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Re: Senstudy 75
+
+recognized that certain aspects of intelligence activities
+must receive special consideration and treatment (a copy of
+Colby's letter is attached). By letter dated 3/12/75, Senator
+Church confirmed the receipt of Colby's letter and again stated
+that in the event the SSC inquiry touches on such sensitive
+areas, Senator Church and Colby should discuss jointly what
+procedures should be followed (copy of Senator Church's letter
+is attached).
+
+Following the meeting Mr. Wilderotter advised me that
+the White House will prepare a letter to Senator Church recognizing
+that Congress can, at its discretion, declassify material it
+receives but strongly urging that such declassification action
+not be taken unilaterally by the Senate Select Committee without
+the approval of the agency originating the information.
+Wilderotter stated that the White House expected to speak for
+the Executive Branch with a strong voice and that individual
+agencies should take no action regarding the Church statement
+until the White House has had the opportunity to clear the air
+with Senator Church.
+
+SECRECY AGREEMENT AND EMPLOYEE NOTICE
+
+Attached is a copy of a CIA employee bulletin dated
+3/12/75. This bulletin relieves CIA employees from the secrecy
+agreement should they be interviewed or should they have to
+testify before the SSC. At the EXCOM meeting Mr. Wilderotter
+suggested all agencies of the intelligence community employing
+a secrecy agreement prepare such an employee notice as well as
+a letter to Senator Church advising him that the individual
+agency was relieving their employees from the secrecy agreement.
+Mr. Colby charged the Security Committee of the United States
+Intelligence Board (USIB) with preparing a draft of such a
+bulletin and letter for the guidance of member agencies and
+departments.
+
+It is the opinion of Assistant Director Mintz concurred
+by the Intelligence Division that a general letter to all
+employees from the Director releasing them from their obligation
+under the FBI employment agreement concerning secrecy for
+purposes of possible interviews by representatives of the Senate
+
+CONTINUED - OVER

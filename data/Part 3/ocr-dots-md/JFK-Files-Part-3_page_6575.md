@@ -1,0 +1,73 @@
+# JFK-Files-Part-3_page_6575.png
+
+Convert to Markdown2 - J. A. Mintz
+    Mr. J. B. Hotis)
+
+1 - W. R. Wannall
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. L. E. Dean
+
+October 17, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to SSC letter dated September 12,
+1975, requesting:
+
+(1) Dates of letters.
+
+(2) Names and addresses of the senders.
+
+(3) Names and addresses of the addressees.
+
+(4) All materials pertaining to the acquisition by the Federal Bureau of Investigation (FBI) of all letters written by the following individuals or organizations addressed to third parties and letters written by third parties addressed to the following individuals or organizations, copies of which are now or have been in the possession of the FBI:
+
+Angela Davis
+
+Steven Slepiar
+
+Jeremy Stone
+
+Jack Nelson
+
+Jane Fonda
+
+Institute for Policy Studies,
+Washington, D. C.
+
+Ralph Abernathy
+
+On October 1, 1975, representatives of the FBI met with John T. Elliff, Director, Domestic Intelligence Task Force SSC, concerning referenced request. As a result of this meeting, Mr. Elliff requested the following information from FBI files on individuals listed in referenced request:
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 1. Dates, names and addresses of senders and addressees of letters to or from the above-listed individuals Admin. Comp. Syst. which were obtained by the FBI without the knowledge of the Ext. Affairs above individuals, and the source of those letters. Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection of each above-listed person. STATEMENT CONSIDERED Intell. ____
+Laboratory ____
+Plan. & Eval. LED:en N
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+2. The basis for the FBI's subversive investigation
+
+This document is required to be released to your Committee. I request that your Committee consider it for dissemination outside your Committee. I require that no decisions by your Committee and the内容 may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+ENCLOSURE
+
+GPO : 1975 O - 569-920
+
+NWW 88614 DocId:32989673 Page 306
+
+Jr. V. P.

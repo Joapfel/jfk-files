@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_4489.png
+
+Convert to MarkdownNO 87-14835
+
+Credit Bureau records made available by LANCE GARCIA, January 17, 1969, reflect that ANTHONY ROSSI is married to BARBARA and is employed at Rubensteins Clothing Store.
+
+On January 16, 1969, Lieutenant Commander, R. G. NELSON, United States Coast Guard, Senior Inspector, made available United States Coast Guard form CG 719B, which reflects that OVIDIO LIMONE, also known as TONY ROSSI, applied for seaman's papers and submitted a letter of intent to employ from Waterman Steamship Company.
+
+On January 17, 1969, LOUIS S. O'NEIL, Waterman Steamship Company, advised his records reflect that his office was requested to write a letter of intent by BOB LUNA of New Orleans Shipping Company. O'NEIL stated he wrote the letter, although there was no intention to employ ROSSI and that such is a common practice in the industry.
+
+On January 17, 1969, BOB LUNA, JR., 2609 Veronica Drive, was interviewed at New Orleans Shipping Company, 436 Camp Street. He advised that SALVADORE ESCOTO, who resides at 1012 Esplanade, and is a merchant seaman he went to school with, asked him to have a letter of intent written for a friend of his, ANTHONY ROSSI. LUNA stated he went to Waterman Steamship, who at his request wrote the letter. He delivered the letter to ESCOTO in front of the Bun Restaurant. ESCOTO was with another unknown male in sunglasses who upon receipt of the letter, gave him a fifth of whiskey. A photograph of ANTHONY ROSSI was exhibited, but LUNA was not able to identify it. LUNA stated he does not know ROSSI personally and did it as a favor for ESCOTO to promote business.
+
+On January 17, 1969, Mrs. SALVADOR ESCOTO, 1012 Esplanade, advised her husband is presently in Japan, on the "SS GREEN LAKE." She knows he took ROSSI to get seaman's papers, but he is just an acquaintance and she has no information as to his present whereabouts.

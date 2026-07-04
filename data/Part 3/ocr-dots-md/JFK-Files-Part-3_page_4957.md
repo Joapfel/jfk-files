@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_4957.png
+
+Convert to MarkdownRE: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+m. Northern Virginia Coalition of Citizens Concerned About the ABM-Sponsored Town Meeting at Alexandria, Virginia, June 3, 1969 100-454103
+
+n. Reservists Against the War 100-469726
+
+o. Bald Hill Farm Commune 100-472039
+
+p. Anti-Crosstown Coalition 100-472814
+
+q. Washington Area Committee for Soviet Jewry 100-480590
+
+r. Committee for Chilean Democracy 100-481206
+
+s. National Conference on Amnesty; Information Concerning 100-481516
+
+t. National Conference on Amnesty; Information Concerning 100-481899
+
+u. Council for United Civil Rights Leadership 157-972
+
+v. Canadian Youth Corps 157-1074
+
+w. Ormondsville Fellowship Club, Inc. 157-5281
+
+x. Black Student Union, Brevard Junior College, Cocoa, Florida 157-13416
+
+y. Martin Luther King, Jr., Memorial Center, Inc. 157-13791
+
+z. Black Student Union University of Nevada Las Vegas, Nevada 157-13994

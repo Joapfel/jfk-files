@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_248.png
+
+Convert to Markdown# Counterintelligence Programs
+
+Public source material concerning Robert Ehrlich and his wife Cornelia Ehrlich and Victor Pasche, who were active in the Parent Teachers Association (PTA) in the Ringwood, New Jersey, public school system and allegedly were considered to have Communist Party (CP) leanings, was furnished to Chief of Police Ray Van Tassel, Ringwood, New Jersey, on April 18, 1961 and May 4, 1961.
+
+Robert Ehrlich was not re-elected to his position with the Ringwood Library Association. Bernice Pasche, wife of Victor Pasche, was discharged from her position as a teacher in a high school in Pompton Lakes, New Jersey. Public source material concerning Victor Pasche was read at PTA meeting. Victor Pasche was vice president of the PTA.
+
+JDM:cah (9)
+100-3-104-2574
+100-3-104-2991
+100-3-104-31-25
+100-3-104-31-23
+
+SECRET
+
+142

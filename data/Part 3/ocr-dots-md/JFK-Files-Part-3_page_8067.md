@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_8067.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+RE: SENSTUDY 75
+62-116395
+
+In accordance with established procedure, Sentinella was advised that he would be contacted by someone from the Office of the Legal Counsel who will make arrangements for a Bureau representative to be available for consultation should Sentinella's testimony involve sensitive areas of inquiry. Sentinella indicated his intention of arriving in Washington, D. C., late in the afternoon or in the evening of the day preceding his testimony.
+
+ACTION:
+
+Refer to Legal Counsel so that someone from that Office may get in touch with Sentinella in accordance with the foregoing.

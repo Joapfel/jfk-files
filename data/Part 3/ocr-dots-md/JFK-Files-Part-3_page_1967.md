@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_1967.png
+
+Convert to MarkdownAT 66-2242
+
+| Case Agent | Period assigned | Division, Section, or Squad of Assignment | Nature of Agent's Assignment prior to involvement in KING and SCLC investigations |
+|---|---|---|---|
+| **Communist infiltration of the SCLC** |  |  |  |
+| ROBERT R. NICHOLS | 4/17/62 - 12/1/64 | Atlanta - #3 | Security/extremist investigations |
+| ALDEN F. MILLER | 12/1/64 - 4/26/66 | Atlanta - #3 | Security investigations |
+| ALAN G. SENTINELLA | 4/26/66 - 3/12/71 | Atlanta - #3 | Security/extremist investigations |
+| O. RICHARD HAMILTON | 3/12/71 - 5/23/73 | Atlanta - #3 | Extremist investigations |
+| O. RICHARD HAMILTON | 7/10/73 - 10/20/73 | Atlanta - #3 | " |

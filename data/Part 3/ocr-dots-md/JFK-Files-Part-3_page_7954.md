@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_7954.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+Cabinet 6 Drawer '1
+
+Folder X File (check one)
+
+First Communication Dated 5/10/40
+
+Last Communication Dated 7/25/45
+
+Approximate Pages 600
+
+Derogatory Information: Yes No X (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Prominent persons, investigative
+
+Ticklers Only X Originals Only Both
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Consists of correspondence between Mr. Hoover and Bureau with [___] from 1940 - 43 and 2 manila envelopes containing results of physical and technical surveillance of [___] conducted on and off during 1944 and 1945. Results of coverage furnished [___]-- apparently conducted at his request. Notation on envelopes duplicates destroyed per Director's instructions.

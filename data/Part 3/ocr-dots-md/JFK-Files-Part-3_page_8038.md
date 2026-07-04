@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_8038.png
+
+Convert to Markdownconcluding chapter of an unfortunate series of telephonic exch
+
+Further, I requested that in the future, and for the good of all
+parties concerned, he should direct all his requests and inquiries
+to me.
+
+Leaving that subject, Wallach said he wished"to say some
+and that "it was to be off the record, of course"; he proceeded
+state that, indeed, he does know someone with access to the NSC
+covers and that that individual had offered him the list just a
+days ago, but that for "obviously ethical reasons" he (Wallach)
+refused the offer. Further, Wallach volunteered that "maybe I
+suggest that I had them (the NSC covers)" in his conversation with
+Daly.
+
+DRAFT
+
+N W 88608 DocID:32989617 Page 218

@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_8202.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+HOUSE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+DATE: 4-25-75
+
+Reference Legal Counsel to Mr. Adams memorandum of 4-9-75 to which the Intelligence Division placed an addendum dated 4-14-75 showing that Roderick Hills, Counsel to the President, had requested that the Sergeants at Arms of the Senate and House of Representatives keep the Bureau advised regarding checks made for electronic listening devices in the offices of captioned Select Committees.
+
+This was discussed on 4-23-75 by Inspector Bowers with
+Senate Sergeant at Arms William Wannall and his Deputy, Robert Hough.
+They were amenable to notifying us concerning the checks they make of
+Senate Select Committee space and the offices of the Members of this
+Committee. Hough was designated by Wannall to handle this matter.
+Hough advised that the special Capitol Police unit had made a check
+of Room S146 in the Capitol on that date (4-23-75) prior to a meeting
+of the Senate Select Committee in that room and found nothing. Hough
+stated they have received no requests whatever to make any checks of
+the offices of individual Committee Members. He said he had discussed
+this matter with William Miller, Staff Director of the Select Committee,
+and Miller indicated it would be taken up with the Committee but he has
+heard nothing further from him.
+
+REC-100 62-116395-113
+
+On 4-24-75 Bowe rs discussed this matter with Kenneth
+Harding, Sergeant at Arms of the House of Representatives. Harding
+stated he has had no requests for any checks of the Members' offices or
+
+1 - Mr. Adams
+1 - Mr. Wannall
+1 - Mr. White
+1 - Mr. Mintz
+1 - Mr. Cregar
+1 - Mr. Farrington
+1 - Mr. Bowers
+
+21. MAY 6 1975
+
+JUN 11 1975
+
+CONTINUED - OVER
+
+DWB:kjs (9)
+
+[MODEL CONTAINED] HEREBY IS UNCLASSIFIED DATE:-1975 BY Sp2 ADCN/JSK ALL INFORMATION CONTAINED
+
+MAY 17 1975

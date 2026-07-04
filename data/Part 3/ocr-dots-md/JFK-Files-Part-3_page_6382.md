@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_6382.png
+
+Convert to Markdown7. The "necessary Manual changes" which were "attached for approval" to Mr. Baumgardner's September 16, 1963 memorandum to Mr. Sullivan, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-Communist."
+
+8. All materials which support the following statement of Director Hoover which was noted on Mr. Baumgardner's September 16, 1963 memorandum to Mr. Sullivan, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-Communist":
+
+Just a few weeks ago you contended that the
+Communist influence in the racial movement was
+ineffective and infinitesimal.
+
+9. The September 5, 1963 letterhead memorandum to the Attorney General and "the related prior memoranda" which are referred to in the first paragraph of Assistant Attorney General Burke Marshall's September 20, 1963 memorandum to the Director captioned "Hunter Pitts O'Dell."
+
+10. The July 3, 1963 letter from Martin Luther King, Jr. to Hunter Pitts O'Dell which was attached to Assistant Attorney General Burke Marshall's September 20, 1963 memorandum to the Director captioned "Hunter Pitts O'Dell".
+
+11. All materials reflecting or pertaining to conversations between Courtney Evans and Assistant Attorney General Burke Marshall, and/or between Mr. Evans and the Attorney General, as described in Assistant Attorney General Marshall's September 20, 1963 memorandum to the Director captioned "Hunter Pitts O'Dell".
+
+12. The "Brief on the above-captioned matter and subsequent memoranda on the same subject matter" which are referred to in the first sentence of the second paragraph of Mr. Sullivan's September 25, 1963 memorandum, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-C."
+
+13. The "detailed document prepared on Communist Party and the Negro in 1958" and the "analysis in this same field prepared by the Bureau in 1956" which are referred to in the penultimate paragraph of page 2 of Mr. Sullivan's September 25, 1963 memorandum to Mr. Belmont, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-C."

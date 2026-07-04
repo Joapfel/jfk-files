@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_8118.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+RE: SENSTUDY 75
+62-116395
+
+by Miss Gandy amounted to one and one-half file drawers. Mohr subsequently advised Mr. Gitenstein of this correction. Additionally, Gitenstein desired to know whether an itemized list of the official and confidential files was made and if so, where the list was. Mohr told Gitenstein that he was sure a list was made (subsequently confirmed by Miss Gandy) and that the list accompanied the official and confidential files.
+
+In addition to the above, Mohr advised that Gitenstein asked about a requirement of all Bureau employees to turn over any confidential files in their possession ordered by Mr. Hoover following the revelation that former Assistant to the Director Sullivan had turned over certain confidential files to former Attorney General Mardian. Mohr advised Gitenstein that Mr. Hoover had in fact levied such a requirement on Bureau employees and that all confidential files were to be turned over to Mr. Felt along with a memorandum explaining the nature of these files. Gitenstein asked Mr. Mohr where these memoranda would be filed. Mohr responded by saying he presumed they were confidential memoranda and would have gone with the confidential files turned over to Mr. Felt by any Bureau employee maintaining such files.
+
+ACTION:
+
+For information and record purposes.

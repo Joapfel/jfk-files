@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_2577.png
+
+Convert to Markdown# Full Response
+
+e. FBI "Manual for the Conduct of Electronic Surveillance". (D.1) (This manual only deals with court-ordered electronic surveillance, not with warrantless "national security" surveillance.)
+
+f. With respect to each occasion on which the Director of the FBI testified before the House Appropriations Committee from 1965 until the present, please provide the number of warrantless electronic surveillances in operation:
+
+(1) on the date of such testimony;
+
+(2) thirty days prior to such testimony; and
+
+(3) thirty days subsequent to such testimony. (D.21)
+
+## 2. Warrantless Electronic Surveillance and "Leaks"
+
+### Outstanding
+
+a. With respect to all electronic surveillances of the so-called "Kissinger 17", please provide a list of all memoranda and other materials reflecting dissemination outside the FBI of information from each surveillance, stating author, addressee, and dates, together with the purpose of such dissemination. (D.6.d.) (This information is of critical importance for an evaluation of the possible misuse of electronic surveillance for partisan purposes. It has been promised but has not been supplied.)
+
+b. All memoranda and other materials reflecting written or oral authorization and re-authorization by the Attorney General and/or the Director of the FBI for electronic surveillance of Joseph Kraft.

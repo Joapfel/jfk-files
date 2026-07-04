@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_5781.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No.
+
+New York, New York
+
+April 6, 1962
+
+Bufile 100-357044
+
+Re: "National Guardian";
+Weekly Guardian Associates, Incorporated
+Internal Security - C
+Internal Security Act of 1950
+
+The April 9, 1962 issue of the "National Guardian," page 6, contained an announcement of the Guardian's "1962 Tour of Eastern Europe". This tour, of 23 days duration, is to leave New York Friday, August 3, 1962, and is to return on Sunday, August 26, 1962. The tour will visit Bucharest, Budapest, Kiev, Moscow and Leningrad. The announcement states that the tour will also visit Poland or Czechoslovakia. The price of the tour will be $1295.00, and those interested are instructed to forward a $100.00 deposit to "Guardian Tours", 197 East 4th Street, New York 9, New York.
+
+A characterization of the "National Guardian" is attached.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.

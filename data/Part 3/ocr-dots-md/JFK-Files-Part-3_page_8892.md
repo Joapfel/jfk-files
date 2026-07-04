@@ -1,0 +1,69 @@
+# JFK-Files-Part-3_page_8892.png
+
+Convert to MarkdownAnother regular feature in *The Black Panther* is a weekly article giving detailed instructions for the handling of firearms, or setting forth deportment for urban guerrilla warfare.
+
+THE BLACK PANTHER, SATURDAY, MAY 9, 1970 PAGE 16
+
+# ORGANIZING SELF-DEFENSE GROUPS
+## HOW TO COMBAT C.M.I.
+### Part 5
+
+**COMMUNICATION**
+
+The principal of Juche (Self-Reliance) clarified by Eldridge Cleaver, the Minister of Information of the Black Panther Party, is "Use what you got to get what you need." To answer the question of how do you combat the pigs' C.M.I. (communication, mobility and information), we must first determine what we have going for ourselves. Checking out the prac-
+
+slogan must be Maximum Damage to the Enemy, Minimum Damage to Us. Practice has shown that when planning W.W.H. if it is done with knowledge and an understanding of C.M.I. casualties will be kept within an acceptable minimum. Too often, much attention is given to a plan up to the point of execution without giving the same attention to evasion and escape, that phase of the operation that determines success. This is a subjective approach, a onesided approach. W.W.H. is only one side of the coin, C.M.I. is the other side. Because self-defense groups use W.W.H., the pigs' C.M.I. does not go into operation until a self-defense group commits itself by actually executing some type of self-defense activity.
+
+All of us should be aware that once C.M.I. is activated pigs start showing on the set from 30 seconds to 1 minute maximum in every major city in Babylon, therefore the success or failure of a defense operation is dependent upon the attention given to C.M.I. and the planning of evasion and escape. As I see it, learning to deal with the pigs' C.M.I. is the number one military problem facing revolutionary forces in Babylon today. It is time for all who have something to teach, by example, to step forward, And remember, to die honorably, one does not need company.
+
+USE WHAT YOU GIVE TO GET WHAT YOU NEED D.C.
+
+# ORGANIZING SELF-DEFENSE GROUPS
+## Part 6 ON REVOLVERS
+
+**SAFETY PRECAUTIONS:**
+
+**KINDS OF REVOLVERS:**
+.38 Snubnose - This gun has only a 2" barrel and shoots 38's. It
+
+is very easy to conceal.
+
+2. Keep your finger off the trigger unless practicing trigger squeeze or firing.
+
+.38 Special - Has a 4" barrel and shoots 38's.
+
+3. Point your gun away from where someone may be shot-Point at the ceiling or to the floor, but wherever you point, make sure no one is in the way and can be harmed.
+
+4. Never leave the hammer cocked on a revolver. (Explanation later on cocking a revolver.)
+
+**PARTS OF A REVOLVER:**
+
+**REVolver TERMS**
+
+PHOTO # 1
+
+.38 cal. Cartridge
+
+**UNLOADING:**
+
+Holding gun in left hand (pointed in safe direction) release cylinder latch with right hand. (#3). Push out cylinder with the fingers of left hand (#2). Now that you have swung out the cylinder and the bullets are visible you gently push down on the extractor and let bullets drop out into your right hand (#4).
+
+**LOADING:**
+
+To load, simply follow the same steps in unlatching the cylinder. Then drop bullets into the chambers of your cylinder. Gently push cylinder closed, and you are ready to fire. DO NOT SLAM CYLINDER CLOSED, this causes extra wear on your gun.
+
+**COCKING A REVOLVER:**
+
+Put the tip of your thumb on the hammer holding revolver steady in the palm of your hand. Do not put your finger in the trigger. Pull straight back steadily on your hammer spur until your hammer locks back. Your gun is ready to fire, do not put your finger in the trigger until you are ready to fire. After cocking hammer, place your thumb directly on the frame beside the hammer, resting the tip of your thumb on the cylinder latch. (Photo #4)
+
+Your forefinger should be placed on the other side of the gun straight out just above the trigger guard until ready to fire. Every time you cock the hammer before firing, this is called single action firing.
+
+PHOTO # 2
+
+**UNCOCKING A REVOLVER (LOADED):**
+
+Keep your finger off the trigger! With gun already cocked, place your thumb on the hammer firmly. Now with the gun firmly in your
+
+hand, pointed in a safe direction, and thumb firmly on the hammer (still cocked) squeeze the trigger slowly until you can feel the hammer releasing IMMEDIATELY.
+
+LOADING A REVOLVER PHOTO #

@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_891.png
+
+Convert to Markdown# CONCLUSION
+
+The Court should amend its decision to require that disclosure of the surveillance logs not be made.
+
+Respectfully submitted,
+
+HERBERT J. STERN
+United States Attorney
+
+## On the Brief
+
+JONATHAN L. GOLDBSTEIN
+JOHN J. BARRY
+Assistant United States Attorneys

@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_6041.png
+
+Convert to MarkdownLeadership Conference was changed. In response to direct
+questions whether I had hard evidence of O'Dell's
+Communist connections, however, I replied that I was not
+in a position to give any.
+
+Following further conversations with Mr. Evans
+in June, however, I brought the matter to the attention
+of Dr. King very explicitly in my office on the morning
+of June 22 prior to a scheduled meeting which Dr. King
+had with the President. This was done at the direction
+of the Attorney General. Later that morning both the
+Attorney General and the President separately strongly
+urged Dr. King that there should be no further connection
+between O'Dell and the Southern Christian Leadership
+Conference.
+
+Dr. King stated that the connection would be
+ended. Thereafter, the Attorney General and I both received
+copies of the attached letter, dated July 3, 1963,
+from Dr. King to O'Dell.
+
+On the same occasion, I also informed Dr.King
+that our information was that Stanley Levison was a secret
+member of the Communist Party. This was also done
+after conversations with Mr. Evans prior to the meeting
+with Dr. King, and was done at the direction of the Attorney

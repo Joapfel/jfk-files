@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_1479.png
+
+Convert to MarkdownPAGE THREE NO 66-2878 E F T O
+
+AIR MAIL COPY SENT ATLANTA DIVISION.
+
+BT

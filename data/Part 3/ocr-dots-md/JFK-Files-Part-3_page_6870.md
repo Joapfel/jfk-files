@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_6870.png
+
+Convert to Markdownspecific Bureau authority must be obtained. Two Agents should be present when an organization official is interviewed and, if possible, two Agents should be present at interviews with organization members. During such an interview, no attempt should be made to develop the individual as an informant; but if he is cooperative and has a potential for development as an informant, complete background information should be obtained and specific Bureau authority requested to develop him as an informant.
+
+c. Bureau authority not necessary prior to interview with organization members in criminal- or applicant-type cases; however, interview should be confined to subject matter of inquiry, unless data concerning organization volunteered by interviewee.
+
+d. Submit by September 15 and March 15 each year letter captioned "Semiannual listing of Klan and hate organizations and informant coverage," Bureau file #157-1, containing:
+
+(1) Names of Klan and hate organizations active in your territory
+
+(2) Coverage of each Klan broken down by klaverns and each hate organization broken down into local chapters showing identities of informants and sources reporting on each
+
+(3) Estimated membership by klaverns or chapters and basis for estimate
+
+[B. CLASSIFICATION - 157
+
+[C. CHARACTER - RACIAL MATTERS]
+
+3
+2-6-59
+
+NW 88614 DocId:32989673 Page 218

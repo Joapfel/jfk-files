@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_2147.png
+
+Convert to MarkdownROBERT W. EDGAR, PA.
+
+(202) 225-4624
+
+U.S. House of Representatives
+3331 HOUSE OFFICE BUILDING, ANNEX 2
+WASHINGTON, D.C. 20515
+
+October 18, 1977
+
+The Honorable Griffin B. Bell
+Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Attn: Mr. Robert L. Keuch
+
+Dear Mr. Attorney General:
+
+In connection with the Select Committee's investigation into the circumstances surrounding the death of Martin Luther King, it would be appreciated if you could make available to the Committee staff materials in the files of the Federal Bureau of Investigation relating to the following individuals for the period of time from January 1, 1967 to December 31, 1968: 6/1/69
+
+| NAME | Date of Birth | FBI Number |
+| :--- | :--- | :--- |
+| Love, Harvey Gene | 4/1/35 | 592-813A |
+| Pittman, George G. | 6/20/38 | 919-933C |
+| Sheehan, Stephanie Helene | 7/26/53 | 951-133N4 |
+| Shea, Jonathon Henry | 6/12/47 | 688-958J2 |
+| Wright, Keith Albert | 7/27/44 | 122-750H |
+| Quenqui, Frank | 12/9/08 | 160-8374 |
+| Rosenson, Randolph Erwin | 3/20/34 | 34-711E |
+
+In addition, it would be appreciated if you could make available to the staff the criminal records for these individuals. This written request confirms an oral request made by myself to Mr. Dan Coulson on October 18, 1977 in the offices of the Committee.
+
+Thank you.
+
+GRB:DM
+copy to: Dan Coulson
+
+ENCLOSURE

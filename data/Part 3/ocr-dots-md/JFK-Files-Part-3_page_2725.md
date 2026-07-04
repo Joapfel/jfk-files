@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_2725.png
+
+Convert to Markdown1971
+
+discontinued any further interest.
+
+Senator Hart of Michigan. Well, my time has expired but even this brief exchange, I think, indicates that if we really want to control the dangers to our society of using informants to gather domestic political intelligence, we have to restrict sharply domestic intelligence investigations. And that gets us into what I would like to raise with you when my turn comes around again, and that's the use of warrants, obliging the Bureau to obtain a warrant before a full-fledged informant can be directed by the Bureau against a group or individuals.
+
+I know you have objections to that and I would like to review that with you.
+
+Senator Mondale, pursue that question.
+
+Senator Hart of Michigan. I am talking now about an obligation to obtain a warrant before you turn loose a full-fledged informant. I'm not talking about tipsters that run into you or you run into, or who walk in as information sources. The Bureau has raised some objections in this memorandum to the Committee. The Bureau argues that such a warrant requirement might be unconstitutional because it would violate the First Amendment rights of FBI informants to communicate with their government.
+
+Now that's a concern for First Amendment rights that ought to hearten all the civil libertarians.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+NW 88608 DocId:32989820 Page 130

@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_5047.png
+
+Convert to MarkdownMemorandum to Mr. Belmont
+
+RE: EUGENE THOMAS, ET AL
+
+ACTION CONTINUED:
+
+and Assistant Attorney General Doar, 11/27/65. It is noted that Mr. Doar is going to Montgomery, Alabama, on 11/25/65, where he will remain throughout the trial.

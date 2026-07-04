@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_4344.png
+
+Convert to MarkdownSECRET
+
+Group 1
+
+Excluded from automatic downgrading and declassification
+
+This document is prepared in response to your request and is not for dissem- nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+(NI) 105-165706
+
+January 22, 1970
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [BLACK PANTHER PARTY CHICAGO, ILLINOIS]
+
+Approval was granted by you previously for a telephone surveillance on the Chicago office of the Black Panther Party (BPP) located at 2350 West Madison Street, Chicago, Illinois, and on October 20, 1969, you authorized the continuance of this surveillance for an additional three months effective October 24, 1969.
+
+This installation is currently providing extremely valuable information relating to the operation and activities of the BPP in Chicago and its personnel. Examples of the voluminous amount of intelligence data being furnished by this installation include the following:
+
+Information has been developed that directives from the BPP national headquarters in Berkeley, California, continue to be adhered to by the Chicago chapter. In this regard, the fatal shooting of Deputy Chairman Frederick Hampton by police officers in Chicago on December 4, 1969, has resulted in increased activity between the national BPP headquarters and the Chicago chapter. Due to the shooting of Hampton, tension in Chicago ghettos has increased because of BPP activity calling for support of its programs by the Negro community. Information from this surveillance has revealed that Eldridge Cleaver, national BPP Minister of Information, and a fugitive from justice, outside the United States, commented on Hampton's death that "vengeance is totally justified." However, this source was able to furnish information following the death of Hampton that the BPP planned no demonstrations.

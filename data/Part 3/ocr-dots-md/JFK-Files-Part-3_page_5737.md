@@ -1,0 +1,68 @@
+# JFK-Files-Part-3_page_5737.png
+
+Convert to MarkdownALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11-13-65 BY SP-2 ATMO
+
+March 1, 1965
+
+MEMORANDUM FOR MR. TOLSON
+
+MR. DELMONT
+MR. GALE
+MR. ROSEN
+MR. BULLIVAN
+MR. DE LOACH
+
+I called the Attorney General and told him I wanted to let him know that I had talked to Senator James Eastland today, in regard to the hearings before the Long Committee concerning mail covers, et cetera. I stated senator Eastland is in Mississippi today but he is going to see senator Long not later than Wednesday morning to caution him that this fellow Fensterwald must not go into the kind of questioning he made of Chief Inspector Montague of the Post Office Department. The Attorney General stated he was going to see senator Long himself and asked if I thought he ought to wait until after senator Eastland talks to senator Long. I stated the timing might be well if he did wait as Eastland assured me he will see Long not later than Wednesday and then it he, the Attorney General, could see Long sometime Wednesday, it would probably tie it down once and for all as there are no hearings until Wednesday anyway. The Attorney General stated he thought they were having a hearing tomorrow, but he would check. I stated if there is a hearing tomorrow, then I would be inclined for the Attorney General to see senator Long now but if it is not before Wednesday, then I think he should let senator Eastland see what he can do. I stated senator Eastland thoroughly understands the matter and said he does not intend to have that gone into and that obviously Fensterwald is getting in over his head and that has to be stopped.
+
+RECD COPY FILD IN
+MAR 8 1965
+
+MAR 9 1965
+
+<table><tr><td>SENIOR FEAT. OFFICE</td></tr><tr><td>TIN:7</td><td>4:15 P.M.</td></tr><tr><td>DATE</td><td>3-1-65</td></tr><tr><td>BY</td><td>Jshn</td></tr></table>
+
+XEROX
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+JEN:edm ((10)
+
+Tolson
+
+Belmont
+
+Mohr
+
+DeLoach
+
+Casper
+
+Callahan
+
+Contrad.
+
+Felt
+
+Gale
+
+Rosen
+
+Sullivan
+
+Toohi
+
+Trotter
+
+Tele. Room
+
+Holmes
+
+Gandy
+
+MAR 8 1965
+
+MAR 9 1965
+
+NW 88614 -DocId:32989673 Page 234

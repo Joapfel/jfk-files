@@ -1,0 +1,93 @@
+# JFK-Files-Part-3_page_10101.png
+
+Convert to MarkdownDB2 LEADING OF A TELETYPE UNIT
+MAR 25 7 12 PM '75
+
+THE ABOVE PERCENTAGE RATE MEASURED WERE DERIVED BY COMPARING THE INCREASE OF CI WITH THE CURRENT FLOW OF WATER. IN THE CASE WHERE THE PERCENT DEVIATION IS LESS THAN 1%, IT IS PREFERRED THAT THE PERCENT DEVIATION BE DETERMINED AS FORTHROUGHOUT THE FOLLOWING EXAMPLES.
+
+4% S.E.P.E.W.
+I 4% S.E.P.E.W.
+I 4% S.E.P.E.W.
+I 4% S.E.P.E.W.
+8 4% S.E.P.E.W.
+1 4% S.E.P.E.W.
+2 4% S.E.P.E.W.
+3 4% S.E.P.E.W.
+4 4% S.E.P.E.W.
+5 4% S.E.P.E.W.
+6 4% S.E.P.E.W.
+7 4% S.E.P.E.W.
+8 4% S.E.P.E.W.
+9 4% S.E.P.E.W.
+10 4% S.E.P.E.W.
+11 4% S.E.P.E.W.
+12 4% S.E.P.E.W.
+13 4% S.E.P.E.W.
+14 4% S.E.P.E.W.
+15 4% S.E.P.E.W.
+16 4% S.E.P.E.W.
+17 4% S.E.P.E.W.
+18 4% S.E.P.E.W.
+19 4% S.E.P.E.W.
+20 4% S.E.P.E.W.
+21 4% S.E.P.E.W.
+22 4% S.E.P.E.W.
+23 4% S.E.P.E.W.
+24 4% S.E.P.E.W.
+25 4% S.E.P.E.W.
+26 4% S.E.P.E.W.
+27 4% S.E.P.E.W.
+28 4% S.E.P.E.W.
+29 4% S.E.P.E.W.
+30 4% S.E.P.E.W.
+31 4% S.E.P.E.W.
+32 4% S.E.P.E.W.
+33 4% S.E.P.E.W.
+34 4% S.E.P.E.W.
+35 4% S.E.P.E.W.
+36 4% S.E.P.E.W.
+37 4% S.E.P.E.W.
+38 4% S.E.P.E.W.
+39 4% S.E.P.E.W.
+40 4% S.E.P.E.W.
+41 4% S.E.P.E.W.
+42 4% S.E.P.E.W.
+43 4% S.E.P.E.W.
+44 4% S.E.P.E.W.
+45 4% S.E.P.E.W.
+46 4% S.E.P.E.W.
+47 4% S.E.P.E.W.
+48 4% S.E.P.E.W.
+49 4% S.E.P.E.W.
+50 4% S.E.P.E.W.
+51 4% S.E.P.E.W.
+52 4% S.E.P.E.W.
+53 4% S.E.P.E.W.
+54 4% S.E.P.E.W.
+55 4% S.E.P.E.W.
+56 4% S.E.P.E.W.
+57 4% S.E.P.E.W.
+58 4% S.E.P.E.W.
+59 4% S.E.P.E.W.
+60 4% S.E.P.E.W.
+61 4% S.E.P.E.W.
+62 4% S.E.P.E.W.
+63 4% S.E.P.E.W.
+64 4% S.E.P.E.W.
+65 4% S.E.P.E.W.
+66 4% S.E.P.E.W.
+67 4% S.E.P.E.W.
+68 4% S.E.P.E.W.
+69 4% S.E.P.E.W.
+70 4% S.E.P.E.W.
+71 4% S.E.P.E.W.
+72 4% S.E.P.E.W.
+73 4% S.E.P.E.W.
+74 4% S.E.P.E.W.
+75 4% S.E.P.E.W.
+76 4% S.E.P.E.W.
+77 4% S.E.P.E.W.
+78 4% S.E.P.E.W.
+79 4% S.E.P.E.W.
+80 4% S.E.P.E.W.
+81 4% S.E.P

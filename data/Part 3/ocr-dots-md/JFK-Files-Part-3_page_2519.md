@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_2519.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 7/16/75
+
+Caption of Document: US Senate Select Committee to Study Governmental Operations with Respect to INTELLIGENCE ACTIVITIES
+Re OEC Files FBI
+
+Originating Office: 
+
+Delivered by: Richard J. Taylor, Jr. Date: 7/22/75
+
+Received by: 
+
+Title: Office of Warugs
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 9/28/75 BY SPA ALDO/EHL
+
+ENCLASIMN
+
+62-116 395 - 412
+
+NW 88608 DocId:32989618 Page 199

@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_868.png
+
+Convert to Markdowninvestigation was initiated and a second electronic surveillance revealed the Al Fatah leader had reentered the United States using a variation of his family name. This information enabled his arrest by the Immigration and Naturalization Service.
+
+## B. Domestic
+
+The primary value derived from intelligence gathering, as opposed to evidentiary, electronic surveillances in this area is in obtaining plans for carrying out threatened criminal acts, evidence of foreign influence or financing, and information which assists in planning apprehensions of wanted individuals with less risk to the lives of officers and bystanders.
+
+Examples: Via electronic surveillance of the Black Panther Party, Cleaver Faction, in New York City; Huey P. Newton in Oakland, California; and the Los Angeles Black Panther Party, the following information was obtained.
+
+* On November 6, 1971, plans to kill New York Police Commissioner Murphy were discussed.
+
+* On September 14, 1971, use of police radios to monitor New York City Police Department activity was discussed.
+
+* On April 26, 1971, electronic surveillance identified Robert Vickers as the assailant of a New York City police officer killed April 19, 1971. (Although this information was also evidentiary, it identified Vickers as a triggerman for the group who could be used in the future.)
+
+* On December 28, 1970, electronic surveillance reported that Newton received $1,400 from a Swedish group.
+
+* On September 20, 1971, electronic surveillance reported a communication between Newton and the President of Tanzania.
+
+* On September 28, 1971, electronic surveillance reported Newton's travel plans to China, and on October 19, 1971, it reported details of his visit.
+
+SECRET
+NO FOREIGN DISSEMINATION/NO DISSEMINATION ABROAD
+
+- iv -

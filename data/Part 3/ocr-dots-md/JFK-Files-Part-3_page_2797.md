@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_2797.png
+
+Convert to Markdown# FBI
+
+Date: 9/8/75
+
+CODED
+
+Transmit the following in
+(Type in plaintext or code)
+
+TELETYPE
+
+VIA
+
+URGENT
+
+(Priority)
+
+<table><tr><td>TO:</td><td>DIRECTOR, FBI (62-116395) -VLN</td></tr><tr><td colspan="2">ATTENTION: INTD, W.O. CREGAR</td></tr><tr><td>FROM:</td><td>MIAMI (66-3346) (RUC) 2P</td></tr><tr><td colspan="2">SENSTUDY 75, BUDED SEPTEMBER 8, 1975</td></tr><tr><td colspan="2">RE BUREAU TELETYPE SEPTEMBER 5, 1975.</td></tr><tr><td colspan="2">ON SEPTEMBER 8, 1975, SUPERVISOR JOSEPH C. BALL AND SA RAYMOND L. O'KELLY MET WITH WALTER J. LAUGHEED, ASSISTANT DIRECTOR, AND ROBERT WENNERHOLM, LEGAL COUNSEL, DADE COUNTY, FLORIDA PUBLIC SAFETY DEPARTMENT (DCPSD), AT THE DCPSD.</td></tr><tr><td colspan="2">THESE TWO OFFICIALS WERE ADVISED OF THE REQUEST TO THE FBI BY THE SENATE SELECT COMMITTEE (SSC), FOR ACCESS TO ALL MEMORANDA AND OTHER MATERIALS WHICH RELATE TO ELECTRONIC SURVEILLANCE OF DR. MARTIN LUTHER KING BY STATE AND LOCAL AGENCIES.</td></tr><tr><td colspan="2">INFORMATION IN MIAMI AIRTEL MAY 23, 1966, CAPTIONED "MARTIN LUTHER KING, JR., SECURITY MATTER - C" WAS ORALLY<br/> Approved: [Signature] Sent 339 M Per [Signature]<br/> Special Agent in Charge<br/> REDRLO/kr (1) RR<br/> 66-3346-14</td></tr></table>
+
+Approved:
+
+Sent 339 M Per [Signature]
+
+Special Agent in Charge
+
+NW 88608 DocId:32989820 Page 202
+
+U.S. GOVERNMENT PRINTING OFFICE : 1969 O - 346-090 (11)

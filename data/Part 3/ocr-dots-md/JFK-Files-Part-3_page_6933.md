@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_6933.png
+
+Convert to MarkdownLetter to SAC, Philadelphia
+
+RE: DR. DERK BODDE
+100-387911
+
+regarding the scope of coverage in effect in this instance, and under no circumstances are the subject or any unauthorized persons to become aware that we have knowledge of this information.
+
+NOTE ON YELLOW:
+
+None of the afore-mentioned individuals are on the Security Index, and none are currently subjects of Bureau investigations.

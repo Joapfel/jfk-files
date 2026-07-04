@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_6134.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 10/15/75
+
+U.S. SENATE SELECT COMMITTEE.
+
+Caption of Document:
+10/7/75 request
+
+FBI
+
+Originating Office:
+
+Date: 10.15.75
+
+Delivered by:
+
+Received by:
+
+Title: Agent Security Dept.
+
+Return this receipt to the Intelligence Division, FBI
+
+ENCLOSURE
+
+#MDF16
+10-13-08 SPD ALM/16

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_3219.png
+
+Convert to MarkdownThe Chairman. What I worry about is this. You say there's
+no way to know when to close a file. These were surveillance
+files, or originally opened up to determine whether organizations
+might have subversive connections.
+
+There are names in these files, so some demagogue comes
+along and says against some public figure that his name is
+contained in a certain file to be found in the subversive
+files of the FBI and there it is. He has not made a misstatement
+at all. But to the American people that man's name and
+reputation has been scarred.
+
+Mr. Adams. And I hope this Committee recognizes that
+and recommends legislation that would enforce strong punitive
+or criminal violations against misuse of information in the
+files. We feel this way, CIA feels this way. We recognize
+we have a lot of sensitive information in it. We fire our
+employees if we find them misusing information. We feel
+we need additional sanctions in this area.
+
+I don't think we can ever stop the accumulation of
+information. I don't know an investigative agency in the
+world, a law enforcement agency, that does not have to
+accumulate information. And we are working on guidelines
+as to how to get rid of the irrelevant information, how to
+eliminate material that really does not need to be kept,
+that we hope we will be able to come to Congress with these
+guidelines before too long, which will help address itself

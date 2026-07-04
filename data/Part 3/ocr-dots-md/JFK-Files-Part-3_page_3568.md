@@ -1,0 +1,58 @@
+# JFK-Files-Part-3_page_3568.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP.A.HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., COL.
+BARRY GOLDWATER, AFS
+CHARLES MCC. MATHIAS, MD.
+RICHARD S. SCHWEIKER, J.R.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+F. NDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+December 4, 1975
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence
+Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D.C. 20530
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/31/60 BY SALME
+
+Dear Mike:
+
+The Senate Select Committee requests the following materials for delivery.
+
+1. Delivery of all materials pertaining to the circumstances surrounding the recommendation for, authorization of, and duration and termination of the electronic surveillance referred to in Items 1 and 22 of my letter of November 21, 1975 and in materials delivered to the Committee on December 1, 1975.
+
+2. Delivery of a copy of the letter to Mr. Bill Moyers, Special Assistant to the President, dated October 27, 1964, and materials reflecting that this letter was hand delivered by Mr. Cartha DeLoach on October 28, 1964.
+
+3. Delivery of all materials pertaining to the surveillances of Mrs. Anna Chennault in October and November, 1968.
+
+4. The Committee's request in my letter of November 27, 1975, item 6c should be revised to read as follows: "All memoranda and any other materials which pertain to, bear upon, or indicate any actions taken pursuant to or in connection with the recommendation contained in this memornadum, including a summary of the recommendations of relevant Bureau personnel pertaining thereto."
+
+NW 88614 DocId:32989602 Page 45
+
+ENCLOSURE

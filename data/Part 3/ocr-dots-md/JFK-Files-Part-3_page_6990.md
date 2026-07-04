@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_6990.png
+
+Convert to MarkdownJANE FONDA
+
+NEW INFORMATION RECEIVED
+THIS IS AN SECRET COPY
+DATE 11-74-00 D/S 2 ALM 1/16
+
+moel6

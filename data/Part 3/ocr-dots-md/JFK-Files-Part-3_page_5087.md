@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_5087.png
+
+Convert to MarkdownFile #:
+62-116395
+
+Serial Scope:
+
+552 THRU 567
+
+Released under the John F. Kennedy
+Assassination Records Collection Act of
+1992 (44 USC 2107 Note). Case#: NW
+88608 Date: 03-18-2025

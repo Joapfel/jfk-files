@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_6112.png
+
+Convert to Markdowne. Where information is received in connection with racial matters indicating that individuals or organizations have resorted to or contemplate resorting to violence, you must
+
+(1) Immediately advise the Bureau of full facts by expeditious means depending upon urgency of circumstances
+
+(2) Immediately advise appropriate law enforcement agency having jurisdiction in the matter unless it is already cognizant. If a compelling reason exists for not so advising the pertinent law enforcement agency, such as the possibility of exposing the informant furnishing the information, immediately furnish the Bureau with full facts. Include therein recommendations as to what other trustworthy local or state law enforcement agencies or officials may be used as intermediaries, through whom the information in question may be furnished to the law enforcement agency actually having jurisdiction in such a manner as to fully protect the specific informant and the Bureau as the source thereof.
+
+(3) Immediately advise the local office of military intelligence
+
+(4) Contact all appropriate informants and sources to determine if they possess any additional pertinent data concerning the matter and instruct them to be alert for and to promptly furnish to you any such pertinent data obtained.
+
+(5) Prepare and submit pertinent data to the Bureau in form suitable for dissemination. Include in the communication the results of contacts with appropriate sources and informants; the time and date that local agencies were advised; and the identities of the individuals so advised. (Where information is furnished to an intermediary official or law enforcement agency and not to the agency actually having jurisdiction, set forth in the cover page the reasons for such procedure.) Submit communication same day original information received except where original information is received after normal working hours, when communication is to be submitted beginning of next workday.
+
+(6) Maintain contact with pertinent informants and sources and keep Bureau, pertinent local law enforcement agency, and local intelligence agencies advised of any additional pertinent developments as they occur. Unless circumstances clearly indicate necessity for more expeditious handling, furnish such additional data to Bureau and intelligence agencies in form suitable for dissemination.
+
+[C. CLASSIFICATION - 157
+
+[D. CHARACTER — RACIAL MATTERS. If it relates to general racial matters, "Racial Matters" followed by name of community and/or state to which information relates.]

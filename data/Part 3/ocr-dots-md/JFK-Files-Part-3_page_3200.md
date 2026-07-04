@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_3200.png
+
+Convert to Markdownsmn 4
+
+1812
+
+a violent group.
+
+Mr. Adams. I accept the allegation but I don't accept the fact, the conclusion that, from what I have seen in reviewing these files in connection with our investigations, we don't foment violence. We don't permit as a matter of policy our informants to act as provocateurs to engage in violence. I am not denying it may have happened, but the FBI does not foment violence, and the FBI, you know, has no -- 
+
+Senator Hart of Colorado. You are using present tense verbs. I think --
+
+Mr. Adams. We didn't then. I don't agree that our actions in any event were designed to foment violence.
+
+Senator Hart of Colorado. I think there is plenty of documentation of the attempt to set the Black Panthers against the Blackstone Rangers in Chicago.
+
+Mr. Adams. Well, I don't consider that plenty of evidence. I think the evidence to the contrary is that one of the organizations, when we got word that the Black Panther versus US, we notified the local police that this activity was going to take place, and the individual, so that we would prevent the killing which had come to our attention was going to take place, and then the turndowns of various COINTELPRO actions, there were specific statements made, that will not be approved because it might result in harm to an individual, physical harm, and we have no indication from any of these
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWW 88614 DocId:32989543 Page 89

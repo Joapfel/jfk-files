@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_48.png
+
+Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+
+TO : THE DIRECTOR DATE 10/20/66 BY SKAmpel DATE: 1/4/50
+
+FROM : THE EXECUTIVES CONFERENCE
+
+SUBJECT:
+
+The Executives Conference of January 4, 1950, consist-
+ing of Messrs. Tolson, Glavin, Harbo, Ladd, Rosen, Clegg,
+Carlson, Nease and Mohr, in accordance with the Director's in-
+structions, considered the attached memorandum of December 21,
+1949, with respect to the procedures in conducting applicant
+investigations and particularly the method suggested to avoid inter-
+views with those individuals having a hostile or critical attitude
+toward the Bureau and its work.
+
+It was pointed out to the Conference that apparently the
+hostility and criticism of the Bureau stem not from our normal day to
+day criminal investigative work but to a very slight extent to inves-
+tigations in the Internal Security field and very specifically and
+definitely to applicant and Loyalty investigations. It was felt that
+if some procedure could be devised to avoid interviews with individuals
+in applicant type cases where the individuals have exhibited a hostile
+or critical attitude toward the Bureau that much could be accomplished
+to eliminate the difficulties experienced in the past. The Conference
+felt it would be undesirable to prepare a list of any sort which might
+be termed a "blacklist" to be distributed to all of the divisional
+offices. It was proposed that the following procedure be instituted
+immediately at the Seat of Government in order to meet the objectives
+desired by the Director in connection with this matter:
+
+1. The Crime Records Section shall be responsible for preparing and maintaining in a current status a list of those individuals known to be hostile to the Bureau. It is felt that it is imperative that a list be prepared because the judgment of individual Supervisors referring cases to the field will differ depending upon the extent of their day to day newspaper reading, radio listening and perusal of various and sundry periodicals. It would also mean that each Supervisor would have to either prepare his own list or endeavor to depend on a faulty memory. Furthermore, an individual may at one time appear to be hostile to the Bureau and subsequently his attitude may change and it may be very desirable to interview him.
+Each name should be the subject of a memo.
+
+2. This list shall be furnished to only those Supervisors at the Seat of Government who have the responsibility for assigning Loyalty or applicant cases to the field. This will include Supervisors in the Loyalty Section of the Security Division, the Applicant Section of the Investigative Division and those Supervisors in the Administrative Division handling Bureau applicant cases. This will mean that not more than 25 Supervisors at most at the Seat of Government will have possession of such a list. These Supervisors shall check all references and present and former employers a record of this list before referring the case to the field for investigation.
+
+INDEXED-

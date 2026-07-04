@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_2587.png
+
+Convert to MarkdownG. "Notional Organizations"
+
+Partial Response
+
+1. All memoranda and other materials reflecting activi-
+ties of any agents, employees, or informants of the
+FBI in connection with:
+
+a. The establishment, creation, or financing of "notional" Marxist-Leninist organizations within the United States.
+
+b. The establishment, creation, or financing of:
+
+(1) the Red Star Cadre, or Red Star Swap Shop;
+
+(2) the Red Collective. (C.25.)
+
+(An initial response was received on July 8, 1975. It is a four-page summary memorandum. Preliminary analysis indicates that substantial original documentation is required.)
+
+2. All memoranda and other materials reflecting conversations, contacts, or communications between the FBI and the CIA on the subject of the establishment or creation of "notional" Marxist-Leninist organizations within the United States. (C.24.) (Only one has been provided thus far. The FBI should continue its search for further documents bearing on this matter.)
+
+H. Joint FBI-Police Operations
+
+Outstanding
+
+1. All memoranda and other materials pertaining to the origins, contents, and implementation of the June 1964 memorandum from Attorney General Robert Kennedy to President Johnson recommending new FBI procedures for gathering intelligence about the Ku Klux Klan and related activities. (B.11.) (The FBI has been advised that this request pertains to the implementation of any directives from President Johnson to the FBI regarding procedures for gathering intelligence about the Ku Klux Klan.)

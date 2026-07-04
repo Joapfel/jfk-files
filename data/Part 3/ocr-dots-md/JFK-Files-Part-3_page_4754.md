@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_4754.png
+
+Convert to MarkdownMM 92-1870
+
+MIAMI
+
+AT MIAMI, FLORIDA
+
+Follow and report subject's activities.
+
+INFORMANTS
+
+MM T-1 is MM 509-C.
+
+MM T-2 is MM 725-C.

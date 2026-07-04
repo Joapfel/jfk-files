@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_9934.png
+
+Convert to Markdown(e) Consideration should be given to the fact that certain classes of information are of general interest to the Military, Naval, and Air Force Intelligence Services in connection with background and knowledge of espionage and sabotage organizations, even though the Military, Naval, and Air Force Intelligence Services may have no apparent direct investigative interest.
+
+(f) Should differences of opinion of a minor nature occur, the directors of the four intelligence agencies feel that with proper personal liaison, such differences can be satisfactorily adjusted locally by the officials in charge of the various divisional organizations.
+
+(Approved by I.I.C. June 2, 1949)

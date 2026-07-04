@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_3392.png
+
+Convert to MarkdownThe FBI also cites directives of President Kennedy on June 9, 1962, and Attorney General Kennedy on March 5, 1964, which are the latest charter for the Interdepartmental Intelligence Conference, composed of the FBI Director and the chiefs of the military intelligence agencies. This group is authorized to coordinate "all investigation of domestic espionage, counterespionage, sabotage, subversion, and other related intelligence matters affecting internal security." (Tab D)
+
+The theory behind the FBI's position is that the President has inherent constitutional powers, at least in the absence of contrary legislation, to authorize FBI intelligence activities. The only judicial support for this theory is language in the Supreme Court's opinion in the Keith case, which declared warrantless wiretapping of domestic groups unconstitutional.
+
+The Court acknowledged the importance of "national security in its domestic implications . . . especially at a time of worldwide ferment and when civil disorders in this country are more prevalent than in the less turbulent periods of our history." Under such circumstances, the Court stated, the President has a "fundamental duty" under the Constitution to "preserve, protect and defend the Constitution of the United States." The Court added, "Implicit in that duty is the power to protect our Government against those who would subvert or overthrow it by unlawful means." Hence, the Court appeared to

@@ -1,0 +1,10 @@
+# JFK-Files-Part-3_page_5325.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+ALDEN F. MILLER BY SSC STAFF MEMBERS
+
+On the morning of July 23, 1975, Mr. Epstein communicated to SA Miller that no further questioning of SA Miller was necessary.

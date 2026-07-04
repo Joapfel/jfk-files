@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_4381.png
+
+Convert to MarkdownMemorandum for the Attorney General
+
+and order but on war level which will force the calling out of
+the Army. Plamondon refers to this new level of violence as
+involving "bombs and sabotage." He further states that financial
+problems are severe and that "they" are going to have to get into
+"ripping off banks like our brothers in South America." He also
+suggested that the example of "the brothers in South America"
+who kidnap American ambassadors to trade off for prisoners should
+be followed.
+
+Milton Taube, a White Panther Party national officer,
+was also arrested with Plamondon on July 23, 1970. Taube is
+known to have been a contemporary and extremely close associate
+of William Ayers, a Weatherman member who is currently a Bureau
+fugitive. Taube, at the time of his arrest, was a resident at
+White Panther Party headquarters and has resided at this address
+for several years. Furthermore, all business transactions of
+the White Panther Party are transmitted through this address.
+Investigation by this Bureau has indicated that only some half
+dozen top leaders in the White Panther Party are privy to
+sensitive White Panther Party information. We have one live
+informant who has access to some information in this organization.
+
+A telephone surveillance on the headquarters of the
+White Panther Party - Youth International Party is expected to
+provide extremely valuable information concerning the whereabouts
+of Weatherman fugitives as well as to the New Leftists who are
+currently being sought by local or Federal authorities. It can
+also be expected that information concerning possible violent
+plans on the part of this organization will be obtained.
+
+It can be expected that any individuals who have access
+to the White Panther Party headquarters may become subjects of
+either local or Federal criminal violations. It is also
+anticipated, based on the above information, that results of a
+telephone surveillance at this address will be introduced as
+evidence in court or that leads to evidence may be obtained;
+therefore, this request is being made not only for the purpose
+of obtaining intelligence-type information, but also on the
+basis that evidence will be obtained that will be used in court.
+In line with instructions on page 5 of your referenced letter,
+the following information is set forth:

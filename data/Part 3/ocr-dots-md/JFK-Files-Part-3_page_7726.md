@@ -1,0 +1,3 @@
+# JFK-Files-Part-3_page_7726.png
+
+Convert to Markdownrelations is incompatible with the Chief Executive's inherent foreign intelligence gathering powers. Since this Presidential authority is constitutional in nature and stems from a fundamental separation of governmental powers, a Congressional attempt to require its sharing with the judiciary would certainly lead to protracted constitutional litigation. Moreover, Congress implicitly authorized the use of electronic surveillance in foreign intelligence activities and this legislation would circumscribe the very functions which Congress intended the Agency to perform.

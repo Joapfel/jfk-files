@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_2324.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO Mr. W.R. Wannamalee
+FROM :W.O. Cregar.
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J.B. Adams
+2 - Mr. J. A. Mintz
+(1 - Mr. Hotis)
+
+DATE: 7/24/75
+
+1 - Mr. W.R.Wannall
+1 - Mr. W.O. Cregar
+1 - Mr. J.P. Thomas
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Infell. 1/7
+Laboratory ____
+Legal Coun. ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Sec'y —
+
+This is to record inquiry received from Mr. Leon Ulman, Deputy Assistant Attorney General, Office of Legal Counsel, and recommend response to him.
+
+On 7/22/75, Mr. Ulman called Assistant Director - Legal Counsel J.A. Mintz to request assistance concerning an assignment he had been given by the Attorney General (AG) relating to the current investigation being conducted by the Senate Select Committee (SSC). In accordance with Mr. Mintz' referral to our Senstudy project group, Mr. Ulman was contacted 7/22/75 by Supervisor J. P. Thomas. Mr. Ulman said that the AG had requested his office to prepare, by 7/25/75, the fullest possible response to the question, "To what extent has the AG been involved in consideration or approval of policies and activities of U.S. foreign and military intelligence agencies?" Mr. Ulman said that he had requested the Criminal Division of the Department to conduct research on this matter but, being unfamiliar with foreign intelligence matters, desired to know whether we could in any way assist him. He was informed that the FBI is basically not a U.S. foreign intelligence agency. He responded that some of our operations involve foreign intelligence and again asked if we could assist. He was told that we certainly could not furnish any full answer, but would attempt to see if we could contribute something to his assignment. It was also suggested to Mr. Ulman that he consider contacting Mr. K. William O'Connor, who is coordinating many aspects of the SSC investigation for the Department, and might be able to clarify the request or contribute to the response and that he consider contacting CIA. He indicated he did not feel that contact with CIA would be productive. It was agreed that the inquiry appears to relate to the AG institutionally rather than to any involvement of the incumbent, Mr. Levi.
+
+62-116395
+
+JPT:bkb/lhb
+
+(7)
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY SLA
+
+CONTINUED - OVER
+
+84 JUL 20 1975
+
+NW 88608 DocID:32989618 Page 4

@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_2525.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+[ LTR [X] LHM [ ] Memo [ ] Report dated 7/16/75-
+(caption of Document: US Senate Select Committee to Study Governmental Operations with Respect to Intelligence Activities)
+Originating Office: FBI
+Delivered by: Pickett's 101, Taylor Dr., Date: 7/21/75
+Received by: M.B. Loyd
+Title: Office of Special Counsel
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 7/28/75 BY SP2 ALM/CHL
+
+ENCL/SER# 1, 2, 116, 117

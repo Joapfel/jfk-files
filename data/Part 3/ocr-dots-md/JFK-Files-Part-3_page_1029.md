@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_1029.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+Public source information was furnished to Dennis M. Higgins, special features reporter, "The Philadelphia Inquirer," to expose activities, programs, officers, and true nature of the Philadelphia Social Science Forum Committee (PSSFC), a Communist Party, USA front group. Two articles were prepared to be published about January 17, 1965, and January 24, 1965, in the newspaper. The publications were to bracket a scheduled PSSFC meeting on January 22, 1965.
+
+One article was printed on January 10, 1965. The meeting on January 22, 1965, where Dirk J. Struik spoke attracted 125 persons. Prior meetings with other speakers had attracted 200 persons. A follow-up article appeared on January 23, 1965. Elease Sullivan, a member of the Independent Citizen's Committee, a communist front group, was blamed for furnishing the information to the "Inquirer," which was included in the "Inquirer" article of January 23, 1965.
+
+RHR:vb/jmn
+(9)
+
+100-3-104-37-179, 199, 200
+
+SECRET
+
+51

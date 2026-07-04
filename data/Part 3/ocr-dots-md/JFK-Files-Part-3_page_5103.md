@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_5103.png
+
+Convert to Markdown# PROPOSED PROCEDURES
+
+(1) The Domestic Task Force Leader will submit periodically a list pertaining to specific materials, as to the inquiry being conducted under S.R. 21, to which the Committee staff wishes access or of which the Committee desires delivery. Any questions as to the scope or meaning of any portion of such list shall be identified by the Special Counsel and discussed at the time of acceptance of the list, between the DITL and the Special Counsel.
+
+The first such list will be delivered to the Department of Justice within 48 hours of the adoption of this procedure, and will summarize and supersede all the presently outstanding requests; this list will be in priority order, as fixed by the Committee, with fixed delivery/access dates specified. Those materials for which the Committee requests delivery or access shall be delivered to the Committee or made accessible in Room 4171 of the Hoover Building not later than within 48-96 hours of the date specified. The Committee Chairman and Vice Chairman shall be informed by the Attorney General, within 24 hours each of receipt of his request, of any delay beyond 48-96 hours, the expected length of the delay, and the specific reasons for the delay. Partial access or delivery shall be proffered, by the Bureau of/to any materials requested, while the balance of such materials are being prepared. A partial proffer shall not extend the time of full response set forth herein.
+
+**ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED**
+
+**DATE** 10/19/00 **BY** SLA A5M/EHL
+
+* Wherever used herein, the term Domestic Task Force Leader (DTFL) Staff Director, is understood to include the Chief Counsel and the Minority Counsel of the Senate Select Committee.
+
+**CLOSURE**
+
+C-2-116395-560J
+
+NW 88608 DocId:32989633 Page 17

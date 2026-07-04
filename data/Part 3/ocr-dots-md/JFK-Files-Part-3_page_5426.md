@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_5426.png
+
+Convert to MarkdownN: permission. There is some dictum to indicate, at present, that this may be brought up later. But, I know of no authorization which can be obtained per se for a surreptitious entry. And, at this point, of course, the feeling is that these confined as they are to foreign counterintelligence it flows from presidential authority as it applies also to the warrantless wiretaps.
+
+**QUESTION:** Weren't the civil rights groups, Mr. Kelley, among some of the organizations who were burglarized?
+
+**ANSWER:** I'm not going to say anything about where they were, or against which organizations they were directed, only to say that they were, Mr. Nelson, and I hope that will satisfy you, and I hope that if there is any revelation to be made later that they can be as complete as possible because, again, we feel that the intent was a very good one and there was no illegality concerned. And the impact of it was to protect the country.
+
+**QUESTION:** Sir, how can you say that there was no illegality concerned if the Constitution says that you have to have a search warrant to make an entry and without, as I understand it, even checking this with the Attorney General, these Agents burglarized private premises?
+
+**ANSWER:** The resolution of the problem which you now present is up to the Department and the courts, and I, of course, will not engage in anything except to say that in the defense of the men who authorized and participated, that they had this intent and within every criminal violation there is a necessity that there be the ingredient of intent and there was none here as far as I can determine.
+
+**QUESTION:** Mr. Kelley, would you say, sir, that most of these requests for surreptitious entry flowed from presidential authority? Is that what you said, sir?
+
+**ANSWER:** No, I did not say that. I did not give a complete outline as to what the authorization was. And, this again will be a matter which will be discussed in the reviews of the Department and the various Congressional committees.

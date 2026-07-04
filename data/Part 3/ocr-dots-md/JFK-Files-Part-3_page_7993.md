@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_7993.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+Cabinet 6 Drawer 2
+
+Folder X File (check one)
+
+First Communication Dated 3/23/42
+
+Last Communication Dated One communication only
+
+Approximate Pages 8
+
+Derogatory Information: Yes X No (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Information from other agency
+
+Ticklers Only Originals Only Both X
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Folder contains information furnished by the Committee on Naval Affairs of the House of Representatives indicating that credit was placed at Brooks Brothers in New York City by a person, possibly a contractor, for to purchase haberdashery.

@@ -1,0 +1,76 @@
+# JFK-Files-Part-3_page_5084.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY .75
+
+1 - Mr. Mintz
+
+1 - Mr. Adams
+
+1 - Mr. Wannall
+
+DATE: 11/26/75
+
+l - Mr. Cregar
+
+l - Mrs. Metcalf
+
+1 - Mr. Hotis
+
+l - Mr. Daly
+
+Assoc. Dir.
+
+Dep. AD Adm. — Dep. ADADV. — Asst. Dir.:
+
+Admin.
+
+Comp. Syst. ___ Ext. Affairs ___ Files & Com. ___ Gen. Inv. ___ Ident. ___ Inspection ___ Incl. ___ Laboratory ___ Legal Coun. ___ Plan. & Eval. ___ Spec. Inv. ___ Training ___ Telephone Rm. ___ Director Sec'y ____
+
+On 11/25/75, John T. Elliff, Task Force Director of
+the Domestic Intelligence Task Force for the Senate Select Com-
+mittee, requested the Bureau designate a witness to appear in
+executive session before the Senate Select Committee on 12/3 or
+12/4 in the afternoon to discuss counterintelligence investi-
+gations by the Bureau. Elliff stated because of Chairman Frank
+Church's interest in a study as to whether counterintelligence
+investigations should be taken out of the FBI and placed in
+another agency or a separate component of the Justice Department,
+this particular topic would be the main focal point of the hear-
+ing. Elliff stated that the questions asked of the Bureau's
+witness would deal primarily with the feasibility of removal of
+counterintelligence out of the FBI including problems of a
+logistical and practical nature resulting from such a change.
+Elliff asked that he be advised as to the identity of the Bureau
+witness as soon as possible.
+
+Inasmuch as the aforementioned topic is a question of policy, the Director may desire to appear or designate a Bureau witness to appear before the Committee in this matter. Michael E. Shaheen, Jr., Special Counsel for Intelligence Coordination in the Department, is aware of the aforementioned testimony and the possibility exists that the Department may make a decision with regards to the Bureau's providing a witness concerning this matter.
+
+MDR-16
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/20/75 BY Spa Alm
+
+IST-110
+
+REC-41
+
+RECOMMENDATIONS - OVER
+
+PVD:lad AD
+(9)
+
+5 DEC 8 1975
+
+8 4 DEC 2 1975.
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88608-DocId:32989550 Page 169

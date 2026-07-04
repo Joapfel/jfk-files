@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_590.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+In September, 1969, a series of three anonymous telephone calls were made by Agent personnel of the San Diego Office to Bishop John Quinn, Auxiliary Bishop of the San Diego, California, Archdiocese, in protest of activity on the part of Catholic priest Reverend Frank Curran, Christ the King Roman Catholic Church, 32nd and Imperial, San Diego, California. Reverend Curran had indicated an open advocacy of the Black Panther Party's Breakfast for Children Program and had used his church as a sanctuary for Black Panther Party (BPP) members.
+
+An anonymous letter for mailing to the Bishop was also approved by FBIQ on September 11, 1969, outlining objections to Father Curran's activities. This letter was to be signed T. E. Ellis, a fictitious name, and was to indicate its writer was a member of Father Curran's parish.
+
+Father Curran subsequently transferred from the
+San Diego archdiocese and the BPP Breakfast for Children Program
+collapsed.
+
+PEN:lfj
+(9)
+
+100-448006-1264, 1269, 1282, 1388, 1648
+
+SECRET
+
+114
+
+NW 88608 DocId:32989640 Page 132

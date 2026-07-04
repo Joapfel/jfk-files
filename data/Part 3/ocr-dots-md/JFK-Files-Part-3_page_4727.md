@@ -1,0 +1,79 @@
+# JFK-Files-Part-3_page_4727.png
+
+Convert to MarkdownSAC, Miami (105-1742)
+
+Director, FBI (109-584)
+
+ANTI-FIDEL CASTRO ACTIVITIES
+IS - CUBA
+
+7-29-65
+
+SP8-muf/nude 1.12.95(JFK) 2+2961
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 2/20/61 BY SP/CL/ny
+6/28/85 SP6 ESM/ACL 211,326
+
+On 7-21-65, Immigration and Naturalization Service (INS) furnished by liaison the following items:
+
+1. INS letter to all steamship agencies dated 4-8-63.
+
+2. Undated document captioned "Cuban Raiders Ordered Not To Depart."
+
+3. Undated document captioned "The Following Notices of Prevention of Departure to Cuba are Still in Effect."
+
+4. Undated document captioned "Total Number Served and Outstanding."
+
+You will note that all of these documents deal with individuals who have been ordered not to depart from the United States. One copy of each of the above items is enclosed for Miami.
+
+Enclosures - 4
+
+VHN:dbc (4)
+
+ST-1112
+
+2 JUL 29 1965
+
+NOTE:
+The items being furnished Miami were furnished SA B. F. Rose by Carl Burrows of INS headquarters.
+
+ copies made
+
+for review at FBIFQ by
+
+HSCA Request 1/20/78
+
+Tolson
+Belmont
+Mohr
+DeLoach
+Jasper
+Callahan
+Conrad
+Felt
+Gale
+Rosen
+Sullivan
+Tavel
+Trotter
+Tele. Room
+Holmes
+andy
+
+ENCLOSURE
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+<table>
+  <tbody>
+    <tr>
+      <td>JUL 28 1965</td>
+    </tr>
+    <tr>
+      <td>COMMITTEE</td>
+    </tr>
+  </tbody>
+</table>
+
+FW 78318 DocId:34489873 Page 2

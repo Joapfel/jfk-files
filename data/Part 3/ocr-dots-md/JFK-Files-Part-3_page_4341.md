@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_4341.png
+
+Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+
+on behalf of the [BPP]. A survey of this telephone number for the period from October 6, 1969, through October 28, 1969, disclosed over 150 long distance telephone calls ranging from New York to the West Coast.
+
+Much of the [BPP] policy-making apparatus will be located at [New Haven] during the next several months and it is felt that instructions affecting the overall movement will possibly be issued through the [New Haven BPP office].
+
+In view of the violence-prone nature of the [BPP], it can reasonably be anticipated that subjects involved in past or future criminal violations may be monitored. The guidelines to be followed, as previously furnished by you, will be strictly complied with in such instances.
+
+If you approve, a telephone surveillance will be placed on the headquarters of the [New Haven Chapter of the BPP] at 35 Sylvan Avenue, New Haven, Connecticut. If the coverage proves productive, it will be continued for an indefinite period. There will be no trespass involved regarding the installation of this telephone surveillance.
+
+APPROVED
+DATE
+
+SECRET
+
+-2-

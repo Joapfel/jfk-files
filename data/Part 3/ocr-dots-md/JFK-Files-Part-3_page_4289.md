@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_4289.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+June 28, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: REQUEST FOR NATIONAL SECURITY ELECTRONIC SURVEILLANCE
+
+I hereby request, that you, on behalf of the President of the United States, authorize a telephone surveillance on the National Office of the Young Lords Party (YLP) at 202 East 117th Street, New York City.
+
+The YLP is a militant Puerto Rican youth group patterned after the Black Panther Party. In addition to several branches in New York City, there are YLP branches in Bridgeport, Connecticut; Philadelphia, Pennsylvania; and Puerto Rico.
+
+According to its 13-Point Program and Platform, the YLP is a revolutionary political party fighting for the liberation of all oppressed people, seeks self-determination for Puerto Ricans' liberation, and believes armed self-defense and armed struggle are the only means to liberation. It cites the Castro revolution in Cuba as an example of the right of the people to destroy a government which oppresses them and of the importance for all true revolutionaries to have definite plans.
+
+Major confrontations with police authorities occurred in New York City during 1969 and 1970 when armed YLP members and sympathizers forcibly occupied a Harlem church for an extended period. During the current month agitational activity of YLP members and sympathizers precipitated serious civil disturbances in New York City and Bridgeport, Connecticut. One YLP leader, Rafael Viera, reportedly is an associate of various suspects in the Capitol bombing investigation.
+
+SECRET
+
+Group 1
+Excluded from automatic downgrading and declassification
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+
+Subject to Criminal Sanctions
+
+NW-88608-DocID:32989683 Page 31

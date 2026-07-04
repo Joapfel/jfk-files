@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_11.png
+
+Convert to Markdownlook as though Moyers and Velenti were automatically taking the documents to the President.
+
+plans to spend a weekend
+
+On 25 March the President's preparations for
+
+in Texas comment
+
+Moyers prompted Gen. Clifton to say that Mr. John F. read his intelligence while he was at the ranch; he is often up and about by 8:15 a.m., asking for it. But it was hard to catch him in Washington.
+
+The next day Clifton said that it was not necessary for the OCI representatives to meet him at 9:30 a.m. The book did not move upstairs that fast.
+
+He asked that the meetings take place at 10 in the future.
+
+DDI
+
+James C. Graham, Acting AD/OCI, took up with Ray Cline
+
+the possibility of his inviting Moyers to CIA headquarters for lunch and a briefing. Cline wanted to discuss the White House problem with McCone, but first Graham had to get a little memorandum on how things were going.
+
+OCI drew up a statement for Cline making the principal points that
+
+it was a meeting
+
+there had no way of knowing whether we were speaking the President's needs because we had no feedback from him, in contrast to the situation under Kennedy. The reason for this was that our contacts at the White House
+
+NWW 88608 DocId:32401332 Page 11

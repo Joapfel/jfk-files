@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_7072.png
+
+Convert to MarkdownSeptember 10, 1953.
+
+Strictly Confidential
+
+INVOICE DUE FOR MR. TAYLOR'S
+
+In talking with the Attorney General today concerning the radical situation, I was informed that in the conference which I had with the President on September 1, 1953, at which time the Secretary of State was present, and at which time the Secretary of State, at the President's suggestion, requested of me, the representative of the Department of Justice, to have investigation made of the subversive activities in this country, including communism and fascism. I transmitted this request to the Attorney General, and the Attorney General verbally directed me to proceed with this investigation and to coordinate, as the President suggested, information upon these matters in the possession of the Military Intelligence Division, the Naval Intelligence Division, and the State Department. This, therefore, is the authority upon which to proceed in the conduct of this investigation, which should, of course, be handled in a most discreet and confidential manner.
+
+Very truly yours,
+
+John Edgar Hoover,
+Director.

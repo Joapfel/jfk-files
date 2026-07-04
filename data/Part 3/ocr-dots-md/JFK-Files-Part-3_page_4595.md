@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_4595.png
+
+Convert to MarkdownNK 105-9440
+
+Since that time, according to NK T-1, subject has made no further mention of this matter, although he has seen her on several occasions. NK T-1 said he had heard it rumored that the subject has been involved in the sale of guns to Cuba in the past, as well as having visited Cuba since CASTRO took power, but did not know this of his own knowledge.
+
+NK T-1 said that ARCHER is divorced from her husband, has two children and resides with her mother, ANNA ARCHER, on Route 36, Union Beach, New Jersey. He added that she is employed as a cashier at Ye Cottage Inn, Keyport, New Jersey.
+
+It is to be noted that during the course of another investigation the subject's mother, ANNA ARCHER, was interviewed at her home by SA VICTOR J. CAMPI, on July 6, 1960, concerning an abandoned car found near her home. Upon requesting a paper upon which she said she had written the license number of the abandoned car, Mrs. ARCHER started to enter the next room, at which time a woman's voice, in a loud tone, objected to an effort to open the door. Mrs. ARCHER said her daughter was making a phone call and that when the call was completed she would obtain the requested item. Shortly thereafter, the subject emerged from the next room stating she had been interrupted making a very important telephone call -- a call to Cuba. She did not identify the individual to whom she was talking nor did she furnish any information concerning this telephone conversation.
+
+On October 6, 1960, Captain WALTER HUTTON, Union Beach, New Jersey, Police Department, advised SA CAMPI that the subject had two brothers, noting that one brother, FREDDIE ARCHER, was a well-known boxer. He noted that the subject had been married to a local man but had stopped living together in the late 1940s and since that time her mother, ANNA ARCHER, has been helping to rear the two children from that marriage. Captain HUTTON did not know how the subject made her living, but it was his opinion she probably had boyfriends who kept her, that she did a bit of traveling with her boyfriends but always returned to visit her children. He said the subject was also known under the name RUBY KORBIN.
+
+In the course of another investigation, Alcohol and Tobacco Tax Division (ATTD) Agent JOHN C. MULLIN, on January 18, 1960, advised SA LINCOLN J. STOKES that the last girlfriend of CHARLIE "THE BLADE" TOURINE was a girl named EVELYN ARCHER (phonetic) of Houston, Texas. He said this girl was married and may be involved in gun purchasing and selling.
+
+NW 78318 DocId:34489792 Page 8

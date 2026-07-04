@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_7721.png
+
+Convert to Markdown27 May 1975
+
+MEMORANDUM
+
+SUBJECT: Electronic Surveillance Legislation
+
+1. Over a dozen bills have been introduced in Congress to date aimed at restricting electronic surveillance conducted on national security grounds. Although impelled by concern for the Fourth Amendment rights of American citizens, the major bills in this area (S. 743, H.R. 141, H.R. 214) are characterized by a heavy-handed approach which poses a serious threat to the exploitation of foreign SIGINT sources, both within the United States and overseas. (Signals intelligence subsumes communications intelligence and electronic intelligence.)
+
+2. The 1968 Omnibus Crime Control and Safe Streets Act (18 U.S.C. 2510, et seq.) established certain procedures which require the Government to obtain a court order issued on probable cause prior to conducting wire or oral communication interception in the investigation of certain offenses. In section 2511(3) of that Act, Congress specifically disavows any limitation on the constitutional powers of the President in national security matters and recognizes that the President has inherent constitutional authority to engage in certain foreign intelligence activities:
+
+(n)othing contained in this chapter or in section 605 of the Communications Act of 1934 shall limit the constitutional power of the President ... to obtain foreign intelli-gence information deemed essential to the security of the United States, or to protect national security information against foreign intelligence activities. (emphasis added)
+
+The emphasized language implicitly recognizes that foreign intelligence surveillances may be distinguished from national security surveillances aimed at the discovery and prosecution of criminal conspiracies and activity.
+
+3. In reliance on these Presidential powers and congressional recognition thereof, foreign intelligence signal and communication interceptions may be conducted within the United States without judicial warrant.
+
+ENCLOSURE
+
+SECRET
+
+NW 88608 DocId:32989609 Page 124

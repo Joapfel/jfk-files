@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_5318.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+DONALD P. BURGESS BY SSC STAFF MEMBERS
+
+replied that he believed these performance reports merely
+stated general assignments, such as general security, etc.,
+and the location of these reports were unknown to him.
+Mr. Epstein asked if SA Burgess had seen his annual
+performance reports and SA Burgess replied that he had.
+
+At the conclusion of the interview, Mr. Epstein
+asked if he might have SA Burgess' home telephone number
+and if he might call him at a later date to obtain from
+SA Burgess the date of the aforementioned surgery, if SA
+Burgess was able to ascertain this date. SA Burgess did
+furnish Mr. Epstein his home telephone number and advised
+he would attempt to determine the date of this surgery.

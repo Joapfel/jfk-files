@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_9390.png
+
+Convert to MarkdownTHE BLACK PANTHER
+
+FEBRUARY 6, 1971, P. 5
+
+THE BLACK PANTHER, SATURDAY, MAY 2, 1970 PAGE 13
+
+We will not hesitate to kill
+or die for our freedom.
+
+Ralph
+
+Emry
+
+OINK OINK OINK OINK
+OINK OINK OINK OINK
+U.S. GOVT.
+EMORY
+
+OINK OINK OINK OINK
+OINK OINK OINK OINK
+DINK DINK DINK DINK
+DINK OINK OINK OINK
+GODDAMN
+The end is near!

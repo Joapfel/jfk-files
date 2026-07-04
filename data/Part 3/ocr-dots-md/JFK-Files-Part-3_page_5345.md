@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_5345.png
+
+Convert to MarkdownRE: SENSTUDY 75
+
+Steven Blackhurst, Deputy Special Counsel for
+Intelligence Coordination, later advised Inspector Hotis that
+SA Phillips could discuss any aspect of the investigation other
+than information developed through wiretaps or microphone
+surveillance. Mr. Epstein assured him that he was not interested
+in the substance of any conversation that might have been overheard,
+but would inquire into such procedural matters as the number of
+wiretaps installed and the identity of persons who authorized them.
+
+RECOMMENDATIONS:
+
+(1) That SA Phillips be released from existing employment agreement for purposes of this interview, consistent with the above limitations.
+
+(2) That an Intelligence Division representative be available but not present during the interview of SA Phillips in the event that questions arise concerning the proper scope of the interview.

@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_2185.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+
+(1 - Mr. J. B. Hotis)
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. J. P. Thomas
+
+1 - Mr. J. T. Aldhizer
+
+October 20, 1975
+
+HOWARD LANAR FULLER, ALSO KNOWN AS
+OWUSU SADAUKAI
+
+Howard Lamar Fuller, also known as Owusu Sadaukai has been under investigation by the FBI since 1967 for involvement in black extremist activities, which have included foreign travel and efforts to organize blacks in the United States to destroy capitalism through use of violence if necessary. Following travel to Africa in 1971, Fuller, as National Chairman of the African Liberation Support Committee (ALSC), was instrumental in organizing national demonstrations and activities in support of liberation movements on the African continent.
+
+By letter dated August 4, 1972, the FBI requested the National Security Agency (NSA) to furnish any information regarding Fuller in view of his involvement in subversive activities, as outlined above.
+
+A search of logical Bureau records failed to locate any information furnished to the FBI by the NSA in response to the above request.
+
+JTA:lek
+
+(9) ORIGINAL AND ONE TO AG
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE H-H-O-O— BY SP-AL-M-EHL
+
+GPO : 1975 O - 569-920

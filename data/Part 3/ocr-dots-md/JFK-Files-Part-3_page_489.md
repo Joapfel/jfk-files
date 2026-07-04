@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_489.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+On June 9, 1969, an informant advised that Michael Baynham, a Detroit Black Panther Party (BPP) member, disappeared from Detroit June 6, 1969, after taking $150 of BPP funds. He allegedly purchased a gun with part of this money and left Detroit. The BPP was reportedly very upset over Baynham's actions.
+
+On June 12, 1969, Lt. William McCoy, Special Investigations Bureau, Detroit, Michigan, Police Department advised that Baynham was found fatally shot that date in the hallway of Jackie Spicer's residence, 13529 Dequindre, Detroit, Michigan. Spicer was present at the time of the shooting and advised police he had committed suicide.
+
+The Wayne County, Michigan Medical Examiner's Office subsequently advised Baynham's death could possibly have been a suicide.
+
+On September 15, 1969, FBI Headquarters authorized Detroit Office to mail an anonymous communication to a "representative number of Detroit BPP leaders" and members and to BPP National officer, David Hilliard. This communication, mailed September 17, 1969, would question the death of BPP member "Brother Michael Baynham," who it was believed committed suicide and would raise the question of possible responsibility on the part of national BPP leaders for the suicide. The letter would also be prepared in a manner to cause suspicion that Jackie Spicer, a BPP leader in Detroit, was the author of the letter and thus cause disruption in the BPP.
+
+On September 19, 1969, an informant advised the receipt of the letter by Detroit BPP personnel convinced them that Jackie Spicer and Anita Hartman (also BPP member) wrote the letter. As a result, Frank Meyers of the Detroit Chapter contacted BPP National Headquarters on September 18, 1969, to so advise them. As a result, Meyers was told to stay away from Spicer since she was probably a police informant and the letter had come from the police through her.
+
+At a BPP meeting held September 18, 1969, a decision was made to confront Spicer regarding the letter and consequently, she and Anita Hartman were purged from the Detroit BPP group.
+
+PEN:cah (9)
+100-448006-1251, 1303, 1359; 15
+
+SECRET
+157-14024-5
+
+NW 88608 DocId:32989640 Page 31

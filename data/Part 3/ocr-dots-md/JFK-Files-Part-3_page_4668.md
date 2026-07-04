@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_4668.png
+
+Convert to Markdownissuance of a subpoena duces tecum which should be directed
+to Mr. CARL D. BROREIN, JR., operating vice president of
+the General Telephone Company of Florida, or his authorized
+representative.
+
+The telephone company was not requested to retain
+the toll records described above and they will normally
+be destroyed after a period of six months.
+
+The above information from the records of the
+General Telephone Company was furnished toIC HENRY E. MC
+INTURFF on October 23, 1962 by Mr. GEORGE CARNES, Commercial
+Manager.

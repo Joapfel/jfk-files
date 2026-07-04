@@ -1,0 +1,93 @@
+# JFK-Files-Part-3_page_2882.png
+
+Convert to Markdownyou yourself said, and I would be more comfortable with a
+third party making a judgment as to whether the intrusion is
+warranted by the particular circumstance. But I do understand
+your position.
+
+Thank you, Mr. Chairman.
+
+The Chairman. Thank you, Senator Hart.
+
+(Senator Hart leaves the hearing room.)
+
+The Chairman. Senator Baker, do you have questions?
+
+Senator Baker. Mr. Chairman, thank you very much.
+
+Mr. Kelley, I have a great respect for you and your
+organization and I personally regret that the organization is
+in political distress, but we've both got to recognize that
+it is, along with other agencies and departments of the
+government.
+
+I think you probably would agree with me that even though
+that is extraordinarily unpleasant and in many respects
+unfortunate, that it also has a plus side. That is, it gives
+us an indication of our future direction and the opportunity,
+at least, to improve the level of competency and service of
+the government itself.
+
+With that hopeful note, would you be agreeable then to
+volunteering for me any suggestions you have on how to improve
+the responsiveness of the Federal Bureau of Investigation, or
+indeed, for any other law enforcement agencies of the government,
+to the Congress, to the Attorney General, to the President, and
+
+2468
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 88608 DocId:32989820 Page 29

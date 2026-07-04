@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_7168.png
+
+Convert to MarkdownMemo Hauer to LaPrade
+Re: Destruction of Files and Records
+
+Files and Communications Division
+
+Identification Division has purge-type projects in both the criminal and civil fingerprint files involving the destruction of certain fingerprint cards and related name index cards, primarily duplicate-type cards on persons considered inactive because of age.
+
+Insofar as destruction of material by Files and Communications Division is concerned, files, index cards, and related material over 25 years old maintained at FBI Headquarters pertaining to unfounded allegations of subversive activities, membership in subversive organizations, subversive sympathies and tendencies on the part of individuals and organizations are approved for destruction by NARS when investigations revealed allegations predicated upon rumor, nebulous complaints and nonspecific allegations from which no prosecutive action occurred. Archival authority has been obtained to destroy FBI Headquarters files in connection with Interstate Transportation of Stolen Motor Vehicles cases, Selective Service Act cases, Destruction of Aircraft or Motor Vehicles cases (provided no prosecution results from the inquiries conducted and the case had been closed ten years);
+
+and Archival authority has been obtained for destruction of files at FBI Headquarters in unknown subject cases in which there was no criminal prosecution (no time limit set regarding the destruction of unknown subject cases).
+
+In addition to the above authority for the outright destruction of FBI Headquarters records, Archival authority has also been obtained to microfilm any closed criminal file after the case has been closed for ten or more years. Thereafter, the paper records may be destroyed. We currently have on hand 38,601 index cards to be destroyed which pertain to paper record material which has been destroyed previously under NARS regulations and authority.
+
+In addition, personnel files concerning employees who have been separated more than one year are reviewed and temporary records contained therein which no longer serve a useful purpose are purged and only those permanent records as described in the Federal Personnel Manual are retained in the official personnel folder.
+
+Also files, index cards and related material, over 15 years old, maintained at FBI Headquarters relating to laboratory examinations requested by various local,

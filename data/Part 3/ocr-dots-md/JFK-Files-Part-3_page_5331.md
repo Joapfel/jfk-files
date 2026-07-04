@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_5331.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No.
+
+Atlanta, Georgia
+
+July 24, 1975
+
+U. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+EDWARD A. SHEA BY SSC STAFF MEMBERS
+
+The following information has been furnished by SA Edward A. Shea concerning an interview of him by SSC Staff Members Michael Epstein and Mary DeOreo, which took place on July 23, 1975, in the office of Senator Herman E. Talmadge in Atlanta, Georgia.
+
+The interview of SA Edward A. Shea by the two SSC Staff Members commenced at 9:35 A. M. and ended at 10:37 A. M.
+
+At the beginning of the interview no mention was made of SA Edward A. Shea's rights by SSC Staff Members Michael Epstein and Mary DeOreo.
+
+The following information was furnished to these two SSC Staff Members and it is not necessarily in chronological order:
+
+At the outset of the interview, SA Shea was questioned about his service in the Bureau, type work he did, etc., and SA Shea indicated that he had been in the Federal Bureau of Investigation (FBI) as a Special Agent for almost 25 years, having entered the Bureau in March, 1951; after an initial assignment at Richmond, Virginia, SA Shea was transferred to Cleveland, Ohio, where he was assigned to the security squad. SA Shea remained in Cleveland for 20 years doing security work for practically the entire time. In May, 1972, SA Shea was transferred to the Atlanta Division and once again was assigned to security work, which assignment has continued to the present time.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

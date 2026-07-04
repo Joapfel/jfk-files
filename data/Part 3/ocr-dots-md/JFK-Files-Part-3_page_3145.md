@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_3145.png
+
+Convert to Markdown1757
+
+Nobel Prize whose names are Jones and Smith, that my review
+of the files show had violence done to their First Amendment
+rights. And Nobel Prize winners will always get protection,
+but Joe Potatoes doesn't, and this Committee should focus on
+him, too.
+
+Now, included in this COINTEL were activities like this,
+anonymous letters, drafted by Bureau offices in the field, sent
+to headquarters in Washington, approved, and then put in the
+mail, intended to break up marriages, not of Dr. King but of
+Mary and John Jones because one or the other was thought to be
+a dissenter, might have dressed strangely or showed up at
+meetings in company of others who dressed strangely; anonymous
+letters to university officials and to the several newspapers
+in that city to prevent university facilities from being made
+available to a speaker of whom the Bureau disapproved, and it
+was not a top flight, big name speaker.. In that case, an
+anonymous letter was sent to me making protest. Being an
+anonymous letter, it never occurred to me that it came from the
+Federal Bureau of Investigation.
+
+The series of anonymous letters, one with the spelling
+very poor, the grammar sloppy, and another more sophisticated,
+protesting the employment by a city of a man alleging that he
+was a Communist or came from a Communist family, and there are
+loyal Americans out of work, what are you doing, Mayor. And
+to the press, isn't this an outrage. And again: the letter, the
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

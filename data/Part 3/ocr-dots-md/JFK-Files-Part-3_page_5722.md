@@ -1,0 +1,64 @@
+# JFK-Files-Part-3_page_5722.png
+
+Convert to MarkdownJuly 30, 1959
+
+MANUAL OF INSTRUCTIONS
+REVISION NUMBER 196
+
+RE: REVISED PAGES
+
+There are enumerated below pages for inclusion in the Manual of Instruc-
+tions. Revisions may be noted by brackets. The dates appearing at the bottom of
+the pages indicate the dates of revisions. The old corresponding pages should be
+removed from the Manual and destroyed. The Special Agent in Charge has the respon-
+sibility for the appropriate destruction of these old pages.
+
+Volume I
+
+Section 7 - Pages ~~7-11~~ and 12
+
+Pages 1c and 20
+
+Pages 21 and 22
+
+Volume III
+
+Section 66 - Page 7 ✓
+
+Pages 7a and 8 ✓
+
+Section 87 - Pages 33 and 34
+Pages 53 and 54
+
+Volume II
+
+Section 23 - Pages 1 and 2
+Pages 3 and 4
+
+Section 42 - Page 1
+
+Volume IV
+
+Section 102 - Pages 23 and 24
+
+Section 105 - Pages 3 and 4
+
+Section 108 - Pages 7 and 8
+Pages 11 and 12
+Page 13
+
+Section 122 - Pages 1 and 2
+Pages 3 and 4
+Pages 5 and 6
+Page 7
+
+This document is prepared in response to your request and is not for dissem-
+nation outside your Committee. Its use i[ ] 1 to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FJI .
+
+Enclosures (19)
+
+Director
+
+NW 88614 DocId:32989673 Page 219

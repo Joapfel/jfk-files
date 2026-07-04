@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_7962.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+I.e:
+Aides Initial:
+
+Cabinet 6 Drawer 1
+Folder X File (check one)
+First Communication Dated 5/2/49
+Last Communication Dated
+Approximate Pages 2
+Derogatory Information: Yes X No (check one)
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Administrative, information
+Ticklers Only ______ Originals Only X Both ______
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Director memo to [insert recording his conversation with [insert], held at request of Congressman [insert] and desired to assure Director reports being circulated regarding his personal conduct were without foundation. FBI had investigated alleged irregularities of purchase of surplus Government property by [insert]. Had learned [insert] and associates had stayed in St. Moritz Hotel, New York City, telephone calls to women of questionable character were made from room, visited nightclubs with women. It was suggested to [insert] by Hoover he [insert] discuss with his superior, [insert].

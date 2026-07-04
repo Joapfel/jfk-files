@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_7832.png
+
+Convert to MarkdownOne final question from Epstein. Is there anything else about this case that you know that has not come out because I did not ask the right question or asked a question in the right way. I advised I felt he had done a good job in asking the questions.
+
+Additional answers to questions. I did not know any details concerning Mr. Sullivan's remarks about King's association with communists. I did not attend all of the meetings at WFO concerning the King installation. My best recollection was that the monitoring was in rooms one floor above the rooms occupied by King.

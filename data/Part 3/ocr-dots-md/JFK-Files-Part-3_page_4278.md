@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_4278.png
+
+Convert to MarkdownSECRET
+
+Memorandum for the Attorney General
+
+The monitoring of this surveillance may result in the interception of conversations involving individuals who are or may be defendants or attorneys in pending Federal cases. Therefore, monitoring of this surveillance will be conducted in accordance with instructions contained in your letter of July 14, 1969, entitled "Electronic Surveillances."
+
+APPROVED: John Edgar Hoover
+DATE: 3/30/70
+
+SECRET
+
+- 2 -

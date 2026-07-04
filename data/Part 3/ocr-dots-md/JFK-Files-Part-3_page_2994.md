@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_2994.png
+
+Convert to Markdown1932
+
+everyone is concerned about the murder of the civil rights workers, the Linio Kent case, the Viola Liuzzo case, the bombings of the church in Birmingham. We were faced with one tremendous problem at that time.
+
+Senator Schweiker. I acknowledge that.
+
+Mr. Adams. Our only approach was through informants and through the use of informants we solved these cases, the ones that were solved. Some of the bombing cases we have never solved. They are extremely difficult.
+
+These informants, as we told the Attorney General, and as we told the President, that we had moved informants like Mr. Rowe up to the top leadership. He was the bodyguard to the head man. He was in a position where he could forewarn us of violence, could help us on cases that had transpired, and yet we knew and conceived that this could continue forever unless we can create enough disruption that these members will realize that if I go out and murder three civil rights workers, even though the sheriff and other law enforcement officers are in on it, if that were the case and with some of them it was the case, that I would be caught. And that's what we did and that's why violence stopped, was because the Klan was insecure and just like you say, 20 percent, they thought 50 percent of their members ultimately were Klan members and they didn't dare engage in these acts of violence because they knew they couldn't control the conspiracy any longer.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+gsh 19
+
+Phone (Area 202) 544-6000

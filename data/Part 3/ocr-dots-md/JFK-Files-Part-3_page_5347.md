@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_5347.png
+
+Convert to MarkdownU. S. DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No.
+
+Louisville, Kentucky
+March 20, 1973
+
+Pages. 1-5 of L4M, dated 3/20/73, at Louisville.
+Serial 7
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/7 2006 BY: P.O. Am I/M R
+MOR-L6
+
+NWW 88608 DocId:32989626 Page 78

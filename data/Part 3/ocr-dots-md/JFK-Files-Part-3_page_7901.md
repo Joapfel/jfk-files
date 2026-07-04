@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_7901.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Date:
+
+Aides Initial:
+
+Cabinet 6 Drawer 1
+
+Folder X File (check one)
+
+First Communication Dated 11/20/53
+
+Last Communication Dated ----- 
+
+Approximate Pages 27 
+
+Derogatory Information: Yes No X (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible) : Investigative
+
+Ticklers Only X Originals Only Both
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Photostat copy of diagrams depicting distribution of investigative information by the FBI to the White House, Attorney General and employing agencies on 27 persons named by [redacted] on 11/7/45 who were still employed by the U. S. Government as of that date.

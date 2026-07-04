@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_6896.png
+
+Convert to Markdown**United States Senate**
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+October 7, 1975
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mike:
+
+The enclosed documents relating to mail intercept programs are submitted for declassification by the Department of Justice and the FBI. Portions of these documents which reveal sensitive sources or on-going operations should be appropriately excised for use at public hearings.
+
+A list of these documents is also attached.
+
+Those documents which are followed by an asterisk on this list do not appear to be classified, but are nonetheless included because their contents are similar in nature to those documents which are classified.
+
+These documents should be declassified by Tuesday, October 14, to allow sufficient preparation time for the mail hearings, which are now scheduled to begin on Tuesday, October 21.
+
+Enclosures
+
+cc: Mr. Paul Daly
+
+ENCLOSURE

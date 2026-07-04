@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7109.png
+
+Convert to Markdown4. All Bureau of the Budget and OMB examiners' reports on the Agency, and all memoranda and reports provided by the Intelligence Community Staff to OMB
+
+D. All Annual Reports of the Inspector General and all Inspector General reports for the past five years on all components of the Agency.
+
+E. The Agency's "Allegations and Responses" files
+
+IV. DIRECTOR COLBY'S JANUARY 15, 1975 TESTIMONY BEFORE THE SENATE APPROPRIATIONS COMMITTEE
+
+All materials reviewed or used by the Office of the Director in preparation for Director Colby's testimony on January 15, 1975 before the Senate Appropriations Committee, including materials referred to in such testimony, (a representative list of which has been furnished to Central Intelligence Agency staff by the Senate Select Committee staff).

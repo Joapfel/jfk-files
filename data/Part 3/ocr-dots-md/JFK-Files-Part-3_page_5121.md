@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_5121.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Los Angeles, California
+
+August 7, 1975
+
+U.S. SENATE SELECT COMMITTEE ON
+INTELLIGENCE ACTIVITIES (SSC);
+INTERVIEW OF SA WALLACE E. WARD
+BY SSC STAFF MEMBER
+
+On August 5, 1975, Special Agent (SA) Wallace E. Ward was interviewed by SSC Staff Member Lester Seidel at Los Angeles Headquarters regarding Cointelpro/Black Panther Party. The interview lasted from 9:12 a.m., to 9:22 a.m.
+
+Seidel asked how long SA Ward has been a Special Agent with the FBI, and SA Ward responded nine years. He further requested previous offices SA Ward had been assigned to, and SA Ward responded Cincinnati, Ohio. Seidel advised the Bureau informed him that SA Ward had been assigned Cointelpro/Black Panther Party in June, 1969. Seidel requested to know what work SA Ward had been assigned before this, to which SA Ward responded he could not remember, but believed general criminal work.
+
+Seidel requested to know what specific instructions were issued with regard to operating Cointelpro/Black Panther Party. SA Ward advised that due to his employment agreement, the sensitive nature of the Bureau work, and the possible overlap of Bureau investigation, he did not feel he could respond to any further questions. The official interview was terminated at this point.
+
+SA Ward was advised by Mr. Seidel that the interview was voluntary but SA Ward was not advised of his rights in this matter.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
+
+1*
+
+MDR-16
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 10/19/00 BY SP2 ALM/EHL
+
+ENCLOSURE
+
+In Reply, Please Refer to
+File No.
+
+NW 88608 DocId:32989633 Page 35

@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_2182.png
+
+Convert to MarkdownThe Attorney General
+
+October 21, 1975
+
+Director, FBI
+
+U. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+MDR 16
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11/6/00 BY SPALM/NEHL
+
+Reference is made to the oral request of Special Assistant to the Attorney General Jack W. Fuller, October 20, 1975, for information concerning six individuals whose names were placed on the National Security Agency (NSA) Watch List because of FBI investigative interest in them.
+
+In response to that request, enclosed are the original and one copy each of six memoranda relating to the following individuals:
+
+1. Kathie Boudin
+
+2. Stokely Carmichael
+
+3. Howard Lamar Fuller
+
+4. Leonard Handelsman
+
+5. Naomi Esther Jaffe EX 103
+
+6. Saifeldine Ahmed Abdenabi Vadi-Ramahi.
+
+REC-14
+
+The memoranda include information as to the reasons why these individuals were investigated by the FBI, included on the Watch List and the use made of the product received from NSA concerning them, if any. Regarding those individuals on whom there is no record of receipt of information of a positive nature from NSA, it should be noted that it was our practice to destroy upon receipt any Watch List "product" which did not appear to be of significance in our investigations and to retain neither copies nor record of receipt.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv. 62-116395
+Ident.
+Inspection
+Intell. 1 - The Deputy Attorney General
+Laboratory Attn:ntion: Michael E. Shaheen, Jr.
+Plan. & Eval.
+Spec. Inv.
+Training JPT: lhb
+Legal Coun. (9)
+Telephone Rm.
+Director Sec'y MAIL ROOM [ ] TELETYPE UNIT [ ]
+JET
+
+D FEB 4 1976
+
+SECRET MATERIAL ATTACHED
+
+Special Counsel for
+**Intelligence Coordination**
+
+SEE NOTE PAGE 2
+
+GPO : 1975 O - 569-920
+
+84 FEB 6
+
+NEW 88608 [DocId:13789570] Page 17

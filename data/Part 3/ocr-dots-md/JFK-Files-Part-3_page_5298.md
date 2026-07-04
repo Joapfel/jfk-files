@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_5298.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+W. JOHN BENTON BY SSC STAFF MEMBERS
+
+SA Benton was asked who handled the repairs of the equipment if there was a malfunction of the equipment. SA Benton advised the equipment and any repairs to the equipment was handled by SA Miller who was assigned to the Atlanta Field Division.
+
+SA Benton was asked how many files were involved in the King investigation. SA Benton advised to his best recollection there was only one file involved. SA Benton was asked if there were other files where investigation was being conducted regarding SCLC and SCLC members other than the King file. SA Benton advised he did not have any knowledge of any other FBI investigations regarding SCLC or SCLC members.
+
+SA Benton was asked who were some of the named individuals that he was told to listen for and the basis for listening for these particular individuals. SA Benton advised he was instructed to monitor incoming and outgoing calls and that to the best of his knowledge several individuals were of interest to the investigation. These individuals were Stan Levison, Harry Wachtel, Ralph Helstein and Hunter Pitts O'Dell. SA Benton was asked why these individuals or any other named individuals might be of interest to the FBI. SA Benton advised the FBI had developed information that certain individuals that had contact with Martin Luther King, Jr. and SCLC headquarters were either sympathizers to the Communist Party of the United States or possibly members of the Communist Party of the United States.
+
+SA Benton was asked if he received any mail at the plant where the telephones were monitored and if there was a mail box in the apartment complex where mail could be received. SA Benton advised he did not receive any mail at the apartment complex and did not have any knowledge of any mail boxes.
+
+SA Benton was asked if there was a telephone located at the plant and if this telephone was assigned an FBI telephone number. SA Benton advised there was one

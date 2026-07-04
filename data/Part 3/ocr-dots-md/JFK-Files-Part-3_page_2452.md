@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_2452.png
+
+Convert to Markdown<table>
+  <tr>
+    <td>WFO 62-10744</td>
+  </tr>
+  <tr>
+    <td>PAGE EIGHT</td>
+  </tr>
+  <tr>
+    <td>TOP SECRET</td>
+  </tr>
+  <tr>
+    <td>INSTRUCTIONS OF FBIHQ. [THE FOLLOWING IS A LIST OF THESE ESTABLISHMENTS], ITS ADDRESS, FOLLOWED BY THE ADDRESS WHERE THE MAIL COVER WAS CONDUCTED:</td>
+  </tr>
+  <tr>
+    <td>[POLISH EMBASSY, 2640 16TH STREET, N. W.,] (S) MAIL COVER CONDUCTED AT COLUMBIA HEIGHTS POST OFFICE, 1423 IRVING STREET, N. W., WDC.</td>
+  </tr>
+  <tr>
+    <td>[POLISH EMBASSY ANNEX, 2224 WYOMING STREET, N. W.,] (S) MAIL COVER CONDUCTED AT CLEVELAND PARK POST OFFICE, 3430 CONNECTICUT AVENUE, N. W., WDC.</td>
+  </tr>
+  <tr>
+    <td>[HUNGARIAN EMBASSY, 2437 15TH STREET, N. W.,] (S) MAIL COVER CONDUCTED AT COLUMBIA HEIGHTS POST OFFICE.</td>
+  </tr>
+  <tr>
+    <td>[ROMANIAN EMBASSY, 1601-07 23RD STREET, N. W.,] (S) MAIL COVER CONDUCTED AT CLEVELAND PARK POST OFFICE.</td>
+  </tr>
+  <tr>
+    <td>[CZECHOSLOVAKIAN EMBASSY, 2349 MASSACHUSETTS AVE., N. W.,] (S) MAIL COVER CONDUCTED AT CLEVELAND PARK POST OFFICE.</td>
+  </tr>
+  <tr>
+    <td>[SOVIET EMBASSY, 1115 16TH STREET, N. W.,] (S) MAIL COVER CONDUCTED AT CLEVELAND PARK POST OFFICE.</td>
+  </tr>
+</table>
+
+Approved: ____________________ Sent ___________ M Per ___________
+
+SECRET
+
+Special Agent in Charge
+
+U.S.Government Printing Office: 1972 - 455-574
+
+NW 88608 DocId:32989618 Page 132

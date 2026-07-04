@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_4295.png
+
+Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+
+It is felt a telephone surveillance at [Jackson's residence, 865 Amsterdam Avenue, New York City] will provide vital information in our efforts to effect a solution of this murder case as well as information of intelligence value regarding black extremist activities. It is anticipated results of this telephone surveillance will be introduced in court or that leads to evidence may be obtained; therefore, this request is being made not only for the purpose of obtaining intelligence information but also on the basis that evidence may be obtained which will be used in court. In line with instructions on page five of your referenced letter the following information is set forth:
+
+It is believed that [Jackson] and other individuals having access to this location may become involved in discussions which could lead to the solution of these murders. At the present time we are conducting intelligence investigations of [Jackson] and other leading members of SNCC.
+
+On May 21, 1971, two New York City police officers were shot from behind and killed by two unknown black male assailants while returning to their car after responding to a legitimate call in the Harlem section of New York City. Two days prior to these murders two other New York City police officers were wounded by black assailants and a letter to The New York Times said that the shooting was for revolutionary justice for black people against "fascist pigs." Weapons of the same caliber were used in both shooting incidents which may have been related. In this crime, with the type of motive involved, telephone surveillances of selected persons are most valuable and necessary since a remark during a conversation or a contact often results in leads to the solution of the crime which would not otherwise be available. [Jackson] has been selected as a person likely to lead to the solution of these murders.
+
+SECRET
+
+- 2 -

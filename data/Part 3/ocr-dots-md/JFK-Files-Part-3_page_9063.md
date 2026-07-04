@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_9063.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. C. Sullivan
+DATE: 5-5-70
+
+FROM : D. E. Moore
+
+SUBJECT: THOMAS RIHA MISCELLANEOUS - INFORMATION CONCERNING
+
+At 4:35 p.m., today I telephonically contacted ASAC Morley, Denver, and advised him that an article concerning the Riha case had appeared in the Sunday News (New York) 4-3-70. This article was a general rehashing of the Riha case.
+
+I told him that the Bureau desired that SAC Werner contact the District Attorney to determine the developments of his investigation in this case and also determine what conclusions had been reached. Morley said this would be done.
+
+Morley was asked if Denver had information concerning a professor who had gone to El Paso, Texas, or New Orleans, Louisiana, and he advised this probably referred to Dr. Joseph Smiley, former President at Colorado University who was there when Riha disappeared. He said that Smiley is now President of the University of Texas at El Paso, Texas. He said Denver had no information that Dr. Smiley has any current information concerning this matter.
+
+SAC Werner called at 5:30 p.m., today to advise that he had been unable to get in touch with the District Attorney but also was following up on this and would contact the District Attorney today and get in a teletype tonight.
+
+ACTION:
+
+For record purposes..

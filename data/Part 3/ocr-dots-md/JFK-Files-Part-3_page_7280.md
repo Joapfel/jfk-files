@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7280.png
+
+Convert to Markdown28) Guard protection should be required on this area.
+
+34) Areas selected for use in closed session should be guarded against entry by unauthorized persons.
+
+45) Agencies presenting testimony should be permitted to conduct or arrange with the Sergeant-at-Arms to conduct audio countermeasures inspections to preclude the possibility of surreptitious use of transmitters and/or unauthorized recording devices similar to the device located in the Rayburn House Office Building on 12 February 1973.
+
+56) At the end of each session of the Select Committees, the hearing room should be examined by a cleared staff officer who will secure any misplaced classified material or waste.
+
+67) Areas should be designated in which classified material can be reviewed. These areas should be secure against access by unauthorized personnel. Material should not be removed from these areas for the sake of convenience except when necessary for the work of the committees and should not be transported overnight to the office or residence of personnel of the committees.

@@ -1,0 +1,90 @@
+# JFK-Files-Part-3_page_4166.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+1 - (1-Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. V. R. Thornton
+
+62-116395
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+DATE 10/30/68 BY SPAUNEP
+
+January 14, 1976
+
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to SSC letter dated December 4, 1975,
+Item 4 of which requests materials concerning Martin Luther
+King, Jr.; and SSC letter dated November 25, 1975, Items 7c and
+8c of which request materials concerning the Washington Spring
+Project and Sanitation Workers Strike, Memphis, Tennessee,
+respectively.
+
+The purpose of this memorandum is to effect delivery
+to the SSC of materials in response to referenced requests.
+
+In respect to Item 4 of the December 4, 1975, request,
+the only indication of any action taken concerning the recommend-
+ation contained in the pertinent memorandum dated March 29, 1968,
+captioned, "Counterintelligence Program, Black Nationalist-Hate
+Groups, Racial Intelligence (Martin Luther King)" is the
+pencilled notation "Handled 4/3/68," appearing on page one and
+initials which are believed to be those of former Special Agent
+(SA) Harold P. Leinbaugh. Among the documents being furnished
+the SSC is a memorandum dated July 18, 1975, captioned,
+"Dr. Martin Luther King, Jr.," along with supporting documents,
+which were submitted to the Attorney General concerning back-
+ground leading up to the proposed action recommended in the
+March 29, 1968, memorandum. It includes results of an inter-
+view of Leinbaugh.
+
+In response to Item 7c, the only indication of any
+action taken concerning the suggestion (recommendation) con-
+tained in the memorandum dated March 26, 1968, captioned,
+"Counterintelligence Program, Black Nationalist-Hate Groups,
+Racial Intelligence (Washington Spring Project)" is the pencilled
+notation "Handled 4/4/68," appearing on page two of that memo-
+randum and initials which are believed to be those of former
+SA Leinbaugh.
+
+Asst. Dir.:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+VT: adn
+(8) This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.
+
+ORIGINAL AND ONE TO AG
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+GPO 11750 - 5691920
+
+NW 88614 DocId:32989602 Page 55
+
+ENCLOSURE
+
+1210X
+
+11-18-Ben

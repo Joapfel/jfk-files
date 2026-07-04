@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_7808.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. W. R. WANNALL
+FROM : MR. W. R. CREGAR
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. B. Adams
+1 - Mr. J. A. Mintz
+1 - Mr. J. B. Hotis
+
+DATE: May 28, 1975
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+All information contained in this message is classified.
+Subject to further orders.
+
+This memorandum reports the results of a telephonic conversation with former Special Agent (SA) Charles D. Brennan and recommends that the attached letter to the Attorney General with enclosures be sent.
+
+On the morning of 5/23/75 the Department of Justice advised Assistant Director Mintz that former SA Brennan has or was to be interviewed by Staff Members of the Senate Select Committee (SSC). On that same date I telephonically contacted Mr. Brennan to advise him that the Bureau had been alerted to the fact he was going to be interviewed by the SSC Staff and should he desire, a representative of the Bureau could be available during the interview for consultation. It was made clear to Brennan that the role of the Bureau representative would be to insure that he could consult with the representative at any time during the interview should the line of inquiry reveal; the identity of sensitive FBI sources, methods or sensitive investigative techniques; information derived from third agencies or friendly foreign intelligence services; or any information which Brennan felt could adversely affect sensitive ongoing FBI investigations.
+
+Brennan then changed the conversation to personal chat. At what appeared to be the conclusion of the conversation Cregar asked Brennan if he had been contacted by the SSC Staff. Brennan advised that he had received a telephone call earlier in the week inviting him to an interview in Washington, D. C., and in fact was interviewed on 5/22 by SSC Staff Members Mark Gitenstein and two others whose names Brennan did not get.
+
+Brennan showed some concern over the fact that the Staff had invited him to be interviewed earlier in the week but only notified the Department subsequent to his interview. (At the outset of the conversation with Brennan, I had advised him that the SSC had informed the Department which in turn informed the 62-116395 REC-102
+
+Enclosures - Send S-30-75 edm
+1 - 100-106670 (Martin Luther King, Jr.)
+1 - 67-428100 (Personnel File of Charles D. Brennan)
+
+WOC:ekw (8) RKW
+
+CONTINUED OVER
+17 JUN 26 1975
+
+JUN 26 1975
+
+NWL 88608 DocId:32989609 Page 211
+
+Assoc. Dir.
+Dep. AD, Adm.
+Dep. AD, Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Gom.
+Gen. Inv.
+Ident.
+Inspection
+Int'l
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director See

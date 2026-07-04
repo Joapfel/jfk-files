@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_5925.png
+
+Convert to Markdown1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. R. L. Shackelford
+1 - Mr. F. J. Cassidy
+
+Mr. W. R. Wannall
+
+F. J. Cassidy
+
+COINTELPROS
+
+10/22/75
+
+1 - Mr. D. Ryan
+
+This is to identify two serials, copies of which were furnished to Barbara Banoff of the staff of the Senate Select Committee (SSC) for retention in the Committee's files.
+
+Banoff on 10/10/75 requested copies of a memorandum from Mr. Baumgardner to Mr. Belmont dated 3/30/60 and a letter to the New York Office and 15 other offices dated 3/31/60, both captioned "Communist Party, USA, Counterintelligence Program," be furnished to the Committee. Banoff stated she believed these documents had previously been requested but she was unable to locate them in the Committee files. She said she desired to have these documents because they set forth a logical program by which the FBI made an effort to prevent the Communist Party from infiltrating legitimate mass organizations. As an aside, she stated she thought the FBI was successful in this effort, indicating she felt the technique was worthy and proper.
+
+Copies of the above two documents were made available to a SSC representative on 10/22/75. Copies of the documents together with a cover page indicating their receipt are attached. No excisions were required in these documents.
+
+**ACTION:**
+
+None. For information.
+
+Enclosures
+
+62-116009
+
+① - 62-116395 (Senstudy)
+② - 100-3-104 (CPUSA)
+
+DR:lfj
+(3)
+
+NOT RECORDED
+46 OCT 31 1975
+
+ORIGINAL FILED IN

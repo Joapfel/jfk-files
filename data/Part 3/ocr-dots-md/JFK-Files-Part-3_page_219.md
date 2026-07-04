@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_219.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+The Philadelphia Office was authorized to contact prominent Jewish organizations, such as the American Jewish Congress, and Morris Litman, City Editor of the "Philadelphia Inquirer," in an effort to have them contact Harry Beichman and David S. Landes, Office Secretary of Boslover Hall and President of Boslover Ahavas Achim Belzer Association, respectively, in an effort to have an appearance of Gus Hall cancelled at Boslover Hall before the Philadelphia Social Science Forum Committee on January 24, 1964. Contact was to indicate bad publicity received and advise of riot which ensued following a previous appearance of Hall before the same committee during 1962.
+
+Boslover Hall cancelled the meeting which had been scheduled for January 24, 1964, and Gus Hall did not appear in the Philadelphia area.
+
+KAM:vb
+(9)
+
+100-3-104-37-97, 98, 101
+
+SECRET
+
+113

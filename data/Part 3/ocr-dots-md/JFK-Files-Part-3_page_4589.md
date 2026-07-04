@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_4589.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : DIRECTOR, FBI (105-95507) DATE: 5/5/61
+
+FROM : SAC, NEWARK (105-9440)
+
+SUBJECT: EVELYN ELEANORE ARCHER, Aka. IS-CUBA
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 4-29-64 BY S.E.MAC/EN (JFK)
+CONFIDENTIAL
+
+Re report of SA HERBERT L. BLOM at Newark dated
+4/25/61.
+
+Bureau authority is requested to interview subject in accordance with existing instructions relating to interviews of security subjects. If this subject is co-operative, no affirmative steps will be taken during the initial interview to direct her activities and complete background investigation required by Section 107C of the Manual of Instructions is being conducted and Bureau will be requested to authorize recontact with subject as a PSI.
+
+A. Subject resides at Box 208, Route 36, Union Beach, New Jersey (mailing address is Keyport, N. J.); she is employed as a cashier at Ye Cottage Inn, Keyport, N. J. She was born 5/19/61, Newark, N. J., and is a U. S. citizen. Her health appears to be satisfactory.
+
+B. She was formerly married to WALTER KORABIAK. Her probation record notes she is divorced from him and that he resides in California.
+
+C. Subject was convicted in 1958 for conspiracy and unlawful possession of firearms. Investigation reflects close association with MANUEL ARQUES and was assisting in plan to return CARLOS PRIO to power in Cuba. She has continued association with ARQUES since her conviction.
+
+D. No information available.
+
+E. No information available.
+
+F. A news interview of subject contained in a local newspaper on 3/26/61 reflects a purported change in her attitude against CASTRO, whereas at one time she had favored what CASTRO stood for.
+
+2 Bureau (RM) See Bureau note REC-33 (Date) 9 MAY 8 1961
+1 Newark APPROVED 5/15/61 EX-I 14
+HLB:mad ✓ Submit results in form suitable for dissemination.
+57 MAY 18 1961 ✓ Buffles contain no additional pertinent information
+MAIL ROOM ✓ P/07 identifiable with subject.
+
+NW 78318 DocId:34489792 Page 2

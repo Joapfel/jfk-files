@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_5158.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+Mr. Michael E. Shaheen of the DAG's staff and press for him to advise the AG and ask him to resolve the issue as soon as possible.
+
+**RECOMMENDATION:**
+
+None. For Information.

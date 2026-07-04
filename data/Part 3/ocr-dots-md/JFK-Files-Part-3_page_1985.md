@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_1985.png
+
+Convert to MarkdownThe Honorable Griffin R. Bell
+Attorney General of the United States
+Department of Justice
+Washington, D.C. 20530
+
+Attention: Mr. Robert L. Keuch
+Deputy Assistant Attorney
+Criminal Division.
+Room 2113
+
+Dear Mr. Attorney General:
+
+Pursuant to our investigation into the assassination of Dr. Martin Luther King, Jr., we hereby request that all reports, materials and files in the possession of the F.B.I. pertaining to the following individuals and organizations be made available to the Committee and its staff:
+
+1. Lawrence J. Callanan (deceased) Steamfitters Union (AFL) Local 562, St. Louis, Mo. for the Period 1967 through 1971.
+
+2. National States Rights Party, 591 Cherokee, Marietta, Georgia, for the period 1967 through 1968, but limited to reports and information in areas covered by offices in Savannah, Ga.; Atlanta, Ga.; Memphis, Tn.; Birmingham, Al.; St. Louis, Mo.; and Springfield, Ill.
+
+3. Jesse B. Stoner, 591 Cherokee, N.W., Marietta, Ga.
+
+4. Conservative Society of America for the period 1967 through 1968. (Headquarters in New Orleans, La.)
+
+5. Kent Courtney, 1413 Texas Avenue, Alexandria, La. for the period 1967 through 1968. 6-11/290-382X ENCL
+
+6. KKK (limited to reports or information in areas covered by offices in Birmingham, Alabama, Los Angeles, California, Atlanta, Georgia and Louisville, Kentucky during the period 1967 through 1968).

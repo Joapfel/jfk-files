@@ -1,0 +1,78 @@
+# JFK-Files-Part-3_page_4803.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+Date 3/29/68
+
+The records of the New York Telephone Company
+revealed the identities of the subscribers to the telephone
+numbers set forth below:
+
+244-0642
+
+Simonson Fabrics Incorporated
+36 West 36th Street
+New York City
+
+YU 8-7513
+(connected 10/6/63)
+
+ESTHER HANDILLE
+181 East 73 Street
+New York City
+Apartment 4F
+
+UN 6-4030
+
+No such exchange as UN 6
+in the 516 area.
+
+CO 5-3910
+
+Southern Music Publishing
+Company
+1619 Broadway
+New York City
+
+FL 7-2034
+
+JEROME WECHSLER
+15 West 47th Street
+New York City
+Room 808
+
+781-9683
+(connected 11/8/67)
+
+ROBERT REYES
+511 West 171 Street
+New York City
+Apartment 2B
+
+CI 7-1587
+(247-1587)
+
+CHARLES ABREU
+144 West 46th Street
+New York City
+Apartment 5F
+
+AU 6-9335
+
+ISABEL PEREZ
+629 West 135th Street
+New York City
+
+On 3/29/68 at New York, New York
+
+File # NY 92-5000
+MM 92-1870
+
+by SA FRANCIS P. HENRY;lor
+
+Date dictated 3/29/68
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency;
+it and its contents are not to be distributed outside your agency.
+
+—1/1—

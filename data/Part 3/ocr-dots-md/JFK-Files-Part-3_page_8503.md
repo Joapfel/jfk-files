@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_8503.png
+
+Convert to MarkdownA. Yes.
+
+Q. During Atlanta interview you indicated you presumed
+these reports set forth information concerning Levison from
+a telephone surveillance. Is that correct?
+
+A. Yes.
+
+Q. What was the basis for your presumption?
+
+A. The appropriate administrative portion of such report
+would have so indicated.
+
+Q. What evidence of CP connections did your investigation develop concerning Levison?
+
+A. None.
+
+Q. What information did you have establishing CP connection
+to Levison?
+
+A. Such information as was set forth in what was then referred
+to as a characterization of Levison. Such characterization was
+a part of each report submitted to the Bureau.
+
+Q. What was the nature of this characterization?
+
+A. I do not remember the precise language. It is my recollection
+the statement was brief and set forth information establishing
+past and/or present CP affiliation by Levison.
+
+Q. Where did you obtain this characterization?
+
+A. A characterization of an individual or organization at
+that time was prepared by the field office concerned, submitted
+
+4
+
+-NW-88614_DocID:32989606 Page 5

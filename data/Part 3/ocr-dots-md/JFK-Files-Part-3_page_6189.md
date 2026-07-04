@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_6189.png
+
+Convert to Markdown# Tampa
+
+Excision (name unknown) Tampa television producer or newsman. Furnished public source data and lead material concerning black nationalist groups, particularly Junta of Militant Organizations, for a television "special".
+
+# Chicago
+
+Excision (a Mr. Jones - newspaper unknown) newspaper reporter furnished public source data and other lead material for an article on the Nation of Islam, particularly its business interests.
+
+# New York
+
+Excision (known to be Surrogate Edward S. Silver) probate judge contacted by Bureau to determine how to prevent large bequest from going to CPUSA.
+
+# Jackson
+
+Excision (known to be Jimmy Ward) newspaperman used to plant Bureau-authored letter and answer in column re Nation of Islam.
+
+# Pittsburgh I
+
+Excision (known to be Richard Larry) official of Mellon Foundation used in several counterintelligence programs involving foundation funding and contacts.
+
+# Pittsburgh II
+
+Excision (known to be Sherley Uhl) newspaperman used in several counterintelligence programs of which the documents attached are one example.
+
+# Miami
+
+Excision (known to be Gene Struhl) news director furnished public source information and other lead material with which to produce four separate documentaries which "showed the extremist groups involved in their true light."

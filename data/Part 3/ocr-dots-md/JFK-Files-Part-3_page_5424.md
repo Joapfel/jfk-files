@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_5424.png
+
+Convert to MarkdownQUESTION: Why can't you tell us the number?
+
+ANSWER: Because we're going to make reports to our Congres- sional groups and to the Department of Justice and, frankly, I can't tell you the number myself. We don't have any....
+
+QUESTION: They did not entirely stop in 1966? There were some that did get, you say, a small number after 1966?
+
+ANSWER: There may have been some after 1966 which were, of course, in the field of foreign counterintelli- gence, and such that it would make a grave impact on our....
+
+QUESTION: Before that, they were not with the field of foreign counterintelligence?
+
+ANSWER: Oh, yes, there were some in that field also.
+
+QUESTION: There were others that were not in the field of foreign counterintelligence before 1966?
+
+ANSWER: You recall that I said in the context of the time, it may well have been that prior to that time national security or counterintelligence or whatever terminology you might want to use could have included other areas. But, then you began to compartmentize various types of activities and then it became evident that the area of foreign counterintelligence national security certainly should be differentiated from domestic security.
+
+QUESTION: But, Mr. Kelley, what policy have you followed in the time that you have been Director? Is this type of activity, has it been permitted? Is it policy now to conduct this kind of activity?
+
+ANSWER: I have not had a single request to conduct such activity since I have been made Director. If ever anything of this type comes up, and I can't foresee this need, but, if it ever did come up and it became a matter of grave concern, a matter which is to be solved only through such activity, I would present it to the Attorney General and would be guided by his opinion as to such activity. Frankly, I have not had any such request since I have come aboard.

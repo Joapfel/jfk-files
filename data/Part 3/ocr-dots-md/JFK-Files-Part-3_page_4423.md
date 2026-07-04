@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_4423.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+June 16, 1970.
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: STUDENTS FOR A DEMOCRATIC SOCIETY
+WORKER STUDENT ALLIANCE
+
+New Left
+Oriented Campus
+Group Faction
+
+Reference is made to my memorandum dated March 16, 1970, captioned ("Students for a Democratic Society, Worker Student Alliance"). By your approval of the memorandum on March 16, 1970, you authorized installation of telephone surveillance at the national headquarters of the Worker Student Alliance group of the Students for a Democratic Society, 173A Massachusetts Avenue, Boston, Massachusetts.
+
+The Worker Student Alliance group is dominated and controlled by the pro-Chinese Marxist-Leninist Progressive Labor Party. A number of the national leaders of the Worker Student Alliance group are members of the Progressive Labor Party. The Progressive Labor Party mainly intends to utilize the Worker Student Alliance to build a campus (worker student alliance base, and to recruit future Progressive Labor Party members from the Worker Student Alliance). Current/Worker Student Alliance strategy is directed at using the campus (worker student alliance to develop strong ties with the cafeteria, maintenance and other workers on campuses. According to Progressive Labor Party, and (Worker Student Alliance leaders, these campus workers will go eventually into industry and factories to spread their radical politics among factory workers.
+
+During the three months since authorization of this coverage, invaluable information on a daily basis has been obtained concerning the activities of the national headquarters of the Worker Student Alliance group. Information has been developed concerning the travels and contacts of John Pennington, National Secretary of the Worker Student Alliance, in April, May and June, 1970. Source has also furnished information in
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+
+Subject to Criminal Sanctions
+
+SECRET
+GROUP I
+
+Excluded from automatic
+downgrading and
+declassification
+
+NW 88608 DocId:32989583 Page 165

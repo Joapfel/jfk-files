@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_6780.png
+
+Convert to MarkdownThe Attorney General
+
+August 2, 1963
+
+Director, FBI
+
+1 - Mr. Belmont
+1 - Mr. Evans
+1 - Mr. Mohr
+1 - Mr. DeLoach
+1 - Mr. Sullivan
+1 - Mr. Baumgardner
+1 - Mr. Bland
+1 - Mr. Ryan
+
+HUNTER PITTS O'DELL
+INTERNAL SECURITY - C
+INTERNAL SECURITY ACT OF 1950
+
+Reference is made to my letter dated July 31, 1963, concerning an article in the July 25, 1963, issue of the Atlanta, Georgia, "Constitution" regarding Hunter Pitts O'Dell and entitled "Onetime Communist Organizer Heads Rev. King's Office in N.Y." My letter concluded that a telephone call to the office of the Southern Christian Leadership Conference (SCLC) in New York City on July 30, 1963, resulted in a statement by an unidentified female employee that Hunter Pitts O'Dell was no longer employed by the SCLC.
+
+A United Press International release issued on July 20, 1963, at Atlanta, Georgia, reported that the Reverend Martin Luther King, Jr., had agreed to submit to Georgia attorney general Eugene Cook an affidavit explaining the employment in the SCLC of a man linked by Congressional committees with the Communist Party. The release states that King sent an attorney to Cook's office to determine what the Attorney General wanted in connection with his inquiry into the relationship with the SCLC of Jack O'Dell. The release further states that "King said last week O'Dell had worked for SCLC on two occasions but his connections with the integration organization were severed for good last June 26."
+
+For your additional information in this regard, investigation by this Bureau's New York Office has developed information that, on July 2, 1963, and July 19, 1963, one "J.M. O'Dell" was the payee of checks in the amounts of $333.62 and $2,372.96, respectively, drawn by the SCLC. Those checks were deposited to the account of Hunter Pitts O'Dell in a New York City bank.
+
+On July 19, 1963, Charles Finnerty, Supervisor of the E. J. Creeden Company, 118 East 25th Street, New York City, the company, which provides mailing service
+
+REC. A
+100-352016—25
+
+(SSEE NOTE PAGE THREE)
+
+FOR:ero
+
+(13) This document is prepared in response to your request and is not for dissemینation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+NW 88614 DocId:32989673 Page 128
+
+DATE: 11/26/1963
+# M 02/16 HEREIN IS UNCLASSIFIED
+**CONFIDENTIAL**
+
+RECD: READING ROOM
+
+E B I
+
+Aug 7 '63 12 39 PM '63

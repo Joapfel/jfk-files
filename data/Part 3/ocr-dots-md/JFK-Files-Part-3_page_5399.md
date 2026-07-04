@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_5399.png
+
+Convert to Markdown| Name | Assignments May, 1972 | Current Assignment | Address (Former Employees) |
+|---|---|---|---|
+| Adams, A. D., Jr. | Director's Office | Out of Service | 3280th Student Squadron, Lackland Air Force Base, Texas |
+| Baker, Betty, Mrs. |  | Messenger - Courier Unit Supervisor |  |
+| Battle, Joseph E., SA | Washington Field | Washington Field |  |
+| Bear, Gloria L. |  | Supply Supervisor |  |
+| Bracksieck, Louis, E., SA | Director's Office (Clerk) | Chicago |  |
+| Brandt, Earl T. | Mechanical Section | Out of Service | 1109 Logan Avenue, Tyrone, Pennsylvania |
+| Brennan, Daniel J. | Mechanical Section | Out of Service | 501 Brooklyn Boulevard, Sea Girt, New Jersey |
+| Brown, Louis, Jr. | Mechanical Section | Mechanical Section |  |
+| Campbell, Wason G. | Director's Office | Out of Service | 206 East Broad Street, Greenfield, Tennessee |
+| Canday, Tommie R. | Security Patrol | Security Patrol |  |
+| Carey, Charles L. | Mechanical Section | Mechanical Section |  |
+| Carey, Clyde C. | Mechanical Section | Out of Service | 4254 East Capitol Street, Apt. 2, Washington, D. C. |
+| Cassidy, Edward, Jr. | Mechanical Section | Mechanical Section |  |
+| Cheshier, Jerry Wayne | Mechanical Section | Mechanical Section |  |
+| Corbin, Donald F. | Director's Office (Clerk) | Special Clerk (Washington Field) |  |
+| Codi, Anthony A. | Mechanical Section | Mechanical Section |  |
+| Cox, Fred | Mechanical Section | Mechanical Section |  |
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17 2000 BY: [REDACTED]
+# MDR-16
+
+NWW 88608 DocId:32989626 Page 130

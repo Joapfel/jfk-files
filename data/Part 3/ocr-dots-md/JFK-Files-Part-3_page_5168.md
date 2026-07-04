@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_5168.png
+
+Convert to Markdown5. Comparative Disbursements
+
+| Month | 8/1/68 through 5/69 | 6/1/69 through 9/70 |
+|---|---|---|
+| June |  | 1517.91 |
+| July |  | 1787.00 |
+| August | 845.00 | 1676.10 |
+| September | 755.00 | 1520.00 |
+| October | 1715.00 | 2233.00 |
+| November | 1095.00 | 1670.00 |
+| December | 1510.00 | 2623.60 |
+| January | 1270.00 | 1138.00 |
+| February | 1215.40 | 1510.00 |
+| March | 1300.00 | 2397.00 |
+| April | 2520.00 | 1460.00 |
+| May | 2514.40 | 1303.00 |
+| June, 1970 |  | 1308.00 |
+| July, 1970 |  | 1703.00 |
+| August, 1970 |  | 1195.00 |
+| September, 1970 |  | 1248.00 |
+|  | $14,739.80 | $26,289.61 |
+
+6. None
+
+7. Agents contacting informants outside of normal working hours obtained supervisory approval for these contacts prior to making them and make appropriate notations on their #3 cards. Supervisors thereafter, during file reviews with Agents, check with them regarding those contacts and spot-check informant files to insure after-hour contacts were made and appropriately recorded.
+
+PROGRAM DEVELOPMENT.
+
+1. The overall objectives of the criminal informant program are to develop high quality informants who are in a position to furnish valuable information on a continuing basis.
+
+Criminal desk supervisors participate in the program by remaining alert to the necessity of having good informant coverage in the criminal classifications which are covered by their respective desks. The supervisor is also required to approve any expenditure made to an informant

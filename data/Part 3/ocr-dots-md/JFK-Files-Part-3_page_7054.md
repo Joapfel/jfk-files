@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_7054.png
+
+Convert to Markdown2. Personnel security investigations on Select Committee Staff are under way by the FBI. It is understood that upon completion of Staff investigations, the Select Committee Chairman will certify to the DCI the Top Secret clearances of Committee Staff. The DCI, through his Intelligence Community Staff, will pass along the certification to the security elements of the respective agencies. Compartmented clearance arrangements and certification also have been agreed with the Senate Select Committee Staff. Similar arrangements have been discussed with the House Select Committee Staff.
+
+3. Secrecy agreements for the Senate Select Committee Staff employees are being drafted and the AD/DCI/IC, supported by the CIA General Counsel and the Associate Deputy Attorney General, will negotiate similar arrangements with the House. The DCI policy is to insist upon secrecy agreements.
+
+4. Arrangements will be established by the USIB Ad Hoc Coordinating Group for the recording of documents, testimony and transcripts, and for procedures to protect sources and methods which may be contained in the material flowing to the Select Committees from all agencies. A central index service will be provided by the Intelligence Community Staff to serve the DCI and USIB Agencies. The following describes the general content of this central index.
+
+a. All requests received by USIB Agencies from the Select Committees.
+
+b. All other communications from Select Committees on subject of interest to more than one agency.
+
+c. Reports and responses by other non-intelligence elements of the Executive Branch (if desired by those elements).
+
+d. Identification of document responses provided to the requests and listing of subjects covered.
+
+e. Prepared statements and transcripts of testimony made to Select Committees.
+
+f. Selective material released or denied under the Freedom of Information legislation which relates to subjects of interest to the Select Committees.

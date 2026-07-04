@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_4894.png
+
+Convert to MarkdownMM 92-1870
+
+On March 3, 1967, MM T-3 furnished the following
+information:
+
+In June, 1966, he received information that the
+International Lithographers, 1771 West Avenue, Miami Beach,
+telephone 538-7871, was chartered as a Florida corporation
+on April 21, 1966. This firm assumed the functions of the
+Personally Yours Stationers, Inc. The International Litho-
+graphers originally began in 1948 as a partnership of BEN
+LEVIN and members of his family; in 1953, he incorporated
+as Personally Yours Press Inc., which was subject to a
+great deal of litigation and suits all of which allegedly
+took place after BEN LEVIN, the principal, left the firm;
+and it was under the operation of LEVIN's divorced wife,
+MILDRED LEVIN. In 1963, Personally Yours Press, Inc.,
+was discontinued and the premises were occupied by Master-
+craft Printers who in turn sold the assets to the present
+owners of International Lithographers, which are BEN LEVIN,
+Mrs. OLIVE LEVIN, wife of BEN LEVIN, and JOSEPH MALEK.
+
+BEN LEVIN was born in 1910 at Fargo, North Dakota. For a number of years prior to 1940, he operated as a manufacturer's representative; 1940-1941, was in the US Armed Forces; 1941-1942, he again became a manufacturer's representative, but returned to the Armed Services from 1942-44. He came to Miami in 1944, and promoted Chefs Frozen Food Products and other frozen food lines, but discontinued this in 1948. He then organized the partnership known as Personally Yours Press.
+
+JOE MALEK is a local attorney, and OLIVE LEVIN
+is listed primarily for corporate purposes.
+
+CRIMINAL RECORD

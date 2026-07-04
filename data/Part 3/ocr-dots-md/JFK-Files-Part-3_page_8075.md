@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_8075.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+RE: SENSTUDY 75
+62-116395
+
+to summarize these details which will be forthcoming with Sentinella's statement to be mailed to the Bureau. However, one significant question asked of Sentinella should be noted. During a discussion of electronic surveillances in the King investigation, Seidel asked how other Agents felt about "illegal use of taps." Sentinella's response was that the taps were not illegal and were put on only after approval by the Attorney General.
+
+**OBSERVATIONS:**
+
+It is Phillips' view that Sentinella represents a high caliber former Agent who is completely loyal to the Bureau and will apparently go to any extreme to maintain the confidentiality of the work he did. He certainly could be described as a reluctant witness if he is ever called to testify. He expressed personal concern that he might be called but hoped that his uncooperativeness in some areas to Seidel's questions might discourage his being called.
+
+Two incidents related above are very suggestive of a lack of objectivity on the part of Seidel. The first concerns his comment to Phillips about the FBI not letting Sentinella give him "good information." To begin with, this was an unjustified allegation and Seidel was set straight immediately after his remark. Secondly, the mere fact that Seidel is referring to "good" information suggests itself that certain information fits their desires and others does not. There appears to be a lack of regard for merely securing the facts, regardless of what those facts might indicate. The second indicator of lack of objectivity was Seidel's inquiry about "illegal use of taps." This question fits the classic question of, "When did you stop beating your wife?" If the Committee is going to be asking questions like this one, its objectivity is certainly subject to challenge.
+
+As ex- or current employees volunteer to us results of interviews conducted of them by the SSC, we will carefully study them for, among other things, additional evidence of the nature discussed above. If there is a continuation of this line of questioning or other unjustified comments to Bureau representatives, we will consider taking up with the Attorney General the matter of possible protest to the SSC.

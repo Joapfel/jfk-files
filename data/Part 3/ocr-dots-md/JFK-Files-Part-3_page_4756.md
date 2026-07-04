@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_4756.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+Copy to:
+
+**Report of:** ALLAN M. TRANKLEY
+**Office:** Miami, Florida
+**Date:** January 31, 1969
+**Field Office File #:** 92-1870
+**Bureau File #:** 92-9844
+**Title:** NORMAN ROTHMAN
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10-19-96 BY 5668 SL/D/1C5L (JFL)
+
+Character: ANTI-RACKETEERING
+
+Synopsis:
+
+Subject reportedly in Atlanta, Georgia, 10/68, to arrange for payment of gambling debts owed by Atlanta individual. Reportedly has lost Albion Lounge, Miami Beach, Fla., for failure to pay bills. Subject presently in NY, NY, purpose not known.
+
+-P-
+
+DETAILS:
+
+TRAVEL
+
+On November 25, 1968, Mr. A. NEWMAN, National Airlines, Miami International Airport, advised that subject had taken Flight #6 to New York, New York and had departed at 1:20 PM.
+
+On December 9, 1968, JOE FALCONE, Station Manager, National Airlines, Miami International Airport, advised that subject was to take Flight #90 to LaGuardia Field, New York, New York, departing Miami at 5:00 PM. At 4:48 PM, subject was observed to board the plane. He was alone.

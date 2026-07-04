@@ -1,0 +1,63 @@
+# JFK-Files-Part-3_page_3121.png
+
+Convert to Markdownthe FBI had been subjected to public scrutiny.
+
+As painful as this process is, I hope the FBI itself
+would welcome the opportunity to let in some fresh air and
+come to grips with the problems in candor and not retreat into
+past patterns of stirring up public fears to distract our
+attention from the necessity of reform.
+
+Mr. Chairman, may I say that yesterday I am told that
+following our hearing the FBI responded exactly in the spirit
+that I had hoped it would. If they can take this constructive
+approach, I have no doubt that the FBI will benefit from
+this attention. I want to see a strong FBI, an FBI strong
+in law enforcement, in the detection of crime, and in the
+gathering of legal evidence for prosecution and conviction,
+but an FBI without abuses..
+
+As we proceed with these hearings today, we should also
+bear in mind the responsibility for the abuses we have
+uncovered does not rest on the FBI alone. We in the
+Congress have been derelict. It should not have taken until
+this date for us to discharge our responsibility for
+investigating FBI and other domestic intelligence.
+
+We should also realize that the FBI has been performing
+a function which many Americans, and at times the vast
+majority of Americans, have wanted to see undertaken. When
+popular opinion brands a group unAmerican and subversive
+merely because of its political views, all too often the FBI
+
+1733
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

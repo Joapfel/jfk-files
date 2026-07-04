@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_4656.png
+
+Convert to MarkdownTP 92-1
+2
+
+5/23/62 to St. Petersburg, 361-1561, a day station call
+
+5/30/62 to Cape Haze, Florida, MY 7-2991, a night station call
+
+6/4/62 to Gainesville, FR 2-9236, a night person to person call
+
+Billing Date July 11, 1962
+
+6/29/62 to St. Petersburg, 360-6731, a day station call
+
+7/6/62 to St. Petersburg, 360-6731, a day station call
+
+Billing Date August 11, 1962
+
+7/9/62 to Louisville, Kentucky, 585-4400, a day person to person call
+
+7/9/62 to St. Petersburg, 361-1561, a day station call
+
+7/9/62 to St. Petersburg, 361-1561, a day station call
+
+7/9/62, collect call from St. Petersburg, Florida, a day station call
+
+7/9/62, collect call from St. Petersburg, Florida, a day person to person call
+
+7/18/62 to Wildwood, Florida, 748-4723, a day station call
+
+7/18/62 to Bushnell, Florida, SY 3-2071, a day person to person call
+
+7/18/62 to Bushnell, Florida, SY 3-2133, a day station call
+
+On the billing date of September 11, 1962, there were no toll charges.
+
+Billing Date October 11, 1962
+
+9/11/62 to North Dade, Florida, WI 5-8812, a day station call
+
+9/27/62, collect call from Atlanta, Georgia, a night station call

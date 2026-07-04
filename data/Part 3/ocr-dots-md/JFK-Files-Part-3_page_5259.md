@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_5259.png
+
+Convert to Markdown# SUBSTANTIVE ERROR WRITE-UP
+
+ROGER WILLIAM EPPERLEY
+SSN 4-4-49-18
+SELECTIVE SERVICE ACT
+CO: San Francisco
+San Francisco File 25-77034
+
+INSPECTOR ARNOLD C. LARSON: This is a closed case which was opened in the San Francisco Office 4/21/70, and closed 6/15/70. At that time, case was assigned to SA ROBERT M. LEONARD and supervised by SA RAY M. ANDRESS. The case was reopened 8/26/70, and assigned to SA RICHARD G. MILLER and supervised by Relief Supervisor RICHARD E. LUEBBEN on the desk of SA ANDRESS. Case was again closed 9/3/70.
+
+The case was initially opened on the basis of a copy of a letter directed to Local Board 4, Eureka, California, from the Armed Forces Examining and Entrance Station, Oakland. The letter indicated that the Subject reported for induction 4/14/70, was found qualified, but left the building prior to induction. Case was closed 6/15/70, on basis of a memorandum from SA ROBERT M. LEONARD wherein it was pointed out that the violation was not such as to be reported to the U. S. Attorney by the Selective Service System.
+
+Case was reopened 8/26/70, on receipt of a request for investigation from the U. S. Attorney, San Francisco, and assigned to SA RICHARD G. MILLER. Review of the file indicates that Subject was interviewed by SA MILLER 9/1/70, at which time he indicated he would agree to induction.
+
+U. S. Attorney declined prosecution and a closing report was submitted 9/3/70, with copy to U. S. Attorney and San Francisco Office. This report was signed by SA RICHARD E. LUEBBEN. This report contains FD 302 (interview report form) wherein interview of Subject was recorded. The FD 302 fails to indicate that the Subject was advised of the identity of SA MILLER or the nature of the inquiry.
+
+SAN FRANCISCO INSPECTION
+
+10/26/70
+
+BDW:sad

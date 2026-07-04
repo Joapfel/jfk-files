@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_4862.png
+
+Convert to MarkdownMM 92-1870
+
+It is pointed out that, under passport regulations, ROTHMAN may use passport for lawful travel within period of its validity whenever and as often as desired without further notification to Department of State or other government agency. Passport Office does not receive information as to whether or when a passport is used for foreign travel.
+
+On July 7, 1967, MM T-2 advised that NORMAN ROTHMAN and ALBERTO (last name unknown) left Miami on June 27, 1967, for Las Vegas, Nevada, and returned to Miami on July 1, 1967. Informant stated that ROTHMAN and ALBERTO spent considerable time at Caesar's Palace Hotel and Gambling Casino.
+
+On July 7, 1967, MM T-3 advised that he heard that ROTHMAN makes several trips a year to visit BATISTA in Spain.
+
+On July 17, 1967, FRANCIS SMITH, Internal Revenue Service, advised that an informant had advised him that NORMAN ROTHMAN was to leave for Pittsburgh, Pennsylvania, on the night of July 17, 1967. United Airlines flights 578 departed Miami at 6:40 p.m.; 598 departing Miami at 12:55 a.m. and 454 departing Miami 1:10 a.m. were checked and ROTHMAN was not among the passengers.
+
+On August 24, 1967, MM T-2 advised that NORMAN ROTHMAN has not been travelling as much as he did in the past.
+
+On September 14, 1967, MM T-6 advised that on September 12, 1967, ROTHMAN had stayed at the Caesar's Palace Hotel, Las Vegas, Nevada.
+
+ASSOCIATES
+
+On December 5, 1967, MM T-2 advised that PATTY ERRA and NORMAN ROTHMAN have been seen together on several occasions at the Hilton Plaza Hotel, Miami Beach, Florida. Informant further advised that the opening of the Hilton Plaza Hotel will be on December 15, 1967, and that PATTY ERRA, MAX FEDER and NORMAN ROTHMAN have reservations for the opening.
+
+On December 6, 1967, MM T-8 advised that on December 4, 1967, about 5:45 p.m., he observed the green
+
+FIA
+
+92-9844-3

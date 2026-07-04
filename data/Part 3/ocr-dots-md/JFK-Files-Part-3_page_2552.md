@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_2552.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+JUL 9 1975
+
+ALL FBI INFORMATION CONTAINED
+HERIN IS UNCLASSIFIED
+DATE 9/26/00 BY SP a AL-MEHL
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: K. William O'Connor
+Special Counsel for
+Intelligence Coordination
+
+SUBJECT: Additional Requests, SSC (Amplification of
+May 14, and June 27, Requests)
+
+Transmitted herewith are three additional requests from the Senate Select Committee, two under date of July 8, and one dated June 30, which I received yesterday.
+
+The four-page, 21 item, statement of additional documentation requested in one of the July 8, letters, and the June 30, letter raise a problem which pertains to "abuse" areas of the "notification" letter of June 27. This issue is the subject of my previous memo to you, and the considerations which are entailed, insofar as witness testimony, should be, I think, observed here.
+
+The second July 8, request is simply for Manual pages to be made available.
+
+Please arrange for the preparation of appropriate documentary responses to the requests attached. In the event that there is a serious problem with response to any of the itemized requests, early advice to me of that fact would be appreciated, so that I can advise the Committee and attempt to resolve the problem.
+
+Please alert me to any third agency problems which may arise with regard to any of these requests; in a cursory examination, no such problem was patent to me. However, I realize that there may be latent third agency issues, and I will appreciate your advice to this effect.
+
+3 JUL 22 1975
+
+ENCLOSURE
+
+8 JUL 77-22 1975
+
+NM-88808-Doc ID:32989618 Page 232

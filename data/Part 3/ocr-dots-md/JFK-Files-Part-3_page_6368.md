@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_6368.png
+
+Convert to Markdown63-73-022-1-1
+
+money spent. SHELTON stated that he travels 90,000 to 110,000 miles per year on KLAN business. He traveled 120,000 miles by automobile during the year 1966 on KLAN business.
+
+5. Revenue Agent Hutchinson and I examined the KLAN's bank statements, cancelled checks, deposit tickets and cash receipts and disbursements books for FYE 6/30/62 through FYE 6/30/65. Receipts and expenses per book substantively reconciled with receipts and expenses per returns. For the four year period, net income was overstated on returns by $48,100. The 1963 corporate return filed by the KLAN was never located. We worked with a Profit and Loss Statement located in the KLAN file for that year which should receipts of $3,879.44, disbursements of $3,634.89 and taxable income of $240.49. SHELTON claims he recalls mailing the 1963 return to the District Director in Birmingham. Mrs. CAROL LONG, KLAN BOOKKEEPER during this period, recalls preparing the return and giving it to SHELTON to sign and mail. Receipts during the period 2/20/61 to 6/30/61, the first four months of operation of the UNITED KLAN'S OF AMERICA, were negligible and were included in receipts for the FYE 6/30/62.
+
+6. Revenue Agent Hutchinson analyzed all checks written to each and examined the supporting documentation. Checks to each totaled:
+
+| Year | Total |
+| :--- | ---: |
+| 1961 | $ 156.18 |
+| 1962 | 184.92 |
+| 1963 | 1,033.75 |
+| 1964 | 5,104.69 |
+| 1965 | 11,787.45 |
+
+$18,266.99
+
+(Checks written to each and not supported by documentation were reported by SHELTON as income on his individual income tax return. Numerous checks to cash were signed by SHELTON and cosigned by T.M. MONTGOMERY or JAMES HENDRIX. It was brought out during the House Un-/American Activities Committee hearing that T.M. MONTGOMERY was signed by CAROL LONG, KLAN BOOKKEEPER, and JAMES HENDRIX was signed by SHELTON's wife, BETTY LOU. SHELTON acknowledged that the MONTGOMERY and HENDRIX names on the checks were KLAN code names for MRS. LONG and MRS. SHELTON and that the names and signatures were on file at the bank. This information was corroborated by FIRST NATIONAL BANK VICK PRESIDENT J.E. PERDUE.)
+
+7. Receipts per monthly reports of various KLAN UNITS were compared with total receipts per return for FYE 6/30/64 and 6/30/65. Total receipts per report and total receipts per returns were as follows:
+
+| Year | Receipts per Report | Receipts per Return | Variance |
+| :--- | :---: | :---: | :---: |
+| 6/30/64 | $ 5,557.25 | $ 7,415.63 | $1,858.38 |
+| 6/30/65 | 17,552.40 | 18,487.60 | 935.20 |
+| | **$23,109.65** | **$25,903.23** | **$2,793.58** |
+
+The variance between receipts per report and receipts per return consisted entirely of costs which came in without a report and anonymous contributions.
+
+8. Monthly reports of various KLAN UNITS were pulled at random from six different states. These reports were tested individually to each receipt Journal, to deposits before and to both statements, without discrepancy.

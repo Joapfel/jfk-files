@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_6890.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR [X] LHM ☐ Memo ☐ Report dated 10/10/75
+
+U.S. SENATE SELECT COMMITTEE ON INTELLIGENCE
+Caption of Document: ACTIVITIES re 10/2/75 request Item 1 concerning meeting among Moore, Belmont and Katzenbach on FBI mail intercept operations.
+
+FBI
+
+Originating Office:
+
+Delivered by: Richard J. Tarry / Date: 10/10/75
+
+Received by: James V. Bidd
+
+Title: Counsel
+
+Return this receipt to the Intelligence Division, FBI
+
+ENCLOSURE
+
+NW 88614 DocId:32989673 Page 238
+
+10/13/75
+
+SP2 ALM/116
+
+966
+
+62-116375-

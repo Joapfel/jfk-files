@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_8540.png
+
+Convert to MarkdownITEM I.
+Q: What about JUNAN Bond's
+campaign? Any effort to
+influence stat? / 1964 or 1965?
+
+A: No. As I recall, Board was already a member of the Georgia legislature July 1964 or 1965.
+
+Q: What litigation was conducted by Bond?
+
+A: None to my knowledge beyond such courage of SNCC of which O'Leary as may have resulted from Courage of SNCC with which Bond was affiliated.
+
+Q:
+I In some manner a question was asked re other members of the Georgia legislature. My answer was stat - now only concern is Hall - Hoo - Jun Governor
+
+ENCLASUER
+FOR SWAP
+
+ALL INFORMATION CONTAINED IS CONFIDENTIAL
+DATED: 7-15-2000 BY: 3:55 AM
+MOR -16
+
+NM# 88614 DocId:32989606 Page 42

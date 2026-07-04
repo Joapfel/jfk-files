@@ -1,0 +1,135 @@
+# JFK-Files-Part-3_page_3127.png
+
+Convert to Markdown1739
+
+conferring an honorary degree upon a man like Dr. Martin Luther King, who was not engaging in or suspected of engaging in criminal activity?
+
+Mr. Adams. I know of no basis.
+
+The Chairman. Why did the FBI do it?
+
+Mr. Adams. Well, we have to approach two parts, in my estimation, Senator Church. One, the basis for our investigation of Martin Luther King, which was to determine communist influence on him, my hands are tied in discussing that somewhat on the basis that there is certain information which today, from an ongoing operation is sensitive and which, of course, we have made known to you and certain staff members.
+
+I would like to say on the basis that from our review we feel that we initially had a basis for investigating Martin Luther King.
+
+Now as far as the activities which you are asking about, the discrediting, I know of no basis for that and I will not attempt to justify it.
+
+The Chairman. You never made a finding, did you, that Martin Luther King was a communist?
+
+Mr. Adams. No, sir, we did not. We were investigating communist influence and the possible effect on him. We never made such a determination.
+
+The Chairman. Very well, Then there was no justification
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+gsh 13
+
+25
+
+24
+
+23
+
+22
+
+21
+
+20
+
+19
+
+18
+
+17
+
+16
+
+15
+
+14
+
+13
+
+12
+
+11
+
+10
+
+9
+
+8
+
+7
+
+6
+
+5
+
+4
+
+3
+
+2
+
+1
+
+2
+
+1
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Phone (Area 202) 544-6000
+
+NW 88614 DocId:32989543 Page 16

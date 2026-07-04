@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_5991.png
+
+Convert to MarkdownInternal Revenue Service
+
+Date: JUL 2 1968 In reply refer to:
+I CP:C:D
+
+Honorable J. Walter Yeagley
+Assistant Attorney General
+Internal Security Division
+Department of Justice
+Washington, D. C. 20530
+
+Dear Mr. Yeagley:
+
+In re: Charles Clark Kissinger, Jr.
+6306 North Lakewood Avenue or
+5401 South Ellis Avenue
+Chicago, Illinois
+
+In response to your request of May 31, 1968, we are enclosing a copy of the income tax return of Charles C. and Judy J. Kissinger, 6306 N. Lakewood, Chicago, Illinois 60626 (SSN: 355-34-0441 and SSN: 352-32-2937, respectively), for the year 1966.
+
+Persons having access to this document should be cautioned as to the confidentiality of the information contained therein and as to the penalty provisions of Section 7213 of the Internal Revenue Code and Section 1905, Title 18, United States Code, regarding the unauthorized disclosure of such information.
+
+We will write you concerning the 1967 return as soon as possible.
+
+EX-110 REC 37
+Very truly yours,
+
+16 JUL 11 1968
+
+D. W. Bacon
+Assistant Commissioner
+(Compliance)
+
+Enclosure
+
+54JUL 22 1968

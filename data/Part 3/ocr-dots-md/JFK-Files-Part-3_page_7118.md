@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_7118.png
+
+Convert to MarkdownJ. J. McDermott to Jenkins Memo
+RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+Committee regarding the storage of information and the clearance of the staff.
+This group consists of representatives from the FBI, CIA, NSA, and Atomic
+Energy Commission. These guidelines, once approved by the Select Committee,
+would be followed in determining whether or not potential staff members should
+receive clearances.
+
+Cregar said there is no objections to the FBI discussing the
+foregoing procedure--FBI investigation, Select Committee certification, followed
+by issuance of clearance by CIA with Senator Church. Senator Church will be
+told at the same time that proposed guidelines regarding a clearance decision
+will be presented to him as soon as they are compiled.
+
+RECOMMENDATION:
+
+That Inspector Bowers/inform Senator Church of the above
+procedure and work out with him appropriate arrangements for the referral
+of potential staff members to us for investigation.

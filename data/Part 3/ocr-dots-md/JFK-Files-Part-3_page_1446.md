@@ -1,0 +1,58 @@
+# JFK-Files-Part-3_page_1446.png
+
+Convert to Markdown1 - Mr. Monahan
+1 - Mr. Peelman
+1 - Mr. Foster
+1 - Mr. Aldhizer
+
+October 3, 1977
+1 - Legal Counsel
+
+HOUSE SELECT COMMITTEE ON ASSASSINATIONS
+U. S. HOUSE OF REPRESENTATIVES (HSCA)
+
+This will respond to letter dated August 9, 1977,
+to the Attorney General from U. S. Congressman Louis Stokes,
+Chairman, HSCA, and letter dated September 13, 1977, to
+Mr. Robert Keuch, Deputy Assistant Attorney General, from
+G. Robert Blakey, Chief Counsel, HSCA.
+
+This letter is to confirm that, pursuant to the above request dated September 13, 1977, a copy of each investigative report of the FBI in the Alton bank robbery, Alton, Illinois, July 13, 1967, was delivered to a representative of the HSCA on September 19, 1977.
+
+JTA:sas (9)
+
+ORIGINAL AND ONE SENT TO ASSISTANT ATTORNEY GENERAL, CRIMINAL DIVISION, ATTENTION: MR. ROBERT L. KEUCH AND ONE SENT TO OFFICE OF LEGISLATIVE AFFAIRS.
+
+NOTE: See Direcotr, FBI, letter to Assistant Attorney General, Criminal Division, Attention: Mr. Robert L. Keuch, dated 10/3/77, captioned, "House Select Committee on Assassinations, U. S. House of Representatives (HSCA)."
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Adm. Serv.
+Crim. Inv.
+Fin. & Pers.
+Ident.
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Insp.
+Rec. Mgmt.
+Spec. Inv.
+Tech. Servs.
+Training
+Public Affs. Off.
+Telephone Rm.
+Director's Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+APPROVED
+
+<table><tr><td>Director</td><td>Adm. Serv.</td><td>Legal Comd.</td></tr><tr><td>Assoc. Dir.</td><td>Grim. Inv.</td><td>Plan. &amp; Insp.</td></tr><tr><td>Dep. AD Adm.</td><td>Fin. &amp; Pers.</td><td>Rec. Mgmt.</td></tr><tr><td rowspan="2">Dep. AD Inv.</td><td>Ident.</td><td>Spec. Inv. MCW</td></tr><tr><td>Intell.</td><td>Tech. Servs.</td></tr><tr><td colspan="2">Laboratory</td><td>Training</td></tr><tr><td colspan="2"></td><td>Public Affairs Off.</td></tr></table>
+
+ENCLOSURE
+
+FBI/DOJ
+
+NW 88608 DocId:32989749 Page 115

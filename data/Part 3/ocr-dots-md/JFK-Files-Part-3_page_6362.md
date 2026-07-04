@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_6362.png
+
+Convert to MarkdownROBERT MARVIN SHELTON
+
+UNITED STATES OF AMERICA, INC.
+
+1 - Mr. Sullivan
+2 - Mr. Daungardner
+3 - Mr. Gray
+4 - Liaison
+5 - Mr. Ryan
+
+Robert Marvin Shelton, born June 13, 1920, married,
+two children, residents of 1700-Tenth Street, East, Tuscaloosa,
+Alabama. No is presently employed with the State Department.
+ Wizard by the United Nations of America, Inc., Head of the
+ Mu Mu Klans, Suite 400, Alvin Acland Building, Tuscaloosa, Alabama,
+ but a reported annual salary of over $200,000 is said to be
+ United Nations of America, Inc., is sometimes known as the
+ Alabama Rescue Service.
+
+It is requested two uncertified copies each of the Federal tax returns filed by Shelton and the United Nations of America, Inc., for the past five years to be made available.
+
+DR:lat:itl
+(8)
+
+1 - 157-552 (Shelton)

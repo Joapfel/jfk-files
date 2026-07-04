@@ -1,0 +1,113 @@
+# JFK-Files-Part-3_page_6820.png
+
+Convert to MarkdownMr. Burke Marshall
+Assistant Attorney General
+
+Director, FBI
+
+HUNTER PITTS O'DELL
+INTERNAL SECURITY - C
+
+February 5, 1963
+
+1 - Mr. Belmont
+1 - Mr. Evans
+1 - Mr. Sullivan
+1 - Mr. Rosen
+1 - Mr. McGowan
+1 - Mr. Baumgardner
+1 - Mr. Reddy
+
+Reference is made to your inquiry of
+Mr. Alex Rosen of this Bureau regarding the current
+Communist Party membership of Hunter Pitts O'Dell,
+
+We have developed evidence through our
+coverage of the activities of the Communist Party,
+USA, which indicates that as of July, 1962, Party
+leaders considered O'Dell to be a member of the
+Party.
+
+This information is, of course, highly
+sensitive and confidential.
+
+100-358916 -234
+
+See cover memo Rosen to Belmont 2/5/63, same re.
+
+Tolson
+Belmont
+Mohr
+Casper
+Callahan
+Conrad
+DeLoach
+Evans
+Gale
+Rosen
+Sullivan
+Tavel
+Trotter
+Tele. Room
+Holmes
+Gandy
+
+EBR:mtb/kmo
+(10)
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+O FEB 4 TO 7 DEC 1963
+
+MAIL ROOM 3 TELETYPE UNIT ☐
+
+DEC 63
+
+MEC 208 DEC 20
+
+DEC 8 7971
+
+LAP
+
+FEB
+
+LEO
+
+FEB
+
+LAP
+
+EER
+
+SEPT
+
+MAR 31
+
+JUN 3
+
+JUL 22
+
+SEP 1
+
+FEB 15
+
+28
+
+DOD
+
+NOV
+
+EW
+
+NW 88614
+
+DocId:32989673
+
+Page 168

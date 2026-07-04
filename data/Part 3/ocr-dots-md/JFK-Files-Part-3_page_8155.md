@@ -1,0 +1,67 @@
+# JFK-Files-Part-3_page_8155.png
+
+Convert to MarkdownFBI
+
+Date: 4/11/75
+
+Transmit the following in
+(Type in plaintext or code)
+
+Via AIRTEL AIR MAIL - REGISTERED MAIL
+
+DATE1/22/01
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED (Priority)
+SP-2ALM/17G
+
+TO: DIRECTOR, FBI (157-27812)
+
+FROM: SAC, BUFFALO (157-1681) (P)
+
+KARL EDWARD HAND, JR., aka EM - NGP
+(00: BUFFALO)
+
+Remylet, 1/23/75, captioned as above; report of SA ROBERT N. SHAW, 10/25/74, at Buffalo, and Buffalo airtel to Bureau, 10/31/74, both captioned "WILLIAM EDWARD GARRETT; EM - NSWPP; UNLAWFUL POSSESSION OR RECEIPT OF FIREARMS, OO: PITTSBURGH."
+
+Enclosed for the Bureau are two (2) typewritten copies and for Pittsburgh one (1) copy by Bureau secretary of letter received by the Buffalo Division on 4/10/75, addressed to The Honorable FRANK D. CHURCH, U. S. Senate, Washington, D.C., dated 4/8/75, which is self-explanatory. Buffalo unable to xerox because of poor quality of carbon copy received. Bureau's attention is drawn to the letter's distribution. For the information of the Bureau, Buffalo "Courier Express" is a daily newspaper published at Buffalo, New York. The letter is allegedly signed by KARL HAND, JR. Authenticity of HAND's letter writing activities confirmed in conversations with BU 1471-E, who alerted Buffalo Office prior to receipt of enclosed letter.
+
+For the information of the Bureau, incident referred to as section "F." in the enclosed letter refers to
+
+cc: Airdl & Encl. a retained 4/9/7 JEH
+
+2 - Bureau (Encls. 2) (AMRM)
+
+1 - Pittsburgh (157-1640) (Enc. 1) (AMRM)
+
+2 - Buffalo
+
+RFU:cas
+(5)
+
+Approved: D
+
+Special Agent in Charge
+
+Sent __________ M Per __________
+
+Approved:
+Sent M Per
+
+A. S. H.
+J.S. HARRIS
+C.G. -1970 C - 402-735
+
+#MD016
+HISTORICAL DISSEMINATION
+DATE 1/22/01
+TIME 6:00 PM
+AREA CODE 2
+FORMAT B&W
+DIMENSION 2
+ORIGINAL FILMED IN
+NORTH AMERICAN aircell service
+
+27876-1571
+
+Original Filmed In
+
+ NW 88608 DocId:32989532 Page 105

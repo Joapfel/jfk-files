@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_237.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+The Albany Office on April 1, 1969, confidentially alerted the President of the Council of Churches, Syracuse, New York, of the extremist nature of the United Black Brothers (UBB), Syracuse, and of the criminal backgrounds of UBB leaders and membership. The Council of Churches was funding the UBB.
+
+Council of Churches President advised he would recommend no further funding for UBB.
+
+VRT:vb
+(9)
+
+100-448006-758, 972
+
+SECRET
+
+131

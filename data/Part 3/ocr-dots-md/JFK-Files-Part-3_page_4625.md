@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_4625.png
+
+Convert to MarkdownFBI
+
+Date:
+
+Transmit the following in
+
+(Type in plain text or code)
+
+Via
+
+(Priority or Method of Mailing)
+
+MM 105-3507
+
+On 1/20/61, ARQUES advised SA KELLY his residence then was 1050 NW 7th St., Miami.
+
+Records of Southern Bell Telephone and Telegraph Co., Miami Beach, Fla., were reviewed by IC JON W. ARMSTRONG, 2/3/61. Telephone JE 1-7635 is reflected to be listed to HYMAN GOTTSMAN, 1225 11th St., Apt. 2, Miami Beach.
+
+The above records are confidential and can only be obtained through issuance of a subpoena duces tecum directed to Mr. JOHN J. RYAN, Manager, Southern Bell Telephone and Telegraph Co., Miami, or his authorized representative. The above information was obtained from Mrs. PEG MUNDEN, Southern Bell Telephone and Telegraph Co., Miami Beach, Fla. (protect).
+
+Miami indices reflect no references as to HYMAN GOTTSMAN.
+
+Miami is aware of no recent contact between ARQUES and the subject.
+
+Enclosed for Newark Office are 2 photos of MANUEL ADALBERTO ARQUES DIAZ, aka.
+
+Approved: __________ Sent _________ M Per __________
+
+Special Agent in Charge
+
+NW 78318 DocId:34489792 Page 38

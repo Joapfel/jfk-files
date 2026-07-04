@@ -1,0 +1,3 @@
+# JFK-Files-Part-3_page_7740.png
+
+director. Mr Hoover offered a chart showing the organizational structure of five divisions of the Bureau, one of which he referred to as the National Defense Division. He said that this Division would handle and direct all investigations dealing with espionage, sabotage, national defense matters, and violations of neutrality statutes.

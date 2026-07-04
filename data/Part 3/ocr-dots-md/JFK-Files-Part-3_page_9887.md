@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_9887.png
+
+Convert to MarkdownFBI FUNCTIONAL ORG
+
+JANUARY 14, 1975
+
+H:\8\B\08.DOCID-32989628-Page-164

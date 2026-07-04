@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_4524.png
+
+Convert to Markdown# SPECIAL INVESTIGATIVE DIVISION
+
+9/13/61
+
+## BACKGROUND-
+
+Sam Mannarino, Pittsburgh hoodlum target, is disappointed in Democratic party and may switch allegiance to Republican party although he still thinks President Kennedy is a "good fellow". He also thinks AG Kennedy "can not be talked to."

@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_3250.png
+
+Convert to Markdowncollaboration with a foreign government or organization. (The term "foreign organization" refers, for instance, to a group like the Palestine Liberation Organization.) If the group fits the criteria for foreign domination, there should be an additional finding that it may engage in intelligence activities or in activities involving the use of violence in violations of federal law.
+
+If the group meets all these standards, Congress may authorize the investigation of its activities going beyond regular criminal investigations. Such investigations could extend to all individuals who are members of, or express support for, the organization, as well as to the efforts of the organization to influence and control other groups. However, it may be sufficient to authorize only the investigation of active members and supporters. This would prevent a revival of the "Cominfil" policy of looking into all forms of lawful political and social activity where Communists might be involved.
+
+The Petersen Committee report on COINTELPRO considered the need for special supervision of foreign counterintelligence operations in the United States. It recommended the creation of a Foreign Intelligence Advisory Commission to make decisions with regard to the necessity or acceptability of particular foreign counterintelligence techniques. (Tab F) This proposal

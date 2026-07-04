@@ -1,0 +1,91 @@
+# JFK-Files-Part-3_page_9391.png
+
+Convert to MarkdownInternational News
+
+Panthers profess to believe that American Negroes comprise isolated "col- onies" in the heart of the "mother" country, and are part of the Third World, defined as the nonwhite, undeveloped, and underdeveloped countries of the world. The 10-Point Program of the Black Panther Party includes, as a major political objective, a United-Nations-supervised plebiscite to be held throughout the black colony to determine the national destiny of American Negroes.
+
+To internationalize their Party and enlarge their importance, Panther leaders have sought acceptance, support, and funds from sources abroad. They have made numerous trips to foreign countries, including Canada, Mexico, Cuba, Palestine, Germany, France, England, Denmark, Sweden, Norway, Soviet Union, North Korea, North Vietnam, and the Chinese Mainland.
+
+Both at home and abroad, Panther leaders loudly proclaim anti-American sentiments and align themselves politically with the aims and tactics of enemy lands. The international contacts most important to the Panthers are made with revolutionary groups and communist countries, especially those that more closely follow Maoist thinking. The international news section of *The Black Panther* reflects attempts by the Black Panther Party to attract such attention, support, and aid.
+
+THE BLACK PANTHER, SATURDAY, JUNE 27, 1970 PAGE 8
+
+TELEGRAM TO
+COMRADE KIM IL SUNG
+
+KIM IL SUNG
+PREMIER OF THE CABINET
+DEMOCRATIC PEOPLES RE-
+PUBLIC OF KOREA
+
+June 25th marks the 20th anniver-
+sary of the U.S. imperialist ag-
+gressive invasion of the DPRK in
+1950.
+
+The Black Panther Party takes
+this occasion to salute the DPRK
+and the wise and brave leader of the
+40 million Korean people, Com-
+rade Kim Il Sung.
+
+We recognize and respect the
+long history of resistance and vic-
+tory that Comrade Kim Il Sung
+and the 40 million Korean people
+have contributed to the world wide
+struggle against imperialism and
+fascism; the shining examples of
+socialist construction while under
+severe conditions of U.S. pro-
+vocation and aggression, the many
+brilliant ideological contributions
+you have made to the socialist
+camp and in particular the con-
+cept of "Juche".
+
+Because of our historical ex-
+perience in America; because we
+are faced with no alternatives but
+genocide or liberation we under-
+stand the criminal nature and
+gangster logic of the U.S. ruling
+
+class. Black people are increas-
+ingly the victims of overt military
+aggression and U.S. plots to sub-
+vert our struggle for national sal-
+vation. Under these conditions we
+have an increasing awareness that
+the expulsion of the U.S. imper-
+ialist burglar from Korean soil
+and the reunification of Korea will
+be a victory for the Korean peo-
+ple and a victory for oppressed
+people the world over.
+
+We see clearly that the reuni-
+fication of Korea is not/seperate
+from the salvation of Black and
+other oppressed people in fascist
+America. As gang boss Nixon and
+his mob of criminals intensify
+their attempts to loot Asia they
+are intensifying their murderous
+repression of Black people in
+America. These attacks will be
+met with revolutionary solidarity
+manifested in action, both around
+the world and in the gangsters
+lair, and with one-beat-a-hundred
+fighters in Africa, Asia, Latin
+America, and North America; the
+U.S.A. will surely be brought to the
+peoples JUSTICE.
+
+ALL POWER TO THE PEOPLE
+CENTRAL COMMITTEE
+BLACK PANTHER PARTY
+U.S.A.
+
+WW 88614 Doctd:32989606 Page 158

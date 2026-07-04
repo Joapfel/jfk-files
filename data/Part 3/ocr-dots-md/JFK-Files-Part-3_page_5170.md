@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_5170.png
+
+Convert to MarkdownSAS CAIDIS and O'HARA have been specifically assigned to develop informants who can give coverage in fugitive deserter matters and they have concentrated their efforts in specific areas where deserters are most likely to be found, as set forth below:
+
+137-5670 South of Market Street Area
+
+137-5355 North Beach Area
+
+137-5094 Tenderloin and North Beach Areas (homosexuals)
+
+137-5477 Tenderloin and North Beach Areas (homosexuals)
+
+137-5738 Haight - Ashbury and the Fillmore (Negro ghetto area)
+
+DESK 2
+
+Bank Robberies - Major Case
+Supervisor BRYON C. WHEELER
+
+Special Agents assigned to Squad 2 have been instructed to continually be alert to develop top quality informants in order to carry out the responsibilities in their investigative fields. The work on the squad is broken down into two major categories, the first of which includes bank robberies and kidnappings. Agents specifically assigned to develop informants in this field are SAs MONTE A. HALL, FRANCIS J. COLLOPPY, JR., THOMAS J. PADDEN, ARDEN F. KEITH, ELDEN LOEFFELHOLZ, and WILLIAM R. TENBENSEL. The following informants have been developed in this field:
+
+137-5473
+137-2686
+137-2961
+137-2864
+137-4999
+137-4290
+137-5308
+137-1934

@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_4303.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+(RI) 157-11339
+
+May 28, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [FRANCES MARY BEAL]
+
+Reference is made to your letter dated May 6, 1969, concerning the Omnibus Crime Control and Safe Streets Act of 1968.
+
+In line with referenced letter, your authority under Presidential authorization is requested to install a telephone surveillance on the home of Frances Mary Beal, 163-19 130th Avenue, South Ozone Park, New York, for a period of 30 days.
+
+This surveillance is in connection with our efforts to effect a solution to the murders of two police officers in New York City on May 21, 1971. Beal is employed by the Education Foundation of the National Council of Negro Women in New York City. She is involved in black extremist activities in New York City as communication officer and a leading functionary of the black extremist Student National Coordinating Committee (SNCC) in New York City. The SNCC has advocated violence to achieve black liberation. Beal has had numerous contacts in the black nationalist movement and is known among black extremists in the New York City area. She is responsible for the distribution of funds for (SNCC) programs and reportedly has had contacts with black extremists who have visited Cuba and Canada.
+
+It is felt a telephone surveillance at the above location will provide vital information in our efforts to
+
+SECRET
+Group 1
+Excluded from automatic downgrading and declassification
+
+NATIONAL SECURITY INFORMATION
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.

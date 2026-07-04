@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_5284.png
+
+Convert to MarkdownSECRET
+
+August 4, 1975
+
+REQUEST FOR FBI MATERIALS
+
+I. Materials to which the SSC staff has been given access; delivery requested by Friday, August 18, 1975:
+
+A. The notebook or binder containing materials on FBI legal authority and maintained in the Office of the Special Counsel.
+
+B. Materials pertaining to FBI-CIA relations in 1970 previously made accessible at FBIHQ in excised form; unexcised versions of the memorandum bearing the item-number designations 8, 9, 30, 32, and 37.
+
+C. "Foreign Operations Policy Manual," previously made accessible at FBIHQ.
+
+D. The following materials maintained in the so-called "Official and Confidential" files and designated "non-derogatory," previously examined by SSC staff:
+
+1. Agreement Between FBI and Secret Service;
+
+2. Attorney General - Submission of Memoranda by FBI;
+
+3. "Black Bag" Jobs;
+
+4. Expansion of FBI Foreign Intelligence Coverage;
+
+5. Intelligence Coverage - Domestic and Foreign;
+
+6. Directives (60);
+
+7. Cook, Fred (52).
+
+E. Summaries or notes on interviews conducted by Inspection Division for July 3 Inspection for the individuals whose names are underscored on the attached list (slightly expanded from previous access request).
+
+F. Inspection Reports on the Intelligence Division and the San Francisco Field Office, as currently sanitized.
+
+NOT RECORDED
+
+9 AUG 6 1975
+
+84 AUG 6 1975

@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_2671.png
+
+Convert to Markdownsmn
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+lives, there might be something that is relevant. I would say
+ordinarily it's not. And so far as political views, yes, I
+think that this could be, if he is espousing some cause or
+some view that advocates violence or the overthrow of the
+government.
+
+Mr. Schwarz. Would those be the two limits on political
+views?
+
+Mr. Kelley. What?
+
+Mr. Schwarz. Would those be the only limits on political
+views that you think are okay to collect, advocates of violence
+or advocates of overthrow?
+
+Mr. Kelley. Well, I don't think because he's a Democrat
+or a Republican it would be anything that would be damaging,
+but it might on the other hand counter the report that he's
+a member of some other organization.
+
+Mr. Schwarz. Is the standard you used on collection of
+sex life information, might be relevant? I suppose anything
+might be relevant, but don't you think that as a function of
+balance, it has to have a high degree of relevance before it's
+justifiable to collect that kind of information on American
+citizens who are not suspected of having committed crimes?
+
+Mr. Kelley. Insofar as doing it presently, it has been
+included in some reports as a result of the requirement that
+that is what is required by our rules, that when a person
+reports something to us, we do a report of the complaint. Insofar
+
+2516
+
+Insofar

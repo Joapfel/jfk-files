@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_5252.png
+
+Convert to Markdown# CASE SUGGESTION WRITE-UP
+
+RAND N. DODD
+SSAN 548 62 8438 A
+ASN 28 189 434
+FUGITIVE DESERTER
+SF 42-44226
+BU 42-284756
+CO: SAN FRANCISCO
+
+INSPECTOR ARNOLD C. LARSON: This is a pending case in the San Francisco Office which was opened in July 1969 and is presently assigned to SA JEAN G. HUGHES. It is supervised by SA H. ERNEST WOODBY.
+
+Extended investigation has been conducted since inception of this case in the neighborhood of Subject's parents, 1132 South Sage Court, Sunnyvale, California. When case was initiated, it was determined Subject's family had moved from 870 El Camino, Mountain View, California, the address shown on Subject's DD 553 in 12/68 which was prior to Subject's reported absence from the military in 4/69. Subject's parents have appeared to be cooperative and although present neighbors of Subject's parents are not well acquainted with the Subject, they are cooperative and a neighborhood source has been established.
+
+Subject entered military service in 9/66 at San Jose, California, at which time he was approximately 20 years of age. Since initiation of this investigation, additional past residences have been developed for Subject's parents at 278 Lassen Avenue, Mountain View, California in 9/63; 620 East Mauded Avenue, Sunnyvale, California in 7/68 and 1390 Latham Street, Mountain View, in 7/68. A neighbor has indicated Subject may have a brother but could furnish no specific information concerning his identity. Attempts to establish residence at the Latham Street address have been negative. Mail returned to the U.S. Army addressed to the Latham Street address indicated a possible residence of Apartment 101, 1617 Pine Street, San Francisco, California. Investigation has also indicated past employment for the Subject at Channing House, Palo Alto, California, for a period not stated.
+
+In view of the fact Subject had already entered military service before his parents moved to their current address, it is suggested investigation be concentrated in
+
+San Francisco Inspection
+10/22/70
+LSM/jb

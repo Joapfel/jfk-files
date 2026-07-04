@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_2986.png
+
+Convert to Markdown1924
+
+warrant. It seems to beg the question.
+
+Assuming that you say that since we use informants and investigate groups which may only engage in lawful activities but which might engage in activities that can result in violence or illegal acts, and you can't use the warrant, but Congress could say that the use of informants is subject to such abuse and poses such a threat to legitimate activity, including the willingness of people to assemble and discuss the anti-ballistic missile system, and we don't want you to use them unless you have indication of criminal activity or unless you present your request to a magistrate in the same fashion as you are required to do with respect to, in most cases, to wiretap.
+
+End Tape 6
+
+This is an option available to Congress.
+
+Begin Tape 7
+
+Senator Tower. Senator Schweiker.
+
+Senator Schweiker. Thank you very much.
+
+Mr. Wannall, what's the difference between a potential security informant and a security informant?
+
+Mr. Wannall. I mentioned earlier, Senator Schweiker, that in developing an informant we do a preliminary check on him before talking with him and then we do a further in-depth background check.
+
+A potential security informant is someone who is under consideration before he is approved by headquarters for use as an informant. He is someone who is under current consideration.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000

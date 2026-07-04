@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_487.png
+
+Convert to Markdown**Counterintelligence Program**
+
+During June, 1970, the Charlotte Office prepared about 100 copies of a leaflet, in the form of a news item, prepared by a reporter for Southern Vanguard Revolutionary Party, (a defunct extremist organization formed by purged Panther Jose Gonzalez). The leaflet, sent to news services and to a number of residents in the vicinity of Black Panther Party (BPP) headquarters, Winston-Salem, North Carolina, was intended to publicize the split in the BPP group at Winston-Salem and to highlight that outside leadership has been brought to the BPP Winston-Salem. Leaflet mentioned Douglas Miranda, former BPP leader in New Haven, Connecticut, had been transferred to Winston-Salem and also attacked Larry Little, a BPP leader in Winston-Salem, as radical and insinuated he is pocketing donations obtained for BPP Breakfast for Children Program. The leaflet contained truthful information.
+
+After distribution of this leaflet, sales of the BPP newspaper in Winston-Salem dropped considerably and respect for BPP leaders in Winston-Salem was reported to have been lost by members.
+
+EFG:bmf/lm
+(9)
+
+100-448006-1829, 2088, 2094
+
+SECRET
+
+13

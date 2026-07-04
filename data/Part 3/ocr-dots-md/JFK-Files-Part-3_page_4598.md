@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_4598.png
+
+Convert to MarkdownNK 105-9440
+
+Seabrook, Texas, and charged with conspiracy and unlawful possession of firearms. The co-defendants in the case were listed as MANUEL ARQUES, MARIO SILVERIO VILLAMINA, FRANCISCO GONZALES ORREGON and ABELARDO PUJOL BARRERA.
+
+On July 11, 1958, the subject was sentenced in United States District Court, Southern District of Texas, Houston, Texas, to two years and a fine of five hundred dollars ($500.00). On August 12, 1958, the sentence was reduced to 18 months - suspended, 22 months probation and a five hundred dollar ($500.00) fine. The fine was paid by the subject on July 17, 1958.
+
+A letter dated June 23, 1958, from the United States Probation Office, Houston, Texas, to the Probation Office, Trenton, New Jersey, indicated the subject had been involved in a conspiracy to take part in a military expedition and enterprise to be carried on from within the United States against Cuba. The letter continued that the subject, who had represented herself as Mrs. MANUEL ARQUES but who was not married to ARQUES, had met ARQUES in Miami, Florida, while on vacation. ARQUES' father, who was on the Miami Police Department, was known to CARLOS PRIO, former President of Cuba. The subject was assisting ARQUES in a plan to have PRIO returned to control in Cuba in place of BATISTE, for which ARQUES would be given a high government position. The firearms which were in the possession of the subject were to be sent to CASTRO by boat.
+
+The subject's parole supervision was transferred to Trenton, New Jersey, on September 22, 1958.
+
+On October 13, 1958, the subject testified in United States District Court, Houston, Texas, against ROBERT R. MC KEOWN, and en route to Texas she visited Miami, Florida, and on returning to New Jersey visited Key West, Florida,
+
+During January, 1959, the subject went to Miami, Florida, without obtaining permission, and on January 23, 1959, she and ARQUES appeared at the United States Probation Office, Miami, and asked for permission to return to Cuba. Her address at that time was 2350 S. W. 13th Street, Miami, Florida. Permission for her to go to Cuba was denied by the Judge at United States District Court, Houston, Texas.
+
+The supervision of the subject's parole was transferred to Miami, Florida, on February 12, 1959, and she returned to her Keyport, New Jersey, address on July 10, 1959. She visited ARQUES at Miami on November 4, 1959, residing care of Mrs. R. N. GOODMAN, address: 342 NE. 35Th St., MIAMI, FLORIDA.
+
+NEW DOCTRINE - ADDRESS: 342 NE. 35Th St., MIAMI, FLORIDA

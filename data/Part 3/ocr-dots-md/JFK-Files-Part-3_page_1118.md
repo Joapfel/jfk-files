@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_1118.png
+
+Convert to Markdown**SECRET**
+
+Counterintelligence Programs
+
+On October 20, 1969, the Boston FBI Office, on a confidential basis, furnished information to Robert Tonis, Security Officer and Chief of the Harvard University Police, Cambridge, Massachusetts, to the effect that Nancy Schwarzman, Secretary, has been identified as the mistress of Michael Kazin, a Harvard Senior and Students For a Democratic Society (SDS) Committee member of the Harvard-Radcliffe Chapter.
+
+On November 3, 1969, Mr. Tonis advised that Miss Schwarzman was no longer employed by Harvard University as of close of business October 31, 1969.
+
+ELS:tdp (9)
+100-449698-5-21
+
+SECRET
+
+139

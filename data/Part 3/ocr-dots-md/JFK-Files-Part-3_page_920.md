@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_920.png
+
+Convert to Markdown# The Deputy Attorney General
+
+conduct the fact-finding investigations necessary to sustain successful prosecutions. The creation of this "detective" force by Congress aimed to fill that void.
+
+Over the years the responsibilities of this agency, which eventually became known as the Federal Bureau of Investigation (FBI), have increased tremendously. From a small agency charged with the task of conducting investigations regarding relatively few matters, the FBI has developed into an agency held accountable for investigating violations of over 180 categories of Federal Law. In addition, the FBI has become more than just an investigating agency, due to its maintenance of various data in certain areas indispensable to a criminal justice system.
+
+The proposal to make the FBI an independent agency within the Executive Branch has been voiced on several occasions in Congress. Within the very recent past two bills were introduced in the Senate to achieve this aim. Additionally, as far back as 1947, Congressional sentiment existed to separate the FBI as an independent agency.
+
+The proponents of this move have made it clear that the possibility of a politically motivated FBI has caused them great concern and led to the introduction of measures which they feel would go a long way toward preventing undue political influence. The argument is made that the Attorney General is almost always a political appointee of the President, whose views generally conform with his own. Those espousing this argument point to recent events as examples of how an Attorney General could use his position to political advantage and fear that because of this motivation he could easily manipulate an agency possessing vast amounts of sensitive information and substantial resources, such as the FBI, and easily misuse this organization which is subject to his directives as a part of the Department he heads.
+
+The question arises at this point whether removal of the FBI from the Department of Justice is the proper means of assuring its justifiable degree of independence and freedom from undue political pressure. The

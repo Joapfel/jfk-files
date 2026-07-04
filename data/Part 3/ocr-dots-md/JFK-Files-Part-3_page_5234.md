@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_5234.png
+
+Convert to Markdownto identify members of the Black Panther Party, Students for a Democratic Society, and other members of extremist groups who are in violation of Selective Service Act matters. These should be promptly discussed with the United States Attorney for expeditious handling.
+
+There are several reasons why the draft dodgers come to this area to beat the draft, however, the six most important reasons are as follows:
+
+1. Nation-wide publicity during the last three years concerning San Francisco being a haven for draft dodgers,
+
+2. The apathetic attitude of the United States District Judges. Sentences have been very light and many decisions were adverse due to technical grounds which made prosecution of additional cases difficult,
+
+3. Large panel of attorneys, most, if not all, of them of civil liberties inclination, was formed a few years ago in San Francisco under the auspices of the U. S. District Court for the purpose of defending Selective Service Act violators. The attorneys are appointed from this panel, by the court, when a man cannot afford his own attorney. The expenses for the violators' defense are paid out of the U. S. Legal Assistance on Public Defender Fund in San Francisco. Many of these attorneys have not only defended inductees who refused to step forward for induction, but have furnished legal advice and assistance to various Resistance movements in the area,
+
+4. The Resistance, a loose organization in various colleges throughout the United States, has counsellors who assist registrants in deciding what their rights and possibilities are under the Act. The Resistance has several offices in various parts of Berkeley, Oakland and San Francisco where men can go for advice.

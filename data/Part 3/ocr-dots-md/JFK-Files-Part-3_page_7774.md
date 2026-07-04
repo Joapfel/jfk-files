@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_7774.png
+
+Convert to Markdownnot being abrogated in any manner. Language in such an order
+would ideally follow the basic language and purposes of Executive
+Order 11605, since this deals with virtually every type of
+subversive activity confronting the country today.
+
+It is finally concluded that this study has shown that
+the FBI has in the past conducted no intelligence-type investigations
+which were not permissible under the law, particularly under the
+concept that intelligence-type or preventive-type investigations
+are lawful when the product and purpose of the investigation
+is to prevent a violation of a statute. It is believed, however,
+that every area of our national security investigations should
+be reviewed for the purpose of determining what additional
+constitutional safeguards should be considered. This is particularly
+true in light of the fact that much of our investigative activity
+in the past was geared to the Emergency Detention Act, which was
+repealed in October, 1971. We should make absolutely certain,
+for example, that the procedures adopted in setting up our
+Administrative Index, following repeal of the Emergency Detention
+Act, are not being used to circumvent the repeal of the
+Emergency Detention Act. In this regard, it is to be noted that
+a detailed study of the Administrative Index has been underway
+and is almost complete as of this date.
+
+RECOMMENDATIONS
+
+1. That upon completion of a final draft of the study dealing with this matter, a letter to the Department be prepared containing the essence of this study, pointing out our findings and requesting (a) The Department's opinion concerning our findings, particularly directives discussed herein; (b) The Department's opinion concerning the legality of intelligence-type or preventative-type investigations based on existing statutes; (c) Requesting the Department to issue comprehensive investigative guidelines for future investigations of the intelligence or preventive type; (d) Requesting the Department to sponsor comprehensive legislation spelling out the FBI's investigative authority in the collection of intelligence information relating to the national security; and (e) Requesting the Department to seek a comprehensive Executive order which would cover any possible gaps between statutory authority and Executive necessity in protection of the national security.
+
+2. That a penetrative study be completed at the earliest possible date concerning all our current national security investigative guidelines to insure that every possible safeguard is in effect to protect the individual's rights

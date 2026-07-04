@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_7823.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+various technical support CIA has provided this Bureau in the area of electronic coverage of embassies in the United States. No other information was found in this material which would tend to jeopardize sensitive Bureau sources, ongoing investigations or information we have received from foreign intelligence sources.
+
+ACTION:
+
+Above submitted for information. A separate memorandum is being prepared detailing information contained in the material received from CIA and requesting of interested Divisions and Sections at Headquarters their assessment of any possible damage and recommendation for action to be taken therewith.

@@ -1,0 +1,63 @@
+# JFK-Files-Part-3_page_6350.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. J. W. Johnson
+
+October 15, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to SSC request dated September 4, 1975, and SSC request dated September 23, 1975, requesting documents and certain information pertaining to the obtaining of income tax information from the Internal Revenue Service (IRS).
+
+Nine documents containing supplemental material relating to Robert H. Shelton and Charles C. Kissinger are being delivered with this memorandum.
+
+This material supplements documents, previously furnished SSC by memorandum dated September 29, 1975, and completes the review of the entire case files of the nine individuals requested by the SSC.
+
+1 - The Attorney General
+
+62-116395
+
+JWJ:cml
+
+(8)
+
+SEE NOTE PAGE TWO
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+ENCLOSURE
+
+GPO : 1975 O - 569-920
+
+NW 88614 DocId:32989673 Page 81
+
+10/13/00 SP2 ALM/776
+
+1-11-375-963
+
+9-21

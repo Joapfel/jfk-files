@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_4914.png
+
+Convert to MarkdownRe: NORMAN ROTHMAN
+
+MM T-21 is an individual who has some knowledge of the criminal element in the Miami, Florida, area.
+
+MM T-22 is a businessman who on occasions comes into receipt of information regarding the criminal element.
+
+MM T-23 is an individual who has some knowledge of the criminal element in the Miami, Florida, area.
+
+MM T-24 is an individual who is in contact with the criminal element.
+
+MM T-25 is a businessman who on occasions comes into receipt of information regarding the criminal element.
+
+MM T-26 is a businessman who on occasions comes into receipt of information regarding the criminal element.
+
+MM T-27 is an individual who formerly resided in Havana, Cuba, now residing in Miami, Florida, who has some knowledge of criminal activities among the Cuban element in Miami.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

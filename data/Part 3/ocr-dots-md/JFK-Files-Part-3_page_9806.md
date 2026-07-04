@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_9806.png
+
+Convert to MarkdownPresidential Directive - 1/8/43
+
+reiterated instructions of previous directive of
+9/6/39 and requested law enforcement officers,
+patriotic organizations and individuals turn over
+to FBI all information regarding espionage,
+sabotage and violations of neutrality regulations.
+
+Presidential Directive - 7/24/50
+
+reiterated substance of 9/6/39 and 1/8/43 directives,
+noting they provided for FBI to take charge of
+investigative work in matters relating to espionage,
+sabotage, subversive activities and related matters.
+
+Directive of President 12/15/53.
+
+referred to previous Presidential Directives
+and added investigation by FBI of violations
+of Atomic Energy Act.
+
+Executive Order 10450 4/27/53
+
+established programs to insure that the employment
+and retention of any Government employee is clearly
+consistent with the interests of national security.
+Requires check of FBI Fingerprint Files and, in
+cases where derogatory information develops, FBI
+conducts a full-field investigation.
+
+Executive Order 11605 7/2/71
+
+calls for Subversive Activities Control Board,
+when petitioned by the Attorney General, to
+determine after hearings if any organization is
+totalitarian, fascist, communist, subversive, or
+whether it has adopted a policy of advocating the
+commission of acts of force or violence to deny
+others their Constitutional or statutory rights.
+By inference, the FBI, as investigative arm of
+the Attorney General, would develop evidence for
+hearings required. Also, FBI, by inference, would
+develop evidence of membership in such organiza-
+tions, which may be basis for denial of Government
+employment.
+
+Policy Instructions of Attorney General
+
+September 14, 1967: instructions of then Attorney
+General Ramsey Clark for FBI to investigate possibility
+of conspiracy to plan, promote, or aggravate riot activity.

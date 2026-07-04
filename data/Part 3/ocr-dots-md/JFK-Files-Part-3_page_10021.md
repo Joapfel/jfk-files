@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_10021.png
+
+Convert to MarkdownFEDERAL DEPARTMENT OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+NR026 CG CODE
+
+MAR '15 1975
+
+610PM NITEL 3-25-75 RWR
+
+TO DIRECTOR
+FROM CHICAGO
+
+ATTENTION: BUDGET AND ACCOUNTING SECTION
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+REBUTEL, MARCH 24, 1975, TO ALL SAC'S.
+
+THE FOLLOWING IS A BREAKDOWN OF AGENT TIME IN THE CHICAGO
+DIVISION SPENT ON COUNTERINTELLIGENCE AND INTERNAL SECURITY
+MATTERS:
+
+**SAC:** COUNTERINTELLIGENCE MATTERS, 20 PERCENT; INTERNAL SECURITY, 10 PERCENT.
+
+**ASAC:** COUNTERINTELLIGENCE, 25 PERCENT; INTERNAL SECURITY, 20 PERCENT.
+
+**SUPERVISORS:** COUNTERINTELLIGENCE, FOUR, FULL TIME;
+INTERNAL SECURITY, ONE, FULL TIME, ONE, 50 PERCENT. (THE OTHER FIFTY PERCENT OF ONE SUPERVISOR'S TIME IS SPENT ON EXTREMIST MATTERS.)
+
+**AGENTS:** COUNTERINTELLIGENCE, 76, FULL TIME (INCLUDES 10 AGENTS ASSIGNED FULL TIME COUNTERINTELLIGENCE SURVEILLANCE);
+
+ALL INFORMATION CONTAINED
+NOT herein is unclassified
+Dated: 1-17-75 BY SP-2 ALAN HATG
+
+<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files & Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspect i n</td></tr><tr><td>Int'l.</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. & Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>

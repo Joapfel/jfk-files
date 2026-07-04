@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_6725.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. R. H. Ross
+
+October 14, 1975
+
+The Attorney General
+
+Director, FBI
+
+UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to a letter from the SSC dated August 27, 1975, with an attached request for FBI materials dated August 26, 1975, and my letter dated September 24, 1975, captioned as above.
+
+Enclosed for your approval and forwarding to the Committee is the original of a memorandum responsive to the request of the Committee for delivery of materials pertaining to requests by the Bureau for national security mail covers from 1971 through 1975.
+
+Referenced September 24, 1975, letter forwarded material initially located in response to the Committee's request. The enclosed memorandum forwards the remaining documents which were located.
+
+A copy of this memorandum is being furnished to you for your records.
+
+Enclosures - 2ENCLOSURE REC-30
+
+15 NOV 4 1975
+
+1 - The Deputy Attorney General
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+RHR:jmn/lfj
+(9)
+
+CONFIDENTIAL MATERIAL ATTACHED
+
+84 NOV 5 1975
+
+GPO 971-49
+
+MAIL ROOM [x] TELETYPE UNIT [ ]
+
+SECRET
+
+84 NOV 5 1975
+
+GPO 971-49
+
+NFW-88814 DocId:32989673 Page 73

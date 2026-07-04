@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_7712.png
+
+Convert to MarkdownKatzenbach Report
+
+Emerson Brown
+IDS 101-21504
+
+3. The proposed DCI's letter to the Chairman of the House Select Committee on Intelligence is in final coordination and is expected to be available for Community review shortly. Following this, Mr. Wilderotter will meet with the General Counsels to review and coordinate on the final language.
+
+cc: Mr. Büchen
+Mr. Hills
+
+Distribution:
+
+1 - Mr. Wilderotter
+1 - Mr. Latimer
+1 - Mr. Hyland
+1 - Mr. Morell
+1 - Mr. O'Connor
+1 - Mr. Cregar
+1 - Mr. Knoche
+1 - Mr. Clarke
+
+NW-88608 DocId:32989609 Page 115

@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_4574.png
+
+Convert to MarkdownSt. Petersburg, Florida. CARLOS MARCELLO and his spouse stayed at the beach house with SANTO TRAFFICANTE and the LAZZAROS. JOSEPH MARCELLO and his wife stayed at a nearby motel. Informant does not know the address of this beach house.
+
+Regarding TRAFFICANTE's 7/4/66 visit to New Orleans,
+informant knows that TRAFFICANTE was at the Churchhill Farms
+estate of CARLOS MARCELLO during the early afternoon of
+7/4/66. Informant does not know exactly when TRAFFICANTE
+arrived, but felt he had stayed overnight at Churchhill Farms.
+During the early morning of 7/6/66, CARLOS MARCELLO and
+JOSEPH MARCELLO, together with their spouses and TRAFFICANTE,
+drove across Lake Pontchartrain to the home CARLOS MARCELLO
+rents in Covington, La., and spent the better part of the day
+there. CARLOS and JOSEPH MARCELLO and SANTO TRAFFICANTE left
+that home during the early evening hours of 7/6/66; however,
+informant does not know where they proceeded from there.
+Informant next saw CARLOS and JOSEPH MARCELLO during the
+evening of 7/7/66.

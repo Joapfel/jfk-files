@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_3022.png
+
+Convert to Markdown# Routing Slip
+0-7 (Rev. 7-11-75)
+
+(Copies to Offices Checked)
+
+TO: SAC:
+
+☐ Albany ☐ Albuquerque ☐ Alexandria ☐ Anchorage ☐ Atlanta ☐ Baltimore ☐ Birmingham ☐ Boston ☐ Buffalo ☐ Butte ☐ Charlotte ☐ Chicago ☐ Cincinnati ☐ Cleveland ☐ Columbia ☐ Dallas ☐ Denver ☐ Detroit ☐ El Paso ☐ Honolulu
+
+☐ Houston ☐ Indianapolis ☐ Jackson ☐ Jacksonville ☐ Kansas City ☐ Knoxville ☐ Las Vegas ☐ Little Rock ☐ Los Angeles ☐ Louisville ☐ Memphis ☐ Miami ☐ Milwaukee ☐ Minneapolis ☐ Mobile ☐ Newark ☐ New Haven ☐ New Orleans ☐ New York City ☐ Norfolk
+
+☐ Oklahoma City ☐ Omaha ☐ Philadelphia ☐ Phoenix ☐ Pittsburgh ☐ Portland ☐ Richmond ☐ Sacramento ☐ St. Louis ☐ Salt Lake City ☐ San Antonio ☐ San Diego ☐ San Francisco ☐ San Juan ☐ Savannah ☐ Seattle ☐ Springfield ☐ Tampa ☐ Washington Field ☐ Quantico
+
+TO LEGAT:
+
+☐ Bern ☐ Ronn ☐ Brasilia ☐ Buenos Aires ☐ Caracas ☐ Hong Kong ☐ London ☐ Madrid ☐ Manila ☐ Mexico City ☐ Ottawa ☐ Paris ☐ Rome ☐ Tel Aviv ☐ Tokyo
+
+RE: Date December 4, 1975
+HEARINGS BEFORE THE SENATE
+SELECT COMMITTEE
+
+☐ For information ☐ optional ☐ Retention ☐ action For appropriate ☐ Surep, by _________________
+
+☐ The enclosed is for your information. If used in a future report, ☐ conceal all sources, ☐ paraphrase contents.
+
+☐ Enclosed are corrected pages from report of SA dated ____________
+
+Remarks:
+
+For your assistance in responding to local press inquiries, attached is a copy of unedited excerpted remarks by Assistant to the Director--Deputy Associate Director James B. Adams while testifying before the Senate Select Committee on 12/2/75, concerning anti-FBI allegations made by Gary Rowe, former FBI informant.
+
+Enc. (1)
+Bufile
+Urfile
+
+1975
+
+TEI-MAMI
+
+NW 88608 DocId:32989820 Page 169

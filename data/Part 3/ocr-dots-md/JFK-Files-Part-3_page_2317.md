@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_2317.png
+
+Convert to Markdown62-116395
+
+2 - Mr. J. A. Mintz (1 - J. B. Hotis) 1 - Mr. W. R. Wannall 1 - Mr. W. O. Cregar 1 - Mr. J. G. Deegan 1 - Mr. T. J. Seabaugh
+
+January 8, 1976
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 10/31/06 BY SP2 ALM/EHL
+
+U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to the December 18, 1975, letter of the SSC as modified at a conference on December 30, 1975, between Messrs. W. O. Cregar and Paul V. Daly of this Bureau and Committee Staff Members Michael Epstein and Mark Gitenstein.
+
+The SSC was advised by FBI memorandum dated January 5, 1976, that certain of the materials relating to Item 1 were available for SSC Staff review. On January 6, 1976, Mr. F. A. O. Schwarz, Jr., SSC General Counsel, requested the FBI deliver the material to which access had been granted.
+
+This memorandum effects delivery of material in response to Item 1. Because of your desire for a very early review of this material, the available data is only a portion of that requested. We are expediting our review of files, and you will be furnished additional material pursuant to your request as soon as possible.
+
+1 - The Attorney General
+
+TJS:klm KLM
+(9)
+
+ASSOC. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+MAIL ROOM [ ]
+TELETYPE UNIT [ ]
+
+ORIGINAL AND ONE TO AG
+
+CONFIDENTIAL MATERIAL ATTACHED
+
+ENCLOSURE
+
+GPO : 1975 O - 569-920
+
+NWO 88608 DocId:32989570 Page 152

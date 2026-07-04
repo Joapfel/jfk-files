@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_2894.png
+
+Convert to Markdownsmn 5
+
+2480
+
+who might also be inclined to call the Director and ask him
+to do specific things?
+
+Could there be some clearcut understanding as to whether
+or not the Director would be obligated to undertake any such
+project, that just anybody at the White House might suggest?
+
+Mr. Kelley. It's very clear to me that any request must
+come from Mr. Buchen's office, and that it be, in any case,
+wherein it is a request for action, that it be followed with
+a letter so requesting.
+
+This has come up before during the Watergate hearings, as
+I think it has been placed very vividly in our minds, in
+take care that you just don't follow the request of some
+underling who does not truly reflect the desire of the President.
+
+Senator Huddleston. Just one more question about
+techniques, aside from the guidelines of authority on broad
+projects undertaken.
+
+Would it be feasible from time to time in a Congressional
+oversight committee, would be able to discuss with the Department,
+with the Bureau various techniques so that they could have
+some input as to whether or not these actions are consistent
+with the overall guidelines, to start with, and consistent
+with the very protections?
+
+Mr. Kelley. Senator, I have already said to the
+oversight committee of the Senate that so far as I can now
+see, the only thing that would be withheld is the identity of
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+N.W. 88608

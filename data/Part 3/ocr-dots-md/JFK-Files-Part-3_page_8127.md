@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_8127.png
+
+Convert to MarkdownWhen an allegation is received that a group may fall within existing jurisdictional criteria, FBI Headquarters is immediately notified and a "preliminary investigation" along the lines already indicated is undertaken. Again, approval from FBI Headquarters must be obtained to continue this "preliminary investigation" beyond 90 days to resolve whether jurisdictional standards are met. If met, a full investigation is conducted upon approval by FBI Headquarters.
+
+Internal security investigations are also conducted on the basis of specific instructions from the Attorney General (pursuant to Presidential Directives) to the Director of the FBI. Until the instruction is complied with, these matters remain pending.
+
+Every effort is made to maintain proper administrative control over domestic security investigations and to insure full compliance with the law. In this regard, Bureau rules require Agents to limit investigations to relevant matters. Supervisory personnel in the Field and at FBI Headquarters review the progress and relevancy of these investigations, and reports are forwarded to the Department of Justice. Agents also receive legal instruction on a continuing basis in order that they may be fully able to recognize relevance and safeguard individual rights.
+
+These Bureau procedures have been devised in an honest effort to carry out with maximum effectiveness and propriety our vital domestic security responsibilities. Over the years, the FBI has handled these responsibilities and protected the domestic security of our Nation with great dedication and, I believe, with great distinction. We will continue to vigorously carry out these duties with all due regard for individual rights and liberties. I believe the procedures I have outlined are in full accord with this purpose.

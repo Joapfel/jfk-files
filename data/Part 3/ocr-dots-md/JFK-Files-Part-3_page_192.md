@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_192.png
+
+Convert to Markdown**Counterintelligence Programs**
+
+The Little Rock Office directed anonymous letters to the employers of members of the Forrest City Klavern of the United Klans of America in which were enclosed copies of an article dated September 24, 1970, which appeared in "The Arkansas Gazette," a Little Rock daily newspaper, concerning the arrest of klavern members at Parkin, Arkansas. Thirteen individuals were arrested for nightriding and other charges.
+
+Amos and Leonard Holland were discharged from their employment with Tom's Peanut Company. Sam Littlejohn was discharged from his employment with the DX Oil Company. The employer of Steven Golden advised Forrest City Resident Agency he was curtailing the activities of Steve Golden which would cause embarrassment to the employer.
+
+TED:lfj
+(9)
+
+157-9-25-47, 49, 51
+157-370-25-66
+
+SECRET
+
+86

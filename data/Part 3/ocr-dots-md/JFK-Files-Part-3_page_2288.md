@@ -1,0 +1,72 @@
+# JFK-Files-Part-3_page_2288.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY
+
+1-Mr. Adams-Enc.
+1-Mr. Wannall-Enc.
+1-Mr. Cregar-Enc.
+
+DATE: January 14, 1976
+
+1-Mr. Mintz-Enc.
+1-Mr. Hotis
+1-Mr. Daly
+1-Mr. Miller
+
+Assoc. Dir. ____
+Dep.(AD)Adm. ____
+Dep.(AD)-Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory 1970
+Legal Coun. ~~AD~~
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Sec'y ____
+
+Late on the afternoon on January 14, 1976, Pat Shea, staff member, Senate Select Committee, made available the attached, which is a draft bill captioned Intelligence Oversight Act of 1976.
+
+This draft is the product of the Senate Select Committee staff.
+
+Mark Gitenstein, Martha Talley, and Pat Shea, all of whom are Senate Select Committee staff members, are scheduled to meet with Bureau representatives at 2 P.M., tomorrow, January 15, 1976. This meeting will afford us the opportunity to discuss in detail the draft bill.
+
+The bill would create a Committee on Intelligence Activities to which all proposed legislation pertaining to the intelligence community would be referred. It would be granted broad, sweeping powers of access to and disclosure of intelligence community information.
+
+Also received late on the afternoon of January 14, 1976, was a letter from Chairman Ribicoff of the Government Operations Committee. Attached to that letter is a copy of S.189 introduced by Senator Nelson on January 16, 1975, S.317 introduced by Senator Baker on January 23, 1975, and S. CON. RES. 4 introduced by Senator Hathaway on January 23, 1975 in rec'd. 109
+
+RECOMMENDATIONS:
+
+1. Legal Counsel and Intelligence Division representatives will meet with Senate Select Committee staff members at 2 P.M. on January 15, 1976, and discuss the 1976 Intelligence Oversight Act of 1976.
+
+Enclosure
+
+JDM:mcz
+
+(9)
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/31/75 BY SP AMLEHL
+
+RECOMMENDATION CONTINUED OVER
+
+8 4 FEB 4 1976
+
+NW 88608 DocId:32989570 Page 123

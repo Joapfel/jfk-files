@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_5146.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI SA BY SSC
+
+King was asked if he provided assistance to the FBI on national security information at any time and he stated he did not recall.
+
+King was asked if the Southern Bell Telephone Company provided any leased cable or leased line to the FBI at any time and King stated he did not recall. King stated he had several conversations with FBI individuals regarding the procedure for obtaining leased lines and he advised them to follow the normal channels through the company to make application for leased lines the same as any other customer.
+
+King was asked if any other Agent might have had contact with the telephone company in connection with obtaining leased lines and he stated it was entirely possible.
+
+King was asked if he could recall any leased lines being obtained under fictitious names and he advised he knew of none.
+
+King was asked if he was ever given any names or numbers to furnish information regarding, and he stated that he did not recall. He was asked if he ever received any request in writing regarding such and he stated he knew of none.
+
+King was asked if he assisted in any way in furnishing information about the telephone services of Martin Luther King, Jr., or the SCLC and he advised he could not recall.
+
+King was asked if he knew Martin Luther King, Jr., or the SCLC was under investigation at the time, and he stated he did not know it for a fact.

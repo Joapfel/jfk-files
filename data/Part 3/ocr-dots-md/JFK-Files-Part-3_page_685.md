@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_685.png
+
+Convert to MarkdownAPPENDIX
+
+COMMUNIST PARTY, USA
+
+Title 50, U. S. Code, Section 781 (Internal Security Act of 1950) stated that, as a result of evidence adduced before various committees of the Senate and House of Representatives, Congress found the existence of a world communist revolutionary movement, whose purpose is to establish a communist totalitarian dictatorship in the world's countries through the medium of a world-wide communist organization. Communist action organizations in various countries endeavor to carry out the objectives of the world communist movement by bringing about the overthrow of existing governments by any means. The communist organization in the United States - the Communist Party, USA (CPUSA) - pursuing its stated objectives, presents "a clear and present danger to the security of the United States." The Subversive Activities Control Board, established by Section 791 of the above Act, found the CPUSA to be a communist action organization. This finding was upheld by the United States Supreme Court in June, 1961. The CPUSA has continued to be an arm of the international communist movement dominated by the Soviet Union. The CPUSA, in its dependence on the Soviet Union, has never knowingly adopted a position contrary to Soviet policy. Its leaders frequently confer with Soviet leaders to receive guidance and direction on the policies the CPUSA is to follow. There has been no evidence that the primary aims of the CPUSA, as they conform to Soviet objectives, have changed over the years.
+
+APPENDIX
+
+10
+
+NW.88608 DocId:32989640 Page 227

@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_4757.png
+
+Convert to MarkdownMM 92-1870
+
+INFORMANTS
+
+MM T-1 is MM 727-C.
+
+MM T-2 is MM 725-C.
+
+COVER PAGE
+
+NWW 88608 DocId:32300025 Page 7

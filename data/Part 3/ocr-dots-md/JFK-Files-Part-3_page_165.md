@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_165.png
+
+Convert to Markdown**SECRET**
+
+Counterintelligence Program
+
+In February, 1964, the New York Office discreetly informed particular newspaper representatives that Hayard Rustin, civil rights leader who was in the forefront of a boycott of New York City schools, was to attend a cocktail party at the Soviet Mission to the United Nations on February 4, 1964.
+
+Considerable unfavorable publicity concerning Rustin resulted.
+
+RDS:ekw
+(9)
+100-3-104-34-599
+
+SECRET
+
+88608 DocId:32989640 Page 77

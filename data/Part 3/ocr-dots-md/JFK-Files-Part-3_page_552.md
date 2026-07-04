@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_552.png
+
+Convert to Markdown# Counterintelligence Programs
+
+Three informants of the Cleveland Office associated with the W. E. B. DuBois Clubs of America (WEBDCA) were approved November 10, 1965, for use in an attempt to discredit Ted Cohen, Midwest Organizer of the communist youth group. The effort was to bring to the attention of Phil Bart, Ohio Communist Party Chairman, Cohen's questionable management of funds and his personal insults toward Bart. The aforementioned informants then commenced to bring Cohen's shortcomings to Bart's attention.
+
+Subsequently on December 3, 1965, Bart advised one of the informants that Cohen had been removed from his position as Midwest Organizer of the WEBDCA because of his questionable financial manipulations, his inefficient methods of operation and his promiscuity.
+
+TEB:lfj
+(9)
+
+100-3-104-11-241; 248
+
+SECRET
+
+76

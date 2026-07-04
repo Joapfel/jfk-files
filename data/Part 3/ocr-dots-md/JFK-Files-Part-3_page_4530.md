@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_4530.png
+
+Convert to MarkdownFBI
+
+Date: 1/4/65
+
+Transmit the following in
+
+(Type in plain text or code)
+
+Via AIRTEL
+
+(Priority or Method of Mailing)
+
+TO : Director, FBI (92-3182)
+
+FROM: Legat, Bern (92-10) (P)
+
+GUS ALEX, aka
+AR
+
+On 12/31/64 the Swiss Central Police Bureau, Bern,
+furnished information which has been made the subject of a
+letterhead memorandum, 4 copies of which are enclosed.
+
+One copy each of this communication is being
+designated for Legat, Bonn, and Chicago since these offices
+have conducted previous investigation in this case.
+
+This case is being retained in a pending status in
+this office to report results of further investigation in
+Switzerland.
+
+Attention is called to the alleged statement by
+ALEX that he knew very well he was being watched by the
+police by order of his native country.
+
+5 Bureau (Encl. 4) ENCLOSURE
+(1 - Liaison) (Encl.)
+(1 - Chicago) (92-373)
+1 - Bonn (92-5)(Encl.) (info) (direct)
+1 - Bern
+
+HDG:mls
+(7)
+
+REC- 57
+
+14 JAN 7 1965
+
+58JAN13 1965
+
+Approved:
+
+Sent __________ M Per __________
+
+Special Agent in Charge
+
+NW 78318 Doctd:34489472 Page 2

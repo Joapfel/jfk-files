@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_439.png
+
+Convert to MarkdownIn a friendly conversation that followed for approximately ten to fifteen minutes, SA Ward advised Seidel that he had only been assigned the Cointelpro/Black Panther Party matter for three months and had no knowledge that would be of value to Seidel. The Cointelpro/Black Panther Party matter was not further discussed. The rest of the time was involved in discussing points of interest in the Los Angeles basin of tourist value, such as Marineland, Palos Verdes, and Sunset Boulevard, Los Angeles.
+
+SA Ward advises that he is aware that the Director waived his employment agreement with certain exceptions regarding privileged areas. With this in mind, SA Ward reviewed his employment agreement and concluded, after noting the following quotation, that he could not disclose any information without following the prescribed procedure:
+
+"The burden is on me to determine, prior to disclosure, whether information may be disclosed, and in this regard, I agree to request approval of the Director of the FBI in each such instance by presenting the full text of my proposed disclosure in writing to the Director of the FBI at least thirty (30) days prior to disclosure".
+
+With this in mind, SA Ward answered Mr. Seidel as noted heretofore.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

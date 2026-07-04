@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_9392.png
+
+Convert to Markdown# MEMORANDUM OF THE CENTRAL COMMITTEE OF THE LAO PATRIOTIC FRONT ON THE ESCALATION OF THE U.S. WAR OF AGGRESSION IN LAOS AND THE SETTLEMENT OF THE LAO PROBLEM
+
+## PART II
+
+Application Of The Nixon Doctrine And Escalation Of The War Of Aggression In Laos By The Nixon Administration
+
+UNDER PRESSURE FROM PUBLIC OPINION, NIXON ON MARCH 6, 1970 HAD TO ACKNOWLEDGE THE PRESENCE OF U.S. MILITARY PERSONNEL, THE LOGISTIC AND MILITARY SUPPORT AND "OTHER ACTIVITIES" OF THE U.S. IN LAOS. He also admitted an increase in the U.S. military activities in Laos. But he tried to argue that those activities were "limited" and of a purely "defensive" character aimed at protecting American lives in South Vietnam.
+
+But public opinion in the United States and in the world immediately pointed out that that was the first time the highest executive in the United States made an open acknowledgement of the violation of the 1962 Geneva Agreements on Laos by the U.S. On March 7, Senator Albert (More declared that Nixon in fact had conceded that "we [the U.S.] have violated the Geneva agreements". Public opinion has condemned Nixon's allegations as "queer" and "selfcontradictory" (the Japanese paper "Asahi Shimbun" March 9, "Nixon's allegations were misleading. They mentioned only some facts and not everything and showed no sign of any charge of policy." (Senators Scranton and Fulbright, March 8 and 9, 1970).
+
+Obliquely, Nixon cannot dupe public opinion which 'ases its judgement not merely on the words but also on the deeds of the Nixon administration during the recent past.
+
+After Nixon came to power, the so-called "Nixon doctrine on Asia" saw the light which consists in providing more U.S. advisers, weapons and firepower to the Asians, while the latter contribute mere mercenaries for the U.S. The formula of this doctrine is "native soldiers plus U.S. advisers and maximum logistic and air support". This is in fact a more elaborate and more refined form of U.S. neo-colonialism's wicked policy of making Asians fight Asians, and operatives fight natives.
+
+The active application of that
+
+The Resistance government formed in 1950 against the French Colonialists,
+
+doctrine in Laos finds a concrete expression in the steps of escalation taken by the Nixon administration in its aggressive war in Laos during the past 18 months, escalation in the logistic supply, in the supply of U.S. military personnel and in the use of U.S. combat troops in the "special war".
+
+Under the Nixon administration, the amount of U.S. aid to Laos and military personnel introduced into this country have increased at almost the same rate. Compared with the 140million dollars in 1967, U.S. aid in 1969 rose to 250 million dollars of which only the economic and technical aid accounting for less than 60 million was announced, while the rest was almost exclusively used for military purposes. Thus, military aid - about 190 million dollars a year, - is more than treble the economic aid and makes up 40 per cent of the total aid. This figure is approximately the same as estimated by Senator A.J. Allender in a censured report on the scale of American involvement in the war in Laos (W. Jan. 22, 1970). It is necessary to note that what is described as "economic and tech-nical" is also been used for secret activities of a military character. On June 7, 1970, J.A. Hanna, Director of the U.S. Agency for International Development, disclosed that the U.S.
+
+aid program also covers the Chinese activities in Laos. At present, according to a statement of Senator M. Mansfield on September 21, 1969, U.S. aid in Laos had exceeded 700 million dollars a year and continued to increase.
+
+Obviously, the Nixon administration is squandering in Laos more and more money of the American people, while serious social problems in the United States are yet unsettled, because enormous sums are being spent for unjust wars in Laos and in Indochina as a whole.
+
+On March 6, 1970, Nixon said there were 643 advisers and military personnel out of the 1,040 Americans operating in Laos and denied the presence of any U.S. combat troops in Laos. That is not true. Compared with the 5,000 U.S. military personnel in Laos under the Johnson administration, the figure rose to 12,000 U.S. military personnel, with or without military uniform in the first period of the

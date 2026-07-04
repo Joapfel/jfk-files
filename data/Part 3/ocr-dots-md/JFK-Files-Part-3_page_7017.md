@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_7017.png
+
+Convert to MarkdownAT 157-257
+
+CARL and ANNE BRADEN
+
+Mrs. ALBERTA AHEARN, 2311 Payne Street, Louisville, Kentucky, a self-admitted former member of the Communist Party (CP), Louisville, Kentucky, in testifying on December 11 and 13, 1954, in Jefferson County, Kentucky. Criminal Court, in a state sedition prosecution against CARL JAMES BRADEN, identified BRADEN and his wife, ANNE BRADEN, as having been known to her as members of the CP, Louisville, Kentucky, from January, 1951, to shortly prior to the time of her testimony.
+
+The Courier-Journal, Louisville, Kentucky, a newspaper of general circulation, on February 3, 1959, reported that CARL BRADEN had been sentenced to one year in prison on a charge of contempt of Congress on February 2, 1959, in Atlanta, Georgia. The story noted that he had been convicted under this charge on January 21, 1959, and that the charge arose from his refusal to answer questions before the House Committee on Un-American Activities.
+
+The Louisville Times, Louisville, Kentucky, a newspaper of general circulation, on February 27, 1961, reported that the United States Supreme Court had, on that date, affirmed the contempt of Congress conviction of BRADEN.
+
+The Courier-Journal on May 2, 1961, reported that CARL BRADEN had surrendered to the United States Marshal at Atlanta, Georgia, on May 1, 1961, to begin serving a one-year prison sentence for contempt of Congress.
+
+The Courier-Journal, on February 2, 1962, reported that CARL BRADEN had been released from the Federal Prison Camp at Allenwood, Pennsylvania; on February 1, 1962. BRADEN indicated that he would return to his home, Louisville, Kentucky.
+
+On August 30, 1963, a confidential source advised that CARL BRADEN and his wife, ANNE BRADEN, continue to reside at 4403 Virginia Avenue and are still employed as Field Secretaries for the Southern Conference Educational Fund, Inc. (SCEF).

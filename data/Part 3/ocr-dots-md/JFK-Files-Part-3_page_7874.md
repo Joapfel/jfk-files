@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_7874.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+Cabinet 4 Drawer 1
+
+Folder __________ File X (check one)
+
+First Communication Dated 11/16/40
+Last Communication Dated 3/15/45
+Approximate Pages 628
+
+Derogatory Information: Yes X No ________ (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Investigative
+
+Ticklers Only ________
+Originals Only X Both ________
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+IS and ESP - G investigation on [microfiche] with whom [microfiche] had a romance in Washington, D. C., and Charleston, South Carolina; from January, 1942 - June, 1942 per file. Investigation closed 1945 as no subversive activities were determined.
+
+No dissemination was made of [microfiche] "romance" information.

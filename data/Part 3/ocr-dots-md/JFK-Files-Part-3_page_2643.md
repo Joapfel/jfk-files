@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_2643.png
+
+Convert to Markdown2487
+
+1 crime, investigations of conspiracies to commit crime rather than to leave this very difficult to define and control area of political ideas?
+2
+3
+4 Mr. Kelley. I don't know whether I understand your last statement of involving the area of political ideas. I say that I feel that certainly we should be vested and should continue in the field of criminal investigations as an investigatory objective. These are conclusions, of course, which are based on statutes in the so-called security field, national or foreign.
+6
+7
+8
+9
+10
+11 These are criminal violations. I feel that they should be in tandem. I feel, having worked many years in this atmosphere, that you have more ears and eyes and you have more personnel working together, covering the same fields. I do not think there should be a separation of the intelligence matters, because it is a concomitant. It naturally flows from the investigation of the security matters and the criminal.
+12
+13
+14
+15
+16
+17
+18 Senator Mondale. Mr. Kelley, what Mr. Stone said was this, that the Bureau of investigation is not concerned with political or other opinions of individuals. It is concerned only with such conduct as is forbidden by the laws of the United States. When the police system goes beyond these limits, it is dangerous to proper administration of justice and human liberty.
+19
+20
+21
+22
+23
+24
+25
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 88608 DocId:32989820 Page 48

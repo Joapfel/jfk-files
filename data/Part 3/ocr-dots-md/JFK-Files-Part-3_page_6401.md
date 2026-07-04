@@ -1,0 +1,123 @@
+# JFK-Files-Part-3_page_6401.png
+
+Convert to MarkdownSECRET
+
+NATIONAL SECURITY INFORMATION
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+The Attorney General
+
+ST-116
+
+Director, FFI: 57-6-133
+
+REQUEST FROM SENATOR JON MONEY
+CONCERNING CURRENT RACIAL AGITATION
+
+July 17, 1963
+
+1 - Mr. Belmont
+
+1 - Mr. Mohr
+
+1 - Mr. DeLoach
+
+1 - Mr. Evans
+
+1 - Mr. Sullivan
+
+1 - Mr. M.A.Jones
+
+1 - Mr. Baumgardner
+
+1 - Mr. Bland
+
+1 - Section tickler
+
+1 - Mr. Garner
+
+# m0r16
+
+DECLASSIFIED BY SPJALM/2JG
+ON 11-8-63
+
+For your information, there is enclosed a copy of a letter dated July 12, 1963, received from Senator A. J. Mcaleer Monroney which is self-explanatory. I have advised senator Monroney by letter of this date that, in line with Departmental policy, I am referring his letter to you.
+
+In substance, the Communist Party, USA (CPUSA) is not able to assure a role of leadership in the racial arrest at this time. However, the party is utilizing to exploit the current racial situation through propaganda and participation in demonstrations and other activities wherever possible. Through these tactics, the party hopes ultimately to progress from its current supporting role to a position of influence as leader.
+
+Much of the CPUS's hope to play a more decisive role is limited with Stanley Levison's role as an advisor to Martin Luther King. Party officials regard Levison, a secret member of the CPUSA, as being engaged in the most important work in the party today because of his association with King. Levison has reported that King is a wholehearted merchant who has studied it (Levison), believes in it, agrees with it, but because of his being a minister of religion, would not be exposed to publicly. Levison is reputed to have written the speech which King delivered at the convention of the American Labor Congress of Labor-Congress of Labor Organization (ALLC) in Florida in December, 1963.
+
+When King indicated in June, 1962, that he wanted another administrator, Levison recommended handler Pitts U'Vell, who had been to the National Committee on the CPUSA in December, 1961, under the pseudonym of Coran离 Janus. As adopted Levison's suggestion and employs U. M. in all organizations, the Southern Christian Leadership Conference (SCLC). identified U'Vell as a co-founder in 1963, 1964. King announced that U'll would be associated with the Civil Rights Act from the PULC. However, U'Vell continues to associate with King to this day.
+
+B
+
+**NOTE:** See memorandum, Smith to Sullivan, 7/17/63, RSG:JMS/aab:jdd, re: SENATOR A.S.
+**DIRECTOR'S VIEWS RE**
+**CRH** MIKE MONRONEY, REQUEST FOR CURRENT RACIAL AGITATION.
+**NOTES**
+
+READ - 12/28/63
+REPRODUCIBLE
+CLASSIFICATION NOS
+SEE NOTE ON PAGE THREE RE
+CLASSIFICATION
+
+<table>
+   <tr>
+    <td>Tolson</td>
+   </tr>
+   <tr>
+    <td>Belton</td>
+   </tr>
+   <tr>
+    <td>Mohr</td>
+   </tr>
+   <tr>
+    <td>Satler</td>
+   </tr>
+   <tr>
+    <td>Callahan</td>
+   </tr>
+   <tr>
+    <td>Conrad</td>
+   </tr>
+   <tr>
+    <td>DeLoach</td>
+   </tr>
+   <tr>
+    <td>Evans</td>
+   </tr>
+   <tr>
+    <td>Gale</td>
+   </tr>
+   <tr>
+    <td>Rosen</td>
+   </tr>
+   <tr>
+    <td>Sullivan</td>
+   </tr>
+   <tr>
+    <td>Tavel</td>
+   </tr>
+   <tr>
+    <td>Trotter</td>
+   </tr>
+   <tr>
+    <td>Tele. Room</td>
+   </tr>
+   <tr>
+    <td>Holmes</td>
+   </tr>
+   <tr>
+    <td>Gandy</td>
+   </tr>
+  </table>
+
+RSG:JMS/jdd:aab
+
+(15)
+
+2 AUG 63
+
+TELEPHONE 7-17-

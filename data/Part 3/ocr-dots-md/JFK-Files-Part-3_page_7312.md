@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7312.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE
+TO CONDUCT AN INVESTIGATION AND STUDY OF
+GOVERNMENTAL OPERATIONS WITH RESPECT TO
+INTELLIGENCE ACTIVITIES
+
+NOTE:
+
+See memorandum W. Q. Cregar to Mr. W. R. Wannall,
+1/28/75, prepared by WOC/cbc, captioned as above.

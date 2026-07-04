@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_2199.png
+
+Convert to MarkdownSTANDARD FORM NO. 64
+
+# Office Memum • UNITED STATES GOVERNMENT
+
+TO : Mr. A. H. Belmont
+
+FROM : Mr. V. P. Keay
+
+SUBJECT: "TRUTH SERUM" DEVELOPED BY
+U. S. NAVY
+
+DATE: August 4, 1950
+
+Tolson ____
+Ladd ____
+Clegg ____
+Gleavin ____
+Nichols ____
+Rosen ____
+Tracy ____
+Harbo ____
+Mehr ____
+Tele. Room ____
+Neaho ____
+Candy ____
+
+Mr. Alberti, ONI, has contacted Liaison relative to a conference between Naval Medical Research men and FBI representatives in order to discuss the usage of truth serum in Intelligence circles. **indicated the Navy had made considerable advances in developing a new drug which he felt could be utilized to a great advantage in the questioning of espionage suspects. He added the Navy was willing to turn such information over to the FBI and that the Navy would also appreciate any knowledge possessed by the Bureau with respect to our advancement in this field.**
+
+RECOMMENDATION:
+
+It is suggested this memorandum be forwarded to the FBI Laboratory for consideration. The Liaison Section should be advised of any decision in this matter so that can be in turn advised accordingly.
+
+CDD:ilw
+
+RECORDED - 14
+
+RECORDED 6-22 75
+
+FEBRUARY 14 1950
+
+5th
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+MDA 16
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/3/00 BY SPA 1AM/ELC
+
+NW 88608 DocId:32989570 Page 34

@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_4294.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+(RI) 157-17393 May 28, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [RONALD LEE JACKSON]
+
+Reference is made to your letter dated May 6,
+1969, concerning the Omnibus Crime Control and Safe Streets
+Act of 1968.
+
+[ Ronald Lea Jackson ] is an active member of the
+black extremist Student National Coordinating Committee
+(SNCC) which organization advocates the use of violence to
+achieve its goal of black liberation. [ Jackson ] serves as
+editor of SNCC's revolutionary publication, has numerous
+contacts among black extremists and has reportedly prepared
+instructional tapes concerning the waging of guerrilla warfare.
+
+In connection with our efforts to effect a solution
+of the case involving the murders of two police officers in
+New York City on May 21, 1971, it is felt a telephone
+surveillance at [ Jackson's ] residence could be of assistance
+in identifying the unknown black assailants. It is possible
+that conversations of [ Jackson ] and other leading SNCC officials
+would be intercepted by a telephone surveillance at [ Jackson's ]
+residence and it is possible that any of these individuals
+may become the subject of either local or Federal criminal
+violations. The existing live informant coverage of [ Jackson ]
+and the SNCC organization is limited and it is felt these
+informants are not in a position to develop the necessary
+data regarding these murders.
+
+NATIONAL SECURITY INFORMATION
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+SECRET
+Group 1
+Excluded from automatic declassification
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.

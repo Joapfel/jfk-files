@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_22.png
+
+Convert to MarkdownThe system for supplying current intelligence to JMX
+
+Johnson
+President/was now working better than ~~as~~ previously. Under John-Johnson's
+OCI was fairly confident that the President was reading the PDB regularly.
+
+To be sure,
+~~it should be clear from the Presidential~~
+that the Presidential OCI did not benefit from the steady playback/it
+under
+~~usually, had enjoyed from John Kennedy, It did not, in fact, receive the direct~~
+reactions of the men Moyers and Valenti who were closest to Mr. Johnson.
+On the other hand, Walter-Oci was fairly confident that the President
+was reading the PDB regularly, and the writers on the PDB team received
+useful suggestions, criticisms, and reactions--usually from Bromley Smith--
+when they delivered the publication each day.

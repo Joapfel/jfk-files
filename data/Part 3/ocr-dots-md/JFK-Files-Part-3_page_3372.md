@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_3372.png
+
+Convert to MarkdownAttorney General Edward H. Levi
+
+Page three
+
+December 18, 1975
+
+Dr. Martin Luther King in 1963 through 1968, and for the investigation of the Women's Liberation Movement for the years that that organization was under investigation, and the annual reports available on the investigations about which materials were supplied pursuant to John Elliff's request of October 28.
+
+5. Please provide specific examples of cases where the FBI has taken action in the past similar to that which would be authorized by Section IV on "preventive action" of the draft Department of Justice's guidelines on "domestic security investigations."
+
+6. Access to all FBI materials pertaining to Dr. Martin Luther King, Jr., the Poor People's Campaign, and the Sanitation Workers Strike in Memphis, Tennessee, from January 1 through April 4, 1968.
+
+7. All materials pertaining to "Project Overshoe."
+
+Thank you for your prompt consideration of this request. We look forward to continuing cooperation on this area of joint concern.
+
+NW-88614 DocId:32989602 Page 143
+
+SENTENCE X IS CORRECT FOR THE NEXT PAGE. END OF SENTENCE.

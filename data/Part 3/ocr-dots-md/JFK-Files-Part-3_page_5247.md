@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_5247.png
+
+Convert to MarkdownSAC ROBERT E. GEBHARDT:
+
+The USA advised this office by letter dated 7/16/69 that the FBI should no longer present minor theft cases to the USA's office and that these cases should be deferred to local courts. The office has followed the policy set down by the USA and has utilized his guideline of $100 as a minor case. In view of his policy, the office has not been receiving minor theft cases, as the local business community has been made aware of the policy of the USA and has not been referring minor cases to the office.
+
+Occasionally some minor case is received from someone not aware of the policy of the USA's office in not prosecuting cases having a value of less than $100. In the future when a complaint is received regarding a minor theft, the case will be immediately presented to the USA and after his declination, the office will advise the complainant and the USA's office in writing and where appropriate, refer the complaint to the local law enforcement agency having jurisdiction over the violation. This procedure will be in line with the requirements in the Manual of Inspection, Section 94.

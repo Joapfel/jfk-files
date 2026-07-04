@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_5438.png
+
+Convert to Markdownnot going to read them, and I certainly do not sponsor any move
+to revive anything such as may have once existed.
+
+**QUESTION:** Those files will remain? Rumors, gossips--gossip, whatever is in it?
+
+**MR. KELLEY:** Yes sir.
+
+**QUESTION:** You said that you don't question the motives of people who come in to give you information. Do you ever check out the information that was given to you about the people?
+
+**MR. KELLEY:** If it is within our jurisdiction and makes allegations which may mount into a violation, yes, we check them out. But a mere allegation that so and so is a sex deviate or that he is going around conducting himself other than in a gentlemanly manner and so forth, no, we do not just on the bare gossip stage check that out.
+
+**QUESTION:** But, nevertheless, that remains in file. You don't check that out, that remains in the person's file unevaluated and raw.
+Is that correct?
+
+**MR. KELLEY:** That's right. Now the implication is that you should possibly clear the man. In so doing you would, of course, be violating your charter which is that you do not investigate matters of this type. You might also by virture of this give it some degree of
+
+- 25 -

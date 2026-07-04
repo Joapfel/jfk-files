@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_5825.png
+
+Convert to MarkdownLA 157-2325
+
+* LA T-3
+Orally to SA CHARLES K. JOHNSON
+on 3/29/69
+
+134-1210A-563
+-599
+
+* LA T-4
+157-2325-16
+
+* LA T-5
+134-2004A-582
+
+* LA T-6
+134-1605A-621
+
+* LA T-7
+Orally to SA DAVID R. PENDER
+on 12/4/68
+
+134-107A-732 through 740
+
+* LA T-8
+134-262A-766 through 804
+
+* LA T-9
+134-195A-985 through 1020
+
+* LA T-10
+Orally to SA THEODORE J. A'HEARN
+on 7/23/68
+
+134-2702A-618
+
+* LA T-11
+134-37A-915 through 1003
+
+* LA T-12
+134-66A-1544 through 1546
+
+INFORMANT
+SYMBOL NUMBERS
+
+-D-
+COVER PAGE

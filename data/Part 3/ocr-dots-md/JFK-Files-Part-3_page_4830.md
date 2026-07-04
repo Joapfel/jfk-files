@@ -1,0 +1,46 @@
+# JFK-Files-Part-3_page_4830.png
+
+Convert to MarkdownSECRET
+
+8. Determine subscriber to telephone number 735-1855.
+Conduct credit, criminal and indices checks.
+
+9. Same as to telephone number 735-6614.
+
+10. Conduct credit, criminal and indices checks on LES CRAWFORD who was contacted at telephone number 734-7110.
+
+11. Same as to J. SARNEAU contacted at 735-8586.
+
+12. Same as to CARL COHEN contacted at 735-9111.
+
+13. Same as to JERRY ZAROWITZ contacted at 734-7110.
+
+14. Same as to a Miss EYRA contacted at 735-0330.
+
+15. Same as to JACKIE HELLER contacted at 735-9111.
+
+16. Same as to GIL COLEMAN contacted at 735-1122.
+
+17. Same as to ERWIN HARRIS contacted at 734-7110.
+
+18. Same as to (FNU) HUGO contacted at 736-0380.
+
+19. Same as to TERRY DEUTSCH contacted at 735-0830.
+
+20. Determine subscriber to telephone number 735-7317. Conduct credit, criminal and indices checks.
+
+21. Same as to telephone number 382-3657.
+
+LOS ANGELES
+
+At Los Angeles, California:
+
+1. Determine subscriber to telephone number OL 3-9610.
+Conduct credit, criminal and indices checks.
+
+2. Same as to telephone number OL 6-2055.
+
+- E -
+COVER PAGE -
+
+SECRET

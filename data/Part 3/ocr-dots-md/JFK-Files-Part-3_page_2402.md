@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_2402.png
+
+Convert to Markdownfrom the United States were in attendance at this conference. Discussion centered on such subjects as how to wage a campaign against war and for social change throughout the world, how to deal with the Okinawa issue and the United States - Japan. Security Pact, how to assist United States deserters and draft evaders and how to coordinate antiwar movements around the world.
+
+## 6. International Assembly
+
+Columbia University was the site of an International Assembly held in September, 1968. This Assembly was sponsored by the Columbia-University chapter of SDS and representatives from many foreign countries were in attendance. Much of the activity of the Assembly centered around revolutionary tactics to be employed by students.
+
+## 7. Budapest Conference
+
+A group of 20 American-antiwar activists including SDS members traveled to Budapest, Hungary, in September, 1968, to meet with representatives of North Vietnam and the National Liberation Front. Nine of the group from the United States had taken part in the demonstrations at the Democratic National Convention in Chicago a few weeks before this trip. The meetings were arranged by David Dellinger and centered on the Paris Peace Talks, on prospects for further student unrest in the United States and on furthering unrest among American servicemen.
+
+## 8. Hemispheric Conference to End the War in Vietnam
+
+From November 28 to December 1, 1968, the Hemispheric Conference to End the War in Vietnam was held in Montreal, Canada, hosted by the Communist Party of Canada. It was attended by approximately 1,700 delegates and observers, including a 5-man delegation from North Vietnam, headed by Hoang Minh Giam, Minister of Culture, and a 2-man delegation from the National Liberation Front of South Vietnam. Others in attendance included extremists, communists, pacifists and student radicals from North and South America.
+
+The approximately 25 BPP members in attendance, with the aid of white radicals, took over control of the conference following a series of rights and scuffles. Together with other extremists they attacked the "solidarity" with the
+
+TOP SECRET
+
+TOM SCOUT
+
+16
+
+NW 88608 DocId:32989618 Page 82

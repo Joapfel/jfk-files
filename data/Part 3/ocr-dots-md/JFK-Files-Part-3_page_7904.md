@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_7904.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+D: __________
+
+Aides Initial:
+
+Cabinet _6_ Drawer _1_
+
+Folder X File (check one)
+
+First Communication Dated 12/28/62
+Last Communication Dated 12/13/66
+Approximate Pages 1,000 (4 inches thick)
+Derogatory Information: Yes No X (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Investigative Ticklers Only __________ Originals Only __________ Both X __________
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+2 volumes of FBI internal memoranda, memoranda to the Attorney General, memoranda recording conversations with the White House, press clippings, Department of Justice legal briefs and memoranda regarding the question of authority for use of a microphone in connection with the investigation of [redacted] Primarily Xerox copies of original material filed in the general files although a few original internal memoranda are contained in the folders.

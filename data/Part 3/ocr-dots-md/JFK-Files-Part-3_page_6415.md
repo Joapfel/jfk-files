@@ -1,0 +1,78 @@
+# JFK-Files-Part-3_page_6415.png
+
+Convert to MarkdownThe Attorney General
+
+November 2, 1962
+
+Director, FBI
+
+HUNTER PITTS O'DELL
+EDITORIAL FROM OCTOBER 25, 1962,
+ISSUE OF AUGUSTA CHRONICLE
+AUGUSTA, GEORGIA
+
+I thought you would be interested in the enclosed editorial relating to O'Dell's relationship with the Southern Christian Leadership Conference.
+
+Enclosure
+
+1 - The Deputy Attorney General - Enclosure
+
+1 - Mr. Evans - Enclosure
+
+1 - Mr. Belmont - Enclosure
+
+1 - Mr. Sullivan - Enclosure
+
+1 - Mr. DeLoach - Enclosure
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 11/8/62 BY SP-ALMFTS
+
+NOTE: O'Dell was elected under the pseudonym Cornelius James to the National Committee of the Communist Party, USA, in December, 1959. "Since his association with the National Committee is set forth in the editorial, he is not being further characterized in this memorandum.
+
+JH:mlw
+
+(10)
+
+NOV. 8. 1962
+
+<table><tr><td>MAILED 19</td></tr><tr><td>NOV 2 1962</td></tr><tr><td>COMMITTEE</td></tr></table>
+
+Tolson
+
+Belmont
+
+Mohr
+
+Casper
+
+Callahan
+
+Conrad
+
+DeLoach
+
+Evans
+
+Gale
+
+Rosen
+
+Sullivan
+
+Tavel
+
+Trotter
+
+Tele. Room
+
+Holmes
+
+Gandy
+
+MAIL ROOM ☐
+
+NEW TYPE UNIT ☐
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+NW 88614 DocId:32989673 Page 146

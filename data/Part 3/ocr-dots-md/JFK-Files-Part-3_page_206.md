@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_206.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+The Indianapolis Division determined in late
+1969 that the Indianapolis Black Panther Party (BPP)
+Chapter owed the Indiana Bell Telephone Company for
+several months of telephone service.
+
+Unknown representative of the Indiana Bell
+Telephone Company was encouraged to remove the telephone
+service from BPP headquarters. Telephone service was
+cut off at the BPP office on or about September 15, 1969.
+
+PEN:tdp (9)
+100-448006-1116, 1271, 1310
+
+SECRET
+100

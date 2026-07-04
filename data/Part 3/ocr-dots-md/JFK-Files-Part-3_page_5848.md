@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_5848.png
+
+Convert to MarkdownFD-370 (Rev. 8-1-66)
+
+SECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No.
+
+WASHINGTON, D.C. 20535
+
+May 24, 1968
+
+Director
+United States Secret Service
+Department of the Treasury
+Washington, D. C. 20220
+
+Dear Sir:
+
+The information furnished herewith concerns an individual who is believed to be covered by the agreement between the FBI and Secret Service concerning Presidential protection, and to fall within the category or categories checked.
+
+1. ☐ Has attempted or threatened bodily harm to any government official or employee, including foreign government officials residing in or planning an imminent visit to the U. S., because of his official status.
+
+2. ☐ Has attempted or threatened to redress a grievance against any public official by other than legal means.
+
+3. ☐ Because of background is potentially dangerous; or has been identified as member or participant in communist movement; or has been under active investigation as member of other group or organization inimical to U. S.
+
+4. ☐ U. S. citizens or residents who defect from the U. S. to countries in the Soviet or Chinese Communist blocs and return.
+
+5. ☑ Subversives, ultrarightists, racists and fascists who meet one or more of the following criteria:
+
+(a) ☐ Evidence of emotional instability (including unstable residence and employment record) or irrational or suicidal behavior:
+
+(b) ☐ Expressions of strong or violent anti-U. S. sentiment;
+
+(c) ☑ Prior acts (including arrests or convictions) or conduct or statements indicating a propensity for violence and antipathy toward good order and government.
+
+6. ☐ Individuals involved in illegal bombing or illegal bomb-making.
+
+Photograph ☐ has been furnished ☐ enclosed ☐ is not available
+[X] may be available through FBI, Atlanta
+
+1 - Special Agent in Charge (Enclosure(s)
+U. S. Secret Service, Atlanta, Georgia
+(Registered Mail)
+
+Enclosure(s)
+
+(Upon removal of classified enclosures, if any, this transmittal form becomes UNCLASSIFIED.)
+
+NW 88614 DocId:32989673 Page 345

@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7056.png
+
+Convert to Markdownagency. These "fondling" files may have specific limitations placed upon them by the agencies concerned. Where such search limitations are determined, they should be consistent with the agreements contained in the DCI letter to Senator Church or with ground rules agreed among responsible agencies or with the Select Committees. The Ad Hoc Coordinating Group provides one forum for such determinations where interagency discussions are useful.
+
+A fourth type of material for numerous reasons will not be available to Select Committee Staff in its raw form, e.g., memoranda to or from the President, especially sensitive matters where Executive Branch prerogatives are involved. This material can be used to prepare briefs or provide briefings to Select Committee Staff or members bur specific documentations normally will not be provided. If such briefs or briefings do not satisfy the Select Committees, negotiations will be undertaken with the Committees. The DCI should be kept advised in all such instances. Normally, if after negotiations there is provision of raw data, such data will be hand-carried to the Committees and read by the Committee or Staff members in the presence of an authorized representative of the originating agency as in c. above. This shall be made a matter of record by memorandum of the originating agency to the DCI and recorded in the IC registry along with the ground rules negotiated with the committees and the agencies in their negotiations. These ground rules will normally be an agenda item on the Ad Hoc Coordinating Group agenda.
+
+2. Testimony given in informal interview with Select Committee Staff will be recorded normally in a memorandum of record and filed in the agency concerned. Employees not wishing to report such testimony are free from doing so. Notification will be given to the IC central index of the existence of the file, its location and access rules. To the degree possible, the registry will cross-reference all materials provided the Committees and will prepare current reports on such materials.
+
+D. LEGAL SUPPORT AND QUALITY CONTROLS
+
+1. The Intelligence Community Staff has several lawyers who will be assigned to provide support to legal matters relating to this inquiry. The leader of this group will be expected to have regular consultation with the

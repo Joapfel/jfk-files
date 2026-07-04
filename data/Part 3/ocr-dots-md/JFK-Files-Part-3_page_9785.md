@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_9785.png
+
+Convert to Markdown# Memorandum J. A. Mintz to Mr. Dalbey
+
+RE: FBI JURISDICTION; CRIMINAL INTELLIGENCE INFORMATION
+
+not to label criminal intelligence as necessarily the product of malpractice, but to recognize the paramount nature of the Constitutional interests being safeguarded. Other incidents of government regulatory authority have been required to yield as well when confronted with legitimate claims of Constitutional protection, e.g. the administrative search cases, Camara v. Municipal Court, 387 U.S. 523 (1967).
+
+Overt and obtrusive conduct susceptible of being characterized as harassment may well be enjoined as, for example, was the case of an obvious 24-hour-a-day physical surveillance of an individual, his home, relatives, friends, and associates (Giancana v. Johnson, 335 F2d 366 (7th Cir. 1964) cert. den. 379 U.S. 1001. Similar results might be expected where an identified officer loiters in the subject's place of business (Bee See Books, Inc. v. Leary, 291 F. Supp. 622 (SD N.Y. 1968) or openly attends organizational meetings where his presence inhibits communication and the transaction of the business of the assembly (Local 309, United Furniture Workers v. Gates, 75 F. Supp. 620 (ND Ind. 1948)). However, open photographic surveillance of public gatherings (Donahoe v. Duling, 330 F. Supp. 308 (ED Va. 1971)) and secret monitoring of criminal activities through the use of undercover agents (Lewis v. United States, 385 U.S. 206 (1966)) and informants (Hoffa v. United States, 385 U.S. 295 (1966)) have met with judicial approval.
+
+Obviously, criminal intelligence information gained by unreasonable search and seizure or through compelled self-incrimination is tainted and subject to judicial condemnation upon complaint of one having the requisite standing.
+
+Perhaps, the decision coming nearest to discussing the legality of criminal intelligence collection was Anderson v. Sills, 106 N.J. Super. 545, 256 A2d 298 (1969), (reversed on the ground more complete record was needed to support the decision) 56 N.J. 210, 265 A2d 678 (1970). New Jersey had responded to the threat of continuing civil disorders by collecting intelligence information on persons and events alleged to have some relationship to such activities. The trial court held the collection effort to be unconstitutional because it conflicted with the First Amendment.

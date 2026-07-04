@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_8105.png
+
+Convert to Markdown20. The current office assignment or last known address of Al or Alan Miller who, in 1964, was employed at the Atlanta, Georgia office of the FBI.
+
+21. With respect to each occasion on which the Director of the FBI testified before the House Appropriations Committee from 1965 until the present, please provide the number of warrantless electronic surveillances in operation:
+
+(a) on the date of such testimony;
+
+(b) thirty days prior to such testimony; and
+
+(c) thirty days subsequent to such testimony.

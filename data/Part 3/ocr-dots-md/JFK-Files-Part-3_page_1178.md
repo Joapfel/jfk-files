@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_1178.png
+
+Convert to MarkdownF.D. (ov. 5-22-64)
+
+FBI
+
+Date: 8/6/75
+
+Transmit the following in
+(Type in plaintext or code)
+Via AIRTEL
+(Priority)
+
+TO : DIRECTOR, FBI
+
+FROM : SAC, SAN DIEGO (66-1714) (C)
+
+SUBJECT: U.S. SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FORMER SPECIAL AGENT ROBERT S. BAKER BY SSC STAFF MEMBER
+
+Re Bureau teletypes 7/30/75 and 7/31/75.
+
+Enclosed for the Bureau are eight copies of an LHM reflecting the interview of former SA ROBERT S. BAKER by SSC Staff Member LESTER SEIDEL.
+
+The information in the enclosed LHM was voluntarily furnished to SA EARL M. PETERSEN by former SA BAKER.
+
+<table><tr><td>REC-56</td></tr><tr><td>EX 104</td></tr></table>
+
+EMP:sp
+(3)
+
+Approved:
+Sent
+M
+Per
+
+Special Agent in Charge
+
+U.S.Government Printing Office: 1972 - 455-574
+
+NW 88608 DocId:32989640 Page 217

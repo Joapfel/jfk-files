@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_7906.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+BOMBING AT U. S. CAPITOL
+
+Cabinet 6 Drawer 1
+Folder X File (check one)
+First Communication Dated 3/1/71
+Last Communication Dated 3/29/71
+Approximate Pages 25
+
+Derogatory Information: Yes No X (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Investigative
+
+Ticklers Only ______ Originals Only X Both ______
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+FBI internal memoranda and letters to the House of Representatives, the Senate, [REDACTED], at the White House, and the Attorney General re FBI's recommendations for improved security measures at the Capitol.

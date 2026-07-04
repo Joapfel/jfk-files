@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7068.png
+
+Convert to Markdown# DIRECTIVE OF THE PRESIDENT OF THE UNITED STATES
+
+DECEMBER 15, 1953:
+
+"On September 6, 1939, January 8, 1943, and July 24, 1950, Presidential Directives were issued requesting all enforcement officers, both Federal and State, to report promptly all information relating to espionage, sabotage, subversive activities and related matters to the nearest field representative of the Federal Bureau of Investigation.
+
+"The Federal Bureau of Investigation is charged with investigating all violations of the Atomic Energy Act, including the illegal export or import of fissionable material, the illegal possession or transportation of fissionable material and the illegal production, transfer, or possession of any equipment or device utilising fissionable material or atomic energy as a military weapon. 'Fissionable material' means plutonium, uranium-235 or other material which the Atomic Energy Commission has determined to be capable of releasing substantial quantities of energy through nuclear chain reaction. I am requesting that all enforcement officers, both Federal and State, report all information relating to violations of the Atomic Energy Act to the nearest field representative of the Federal Bureau of Investigation.
+
+"I suggest that all patriotic organizations and individuals likewise report all such information to the Federal Bureau of Investigation in the same manner."

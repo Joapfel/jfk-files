@@ -1,0 +1,66 @@
+# JFK-Files-Part-3_page_3966.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+1 - Mr. Mintz - Encs. (2)
+1 - Mr. Adams - Encs. (2)
+1 - Mr. Bassett - Encs. (2)
+
+DATE: 12/5/75
+1 - Mr. Wannall - Encs. (2)
+1 - Mr. Cregar - Encs. (2)
+1 - Mr. Hotis - Encs. (2)
+1 - Mr. Daly - Encs. (2)
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Legal Coun. ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Telephone Rm. ____
+Director Sec'y ____
+
+MDR-16
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/31/76 BY SPACEMAN
+
+On 12/4/75, a meeting was held with the following representatives of captioned Committee: Chief Counsel F.A.O. Schwartz; Assistant Counsel Paul Michel; Staff Member Mark Gitenstein; Staff Director of the Domestic Task Force John T. Elliff; and Staff Member John Bayley. Representing the Bureau at this meeting were Deputy Associate Director James B. Adams, Assistant Director John A. Mintz, Inspector John B. Hotis, and SA Paul V. Daly.
+
+The meeting discussed the forthcoming testimony on 12/9/75 of the Director before that Committee and Elliff furnished the Bureau two draft papers discussing the Bureau's investigative jurisdiction and issues the Committee Staff feels the Senate Select Committee must address from a legislative standpoint. Copies of these papers are attached.
+
+The first paper which consists of six pages discusses in Part I what the Committee sees as problems arising out of the FBI's domestic intelligence investigations. This portion highlights the fact that these investigations may be overbroad in scope, collect irrelevant information, and continue the investigations beyond what the Committee sees as their normal investigative conclusion. This portion also addresses the investigative techniques used during these investigations and the resultant dissemination of information collected.
+
+Under Part II, the document discusses options available to the Committee. These options run the gamut from abolition of the Bureau's domestic intelligence functions to administrative oversight by the Attorney General or Congressional oversight or enacting legislation providing for domestic intelligence investigations with legislative limits imposed on such investigations. Included is the consideration of creating an independent Inspector General.
+
+Enclosures (2)
+
+PVD lad (9)
+
+7 JAN 22 1976
+
+CONTINUED - OVER
+
+8 4 MAR 1976
+
+NW 8861A-DocId:32989602 Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan Page 2

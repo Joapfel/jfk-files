@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_6395.png
+
+, Wyatt Tee Walker, to an article appearing in the Atlanta "Constitution" on August 16, 1963, regarding King's association with O'Dell. Walker told King that the article referred to a letter written by Georgia Attorney General Cook in which Cook stated that O'Dell is a known communist and in which Cook demanded an explanation from King as to why O'Dell was placed on King's staff.
+
+King instructed Walker to reply to Cook's letter by stating that O'Dell, as of June 26, 1963, was no longer on King's staff. Cook was to be further advised that O'Dell came to him, King, through the Democratic Party of the Bronx, New York, and that King "has nothing to hide."
+
+REC-45
+100-358916 252
+
+Tolson
+Belmont
+Mohr
+Casper
+Callahan
+Conrad
+DeLoach
+Evans
+Gale
+Rosen
+Sullivan
+Tavel
+Trotter
+Tele./Room
+Holmes
+
+NATIONAL SECURITY INFORMATION
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+EBR:erc
+(13)
+
+CONFIDENTIAL
+
+<table><tr><td>GROUP I</td></tr><tr><td>Excluded from automatic downgrading and declassification</td></tr></table>
+
+MAIL ROOM TELEPHONE UNIT ☐
+
+THE following individuals are being temporarily restricted from contacting the media due to national security concerns. This restriction will be lifted as soon as appropriate.
+* Molson
+* Belmont
+* Mohr
+* Casper
+* Callahan
+* Conrad
+* DeLoach
+* Evans
+* Gale
+* Rosen
+* Sullivan
+* Tavel
+* Trotter
+* Tele./Room
+* Holmes
+
+DATE:
+AUG 24 1963
+
+CONTRACT:
+
+THE PERSONNEL ADMINISTRATION OF THE UNITED STATES DEPARTMENT OF LABOR AND THE OFFICE OF MANAGEMENT OF THE PRESIDENT ARE BEING REORDERED TO INCREASE THE NUMBER OF FARMERS, MACHINERY AND EQUIPMENT IN THE UNITED STATES. A PERMANENT NATIONAL DEFENSE COMMITTEE IS BEING FORMED UNDER THE CHARGE OF GOVERNOR RICHMOND GORDON, TO BE COMPRISING THE FOLLOWING PERSONNEL: COMMISSIONER WALTER L. MOORE, SECRETARY JAMES HARRIS, CHIEF CLERK GEORGE W. HILL, AUDITOR GENERAL ROBERT L. BANKS, COMMISSIONER ADALBERT P. DAVIS, COMMISSIONER ELLIOT L. WILLIAMSON, TREASURER CHARLES B. HART, CREDIT COMMISSIONER WALTER H. SHAW, CREDIT AUDITOR GEORGE F. REYNOLDS, SURVEYOR JOSEPH F. DICKENS, SURVEYOR JOHN L. HALE, CORPORATE SECRETARY HARRY L. SMITH, CORPORATE AUDITOR HARRY F. KENDALL, CORPORATE ACCOUNTANT JOHN D. RIGGS, CORPORATE TREASURER C. B. WOOD, CORPORATE CASHIER LLOYD H. HAYNES, CORPORATE ACCOUNTANT E. C. WARD, CORPORATE

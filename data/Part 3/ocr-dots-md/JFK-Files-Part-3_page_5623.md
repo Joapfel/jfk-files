@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_5623.png
+
+Convert to Markdown50. All materials reflecting "comments" and "specific recommendations" submitted by the Atlanta, Chicago, and New York field offices as the result of the instructions contained in the last paragraph of the May 18, 1967 letter from the Director the SAC, New York, captioned "Communist Party, USA, Counterintelligence Program, Internal Security - C (Martin Luther King)."
+
+51. All materials reflecting the product of the "comprehensive review of Levison's Bureau case file" as indicated in the NOTE on the 7/18/66 airtel from the Director to the SAC, New York, captioned "Communist Party, USA, Counterintelligence Program, Internal Security - C (Stanley David Levison)."

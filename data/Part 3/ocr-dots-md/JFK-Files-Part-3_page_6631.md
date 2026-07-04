@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_6631.png
+
+Convert to MarkdownAT 157-257
+
+HARRY BELAFONTE
+
+On October 23, 1958, a confidential source advised that according to JEAN SMITH, Secretary at Communist Party Headquarters, New York, HARRY BELAFONTE had been a member of the Young Communist League (YCL) before coming into prominence as an entertainer.
+
+The YCL has been designated by the U. S. Attorney General pursuant to Executive Order 10450.

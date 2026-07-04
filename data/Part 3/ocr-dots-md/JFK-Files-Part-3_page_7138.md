@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_7138.png
+
+in charge of liaison with
+the Commission and its Staff.
+
+Mr. Knoche, in turn, will advise the employee, that ~~the~~ *NOTIFY*
+purpose of this is in no way to inhibit the work of Staff members.
+It is intended to allow time for the employee to gain general
+legal guidance if he wants it, and to obtain security guidance
+from an appropriate senior officer.
+
+Normally, we think an employee would advise his supervisor
+or other Agency authorities on the nature of the interview. It
+should be understood, however, that this is not mandatory.
+
+In arranging the interviews, I am acutely aware of the need
+to avoid the appearance as well as the fact of collusion between
+Agency and employee. None of us has any intention to fabricate
+or mislead. I am convinced that being forthcoming ~~while perhaps~~
+embarrassing ~~in a few details,~~ will on the whole vindicate the
+Agency and its eminent service to our country.
+
+In keeping with my long-standing policy, employees with
+any knowledge of activities conducted within the United States,
+now or in the past, which they believe to be of a questionable
+nature can follow the customary practice within the Agency of
+calling the matter to my attention or that of the Inspector
+General. This will ensure my ability to continue to be forthcoming
+with all those involved in external reviews of Agency activities.

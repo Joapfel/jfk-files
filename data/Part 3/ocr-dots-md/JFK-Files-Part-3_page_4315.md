@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_4315.png
+
+Convert to MarkdownOFFICE OF THE DIRECTOR
+
+SECRET
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+October 19, 1972
+
+AL FATAH
+
+Over the past several years, Al Fatah, a leading Arab terrorist organization with headquarters in Beirut, Lebanon, has had continuing interest in Black Panther Party (BPP) activities in the United States. Black Panther Party - Cleaver Faction (BPP-CF) leader Eldridge Cleaver, upon meeting with Yasser Arafat, Al Fatah leader, in 1969, vowed full support by the Panthers of Al Fatah activities. BPP-CF leaders from the United States and Algeria have reportedly traveled to the Middle East for indoctrination and tactical guerrilla training. In April, 1972, information was developed indicating that the BPP-CF is planning the recruitment of trainees to travel to Algeria where they would be instructed in sniper tactics. These terrorists would be specifically trained in use of ground fire to attack the Presidential helicopter and would be utilized if the decision is made by BPP-CF leadership to assassinate the President of the United States.
+
+The BPP-CF was originated in February, 1971, following a split between Huey P. Newton and Leroy Eldridge Cleaver, leaders of the violence-oriented BPP. Cleaver is a fugitive from justice living in self-imposed exile in Algiers, Algeria, from which location he controls the International Section of the BPP-CF. Since its inception, the BPP-CF, with national headquarters at 2026 Seventh Avenue, New York City, has advocated increased disruption of and violence against existing order. It strongly
+
+**SECRET**
+
+Classified by Acting Director, FBI
+
+Exempt from General Declassification
+
+Schedule of Executive Order 11652
+
+Exemption Category Number 2
+
+Automatically Declassified on Indefinite
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+
+Subject to Criminal Sanctions

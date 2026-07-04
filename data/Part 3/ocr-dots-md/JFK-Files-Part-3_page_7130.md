@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_7130.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+
+RE: SENSTUDY 75
+
+I have attempted to reconstruct the events in
+my own mind as well as to view other activities that
+transpired during the approximately eight years of my
+liaison assignment. In all honesty I cannot recall any
+case wherein I was requested or instructed to make an
+arrangement with CIA without making a specific record of
+it in Bureau files.
+
+ACTION:
+
+For information and record purposes.

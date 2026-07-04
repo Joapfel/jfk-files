@@ -1,0 +1,64 @@
+# JFK-Files-Part-3_page_2169.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. S. J. Miller
+
+62-116395
+
+January 19, 1976
+
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to the SSC request dated
+January 7, 1976.
+
+On January 7, 1976, copies of the documents
+to be used as exhibits to the public hearings on FBI
+mail openings were delivered to the FBI for review of
+their sanitization in terms of their public release in
+published form.
+
+These documents were reviewed, marked for
+some additional excisions and returned to the SSC on
+January 9, 1976, for whatever use the Committee deems
+appropriate.
+
+1 - The Attorney General
+
+SJM:1hb/lhb
+(8)
+
+ORIGINAL AND ONE COPY TO AG
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+ENCLOSURE
+
+GPO : 1975 O - 569-920
+
+NW 88608 DocId:32989570 Page 4

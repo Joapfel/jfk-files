@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_4508.png
+
+Convert to MarkdownUnited States Department of Justice
+Federal Bureau of Investigation
+
+Pittsburgh, Pennsylvania
+
+July 28, 1961
+
+GABRIEL MANNARINO, Aka.
+ANTI-RACKETEERING
+
+Reference report of Special Agent THOMAS G. FORSYTH III,
+Pittsburgh, dated July 28, 1961.
+
+There follows a descriptive-type characterization for
+those individuals whose identities were concealed in
+referenced report by use of T-symbols:
+
+PG T-1 is a real estate expert and land speculator
+in Westmoreland County, Pa., whose professional
+services have been used on occasion by SAMUEL and
+GABRIEL MANNARINO and their associates.
+
+PG T-2 is a New Kensington, Pa., numbers writer, formerly
+connected with prostitution activities.
+
+PG T-3 is a physician whose professional services have on
+occasions been used by members of the MANNARINO
+organization and who frequents MANNARINO controlled
+gambling and after-hours establishments.
+
+PG T-4 is a Pittsburgh, Pa., man who has acted as a
+consultant to MANNARINO in connection with legitimate
+enterprises.
+
+PG T-5 is a Pittsburgh, Pa., gambler, formerly active in
+Las Vegas, Nevada, and Miami, Florida, who is
+readily accepted into MANNARINO controlled establishments.
+
+PG T-6 is a Pittsburgh, Pa., numbers writer who has had
+acquaintanceship and a few transactions with MANNARINO
+since at least 1950.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+
+DATE 10/15/87 BY SOL BRADLEY
+6-29-94 #211,326 SR 8 MACIKSR (JFK)

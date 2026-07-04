@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_205.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+On October 27, 1966, the Richmond Office sent an anonymous letter to businessmen in Amelia, Virginia, critical of the Ku Klux Klan and its disagreements with the Amelia Dress Company, a new dress manufacturing plant which was having to lay off a small number of employees. Several Klan "throw aways" entitled "The Ku Klux Klan is watching you" had been sent to the plant superintendent and had caused concern in the town that the plant might move away from Amelia.
+
+The anonymous letter sent to the businessmen by the Richmond Office united businessmen against the Klan and subsequently caused disruption within the Klan.
+
+WDF:lek (9)
+157-9-41-57, 72, 81
+
+SECRET
+
+C9

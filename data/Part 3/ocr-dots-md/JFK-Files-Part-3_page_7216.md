@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_7216.png
+
+Convert to MarkdownIntelligence Community might be improved so as to open a new era in American intelligence. In this context, I believe this Committee may want to focus particularly on the role and procedures of intelligence in the future as well as in the past.
+
+First, Mr. Chairman, I believe it essential to clarify for the Congress and the people of America, as well as the personnel in our Intelligence Community, the authorities, the limitations, and the mission of American intelligence. When President Eisenhower assumed full responsibility for sending a U-2 over the Soviet Union, and President Kennedy for the Bay of Pigs, they repudiated in the name of the American people the old concept of intelligence being disowned. I am confident that our people not only support but insist upon an effective intelligence apparatus to protect their security and welfare. I believe, however, that they want the role of intelligence clearly spelled out, they want controls adequate to prevent abuse, and they also want necessary secrecy protected.
+
+In my confirmation hearing, I suggested the word "foreign" be inserted each time the word "intelligence" appears in the charter of the CIA, to make crystal clear its proper function and to end any possible "gray area" in its authority. Legislation was introduced in the last Congress that would do this and would also clarify the proper role of the Agency within the United States. I welcome such clarification of our authority.

@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_7702.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 6-9-75
+
+By memorandum dated 6-4-75 you were advised that
+captioned Committee was preparing what they termed case studies on
+COINTELPROS in four separate areas. The areas defined were Black
+Panther Party in San Francisco, White Knights of the Ku Klux Klan of
+Mississippi, the Professor Morris J. Starsky incident, and the
+Fred Hampton case (Black Panther Party leader in Chicago who was
+killed during a police raid in Chicago, Illinois).
+
+Mr. Lester B. Seidel advised SA Paul V. Daly 6-9-75 that in addition to the aforementioned areas he also wanted to include the Muhammad Kenyatta case in Philadelphia. As an observation, two of the areas cited by Mr. Seidel are areas where the Bureau currently is facing lawsuits, namely, the Hampton and Kenyatta cases, and a third area is one which we could well be involved in a lawsuit, that being the Starsky case. Mr. Seidel indicated the Bureau can expect correspondence from the Committee concerning these matters.
+
+RECOMMENDATION: REC-102
+
+For information.
+
+62-116395
+
+1 - Mr. Wannall
+
+1 - Mr. Mintz
+
+1 - Mr. Cregar
+
+1 - Mr. Hotis
+
+1 - Mr. Daly
+
+1 - Inspector J. T. Kelly
+
+PVD:kjs (8)
+
+84 JULIEST 1975
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+NW 88608.Ltdc:32989609 Page 105

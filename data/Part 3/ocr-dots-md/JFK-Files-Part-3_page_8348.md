@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_8348.png
+
+Convert to MarkdownSEMIT SELECT COMMITTEE ON INTELLIGENCE ACTIVITY (SSC)
+
+RE: INTERVIEW OF FORMER FBI EMPLOYEE BY SSC
+
+permanent Director of the Bureau had been confirmed. Mr. Armstrong advised that to the best of his knowledge the document was not given to the Department of Justice while Mr. Gray and his staff were in the Bureau.
+
+Concerning files that were allegedly maintained in Mr. Hoover's office, Mr. Armstrong stated that shortly after Mr. Gray's arrival in the Bureau he made a statement to the effect that there were no secret files maintained by Mr. Hoover. Mr. Armstrong commented that he doubted the wisdom of making such a broad statement.
+
+Shortly after Mr. Gray's statement was made, information came to Mr. Armstrong's attention which caused him to prepare a memorandum to Mr. Gray indicating the possibility of the existence of files in Mr. Hoover's office. Armstrong could not recall Mr. Gray's response to his memorandum but he believed that the original of the memorandum was returned to him and that he placed the original and the carbon in his desk along with other memoranda that he had prepared for Mr. Gray.
+
+Mr. Armstrong stated that it was his theory that the files in Mr. Hoover's office were in two categories; the first being files containing information possibly detrimental to prominent persons in the Government and the other category being tidbits of information received in personal correspondence from various Special Agents in Charge concerning persons of possible interest to Mr. Hoover.
+
+Mr. Armstrong advised further that at one of his daily conferences, Mr. Gray mentioned that he had talked to former Acting Associate Director Mark Felt concerning files which may have been maintained in Mr. Hoover's office and which he said were then in a safe in the custody of Mr. Felt.

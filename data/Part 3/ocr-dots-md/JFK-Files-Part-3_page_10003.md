@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_10003.png
+
+Convert to Markdown# POSITION
+
+PER CENT OF TIME
+IS      CI
+1 HEADQUARTERS CITY AGENT WORKING    80      .0
+1       "      "      "                20      .40
+1       "      "      "                0       .40
+1       "      "      "                5       .15
+1       "      "      "                20      .0
+1       "      "      "                10      .0
+1       "      "      "                5       .5
+1       "      "      "                5       .5
+1 RESIDENT AGENT                         10      x.0
+1       "      "      "                10      .0
+1       "      "      "                10      x.0
+1       "      "      "                3       .3
+1       "      "      "                6      x.0
+1       "      "      "                0       .6
+1       "      "      "                6      x.0
+1       "      "      "                3      x.0
+1       "      "      "                0      x.2
+
+NWW 88608 DocId:32989628 Page 280

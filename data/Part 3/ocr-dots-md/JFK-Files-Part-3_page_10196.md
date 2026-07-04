@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_10196.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. W. R. WANNALL
+
+FROM : MR. W. O'CREGAR
+
+SUBJECT: SENSTUDY 75
+
+DATE: April 21, 1975
+
+1 - Mr. S. F. Phillips
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+On Thursday, 4/17/75, Mr. James Wilderotter, Associate Counsel to the President for Congressional Inquiries, was furnished the following four documents with a request that he advise whether copies of such documents could be made available to the Senate Select Committee: (1) An internal FBI memorandum dated 5/16/72 captioned "FBI Jurisdiction, Criminal Intelligence Information"; (2) An internal FBI memorandum dated 5/18/72 captioned "FBI Authority in Domestic Intelligence Matters"; (3) A study on subversion prepared for former Acting FBI Director L. Louis Patrick Gray III dated 5/19/72; (4) A memorandum from the Director of the FBI to the Attorney General dated 8/7/73 recommending the issuance of an Executive Order concerning the conduct of domestic intelligence investigations.
+
+On 4/18/75 Mr. Wilderotter advised Section Chief William O. Cregar that the above four documents were cleared for delivery to the Senate Select Committee.
+
+ACTION: For information and record purposes.
+
+WOC:ekw ekw
+
+62-116395
+
+REC-88
+
+87 MAY 6 1975
+
+NW 88608 DocId:32989628 Page 33

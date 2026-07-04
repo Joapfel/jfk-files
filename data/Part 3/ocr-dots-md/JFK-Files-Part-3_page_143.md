@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_143.png
+
+Convert to Markdown**SECRET**
+
+Counterintelligence Programs
+
+Miami Division advised Isadon Nochman, Bureau Chief, "Palm Beach Post-Times," Belle Glock, Florida, of a severe beating of a white male teenager following which a Klansman placed a card on the victim stating, "You have just served a proud Klansman, United Klan of America, Incorporated, Palm Beach County. Yours to good health, in God we trust." Newspaper article resulted in unfavorable publicity regarding the Klan.
+
+As a result of the publicity, one of the Klansmen involved in the beating resigned from the Klan and was discharged from his employment due to his public identification as a Klansman. This individual's identity was not shown. Publicity also caused a great deal of internal criticism in the Klan of Klan leader Lee Granins.
+
+TED:dsh
+(9)
+
+157-9-29-77, 83
+
+SECRET
+
+39

@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_7351.png
+
+Convert to MarkdownThe individuals named on this list are those designated by the Agencies as having prime responsibility for preparing the paper. The papers should be delivered in two copies directly to the Associate Counsel to the President, Mr. James Wilderotter, Room 182, Old Executive Office Building, by the Agencies. In the course of the next week, a meeting will be called for Mr. Wilderotter to meet with the individuals designated on this list. Each Agency will also be responsible for naming a person to work with each Task Force leader where it is appropriate to the subject matter. In the interim, Task Force leaders should deal directly with the following people with respect to individual Agency responsibilities:
+
+DCI/Intelligence Community John Clarke
+IDS 143-5477
+
+CIA E. Henry Knoche
+IDS 143-4086
+
+Defense Tom Latimer
+IDS 11-54221
+
+State William Hyland
+IDS 101-20342
+
+Treasury William Morell
+IDS 184-2536
+
+Justice William O'Connor
+IDS 187-5211
+
+FBI William Cregar
+IDS 175-4636
+
+2. The CIA has been coordinating internally the DCI's letter to the Chairman of the House Select Committee on Intelligence and this letter should be available for Community review and consideration soon. Distribution of this letter will be made sometime prior to a meeting of the General Counsels chaired by Mr. Wilderotter to go over details of the letter and coordinate on the final language. This arrangement is consistent with agreements reached in our meeting on 3 June 1975.
+
+John M. Clarke
+Associate Deputy to the DCI
+for the Intelligence Community
+
+NW 88608 DocId:32989588 Page24n

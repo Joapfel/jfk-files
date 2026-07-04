@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_8061.png
+
+Convert to MarkdownLegal Counsel to Mr. Adams
+
+Re: SENSTUDY 75
+
+or she should not be held in contempt, a vote would be taken by
+the Committee with a majority being necessary for the referral
+of a contempt citation to the full Senate.
+
+The rules concerning sensitive material limit access
+to such material to employees on a need-to-know basis and to
+only those staff members with appropriate security clearances.
+
+Reporting procedures for the Committee provide that
+where the Committee is unable to reach a unanimous decision,
+separate views and reports may be printed by any member or
+members of the Committee.
+
+A complete Xerox copy of the rules as they appear in
+the Record is attached.
+
+RECOMMENDATION:
+
+Action. For Information.

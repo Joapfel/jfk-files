@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_2670.png
+
+Convert to Markdown1 or a viable intent.
+
+2 Mr. Schwarz. So that's what you're looking for in the
+3 intelligence investigation?
+
+4 Mr. Kelley. By intelligence investigation, yes, you
+5 are looking to prevent.
+
+6 Mr. Schwarz. And what you are looking to prevent, and
+7 what you're looking to find is a likelihood of action combined
+8 with an intent to take an issue?
+
+9 Mr. Kelley. And the capability.
+
+10 Mr. Schwarz. And the capability.
+
+11 All right. I just have two other lines, Mr. Kelley, and
+12 I appreciate very much your time.
+
+13 Mr. Kelley. That's all right.
+
+14 Mr. Schwarz. Assuming a legitimate investigation has
+15 been started into a domestic intelligence matter, is it legiti-
+16 mate for the FBI, in addition to obtaining information that
+17 relates to what we've just been talking about, the likelihood
+18 of violent action, is it also legitimate for the FBI to
+19 collect, A, retain, B, disseminate, C, information concerning
+20 let's say the sex life of a person on the one hand, and the
+21 political views of a person on the other?
+
+22 Mr. Kelley. I think, Mr. Schwarz, that this is just what
+23 many of our problems and perhaps the guidelines can define
+24 this type of thing. I think probably you will agree that
+25 within the determination of the deviations possibly of sex
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+NW 88608 DocId:32989820 Page 75

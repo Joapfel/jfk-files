@@ -1,0 +1,111 @@
+# JFK-Files-Part-3_page_4922.png
+
+Convert to Markdown<table>
+    <tbody>
+        <tr>
+            <td colspan="4">CLASSIFY AS APPROPRIATE</td>
+            <td colspan="2">NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</td>
+        </tr>
+        <tr>
+            <td>TO:</td>
+            <td colspan="3">Intelligence Community Staff</td>
+            <td rowspan="2">FROM:</td>
+            <td rowspan="2">FET</td>
+        </tr>
+        <tr>
+            <td>ATTN:</td>
+            <td colspan="3">Central Index</td>
+        </tr>
+        <tr>
+            <td>SUBJECT:</td>
+            <td colspan="5">Abstract of Information Provided to Select Committees</td>
+        </tr>
+        <tr>
+            <td colspan="6">
+                <table>
+                    <tbody>
+                        <tr>
+                            <td>1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td>
+                            <td>2. DATE PROVIDED</td>
+                        </tr>
+                        <tr>
+                            <td></td>
+                            <td>11/20/75</td>
+                        </tr>
+                    </tbody>
+                </table>
+            </td>
+        </tr>
+        <tr>
+            <td>DOCUMENT</td>
+            <td>BRIEFING</td>
+            <td>INTERVIEW</td>
+            <td>TESTIMONY</td>
+            <td>OTHER</td>
+            <td></td>
+        </tr>
+        <tr>
+            <td colspan="6">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td>
+        </tr>
+        <tr>
+            <td>SSC</td>
+            <td></td>
+            <td></td>
+            <td></td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td>HSC</td>
+            <td></td>
+            <td></td>
+            <td></td>
+            <td></td>
+            <td></td>
+        </tr>
+        <tr>
+            <td colspan="6">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</td>
+        </tr>
+        <tr>
+            <td colspan="6" style="text-align:center;">Memorandum and enclosures</td>
+        </tr>
+        <tr>
+            <td colspan="2">ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY S.L.Z. ALM / EHL</td>
+            <td colspan="4"></td>
+        </tr>
+        <tr>
+            <td colspan="3">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)</td>
+            <td colspan="2"></td>
+            <td>6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>S</td>
+        </tr>
+        <tr>
+            <td colspan="6">SSC letter 11/7/75</td>
+        </tr>
+        <tr>
+            <td colspan="6">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)</td>
+        </tr>
+        <tr>
+            <td colspan="6">Intelligence collection<br/>Information handling</td>
+        </tr>
+        <tr>
+            <td colspan="6">8. SUMMARY (see reverse side before completing this item)</td>
+        </tr>
+        <tr>
+            <td colspan="6">Materials regarding Martin L. King, Jr., Stanley D. Levison and SCLG. Items to establish factual basis for Levison's secret CP, USA membership was obtained from FBI New York Office and furnished SSC.</td>
+        </tr>
+        <tr>
+            <td colspan="6">62-116395</td>
+        </tr>
+        <tr>
+            <td colspan="6">FMK: fmk</td>
+        </tr>
+        <tr>
+            <td>(4)</td>
+            <td colspan="5">ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</td>
+        </tr>
+        <tr>
+            <td colspan="6" style="text-align:center;">TREAT AS YELLOW</td>
+        </tr>
+        <tr>
+            <td>3791 (6-75)</td>
+            <td></td>

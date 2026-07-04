@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_4800.png
+
+Convert to MarkdownMM 92-1870
+
+(First name unknown) HUGO and TERRY DEUTSCH,
+who were contacted through Las Vegas telephone number
+735-0830, are unknown to the Las Vegas Office. The
+records of the Las Vegas Police Department, Clark County
+Sheriff's Office and Credit Bureau of Southern Nevada
+were negative regarding HUGO and DEUTSCH. The subscriber
+of this Las Vegas telephone number is EVERETT J. BLEDSOE,
+who is unknown to the Las Vegas Office. BLEDSOE is the
+manager of the apartments at 2645 Van Patten, Las Vegas,
+and he resides in Apartment 5 at this address.
+
+Las Vegas telephone number 382-3657 is listed
+to ED GAMBARANA (EDGAR GAMBARANA), who is presently
+employed in the Hotel Purchasing Section of Caesars Palace
+Hotel. He was formerly employed in the same position
+at the Sands Hotel, both Las Vegas, Nevada. GAMBARANA was
+allegedly employed at the Copá Cabana, New York City, prior
+to coming to the Southern Nevada area. He has been reported
+by one Las Vegas informant as a "bagman" for the Sands and
+Caesars Palace, but this has not been confirmed nor denied.
+GAMBARANA is described as a white male, born September 6,
+1920, at New York, New York, 5'11" tall, 205 pounds, brown
+hair and eyes, Social Security Number 118-18-3520, wife
+PEGGY KALTENBORN. It is noted that PEGGY KALTENBORN
+GAMBARANA's father is R. J. KALTENBORN, a wealthy individual
+of Southern Nevada.
+
+The Las Vegas Office has no record of ARNALDO
+ESTOPINAN. There is no record for ESTOPINAN at the Credit
+Bureau, Sheriff's Office or Las Vegas Police Department.
+
+ART ROCCO, who was contacted at Las Vegas
+telephone number 734-4110, may be identical with ARTHUR
+ANTHONY ROCCO, FBI Number 3702619, of Pittsburgh, Pennsylvania,
+who was in Las Vegas on October 18, 1967, and November 2,
+1967. ROCCO, while in Las Vegas on these occasions,
+registered with the Clark County Sheriff's Office as an
+ex-felon.

@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_2376.png
+
+Convert to MarkdownThey produced a new breed of revolutionaries whose main preoccupation with communism is that it has produced men like Mao Tse-tung, Ho Chi Minh, and Che Guevarra, whom they hope to emulate in the overthrow of a system they deem oppressive.
+
+From the inception of these movements, the FBI has been aware of the fact that their increasingly revolutionary communist imprint posed new and unique problems for the internal security of this nation.
+
+As these forces of revolutionary protest hardened in their resolve to accomplish their purpose, more and more they reached out to join hands with and seek support from old-line communists not only inside our country but also Communists and anarchists abroad.
+
+In effect, the picture has changed from one in which international communist forces sought out supporters within our country to carry out their objectives to one in which domestic revolutionaries are reaching out seeking the support of anyone, including communists, throughout the world who will help and support them in their own destructive aims.
+
+Since the objectives of both so clearly coincide, it is inevitable that they will join forces in common cause. The willingness of the Soviets, Chinese communists, and Cubans to support the efforts of domestic revolutionaries here already has been demonstrated. In addition, the movement of the New Left and black extremist revolutionary protestors toward increasingly centralized, more tightly disciplined organizations will facilitate the inevitable linkings.
+
+It is essential that we bring together and intensify the intelligence capabilities of our country to meet this growing threat. It is imperative that we penetrate all the channels of communication between foreign communist forces
+
+TOP SECRET
+
+-- 33 --

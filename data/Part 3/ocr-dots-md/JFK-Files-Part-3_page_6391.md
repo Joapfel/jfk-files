@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_6391.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFY AS APPROPRIATE</th></tr></thead><tbody><tr><td>TO: Intelligence Community Staff<br/>ATTN: Central Index</td><td>FROM:<br/>FBI</td></tr><tr><td colspan="2">SUBJECT: Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="2">1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td></tr><tr><td>X DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td><td>2. DATE PROVIDED<br/>10/14/75</td></tr><tr><td colspan="6">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td></tr><tr><td>X</td><td>SSC</td><td>HSC</td><td></td><td></td><td></td></tr><tr><td colspan="6">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</td></tr><tr><td colspan="6">Memorandum and enclosures</td></tr><tr><td colspan="3">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)<br/>SSC letter 9/8/75, items 8,9,11,13 and 14</td><td colspan="3">6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>XZ</td></tr><tr><td colspan="3">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)<br/>Information handling<br/>Intelligence collection</td><td colspan="3"></td></tr><tr><td colspan="6">8. SUMMARY (see reverse side before completing this item)</td></tr><tr><td colspan="6">Materials pertaining to Martin Luther King, Jr. and SCH: As they relate to CP, USA, Negro Question, Communist Influence in Racial Matters and Hunter Pitts O'Dell; Director Hoover's "off the record" discussion before the Rooney committee".<br/><br/>62-116395<br/>FMK: fmk<br/>(4) ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75<br/><br/>TREAT AS YELLOW</td></tr></tbody></table>
+
+NW 88614 DocId:32989673 Page 122
+
+3791 (6-75)
+
+CLASSIFY AS APPROPRIATE
+
+5

@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_2729.png
+
+Convert to Markdown1925
+
+On some occasions that person will have been developed to a
+point where he is in fact furnishing information and we are
+engaged in checking upon his reliability.
+
+In some instances he may be paid for information furnished,
+but it has not gotten to the point yet where we have satisfied
+ourselves that he meets all of our criteria. When he does,
+the field must submit its recommendations to headquarters, and
+headquarters will pass upon whether that individual is an
+approved FBI informant.
+
+Senator Schweiker. So it's really the first step of
+being an informant, I guess.
+
+Mr. Wannall. It is a preliminary step, one of the
+preliminary steps.
+
+Senator Schweiker. In the Rowe case, in :the Rowe
+testimony that we just heard, what was the rationale again
+for not intervening when violence was known?
+
+I know we asked you several times but I'm still having
+trouble understanding what the rationale, Mr. Wannall, was
+in not intervening in the Rowe situation when violence was
+known.
+
+Mr. Wannall. Senator Schweiker, Mr. Adams did address
+himself to that. If you have no objection, I'll ask him to
+answer that.
+
+Senator Schweiker. All right.
+
+Mr. Adams. The problem we had at the time, and it's the
+
+gsh 12
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000

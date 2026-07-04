@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_7210.png
+
+Convert to Markdownto benefit from the conclusions and assessments involved but
+still protects the sources and methods by which we reach them.
+Unfortunately, their revelation by individuals without author-
+ization can result in the exposure of the source or technique
+by which we learn the information.
+
+Mr. Chairman, the National Security Act of 1947 was the
+foundation stone for this American intelligence process. At
+that time, intelligence was deemed by our country to be a mat-
+ter which should be protected from public exposure. Thus,
+the specifics of the intelligence process and its authorities
+were deliberately expressed in general language and left by
+that statute to be specified in classified directives by the
+National Security Council. The CIA Act of 1949 further rec-
+ognized the importance of this secrecy to intelligence and
+specifically exempted the CIA from the publication of the
+"organization, functions, names, official titles, salaries,
+or numbers of personnel employed by the Agency.
+
+The intelligence roles of the other members of the
+Intelligence Community in part stem from the 1947 Act and
+in part from separate legislation, such as that charging the
+FBI with responsibility for internal security, the AEC, now
+ERDA; with its security authorities, and other laws such as
+Public Law 86-36, which provides the National Security
+Agency the authority to function without disclosing

@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_7182.png
+
+s
+
+7. designated by it or its chairman or the ranking minority
+
+8. member to any data, evidence, information, report, analysis,
+
+9. or document or papers, relating to any of the matters or
+
+10. questions which it is authorized and directed to investigate
+
+11. and study in the custody or under the control of any department, agency, officer, or employee of the executive branch
+
+12.
+
+13. of the United States Government, including any department,
+14. agency, officer, or employee of the United States Government having the power under the laws of the United States
+15.
+
+16. to investigate any alleged criminal activities or to prosecute
+
+17. persons charged with crimes against the United States and
+
+18. any department, agency, officer, or employee of the United
+States Government having the authority to conduct intelligence or surveillance within or outside the United States,
+
+20.
+
+21. without regard to the jurisdiction or authority of any other
+22. Senate committee, which will aid the select committee to
+23. prepare for or conduct the investigation and study authorized
+24. and directed by this resolution; and (12) to expend to the
+25. extent it determines necessary or appropriate any moneys
+
+EIMI: 88608 DocID:32989530 Page 147

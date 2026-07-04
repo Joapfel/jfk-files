@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_5113.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO Mr. Walsh
+
+FROM S. Ray Burns
+
+SUBJECT: PROPOSED CHANGE IN MANUAL OF RULES AND REGULATIONS
+
+DATE: July 23, 1975
+
+R. G. Hunsinger memorandum to Mr. Walsh dated April 3, 1975 authorized changes in "Maternity Leave Policy."
+
+Proposed changes in the Manual of Rules and Regulations were handled under the date of May 23, 1975, concerning changes in Maternity Leave Policy, in addition to previous changes there is attached a revision for your approval.
+
+**RECOMMENDATION**
+
+That the attached be sent and forwarded to the Training Division for handling.
+
+Enclosure
+
+HS:ced
+(3)
+
+1 - Mr. Woodworth
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/19/75 BY SC2 A6-1 EHL
+
+ENCLASUN 62-116395-56/1
+
+NWW 88608 DocId:32989633 Page 27

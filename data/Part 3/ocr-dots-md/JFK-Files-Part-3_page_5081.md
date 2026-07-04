@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_5081.png
+
+Convert to MarkdownNWI 88608. DocID:32989550 Page 166
+
+| Name | Compartmented Clearance Designated Briefed (SI, TK, B) | Date and Place of Birth | Social Security No. |
+|---|---|---|---|
+| Moore, Janet | * B 5/23 | 4-9-43 Iowa | 484-52-9820 |
+| Murphy, Michael | * B 7/1 | 10-13-54 Tex. | 231-86-8829 |
+| Nash, Dorothy |  | 7-24-12 Wisc. | 399-14-4589 |
+| O'Flaherty, James Daniel | * B 4/15 | 11-4-42 Ill. | 239-62-8495 Badge |
+| Orloff, Jan | * B 6/26 | 11-14-47 Cal. | 558-74-8394 |
+| Oster, Lynsey Lee |  | 9-14-53 SD | 501-68-8908 |
+| Owens, Drena | * B 6/2 | 12-8-42 NC | 242-68-3271 |
+| Peterson, John F. | * B 6/26 | 6-15-41 Cal. | 565-56-7707 |
+| Piland, Susan |  | 10-5-50 Cal. | 557-86-6753 |
+| Pitts, Susan | * B 6/10 | 10-24-53 Canada | 020-40-7638 |
+| Postal, Andrew | * B 7/23 | 5-11-48 NY | 128-40-4695 |
+| Pyle, Christopher | * B 6/26 | 11-24-39 Mass. | 019-30-9898 |
+| Quanbeck, Elton | * B 5/19 | 5-15-26 N. Dak. | 501-14-4534 |
+| Ralston, Theodore | * B 7/23 | 8-25-48 Wash. | 538-48-4673 |
+| Rhea, Gordon | * B 6/26 | 3-10-45 Va. | 412-74-7901 |
+| orchard, Eric | * B 7/10 | 12-27-49 NY | 128-40-7430 |
+| Ricks, Walter | * B 6/26 | 12-27-46 Ga. | 244-74-4304 |
+| Romberg, Alan | * B 4/22 | 12-1-38 NY | 107-30-8583 |
+| Rowe, James | * B 5/19 | 6-6-51 DC | 579-62-6719 |
+| Schneider, Ruth | * B 5/23 | 10-31-44 Conn. | 008-32-0180 |
+| Schwartz, Paula | * B 11/4 | 9-18-53 D. C. | 223-64-1880 |
+| Schwarz, Frederick A. O. III | * B 4/15 | 4-20-35 NY | 084-30-2047 |
+| Seidel, Lester | * B 6/26 | 7-17-44 DC | 216-38-5204 |

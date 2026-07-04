@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_2347.png
+
+Convert to Markdownof the PLP and an expert on organization. The PLP is particularly interested in expanding its membership on the West Coast as evidenced by the recent assignment of [redacted], to Los Angeles, for that purpose.
+
+The PLP maintains close contact with pro-Chinese Communist groups abroad and its publications consistently follow the Chinese Communist line. For example, during early 1968 the PLP issued a pamphlet in which it proclaimed that the PLP is among groups which "proudly make common cause with each other and with the Chinese for world revolution" and boasted of its support of the Viet Cong in defeat of our "common enemy, the United States ruling class."
+
+Apropos of the strong rapport existing between the PLP and the Communist Party of China, the latter informed top-level PLP members in 1967 that it considered the PLP to be the only revolutionary Marxist-Leninist party in the United States.
+
+As evidence of Chinese Communist support of the PLP, information has been developed which revealed that during 1967 and 1968 the PLP received a total of more than $13,000 from a European bank where an organ of the Chinese Communist Government maintains an account. During 1968, the PLP received more than $2,000 from Hong Kong, believed to have emanated from Chinese Communist sources.
+
+PLP leaders have been in periodic contact with Chinese Communist agencies and have on occasion visited the Chinese mainland. [redacted] and [redacted], members of PLP [redacted], travelled to the Red Chinese mainland in March, 1969.
+
+Of equal significance is the PLP's stepped-up efforts to extend its influence on college campuses. The PLP's ability to seize upon situations ripe for violence was revealed by its role within Students for a Democratic Society.
+
+TOP SECRET
+
+- 4 -

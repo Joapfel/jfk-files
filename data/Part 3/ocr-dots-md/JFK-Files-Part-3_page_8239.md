@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_8239.png
+
+Convert to Markdown<table><tr><td>Executive Res.</td></tr><tr><td>75-2019</td></tr></table>
+
+UNITED STATES SENATE
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY COLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+(PURSUANT TO S. RES. 21, 34TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+April 24, 1975
+
+Mr. William E. Colby
+Director of Central Intelligence
+Central Intelligence Agency
+Washington, D. C. 20505
+
+Dear Director Colby:
+
+On behalf of the Senate Select Committee to Study Governmental Operations with Respect to Intelligence Activities, I enclose a specification, furnished to John Clarke yesterday, which calls for certain material referred to in your December 24, 1974 report to the President and provides further detail concerning certain CIA material heretofore requested. Obviously it is not intended to limit what we have already requested.
+
+It is the Committee's expectation that all this material should be produced in ten days.
+
+I was heartened by the spirit of cooperation demonstrated in your personal reassurances in our meeting on April 22, 1975, and I understand that substantial material was made available to us today at the CIA. However, the fact remains that too much material called for in our document request remains outstanding and the system apparently being employed to clear material for us builds in excessive delays. A necessary prerequisite to our inquiry proceeding expeditiously--as it should to restore public confidence in our intelligence agencies and develop a new national consensus on the proper functions of intelligence activity--is to eliminate these delays.
+
+Enclosure

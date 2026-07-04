@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_4823.png
+
+Convert to MarkdownMM 92-1870
+
+LEGITIMATE ENTERPRISES
+
+It has previously been reported that ROTHMAN, in fact, is owner of the Albion Hotel Lounge, 1650 James Avenue, Miami Beach, Florida.
+
+ROTHMAN was observed at the Albion Lounge on February 8, and February 12, 1968, and March 13, 1968.

@@ -1,0 +1,78 @@
+# JFK-Files-Part-3_page_3948.png
+
+Convert to MarkdownThe Attorney General
+
+ST. 115
+Director, FBI
+
+REC-511
+
+U. S. SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+1 - Mr. J. B. Adams
+
+2 - Mr. J. A. Mintz
+
+(1 - Mr. J. B. Hotis)
+
+1 - Mr. W. R. Wannall
+December 24, 1975
+
+1 - Mr. J. G. Deegan
+
+Mr. R. L. Shackelford
+
+Mr. F. J. Cassidy
+
+1 - Mr. W. O. Cregar
+
+This is in response to the SSC letter dated December 18, 1975, wherein Senators Mondale and Baker requested rather detailed information to be made available during the last week of December, 1975, and the first week of January, 1976.
+
+It is noted that most of the requests in this letter are so ambiguous that they require clarification from the SSC before the FBI can logically respond. In one instance, there is no way this Bureau could respond short of obtaining the recollections of Bureau Supervisors who worked in the Intelligence Division extending back almost 20 years. Because of this, we are attaching for your approval and forwarding to the SSC the original of a memorandum which delineates the problems attendant to the request of December 18, 1975, and, in most instances, requests a meeting between Mr. John Elliff, Domestic Task Force Director, SSC, and representatives of this Bureau in the hope that some alternatives or clarifications can be developed. A copy of the memorandum is furnished for your records.
+
+Enclosures (2)
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: Michael E. Shaheen, Jr.
+Special Counsel for
+Intelligence Coordination
+
+WOC:1hb 11hb
+(12)
+
+SEE NOTE PAGE 2
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/30/80 BY: SPAM KORAN
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO : 1975 O - 569-920
+
+<table>
+   <tr>
+    <td>Assoc. Dir.</td>
+    <td>Dep. AD Adm.</td>
+    <td>Dep. AD Inv.</td>
+    <td>Asst. Dir.:</td>
+    <td>Admin.</td>
+    <td>Comp. Syst.</td>
+    <td>Ext. Affairs</td>
+    <td>Files &amp; Com.</td>
+    <td>Gen. Inv.</td>
+    <td>Ident.</td>
+    <td>Inspection</td>
+    <td>Intell.</td>
+    <td>Laboratory</td>
+    <td>Plan. &amp; Eval.</td>
+    <td>Spec. Inv.</td>
+    <td>Training</td>
+    <td>Legal Coun.</td>
+    <td>Telephone Rm.</td>
+    <td>Director Sec'y</td>
+   </tr>
+  </table>

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_6155.png
+
+Convert to Markdown5-88 (2-99-92)
+
+1. Name "NATIONAL GUARDIAN" "EVERY GUARDIAN ASSOCIATES, INCORPORATED
+
+(Last) (First) (Middle)
+
+2. Address
+107 East Fourth Street and
+133 East 72nd Street
+
+(Apt. No.) New York, (No. and Name of Street) New York, USA
+(City) (State) (Country)
+
+3. Treatment
+Photograph outside and contents.
+
+☐ One-Time Check ☐ Watch List Until canceled.
+Duration ____________
+
+HUNTER Request No.
+
+117
+
+This document is prepared in response to your request, and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+ENCLOSURE
+
+NW 88614 DocId:32989673 Page 269 A-DX

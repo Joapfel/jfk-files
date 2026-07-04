@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_7837.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI AD BY SSC
+
+relying, of consulting with an FBI representative who would accompany him to the interview. The representative would not be present during the actual interview but would merely be available nearby in the event consultation was desired.
+
+The details of the interview, as voluntarily furnished by Conrad, are as follows.
+
+Conrad was interviewed in SSC quarters for the approximate period 10:10 a.m. to 10:45 a.m., July 9, 1975, by SSC Staff Members Michael Epstein and Mary DeOreo. No mention of Conrad's rights was made. The following details are not necessarily in chronological order.
+
+Conrad was questioned concerning his career in the FBI and the positions which he held. He replied that he entered the FBI in 1934 and was assigned to the Laboratory where he spent his entire FBI career. During the 1940's, he was placed in charge of the Radio Engineering Section (RF). In 1955, he became the Number One Man, the equivalent of being the Deputy AD in the Laboratory. In 1961, he was elevated to the position of AD, which he held until his retirement in mid-1973.
+
+Conrad was queried as to whether the Laboratory was broken down into various sections at the time he was AD. He responded that there were four sections in the Laboratory: Document, Physics and Chemistry, RE, and Cryptanalysis-Translation. He was asked as to whether the sections were further broken down into units and was asked for any such specific breakdown in the RE. His answer was that while there were unit breakdowns, he did not recall the specific breakdown within the RE. He was asked as to the basis for unit breakdowns and advised it was based upon sensitivity and expertise of the work; both factors entered into consideration with the greater weight placed upon the expertise factor.

@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_4329.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply Please Refer to
+File No. (IS) 100-439190
+
+WASHINGTON, D.C. 20535
+
+June 15, 1965
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: COMMUNIST INFILTRATION OF STUDENT NON-VIOLENT COORDINATING COMMITTEE INTERNAL SECURITY - COMMUNIST
+
+Militant Black Extremist Organization
+
+The Student Non-Violent Coordinating Committee has been described by confidential informants as the principal target for Communist Party infiltration among the various civil rights organizations. John Lewis, Chairman, and James Forman, Executive Secretary, have made public appearances with leaders of communist-front groups. John Lewis has been reported by reliable informants as stating he will accept any individuals, including communists, into his organization. This and related investigations have identified individuals with subversive backgrounds who hold key positions in the Student Non-Violent Coordinating Committee.
+
+The Student Non-Violent Coordinating Committee maintains its headquarters at 85 Raymond Street, Northwest, Atlanta, Georgia, and is in the process of moving to 360-362 Nelson Street, Southwest, Atlanta, Georgia.
+
+Authority is requested for the installation of a technical surveillance on the above headquarters of the Student Non-Violent Coordinating Committee and at any new location to which it may move in the future.
+
+APPROVED NLOL
+DATE 6/18/65
+
+SECRET
+
+<table><tr><td>GROUP I</td></tr><tr><td>Included from automatic grading and reclassification</td></tr><tr><td>NLok</td></tr></table>
+
+NW 88608 DocId:32989583 Page 71

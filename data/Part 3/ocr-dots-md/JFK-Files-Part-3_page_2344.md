@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_2344.png
+
+Convert to MarkdownI. FOREIGN COMMUNIST SUPPORT OF REVOLUTIONARY PROTEST MOVEMENTS IN THE UNITED STATES
+
+A. Influence of Domestic Communist Left
+
+1. Communist Party, USA
+
+Since it was founded in September, 1919, the Communist Party, USA (CPUSA) has been unswerving in its allegiance to the Soviet Union. Over the years the Soviets have utilized the CPUSA as a trusted vehicle to influence revolutionary activity within the United States. Accordingly, FBI investigations of CPUSA activities have included the objective of determining the extent to which the Soviets may have been using the CPUSA as a possible channel for Soviet support of the current revolutionary protest movements in this country. All available information derived from these investigations to date indicates that while the CPUSA has made overtures to the revolutionary protest groups there has been limited acceptance of the CPUSA by such groups.
+
+In recognition of its lack of support among youthful activists on college campuses, the CPUSA is currently making plans to establish a new youth group directed toward youth in industry. Party-leaders, on the other hand, have criticized New Left groups such as the Students for a Democratic Society as petty bourgeois radicals. Party youth who have attempted to have the CPUSA relate more clearly with such groups have been isolated and silenced. The CPUSA theoretical organ, "Political Affairs," in its March and April, 1969, issues, contained a two-part article entitled "The Student Rebellion," which clearly set out CPUSA opposition to the anti-Soviet, anti-CPUSA line of student protest groups.
+
+Within the past year leaders of the CPUSA in the Midwest met with leaders of the Students for a Democratic Society (SDS) to discuss closer cooperation or possible recruitment of these individuals into the CPUSA. These overtures were completely rebuffed by the SDS people who stated that while there were no disagreements with CPUSA philosophy
+
+TOP SECRET

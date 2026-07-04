@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_8497.png
+
+Convert to Markdownof the general subject areas and periods of employment in which
+the Committee is primarily interested. The agency will then check
+the subject's personnel history file and advise the Committee of
+any exceptionally sensitive aspects of the subject's employment
+or activity which require special handling.
+
+(6) If because of concern about security of sensitive information, a witness feels unable to give a responsive answer to a particular question, the witness shall so indicate to the interviewer.
+
+The questioner and witness may then consult with the agency representative with respect to an appropriate response which will facilitate the provision of pertinent information and its protection.
+
+These matters should be worked out forthwith and ordinarily before
+the close of the interview/testimony session.
+
+(7) The Committee is responsible for providing special handling of interview notes and other working notes in a manner which will protect sensitive material. At the conclusion of the Committee's inquiry, the Committee will consult with the agencies concerned regarding the appropriate disposition of any such notes which have not been destroyed following the preparation of finished Committee documents. The agencies will indicate which of these notes it feels are too sensitive to be stored under the Archives

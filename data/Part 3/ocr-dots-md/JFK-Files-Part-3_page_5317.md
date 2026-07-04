@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_5317.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+DONALD P. BURGESS BY SSC STAFF MEMBERS
+
+Mr. Epstein then asked SA Burgess if he was quite certain of his period of assignment to monitoring the telephones of Doctor King and SA Burgess replied that he was virtually certain that assignment to these duties was from within ten days before or after Thanksgiving, 1965, until sometime during June, 1966, because of the aforementioned surgery approximately six weeks prior to his assignment on these duties.
+
+Mr. Epstein asked if SA Burgess could ascertain the date of his surgery from his doctor or hospital records. SA Burgess replied that surgery had taken place at St. Joseph's Infirmary immediately adjacent to the FBI office and he would attempt to ascertain the date. Mr. Epstein asked if SA Burgess would be willing to telephone the hospital at that time in an attempt to verify this date. SA Burgess replied that old hospital records are sometimes difficult to locate and from experience, it would probably take two or three days.
+
+In response to a question as to whether anyone else immediately available could recall the date of this surgery, SA Burgess replied that his wife might recall. Mr. Epstein then asked SA Burgess if he would be willing to telephone his wife in an attempt to determine the date of his surgery. At that point in the interview, SA Burgess did telephone his wife who informed SA Burgess that she thought SA Burgess had undergone surgery during mid-September, 1965. This was communicated to Mr. Epstein.
+
+Mr. Epstein also asked SA Burgess whether or not any record in the Atlanta Office would pin down the exact dates of his assignment to monitor the King telephones. SA Burgess replied that he knew of no such record.
+
+Mr. Epstein asked if an annual fitness or performance report would show his assignment at that time, and SA Burgess
+
+NW 88608 DocId:32989626 Page 48

@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_5185.png
+
+Convert to MarkdownADDENDUM
+INSPECTOR ARNOLD C. LARSON
+
+10/27/70
+
+LSM/jb
+
+4-H
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+DATE 7/26/70 BY SP-Atm776
+
+All criminal informant (CI) files and a representative number of potential criminal informant (PCI) files were reviewed during this inspection. Following review, a memorandum disclosing the rating afforded in each file has been forwarded to you for inclusion in the respective file.
+
+Your office is currently operating 145 CIs as compared to 141 CIs being operated at the time of the last inspection. There is also an increase in the number of PCIs under development at this time to 271 as opposed to 250 under development during the last inspection. These figures do not include Top Echelon informants or targets for development which are commented on separately under the Criminal Intelligence Program. This represents a slight increase in the number of CIs and a more substantial increase in the number of PCIs under development. However, there is a slight decrease in two large metropolitan areas, namely, San Francisco and Oakland, which though slight represents a static situation as to increasing coverage in these areas. The Oakland Resident Agency has also recorded a decrease in the number of PCIs under development. In analyzing the coverage in the resident agencies, it was noted that Monterey, Richmond and San Jose have the same coverage from CIs as during the last inspection although Monterey and San Jose have shown a substantial increase in the number of PCIs being handled. PCIs under development in Salinas and San Rafael are down somewhat, although this too in part is off-set by the increase in the number of CIs being operated. In view of the Bureau's increased responsibilities, it is absolutely essential that a strong criminal informant program be maintained and in fact expanded if the Bureau is to meet these increased responsibilities.
+
+QUALITY
+
+All of the CI files were reviewed during this inspection and the following ratings were given to the CIs presently being operated by this office:

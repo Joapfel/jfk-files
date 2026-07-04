@@ -1,0 +1,10 @@
+# JFK-Files-Part-3_page_1401.png
+
+Convert to MarkdownAssistant Attorney General
+Criminal Division
+
+Attention: Mr. Robert L. Keuch
+
+NOTE: Former SA Nichols works and resides in Atlanta. The Atlanta Office has been in touch with him regarding the interview and he is awaiting further contact for final interview arrangements.
+
+These arrangements are handled informally by representatives of the Legal Liaison and Congressional Affairs Unit and the Congressional Inquiry Unit of FBIHQ.

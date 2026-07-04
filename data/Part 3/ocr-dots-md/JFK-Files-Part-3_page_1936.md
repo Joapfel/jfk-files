@@ -1,0 +1,81 @@
+# JFK-Files-Part-3_page_1936.png
+
+Convert to Markdown1 - Mr. Monahan
+1 - Mr. Peelman
+1 - Mr. Foster
+1 - Mr. McGirl
+1 - Mr. Mintz (Attn:
+
+Mr. Coulson)
+
+October 31, 1977
+
+HOUSE SELECT COMMITTEE ON ASSASSINATIONS
+U. S. HOUSE OF REPRESENTATIVES (HSCA)
+
+RE: OCTOBER 20, 1977, REQUEST OF HSCA FOR INFORMATION IN POSSESSION OF THE FBI TO INCLUDE A CURRENT FBI IDENTIFICATION DIVISION RECORD RELATIVE TO WILLIAM HERMAN JACKSON.
+
+This constitutes a complete response to the October 20, 1977, letter of G. Robert Blakey, Chief Counsel and Director, HSCA.
+
+Chief Counsel Blakey requested all FBI information as well as a current FBI Identification Division record relative to William Herman Jackson.
+
+Utilizing identifying data for Jackson furnished by the HSCA, retrievable information in FBI Headquarters files identifiable with Jackson has been prepared for the Committee's access subject to the usual excisions and deletions.
+
+JTM:sas
+
+(9)
+
+ORIGINAL AND TWO SENT TO MR. ROBERT L. KEUCH, DEPUTY ASSISTANT ATTORNEY GENERAL, CRIMINAL DIVISION.
+
+NOTE: See Director, FBI, letter to Assistant Attorney General, Criminal Division, Attention: Mr. Robert L. Keuch, dated 10/31/77, captioned, "House Select Committee on Assassinations, U. S. House of Representatives (HSCA)."
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD'Inv.
+
+Asst. Dir:
+Adm. Serv.
+Crim. Inv.
+Fin. & Pers.
+Ident.
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Insgr.
+Rec. Mgmt.
+Spec. Inv.
+~~Tech. Servs.~~
+Training
+Public Affs. Off.
+Telephone Rm.
+Director's Sec'y
+
+APPROVED:
+
+Director
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+
+Adm.-Serv.
+Crim. Inv.
+Fin. & Pers.
+Ident.
+Intell.
+Laboratory
+
+Legal Coun.
+Plan. & Insp.
+Rec. Mgmt.
+Spec. Inv.
+Tech. Servs.
+Training
+Public Affs. Off.
+
+62-117290 - 409
+
+ENCLOSURE
+
+MAIL ROOM TELETYPE UNIT
+
+FBI/DOJ

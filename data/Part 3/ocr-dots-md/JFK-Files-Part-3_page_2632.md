@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_2632.png
+
+Convert to Markdownin many cases it has gone beyond what would appear to have been necessary to have addressed the original threat.
+
+How do we keep within the proper balance there?
+
+Mr. Kelley. Well, actually, it's just about like any other offense. It is an invasion of the other individual's right and it is by an officer and an FBI agent is an officer. There's the possibility of criminal prosecution against him.
+
+This is one which I think might flow if he counsels the informant.
+
+Now insofar as his inability to control the informant, I don't suppose that would warrant prosecution, but there is still supervisory control over that agent and over that informant by insisting that control is exercised on a continuing basis.
+
+Senator Huddleston. It brings up an interesting point as to whether or not a law enforcement agency ought to be very alert to any law violations of its own members or anyone else.
+
+If a White House official asks the FBI or someone to do something unlawful, the question seems to me to occur as to whether or not that is not a violation that should be reported by the FBI.
+
+Mr. Kelley. I think that any violation which comes to our attention should either be handled by us or the proper authority.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+2476
+
+1 h 12
+
+Phone (Area 202) 544-6000

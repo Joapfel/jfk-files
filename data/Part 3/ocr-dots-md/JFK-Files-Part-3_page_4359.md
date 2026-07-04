@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_4359.png
+
+Convert to MarkdownOFFICE OF THE DIRECTOR
+
+SECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+October 21, 1970
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: BLACK PANTHER PARTY
+NATIONAL COMMITTEE TO COMBAT FASCISM
+CLEVELAND DIVISION
+
+The revolutionary [Black Panther Party (BPP)] is currently active in [40] cities throughout the U.S. with approximately [750] hard-core members. The [BPP] continues to call for the killing of police. Its leaders have advocated the killing and the kidnaping of top U.S. Government officials.
+
+The [BPP] group in Cleveland, Ohio, is known as the National Committee to Combat Fascism (NCCF). Its membership totals 75. Most members are college students who participated in campus violence during the Spring of 1970. At the August 6, 1970, [NCCF] meeting in [Cleveland], there were frequent remarks made relative to the killing of police in retaliation "for killings in the black community." Those in attendance also studied an article by Huey P. Newton, Supreme Commander and Minister of Defense of the BPP, entitled "The Correct Handling of a Revolution." This article had been published in the January 3, 1970, edition of the [BPP] newspaper.
+
+SECRET
+Group 1
+Excluded from automatic
+downgrading and
+declassification
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.

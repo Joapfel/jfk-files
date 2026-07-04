@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_9816.png
+
+Convert to Markdownidentification of intelligence operations and agents;
+
+(2) the penetration of these operations for the purpose
+of control and the development of intelligence information;
+
+(3) neutralization of hostile intelligence operations through disruption and disinformation; and, (4) prosecution. Whatever the assigned priority, the overall objective is to deny access to information sought by whatever practical means are available.
+
+Foreign intelligence investigations are grounded in
+the Espionage statute and related laws including the Registra-
+tion and Atomic Energy Acts. Individual investigations are
+initiated usually on the basis of a known or suspected connec-
+tion with a foreign intelligence service, foreign country or
+subversive organization with such connections. Since these
+investigations emanate from various sensitive sources and
+involve special considerations, extensive criteria and
+limitations are defined and enumerated in current instructions.
+
+In general terms, the governing criteria are designed
+to preclude initiation and continuance of investigations which
+are not justified. The limitations are designed to control
+the scope of investigation in order to insure security of our
+interests through close supervisory scrutiny.

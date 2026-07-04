@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_7972.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Date:
+
+Aides Initial:
+
+Cabinet 6 Drawer 2
+
+Folder X File (check one)
+
+First Communication Dated 3/18/53
+Last Communication Dated 7/14/53
+Approximate Pages 8
+
+Derogatory Information: Yes X No (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Congressional
+
+Ticklers Only
+Originals Only
+Both X
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Contains memo 3/18/53 from Hoover regarding phone call from Conversation dealt with appointment of to unspecified position. Conversation included discussion regarding possibility was a homosexual.
+
+Contains 7/14/53 memo from Hoover concerning visit from secretary who discussed possibility of obtaining FBI Agent to be Chief of Staff of Committee.

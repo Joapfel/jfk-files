@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_7039.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+RE: SENSTUDY 75
+
+CONFIDENTIAL
+
+CIA as well as the rest of the Intelligence Community is concerned over requests received by Morton Halperin under the Freedom of Information Act. Treasury, National Security Council, Defense Intelligence Agency, CIA, State Department and the Office of Management and Budget (OMB), have received requests from Halperin. According to Mr. Clarke, a meeting will be convened by the OMB involving interested parties in an effort to coordinate a response. Mr. Colby, in his role as the Director of Central Intelligence, is very concerned that in responding to Halperin's requests one Agency does not deny providing information to Halperin that another Agency expects to give Halperin. To date the Bureau has not received a request from Halperin under the Freedom of Information Act.
+
+**ACTION:**
+
+For information and record purposes.
+
+NW 88608 DocId:32989530 Page 4
+
+CONFIDENTIAL

@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_2746.png
+
+Convert to Markdownsmn 3
+
+1 prove they aren't a Communist before we will agree not to
+2 investigate them.
+
+3 But the young lady appearing this morning making the
+4 comment that she never knew of anything she told us that.
+5 she considers herself a true member of the VVAW-WSO inasmuch
+6 as she feels in general agreement of the principles of it, and
+7 agreed to cooperate with the FBI in providing information regard-
+8 ing the organization to aid in preventing violent individuals
+9 from associating themselves with the VVAW-WSO. She is most
+10 concerned about efforts by the Revolutionary Union to take over
+11 the VVAW-WSO, and she is working actively to prevent this..
+
+12 I think that we have a basis for investigating the VVAW-
+13 WSO in certain areas today. In other areas we have stopped
+14 the investigation. They don't agree with these principles
+15 laid down by the --
+16
+17 Senator Huddleston. That report was the basis of your
+18 continuing to pay informants and continuing to utilize that
+19 information against members who certainly had not been involved
+20 in violence, and apparently to get them fired from their job
+21 or whatever?
+22 Mr. Adams. It all gets back to the fact that even in the
+23 criminal law field, you have to detect crime, and you have to
+24 prevent crime, and you can't wait until something happens. The
+25 Attorney General has clearly spoken :. that area, and even our
+statutory jurisdiction provides that we don't --

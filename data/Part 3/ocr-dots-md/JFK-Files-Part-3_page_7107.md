@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_7107.png
+
+s for any officials above those levels.
+
+## B. Budget and Cash Flow
+The budgetary information should include both the budgets proposed to OMB and the final budgets approved. The cash flow data should include the funds actually appropriated, their location in the appropriations for other Departments and agencies, and an indication of whether funds transferred from particular agencies are earmarked for particular uses within the CIA.
+
+# II. SPECIAL REPORTS OR STUDIES
+
+The following are requested in their unexpurgated form (at the highest level of classification) with all appendices, annexes and transmittal documents:
+
+1. The Dulles, Correa, Jackson Report on the Intelligence Community
+
+2. 1949 and 1955 Hoover Commissions, Intelligence Task Force Reports
+
+3. 1953 Historical Study of the Expenditure of Confidential Funds prepared by the General Counsel's Office.
+
+4. 1954 General Doolittle Report on the CIA
+
+5. 1960 Bureau of The Budget study of intelligence activities
+
+6. 1961 Taylor Report on covert action and the intelligence community
+
+7. 1962 Organizational study of the CIA initiated by John A. McCone
+
+8. 1964 Study by John A. Bross, Frederick Nolting and Major General John Reynolds
+
+9. 1965 Study of CIA initiated by Admiral Raborn
+
+10. 1965 Study for the Director on CIA air propagataries
+
+11. 1967 Internal CIA study for the Director on CIA activities at educational facilities in the United States
+
+12. 1967 Katzenbach Study (with John Gardner and Richard Helms) on CIA domestic activity
+
+13. 1967 Cunningham Study on the intelligence community
+
+14. 1967 (or 1968) Eaton Committee Report for the DCI on NSA and the National Intelligence Resources Board Study for DCI on NSA
+
+15. 1967 (or 1968) report for DCI by the Senior Executive Group on the intelligence community
+
+16. 1970 Study under Admiral Wilfred McNeil on CIA Financial procedures
+
+17. 1971 OMB study under James Schlesinger of the intelligence community
+
+18. Executive Order of November 5, 1971 restructuring the intelligence community
+
+19. 1973 CIA internal review prepared for James Schlesinger on the CIA
+
+20. Additional studies specified in Appendix D of book furnished the Committee staff on March 5, 1975
+
+# III. LEGAL AUTHORITY AND OPERATING PROCEDURES
+
+## A. Legal Authority
+
+1. All files dealing with the history of the 1949 CIA Act and the CIA sections of the 1947 National Security Act.

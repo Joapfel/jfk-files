@@ -1,0 +1,65 @@
+# JFK-Files-Part-3_page_7440.png
+
+Convert to MarkdownAirtel
+
+1 - Mr. J. B. Adams
+2 - Mr. J. A. Mintz
+(1-Mr. J. B. Hotis)
+6/2/75
+
+To: Legat, Rome
+
+From: Director, FBI
+
+SENSTUDY 75
+
+1 - Mr. W. R. Wannall
+1 - Mr. V. Kolombatovic
+PERSONAL ATTENTION
+***
+(Route through for review)
+
+1 - Mr. W. O. Cregar
+1 - Mr. S. F. Phillips
+
+Enclosed is a copy of Bureau teletype 5/28/75 to selected SACs and one copy each of Bureau teletypes 5/2 and 20/75 to all SACs, latter two teletypes for background information concerning captioned matter.
+
+You will note that the Senate Select Committee (SSC) is interested in the whereabouts of some current employees of your office, including yourself. For your additional information, an SSC Staff Member recently inquired of a former Bureau official concerning communications sent to Legat, Rome, in 1964 concerning Martin Luther King, Jr., and concerning the name of the Legat at Rome in 1964. (It was the erroneous recollection of the former Bureau official that Armand Cammarota was the Legat in Rome in 1964).
+
+Handle all inquiries from the SSC in accordance with the enclosed instructions.
+
+Enclosures - 3
+
+SFP:ekw
+
+(10)
+
+MAILED 20
+FBI
+
+JUN 2 19751
+
+NOTE: Enclosed 5/2/75 to all offices gave general background as to Senstudy 75 and alerted field that former and incumbent employees might be contacted for interview by SSC Staff. Enclosed 5/20/75 tel alerted all SACs to possible inquiries made of field offices and action to take if contacted. SSC letter 5/14/75 enclosed a request for names and current office assignments or last known addresses of all FBI employees assigned Rome, 1964. Three employees then assigned there are still in Rome and their names are included in the copy of the 5/28/75 teletype being sent Rome. That teletype included instructions for selected offices to alert additional 1964 Rome employees who are now assigned elsewhere or no longer with FBI.
+
+MAIL ROOM [x] TELETYPE UNIT [ ]
+
+Asst. Dir.:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec.'y
+
+GPO 931-546
+
+NW88608 DocId32589588 Page 113

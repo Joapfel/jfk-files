@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_5235.png
+
+handling 25 cases who had never served in the Armed Forces and was outwardly sympathetic towards the Selective Service Act violators. The new United States Attorney has a good attitude towards the prosecution of these violators, however, he has not completely replaced the staff of the old United States Attorney.
+
+A major portion of the Selective Service Act violations in the San Francisco Division pertains to the inductees failing to step forward to be sworn into the Armed Forces, thereby refusing induction. The Armed Forces Examining and Entrance Station located in Oakland, California handles all inductions for Northern California and part of Nevada and handles approximately five per cent of all inductions in the United States.
+
+Approximately 38 per cent of all refusals for induction into the Armed Forces arise at Oakland, according to the Department of the Army statistics. Many registrants from all over the United States come to the San Francisco area for the specific purpose of having their local draft board changed to this area, and after meeting all other requirements for induction, refuse to step forward to be inducted knowing that they will have two years or longer of freedom due to the slow handling of these cases by the Selective Service Board, United States Attorney's Office and the courts. San Francisco has several cases where the violations are over two years old in which no prosecutive action has been taken.

@@ -1,0 +1,67 @@
+# JFK-Files-Part-3_page_3165.png
+
+Convert to Markdown1777
+
+a scientific student, and he makes a comment to a fellow
+employee that there is going to be some spectacular event
+that is going to bring the attention of the world on this
+city.
+
+Senator Mondale. Wouldn't you have probable cause then
+to investigate the commission of a crime?
+
+End Tape 6
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

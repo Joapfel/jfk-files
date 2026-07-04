@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_2911.png
+
+Convert to Markdown2497
+
+Mr. Kelley. I don't think they're asking for files.
+I think they're asking for what testimony was given by
+witnesses whose testimony has not been given up. I don't know.
+
+Senator Hart of Colorado. I'll quote it. "And all
+material provided to the Committee by the FBI which relates
+to Dr. King and the Southern Christian Leadership Conference."
+
+I repeat the question. Why is the Justice Department
+asking this Committee for material provided to us by the
+FBI?
+
+Mr. Kelley. Frankly, I don't know. Do you mind if I just ask —
+
+(Pause)
+
+Mr. Kelley. I am informed, and I knew this one.
+
+Everything that was sent to you was sent through them. Did
+they have a copy also? Yes, they had a retained copy. I
+don't know why.
+
+Senator Hart of Colorado. So there's nothing you
+provided us that's not available to the Justice Department?
+
+Mr. Kelley. That's right.
+
+Senator Hart of Colorado. And you can't account for why
+an official of the Justice Department would ask this Committee
+for your records?
+
+Mr. Kelley. No, sir.
+
+Senator Hart of Colorado. You released a statement on
+November the 18th of '74 regarding the FBI's counter-intelligence
+
+NWW 88608 DocId:32980820 Page 58
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

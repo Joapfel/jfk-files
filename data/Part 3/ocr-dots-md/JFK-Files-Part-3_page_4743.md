@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_4743.png
+
+Convert to MarkdownLA 92-1130
+
+<table><tr><td>IRS [JFK Law 11(a)]</td></tr></table>
+
+It has already been reported to the Bureau that ROSSELLI deposited this $25,000.00 check to his account at the Fidelity Bank, Beverly Hills, California, on 7/11/63.
+
+<table><tr><td>IRS [JFK Law 11(a)]</td></tr></table>
+
+On 9/20/63, Los Angeles Police Department advised that recently one of their officers called the last known telephone number they had for ROSSELLI. This number was OL 4-7164. ROSSELLI has not had this number since March, 1961. The officer asked for ROSSELLI and the woman who answered said ROSSELLI was not there but would be in later. The woman then told the officer that Mr. NESSER was in and could probably help the caller (LAPD Officer). The officer declined to talk to NESSER. The Los Angeles Police Department ascertained that telephone number OL 4-7164 is currently listed to Home Savings and Loan Association. IRS, Los Angeles, who had also received this information from the Los Angeles Police Department ascertained that OL 4-7164 is answered by Lauria's Telephone Answering Service for GORDON NESSER, an employee of Home Savings and Loan. IRS also found that during the past two months, ROSSELLI has received several calls in c/o NESSER at telephone number OL 4-7164. IRS has already made arrangements for interview of NESSER regarding his relationship with ROSSELLI, and specifically as to whether or not ROSSELLI has invested money in some real estate venture.
+
+<table><tr><td>IRS stated that on 9/13/63</td><td>IRS [JFK Law 11(a)]</td></tr></table>
+
+<table><tr><td>IRS [JFK Law 11(a)]</td></tr></table>
+
+On 9/16/63, LA 4129-C advised that shortly after noon on 9/13/63, ROSSELLI came to Perino's Restaurant alone and

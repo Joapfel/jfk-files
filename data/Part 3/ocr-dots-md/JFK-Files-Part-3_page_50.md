@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_50.png
+
+Convert to MarkdownIn Reply, Please Refer to
+File No.
+
+WASHINGTON, D.C. 20535
+
+December 15, 1966
+
+RE: COURTNEY A. EVANS
+PERSON NOT TO BE CONTACTED
+
+On December 10, 1966, Senator Robert F. Kennedy released to the press a copy of a letter to him dated February 17, 1966, from former Assistant Director Courtney A. Evans. In direct contradiction to official memos, a memo prepared by Evans for Bureau files during the early 1960's, his February 17, 1966, letter to Kennedy stated that "Evans" did not discuss the use of "microphones by the FBI with Kennedy during his tenure as Attorney General--nor did Evans "know of any written material that was sent to you" (Kennedy) "at any time concerning" microphone surveillances.
+
+In view of Evans' obvious lack of integrity, regard for the truth and duplicity toward the FBI, he should not be contacted without prior Bureau approval.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10-20-66 BY S.R. AMPERAN

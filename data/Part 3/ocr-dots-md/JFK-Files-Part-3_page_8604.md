@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_8604.png
+
+Convert to MarkdownALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE ID 17/808 BY SP83 Int'l MD
+
+The Limited States of America
+Transportation Contract
+MEMORANDUM CARD COPY
+
+DO NOT FOLD, SPINDLE OR MUTILATE
+
+<table><tbody><tr><td colspan="4">TRAVELER MUST ASKIF ANY COST OF TRANSPORTATION AND/OR ACCOMMODATIONS AND RECORD IN SPACES BELOW</td></tr><tr><td>48.65</td><td>25.60</td><td>74.55</td><td></td></tr><tr><td>1</td><td>2</td><td>3</td><td>TOTAL</td></tr></tbody></table>
+
+TICKET AGENT WILL NOT ACCEPT THIS
+
+0500
+21-60
+
+DW 88614 DocId:32989606 Page 106

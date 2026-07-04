@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_2607.png
+
+Convert to MarkdownSTATEMENT OF THE HONORABLE CLARENCE M. KELLEY, DIRECTOR, FEDERAL BUREAU OF INVESTIGATION
+
+Mr. Kelley. Thank you very much, Senator Church and gentlemen.
+
+I welcome the interest which this Committee has shown in the FBI and most particularly in our operations in the intelligence and internal security fields.
+
+I share your high regard for the rights guaranteed by the Constitution and laws of the United States. Throughout my 35 year career in law enforcement you will find the same insistence, as has been expressed by this Committee, upon programs of law enforcement that are themselves fully consistent with law.
+
+I also have strongly supported the concept of legislative oversight. In fact, at the time my appointment as Director of the FBI and was being considered by the Senate Judiciary Committee two and one half years ago, I told the members of that Committee of my firm belief in Congressional oversight.
+
+This Committee has completed the most exhaustive study of our intelligence and security operations that has ever been undertaken by anyone outside the FBI other than the present Attorney General. At the outset, we pledged our fullest cooperation and promised to be as candid and forthright as possible in responding to your questions and complying with your requests.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+NWW 88608 DocId:32989820 Page 12

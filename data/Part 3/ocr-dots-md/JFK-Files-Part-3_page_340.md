@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_340.png
+
+Convert to MarkdownU.S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FORMER SPECIAL AGENT
+ROBERT S. BAKER BY SSC STAFF MEMBER
+
+Mr. Seidel then stated that these cartoons were prepared by the Bureau Laboratory.
+
+Mr. Baker stated that he did not recall.
+
+Mr. Baker advised Mr. Seidel that US, Incorporated, and the BPP were led by and made up of people with extensive criminal records, and because of this and their general demeanor, the FBI did not really have to provoke or disrupt them because they kept themselves in a constant state of turmoil. He stated that Special Agents connected with the COINTELPRO did not devote much time to the program because of heavy case loads of other matters and because they assisted in working criminal matters such as bank robberies and other criminal violations.
+
+Mr. Baker advised Mr. Seidel that a great deal of time was spent by the Special Agents working with their sources because they had to be extremely careful that they were protected. If a crime was planned and a source had knowledge of it, the source would try to keep the crime from being committed. If it was not possible to prevent the crime, the source might be forced to participate, and if arrested, a problem would be created in attempting to get the source out of jail and still conceal his identity as a source.
+
+Mr. Seidel inquired of Mr. Baker as to the names of the Agents he dealt with in Los Angeles and San Francisco in connection with COINTELPRO.
+
+Mr. Baker stated that he recalled that Supervisor Albert Clark had something to do with the program in San Francisco, and in Los Angeles he dealt with Supervisor Richard Bloeser and Bill Knowland.

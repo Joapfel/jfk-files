@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_5958.png
+
+Convert to Markdown# ROUTE IN ENVELOPE
+
+MR. J. B. ADAMS
+MR. W. R. WARMALL
+
+TOP SECRET
+
+10/21/75
+
+SENSTUDY
+
+On October 21, 1975, from approximately 2:15 p.m. to 3:35 p.m., Section Chief William A. Branigan, CI-1 Section, Intelligence Division; Assistant Director John A. Minta, Legal Counsel Division; and myself appeared at an Executive Session of the Senate Select Committee on Intelligence Activities to discuss classified aspects of the Bureau's various mail intercept programs. Present were Senator Church, Chairman of the Select Committee; Senators Mendale, Goldwater, P. A. Hart, Huddleston and Schweiker; as well as various members of the staff of the Select Committee.
+
+Generally speaking, the reception by the Chairman and the various Senators, as well as members of the staff, was a friendly one. No antagonism was shown to the Bureau representatives, and the Senators by their questions indicated a desire to help the Bureau in our foreign counterintelligence operations.
+
+At the request of the Chairman, the eight separate mail intercept surveys were explained to the Committee, including the length of time that these surveys were in operation and the value that was derived from them.
+
+During the hearing we were supplied with a copy of a Staff Memorandum which outlined various aspects of our operations which would not be disclosed during a public hearing. The Staff Memorandum also outlined certain questions which could not be discussed at a public hearing and suggested that those questions be raised at the Executive Session. A copy of the Staff Memorandum is attached for your information.
+
+Enclosure
+
+WAB:hke
+
+(6)
+
+Classified by 2355
+
+Exempt from GDS Categories 2 and 3
+
+Date of Denclassification Indefinite
+
+ROUTE IN ENVELOPE
+
+N.W. 88614 DocId:32989673 Page 72
+
+CONTINUED OVER
+
+TOP SECRET
+
+1-Mr. J. B. Adams
+
+1-Mr. J. A. Minta
+
+1-Mr. W. R. Wannell
+
+①Mr. W. O. Cregar
+
+1-Mr. W. A. Branigan
+
+961
+
+Lorrie
+
+I am sorry I cannot give you more information about this matter at the present time, but I can state that there has been no such thing as a secret meeting between the President and General Counselor T-Generol. He has not spoken to either of them personally, nor have I. However, I do believe that it is highly confidential, and that only those who are directly concerned will know of its contents. This would seem to rule out any possibility of leakage through any medium.

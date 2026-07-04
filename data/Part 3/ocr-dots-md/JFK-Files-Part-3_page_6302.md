@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_6302.png
+
+Convert to MarkdownCommissioner
+
+REC-114
+
+OCT 30 1975
+
+Mr. William Creager
+Section Chief, CI-2
+Federal Bureau of Investigation
+John Edgar Hoover Building
+Room 4123
+Washington, D. C. 20535
+
+Dear Mr. Creager:
+
+Representatives of the Senate Select Committee on Intelligence, who have been reviewing files of our former Special Service Staff, have asked for copies of the enclosed two FBI reports relating to Nathaniel Walter, Junior.
+
+I would appreciate your letting me know as soon as reasonably convenient whether the FBI has any objection to our providing the Staff with copies of the reports.
+
+With kind regards,
+
+Enclosures
+
+copy to: Mr. Arthur Jefferson
+Senate Select Committee Staff
+
+REC-114
+
+□1 OCT 30 1975
+
+30 OCT 3.0 1975

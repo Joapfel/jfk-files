@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_6044.png
+
+Convert to MarkdownSOUTHERN CHRISTIAN LEADERSHIP CONFERENCE
+
+URBURN AVE., N.E.
+NTA 3, GEORGIA
+PHONE 524-1378
+
+Martin Luther King Jr., President
+
+Wyatt Tee Walker, Executive Director
+
+July 3, 1963
+
+Attorney General Robert Kennedy
+Department of Justice
+Washington 25, D. C.
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 7/8/63 BY SPJ ALV01966
+
+Dear Mr. Kennedy:
+
+Dr. King asked me to send you the enclosed copy of
+a letter which he has just sent to Mr. Jack O'Dell.
+
+enc

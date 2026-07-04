@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_8053.png
+
+Convert to Markdown17 April 1975
+
+MEMORANDUM FOR: Members of the USIB
+Ad Hoc Coordinating
+Group
+
+This is being furnished you at
+Dr. Clarke's request,
+
+Harriett D. Mowitt
+Executive Secretary
+
+Attachment
+
+ENGLISHED
+
+<table><tr><td>Ad Hoc Staff</td></tr><tr><td>75-350</td></tr></table>
+
+62 -1/63 93 = 150
+
+AM 1-19-73
+
+AUG 18 73
+
+FEB 2 73
+
+APR 1-19-73
+
+ACCT. 84-5214
+P.O. BOX 14860
+RICHMOND, VIRGINIA 23260
+
+HMDR16
+
+THIS SIDE UP
+THE OTHER SIDE DOWN
+
+FWB 191013 ZS 02 AUG 1973
+
+NW 88608 DocId:32989532 Page 3

@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_976.png
+
+Convert to MarkdownThe Attorney General
+
+NOTE:
+
+The Attorney General, on 8/8/75, and the Deputy
+Attorney General, met with Associate Director Nicholas P. Callahan,
+Assistant Director W. Raymond Wannall, and Inspector John B. Hotis
+to discuss the request of the Senate Select Committee for the identities
+of sources utilized to effect Cointelpro activities. The Attorney General
+indicated prior to discussing this problem, which relates to the over-
+all confidentiality of FBI sources, with Senator Church, Chairman of
+the Committee, he desired to be furnished information which would
+enable him to insure himself there were no Cointelpro activities of a
+scandalous or infamous nature which at a later date could cause em-
+barrassment to the Department. The attached memorandum was
+prepared during the period 8/8-12/75 by personnel of the Internal
+Security Branch of the Intelligence Division. It represents a careful
+review of all Cointelpro actions where results were known. It is
+pointed out in the majority of authorized Cointelpro actions results
+were not recorded. Also, because of the wide variety of Cointelpro
+actions, results in many areas are not subject to measurement. For
+example, there is no way of determining how many individuals left the
+Communist Party as a result of our documented mailings relating to
+Soviet anti-semitism.

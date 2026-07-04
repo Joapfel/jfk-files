@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_9327.png
+
+Convert to MarkdownSEKATE SELECT COMMITTEE OF INTELLIGENCE ACTIVITY (SSC)
+
+RE: INTERVIEW / OF FORMER FBI EMPLOYER BY SSC
+
+With regard to the effort made to obtain an
+Executive Order establishing the FBI's authority in security
+matters, Mr. Armstrong advised the SSC representative that in
+May, 1972, one of the principal questions raised by Mr. Gray
+was concerning the jurisdictional authority of the FBI to
+conduct intelligence or security investigations. He commented
+that in May, 1972, a conference was held at Quantico, Virginia,
+involving a number of Bureau executives and that during this
+conference the question of jurisdictional authority was
+discussed. Following the conference, a special team was set
+up to discuss this subject, including Mr. Armstrong and former
+Special Agent Thomas Smith of the Intelligence Division.
+According to Mr. Armstrong, it was felt that it would be
+appropriate to develop a new set of guidelines and not to
+rely on prior statutes and Presidential orders. Armstrong
+recalled that after several meetings of this group, Thomas Smith
+prepared a document consisting of 43 pages which was completed
+approximately six weeks after the group was created. Armstrong
+recalled that the document was received in the Acting Director's
+office and was discussed at one of the regular afternoon
+staff conferences. At that time it was agreed that the document
+was good but that the timing was not thought to be appropriate.
+The thought was expressed that it would be held in abeyance
+until after the coming elections. It was Mr. Armstrong's
+belief that the matter might have been discussed between
+Attorney General Kleindienst and Mr. Gray, and it was decided
+not to push the matter until after the elections. Mr. Armstrong
+recalled advising Mr. Smith of the location of the document and
+the fact that it was being held in abeyance until after the
+elections.
+
+The matter of the above document did not come up
+again until shortly before the confirmation hearings concerning
+Mr. Gray. At that time it was Mr. Armstrong's belief that the
+Bureau should not push for the Executive Order until after a

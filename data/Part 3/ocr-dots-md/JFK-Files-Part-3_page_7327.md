@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_7327.png
+
+Convert to MarkdownThe existence of such files was not publicly acknowledged until 1973, after Hoover's death, when the Senate was considering the appointment of L. Patrick Gray as his successor.
+
+Then acting director, Gray told the Senate Judiciary Committee he had seen files so hot there was no way of destroying them without risking hurt to some subjects:
+
+Saying he would like to burn them, Gray said the law gives the National Archives final say over the documents.
+
+Subsequent news stories disclosed the existence of files on Sen. Edward Kennedy then House Majority Leader Hale Boggs, and several others.

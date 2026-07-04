@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_2462.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO : SAC, WFO (65-8300)
+
+FROM : L. W. R. OBERNDORF, SCS
+
+SUBJECT: SAM SURVEY
+
+DATE: May 21, 1962
+
+In examining communications which may be
+Soviet intelligence communications or writings, the
+manner in which a particular communication may be
+folded and placed in an envelope can be of significant
+importance. (X)(U)
+
+Special Agents handling matters in the SAM
+SURVEY, and any other Special Agents handling matters
+which may pertain to Soviet intelligence communications,
+are instructed to take careful note of the exact manner
+in which questioned documents are folded and placed in
+envelopes for mailing. Specific comments on the results
+of such examinations are to be placed in case memoranda
+and such comments shall be in addition to those presently
+required in the SAM SURVEY with regard to the envelope
+itself and with regard to handwriting or typewriting
+characteristics of the message. (P14)
+
+MDR 16
+
+DECLASSIFIED BY OP & ALM/EHL
+ON 11/14/00
+
+3 - WFO
+(1 - 65-7973 - METHODS OF DETECTING SOVIET ILLEGAL AGENTS)
+(1 - 100-16597 - SODAC)
+
+LWRO/pcn
+(3) pm
+
+CLASSIFIED BY ~~1482 8~~ 3/28/78
+EXEMPT FROM QRS CATEGORY 243
+DATE OF DECLASSIFICATION INDEFINIT:
+
+CONFIDENTIAL
+
+<table><tr><td>SEARCHED</td><td>INDEXED</td></tr><tr><td>SERIALIZED</td><td>TILED</td></tr><tr><td colspan="2">MAY 21 1962</td></tr><tr><td colspan="2">FBI-WASH. F.O.</td></tr></table>

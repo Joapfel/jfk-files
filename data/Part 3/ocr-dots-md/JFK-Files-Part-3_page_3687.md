@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_3687.png
+
+Convert to Markdownrecognize that the President's "domestic security role" has a
+"constitutional basis"; that the President through the Attorney
+General may need "to obtain intelligence information about those
+who plot unlawful acts against the Government"; and that "threats
+and acts of sabotage against the Government exist in sufficient
+number to justify investigative powers with respect to them."
+The Court applied the general principle that "unless the Govern-
+ment safeguards its own capacity to function and to preserve
+the security of its people, society itself could become so dis-
+ordered that all rights and liberties would be endangered."
+Nevertheless, the central holding of the Keith decision was that
+this power may not be exercised in such a way as to infringe
+constitutional rights. 407 U.S. 297 (1972).
+
+Even though the President may have the authority under
+the Constitution to direct the FBI to conduct intelligence
+investigations in the absence of legislation, Congress has the
+ultimate authority to substitute statutory authorization in
+place of the Presidential directives. As Justice Robert Jackson
+declared in the Steel Seizure Case, "When the President takes
+measures incompatible with the expressed or implied will of
+Congress, his power is at its lowest ebb. . . ." 343 U.S. 579,
+637.

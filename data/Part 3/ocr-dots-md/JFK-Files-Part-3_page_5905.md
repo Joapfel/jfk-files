@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_5905.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+Senate Select Committee
+
+Addressee:
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 10/10/75
+
+Caption of Document: Re 9/9/75 request materials pertaining to King and SCLC. Items 16, 17, 18, 19, 20,' 21, 22, 23, 24, 25, 26, 27, 30, 31, 32, 33, 34, and 35.
+
+Originating Office: FBI
+
+Delivered by: Richard S. Taylor Jr. Date: 10/17/75
+
+Received by: C.B. Boyce
+
+Title: Office大楼
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE U-14-00 BY SP-2 ALM-128
+
+Amendment 16
+
+G-2-116 E75 = 951
+
+NW 88614 DocId:32989673 Page 19

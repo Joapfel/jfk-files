@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_5596.png
+
+Convert to MarkdownROBERT MARVIN SHELTON
+
+UNITED KLAN OF AMERICA, INC.
+SUBSIDIARY OF THE U.S. KLAN
+
+1 - Mr. Sullivan
+2 - Mr. Daungardner
+3 - Mr. Gray
+4 - Liaison
+5 - Mr. Ryan
+
+Robert Marvin Shelton, born June 13, 1920, married,
+two children, residents of 1700-Tenth Street, East, Tuscaloosa,
+Alabama. No is presently employed with the United Klans of America,
+Inc., headquarters of the
+Ku Klux Klan, Suite 400, Alvin L. Drilling, Tuscaloosa, Alabama,
+but a reported annual salary of about thousand dollars. The
+United Klans of America, Inc., is sometimes known as the
+Alabama Rescue Service.
+
+It is requested two uncertified copies each of the Federal tax returns filed by Shelton and the United Klans of America, Inc., for the past five years to be made available.
+
+DR:lat:Itl
+(8)
+
+① - 157-552 (Shelton)
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.

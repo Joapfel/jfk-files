@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_7733.png
+
+Convert to Markdown# SCOPE OF FBI AUTHORITY, JURISDICTION AND RESPONSIBILITY IN DOMESTIC INTELLIGENCE INVESTIGATIONS
+
+## BACKGROUND
+
+Over the past several months there have been an increasing number of public statements made from various quarters questioning or contesting authority and jurisdiction of the FBI to conduct domestic intelligence-type investigations, particularly where there is no clear-cut legislative authority apparent. One of the most searching inquiries was contained in a paper presented by Professor John T. Elliff at a two-day conference at Princeton University in October, 1971, sponsored by the Committee for Public Justice.
+
+Professor Elliff addressed himself to the matter of FBI authority derived from legislative enactments as opposed to that derived from Presidential directives. He went into some detail in connection with the Presidential directive issued by President Roosevelt in September, 1939, which was subsequently reiterated on three occasions. Elliff questioned whether Roosevelt was even aware that he was shifting FBI authority from congressional enactment to Presidential directive when he issued the September, 1939, directive since he probably assumed he had granted such authority in 1936 when he requested intelligence investigations of fifth columnists. Elliff accused the FBI of magnifying the September, 1939, directive into a definitive order.
+
+Over a long period of time Senator Sam J. Ervin has been probing into the nature and extent of FBI gathering and retention of domestic intelligence information. In April, 1971, Senator Ervin made a request of the Department of Justice to furnish detailed information concerning the Department's (the FBI's) policy and practice on investigating and reporting the political beliefs and activities of persons not under investigation for violating the laws. Of particular interest was specific information on the constitutional authority and power exercised by the Executive Branch to conduct such investigations.
+
+Subsequently, Senator Ervin announced that he intended to propose legislation to prohibit the FBI from investigating any person without his consent, unless the Government has reason to believe that person has committed a crime or is about to commit a crime. Other Congressmen have either introduced or announced plans to introduce legislation or resolutions calling for special activities, particularly in the area of domestic intelligence operations.

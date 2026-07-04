@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_5353.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+FROM : W. O. Cregar
+SUBJECT: SENSTUDY 75
+
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. J. P. Thomas
+
+DATE: 8/6/75
+
+This is to record identities of Staff Members of the U. S. Senate Select Committee on Intelligence Activities (SSC) who have had access to FBI materials pursuant to SSC requests.
+
+On 7/28/75, SSC delivered a "superceding request" for various materials. In partial compliance with that request, SSC Staff has been given access for review to the following:
+
+| Item | Subject | Staff Member | Date |
+|---|---|---|---|
+| III B & C | O & C Files | Mark Gitenstein | 7/31-8/1/75 |
+| III D | Abuse areas | " " | 8/6/75 |
+| III E | SAC lets & memos | " " | 8/4/75 |
+| IV C | Foreign Operations Policy Manual | John Elliff | 8/4/75 |
+| IV D | 5-yr. INTD Budget Projection | " " | 8/5/75 |
+| IV G | INLET material | " " | 8/4-5/75 |
+| IV H | Insp. Div. material re O & C files | Mark Gitenstein | 7/31/75 - |
+| IV F | Surreptitious Entry(s) Chilean Embassy | John Elliff | 8/5/75 |
+
+SECRET
+
+62-116395
+
+JPT:lhblhb
+(4)
+
+CLASSIFIED BY SPAM LMF
+DECLASSIFY ON: 25X [ ]
+MOR-16
+
+CONTINUED - OVER
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED EXCEPT WHERE NOTed OR ASYnISE.
+
+9 AUG 8 1975
+
+Regarding the 5/14/75 SSC request, Appendix B, I, 6, Mark Gitenstein on 7/30/75 reviewed inspection reports of Domestic Intelligence Division, January and September, 1971,
+
+NW 88608 DocId:32989626 Page 84
+
+SECRET
+
+9 AUG 1, 1975

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_5979.png
+
+Convert to MarkdownROBERT MARVIN SHELTON
+
+UNITED STATES OF AMERICA, INC.
+DIRECTORS OF THE UNITED STATES BANK
+
+I - Mr. Sullivan
+I - Mr. Daungardner
+I - Mr. Gray
+I - Liaison
+I - Mr. Ryan
+
+Robert Marvin Shelton, born June 13, 1920, married, two children, residents of 1745-Tenth Street, East, Tuscaloosa, Alabama. No in presently employed with the United States Air Force. Wizard by the United States of America, Inc., Head of the Mu Kuxx Klan, Suite 600, Alvin A凌ington, Tuscaloosa, Alabama, at a reported annual salary of about thousand dollars. The United Klans of America, Inc., is sometimes known as the Alabama Rescue Service.
+
+It is requested two uncorrected copies each of the Federal tax returns filed by Shelton and the United Klans of America, Inc., for the past five years to be made available.
+
+DR:lat:itl
+(8)
+
+① - 157-552 (Shelton)
+
+ALL INFORMATION CONTAINED
+DURING IS UNCLASSIFIED
+DATE 10/13/60 BY SPAM-16
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.

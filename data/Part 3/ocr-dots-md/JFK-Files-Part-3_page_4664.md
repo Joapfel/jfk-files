@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_4664.png
+
+Convert to MarkdownTP 92-1
+
+FR 4-2906, but her name was not divulged. HOWARD, according
+to source, was in contact with BEN KULBACK, 2115 Washington
+Avenue, Miami Beach, Florida, telephone JE 8-0794, it being
+noted this individual has formerly been identified as having
+visited subject's residence in Miami in the past.
+
+B. JAMES C. LONGO
+4214 Riverview
+Tampa, Florida
+
+It has been reported in the past that LONGO had
+met with WILLIE PEP relative to some person being contacted
+by the name of "RENO" at Key West, Florida. The San
+Francisco Office has now advised that WILLIE PEP is no longer
+at Santa Clara, California, but they have contact with his mother
+residing at 19 McKenley, Hartford, Connecticut.
+
+Investigation in the past has revealed that
+whenever subject visits Tampa, on infrequent occasions, he
+may generally contact JAMES C. LONGO who frequents the Columbia
+Restaurant on an almost daily basis. LONGO has access to a
+telephone at the Columbia Restaurant Liquor Store Annex which
+is not generally used by the public nor would other personnel
+use such for long distance phone calls. In view of the above,
+the following is set forth:

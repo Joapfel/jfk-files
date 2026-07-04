@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_7224.png
+
+Convert to MarkdownDate of Mail 2/7/75
+
+Has been removed and placed in the Special File Room of Records Section.
+
+See File 66-2554-7530 for authority.
+
+Subject JUNE MAIL SELECT COMMITTEE OF THE SENATE
+
+Removed By 7 9 MAR 3 1975
+
+File Number 62-116395-20
+
+Permanent Serial Charge Out

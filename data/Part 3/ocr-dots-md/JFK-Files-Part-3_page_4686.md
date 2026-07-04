@@ -1,0 +1,90 @@
+# JFK-Files-Part-3_page_4686.png
+
+Convert to MarkdownDate: 8-22-58
+
+To: Director, FBI
+
+(Bufile : 92-2918 )
+
+From: Legal Attache, Ottawa
+
+Attention :
+
+( 92-10 )
+
+<table>
+   <tr>
+    <td>
+     Title
+    </td>
+    <td>
+     Character
+    </td>
+   </tr>
+   <tr>
+    <td>
+     SAMUEL MANNARINO, was.; GABRIEL MANNARINO, was.
+    </td>
+    <td>
+     ANTI-RACKETEERING Reference Pittsburgh let to BU 6-6-58.
+    </td>
+   </tr>
+  </table>
+
+Enclosed are the following communications received from the RCMP: Original and two copies of RCMP memorandum dated 8-21-58, together with enclosure consisting of three Photostats of RCMP Toronto, Ontario,
+
+Remarks: Detachment report dated 8-15-58.
+
+The RCMP Toronto report identifies Ben Littman of 287 Spondina Street, Toronto, Ontario, as Benjamin Leitman; and Ernie Shimanky, owner of the Isabelle Hotel in Toronto, as Ernest Chamandy, and further notes that while neither of the two have come to the attention of the RCMP in connection with illicit drug traffic, Leitman could always be considered a suspect, but there has been no reason to suspect Chamandy.
+
+Dissemination
+
+May be made as received
+
+May be made as indicated by stamp on enclosure
+
+May not be made without further clearance with RCMP
+
+Following offices would be interested in receiving copies of enclosures:
+
+Pittsburgh (92-228) (92-236)
+
+Status with this office:
+
+RUC
+
+Pending
+
+3 - Bureau (Encls. 6)
+1 - Ottawa
+CPB: jhc
+(4)
+
+60 SEP 5 1958
+
+<table>
+  <thead>
+    <tr>
+      <th colspan="3">Do not write in space below</th>
+    </tr>
+  </thead>
+  <tbody>
+    <tr>
+      <td>92-2918</td>
+      <td>- 62</td>
+      <td rowspan="2">REC- 39</td>
+    </tr>
+    <tr>
+      <td colspan="2"></td>
+    </tr>
+    <tr>
+      <td colspan="2">17 AUG 26 1958</td>
+      <td rowspan="2">FN. 123</td>
+    </tr>
+    <tr>
+      <td colspan="2"></td>
+    </tr>
+  </tbody>
+</table>
+
+NW 78318 DocId:34489831 Page 2

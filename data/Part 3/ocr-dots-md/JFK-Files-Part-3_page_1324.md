@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_1324.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+
+WASHINGTON, D.C. 20530
+
+August 29, 1975
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Michael E. Shaheen, Jr.
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Senate Select Committee Request
+
+Attached is a copy of a letter from Senator Church to the Attorney General dated August 28, 1975. The letter is self-explanatory.
+
+I would appreciate it if you would treat this request with the highest priority.
+
+I have discussed with Mike Epstein (in Elliff's absence) of the SSC and with Elmer Larson of the Bureau the demands this request will pose for the Bureau, and we have agreed to defer responding to Elliff's requests of August 20, 1975, for Parts IV and V, from September 4 to September 9, in an effort to meet the response date (September 3) of the attached request.
+
+REC-56
+
+EX 104
+
+SEP 4 1975
+
+NDR-1017/00
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/00 BY SPA MARK
+
+79 SEP 17 1975
+
+NW 88608 DocId:32989640 Page 363

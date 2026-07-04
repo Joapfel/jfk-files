@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_4426.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+in advance about the plans for National Interim Committee (ruling body of Worker Student Alliance) meetings which took place in New York and Chicago. The coverage also furnished information, well in advance, of plans by Students for a Democratic Society, Worker Student Alliance group, for demonstrations at San Francisco, Detroit, Salt Lake City, Minneapolis and Chicago. This source also has furnished information concerning the identities of approximately 1,428 persons in touch with the national headquarters or associated with Worker Student Alliance activities.
+
+The coverage furnished high quality information on a continuing basis which was not otherwise available.
+
+Your authority is requested to continue this telephone surveillance at the present location for an additional three months effective September 16, 1970.
+
+APPROVED [Signature]
+
+DATE 9/16/70
+
+SECRET
+
+- 2 -

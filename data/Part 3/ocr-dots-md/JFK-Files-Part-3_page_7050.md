@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_7050.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+
+RE: SENSTUDY 75
+
+this paper was on the agenda for this meeting, it was never discussed because of the length of meeting, concluding at approximately 8:30 p.m. Following the meeting, Assistant Director Mintz and Mr. Cregar had a discussion with Mr. Wilderotter. During this discussion Mr. Mintz pointed out to Mr. Wilderotter that it was imperative that this Executive Committee clearly define how responses to the Select Committees would be coordinated and how matters dealing with policy would be cleared with the White House. Mr. Wilderotter described the following procedure. All questions received by agencies of the Intelligence Community from Select Committees would be furnished to Mr. Clarke. As a matter of fact, Mr. Wilderotter advised a copy of the questions received by the Department from the Senate Select Committee requiring responses from the FBI had already been turned over to Mr. Clarke by Mr. Wilderotter. Upon receipt of a copy of such questions, Mr. Clarke would review them and attempt to identify which questions involve policy matters of interest to the White House. He would then inform all agencies involved in such a response that such a question involved policy. Those agencies would be obliged to discuss the response between themselves and arrive at a coordinated answer. That answer would then be furnished to Mr. Clarke who would in turn make a decision as to whether it should go forward to the White House for resolution. Answers to questions which did not involve policy matters would also have to be furnished to Mr. Clarke to insure that there was some coordinating mechanism in the Community and to insure that this mechanism was in possession of all questions and all answers which might be provided the Select Committees.
+
+Mr. Mintz made it quite clear to Mr. Wilderotter that this was not the Bureau's understanding of how the coordination process would work and was of the belief that no other agency represented on the Executive Committee was aware of this procedure. Mr. Wilderotter was asked to develop such a procedure for presentation to the Group to insure everybody was in agreement as to how this process would work.
+
+On the morning of 3/21/75, Mr. Clarke advised that as a result of the meeting during the evening of 3/20/75 he was completely confused and was at a loss as to how the coordination process was going to work. He advised Mr. Cregar that he would
+
+CONTINUED - OVER
+
+-NW 88608 DocId:32989530 Page 15-

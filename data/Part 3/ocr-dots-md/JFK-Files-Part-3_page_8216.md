@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_8216.png
+
+Convert to Markdown# GUIDELINES FOR PARAPHRASING SENSITIVE INFORMATION IN CERTAIN DOCUMENTS PROVIDED SELECT COMMITTEES
+
+1. The Director of Central Intelligence has recently discussed with Senator Church the need for special consideration and treatment by the Select Committee of certain sensitive aspects of intelligence activities and the Senator has expressed his recognition of this need: It is anticipated that appropriate arrangements can be made so as to avoid the risk of exposing such matters and at the same time satisfying the Select Committees' need for a full understanding of the intelligence community's activities. Included in such matters are the identities of sensitive sources, the material provided to the United States by cooperating foreign intelligence services, the details of technical devices and systems and of operational methods, the identities of certain employees whose safety could be jeopardized if revealed, the identities of American citizens and organizations who have cooperated with US intelligence and some additional materials the public disclosure of which would create serious foreign policy or national security problems. Such material should be protected not only from exposure but indeed the risk of exposure. Further, recognition should be given to the need to protect certain other information which, if improperly disclosed, might impair the privacy rights of individuals.
+
+2. Proper procedures should enable intelligence community members to prevent risk of disclosure of sensitive sources and methods and at the same time present to the Select Committees the necessary details to allow for their proper understanding of community activities.
+
+3. The procedures described herein are not to be used as downgrading or declassification guides. All concerned should be mindful that application of these procedures will not declassify, downgrade or remove from compartmentation controls any documents or information provided the Select Committees, unless individual advice to that effect is provided as well.
+
+## 4. What May Be Paraphrased
+
+While it is not possible to anticipate all requirements which may be levied by the Committees for documenting material and not
+
+ALL FBI INFORMATION CONTAINED
+HERETIN IS UNCLASSIFIED
+DATE 7-9-67 BNL-24756
+9/20/67 #

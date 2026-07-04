@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_8583.png
+
+Convert to Markdownthese instructions, since he felt that CIA knew what
+should be done in this type of case. He received a
+telephone call from the DA's Office and a statement
+was read to him to the effect that the information
+which he had received and made public to the effect
+that RIJA was alive and well was in error. SMILEY
+told the caller that he agreed with the statement and
+nothing further came of this.
+
+Dr. SMILEY does not know what part, if any,
+the CIA has in this case, but since ho, SMILEY, is
+himself a former intelligence agent he did not feel
+that he had the right to question something which
+might be of vital importance to his country.
+
+DR. SMILEY REQUESTED THAT NO HINT OR
+INFERENCE BE GIVEN TO THE CIA WHICH WOULD INDICATE
+THAT HE HAS REVEALED TO THE FBI HIS CONTACTS REGARDING
+THIS MATTER WITH THE DENVER OFFICE OF THE CIA.
+
+He stated that though he has no evidence to
+substantiate his belief, he cannot get it out of his
+mind that RIJA may have been a double agent for the
+Soviets or the Czechoslovakia. He is aware that one
+Mrs. TANNENBAUM, a woman indicted for a number of frauds
+and a suspect in two arsenic poisonings, is considered
+a suspect in the disappearance of RIJA. He never knew
+RIJA to be associated with any such woman, but stated
+that he was not acquainted with the personal life of
+RIJA who was somewhat of a "loner".
+
+RIJA, when he joined the staff of the University
+of Colorado, was single but in 8/68, an individual came
+to visit RIJA ostensibly for the purpose of arranging
+a marriage between RIJA and the man's sister. The
+intended bride was a Czechoslovakian girl who was born in
+Prague, Czechoslovakia, and this "brother-in-law" was
+entertained by a member and colleague of RIJA in the
+History Department. This individual indicated to SMILEY
+that although the "brother-in-law" supposedly did not
+speak any English, and had RIJA translate every statement
+into Czech, it was apparent from the gestures and expressions
+of the "brother-in-law" that he understood more than he
+let on. Three weeks after the visit of this man, the woman
+who became Mrs. RIJA came to Boulder, Colorado, where she
+and RIJA were married. The marriage resulted in divorce
+a short time later and the girl reportedly returned to
+the East Coast from whence she came.

@@ -1,0 +1,67 @@
+# JFK-Files-Part-3_page_99.png
+
+Convert to MarkdownPLAINTEXT
+
+TELETYPE
+
+NITEL
+
+TO: SAC, NEW YORK
+
+FROM: DIRECTOR, FBI
+
+1 - Mr. Mintz
+1 - Mr. Walsh
+1 - Mr. Wannall 9/5/75
+1 - Mr. Cregar
+1 - Mr. Hotis
+1 - Mr. Daly
+
+SENSITIVITY: 75
+
+RE BUREAU TELEPHONE CALL 9/5/75.
+
+THE SENATE SELECT COMMITTEE HAS REQUESTED THAT SPECIAL AGENT DOUGLAS MAC DOUGALL BE MADE AVAILABLE IN WASHINGTON, D. C., FOR INTERVIEW BY THAT COMMITTEE ON 9/9/75 AT 10 A.M. THE INTERVIEW WILL INVOLVE SA MAC DOUGALL'S KNOWLEDGE IN THE PARTICIPATION IN MAIL COVERAGE.
+
+SA MAC DOUGALL SHOULD ARRANGE TO ARRIVE IN WASHINGTON, D. C., IN TIME TO BE BRIEFED BY REPRESENTATIVES OF THE LEGAL COUNSEL AND INTELLIGENCE DIVISIONS AT 3 P.M. ON 9/8/75 IN ROOM 4509 IN THE JUSTICE BUILDING.
+
+SEP 9 1975
+
+NOTE: James Dick, Senate Select Committee Staff Member, made the request for the interview of SA MacDougall concerning mail covers. This interview will be a Staff interview. Reference phone call to advise the New York Office of this request and of the fact that SA MacDougall should be available for the briefing on 9/8/75 by the Legal Counsel and Intelligence Divisions. This communication will serve as approval for the waiver of an existing employment agreement signed by SA MacDougall for purposes of this interview.
+
+Assoc. Dir.
+Dep. AD Adm. -
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+PVD:lad
+(10)
+
+AD
+
+79 SEP 17 1975
+
+MAIL ROOM ☐ TELETYPE UNIT ☒
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED.
+
+DATE 10/17/75 BY: SRANKP
+
+GPO : 1975 O - 569-920
+
+NW 88608 DocId:32989640 Page 11

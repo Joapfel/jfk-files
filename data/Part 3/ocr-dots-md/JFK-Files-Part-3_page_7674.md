@@ -1,0 +1,82 @@
+# JFK-Files-Part-3_page_7674.png
+
+Convert to Markdown62-116395
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. H. N. Bassett
+1 - Mr. W. O. Cregar
+1 - Mr. T. E. Burns
+
+June 12, 1975
+
+1 - Mr. J. Cochran, Jr.
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: FURTHER DOCUMENTS PERTAINING TO THE
+FBI AND DEPARTMENT OF JUSTICE
+
+POLICIES AND PROCEDURES
+
+Reference is made to SSC letter dated May 14, 1975,
+with attached appendices, requesting certain documents and
+other information from the FBI.
+
+Pursuant to your request in Appendix B, Part I,
+Item 7, for guidelines used by the FBI Inspection Division
+for inspecting field offices and for inspecting Divisions
+of the FBI, we currently have such material available for
+review at FBI Headquarters by appropriately cleared personnel
+of the Committee.
+
+1 - The Attorney General
+
+TEB:dmt
+(10)
+
+NOTE:
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 7-25-75 BY S.D.Z. ALM/By MDR-16
+
+See H. N. Bassett memorandum to Mr. Wannall June 2,
+1975, captioned "Senstudy 75," wherein the Inspection Division
+advised it has no objection to a review of the field and
+headquarters inspection manuals by members of the Committee
+staff provided the review is conducted in FBI space with an
+Inspection Division representative present. When SSC review
+is requested, we will have the Inspection Division representative
+make the manuals available.
+
+NOTE CONTINUED PAGE 2
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+ENCLOSURE
+
+GPO 934-348
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y

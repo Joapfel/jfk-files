@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_5736.png
+
+Convert to MarkdownMemorandum to Mr. Tolson
+
+Re: The Long Committee
+
+I called Mr. DeLoach and briefed him on this problem in order that he might contact Senator Eastman (in an effort to warn the Long Committee away from those areas which would be injurious to the national defense. (Of course I made no mention of such a contact to the Attorney General.)
+
+Mr. DeLoach advised that Senator Eastman is in Mississippi and he will contact him upon his return Monday.
+
+I don't see what all the fuss is about. I should have no objection to continuing all谈 in取消 technical conversation, and perhaps there might be some room for a new idea or two. But as things are, I believe there would be little benefit in starting another war, being involved in just one more.

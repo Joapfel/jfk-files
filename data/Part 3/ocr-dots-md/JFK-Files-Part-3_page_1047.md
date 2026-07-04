@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_1047.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+In October, 1967, the Miami Office furnished newspaper articles to television station WCKT-TV regarding bombings and firebombings. Some individuals involved in the firebombings and bombings were Klansmen and were identified as such in the newspaper articles.
+
+The articles were used in an expose concerning the Klan aired October 22, 1967, by WCKT-TV, Miami, Florida, entitled "KEK - A Change of Lines."
+
+The expose resulted in disruption in the Florida Klan and lack of success in Klan recruiting.
+
+WDF: vb
+(9)
+
+157-9-29-166, 170, 171
+
+SECRET
+
+NW 88608 DocId:32989640 Page 86

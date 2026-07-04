@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_301.png
+
+Convert to MarkdownUNITED STATES SENATE
+SELECT COMMITTEE ON
+INTELLIGENCE ACTIVITIES
+(SSC)
+
+INTERVIEW OF SPECIAL AGENT
+(SA) LAWRENCE F. WIRICK BY
+SSC STAFF MEMBER
+
+we made certain requests to conduct some types of counterintelligence against the BPP, but I do not recall that the Bureau ever authorized any counterintelligence act which might be productive.
+
+Change? COINTELPRO is not being utilized to the best of my knowledge and has not been for some time.
+
+I believe that in about two or three years Congress will be frantically asking the FBI why we did not furnish them intelligence, advance knowledge of a demonstration, a riot and other civil unrest and elimination of the COINTELPRO has been another step in the direction of placing the FBI and other law enforcement agencies in a position where we cannot react to the activities of groups such as the BPP which have been formed with the main purpose of overthrowing the United States.

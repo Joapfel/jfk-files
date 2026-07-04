@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_7715.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+UNITED STATES SENATE
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+May 28,-1975
+
+JUN 09 1975
+
+The Honorable Edward H. Levi
+The Attorney General
+Washington, D. C. 20530
+
+Dear Mr. Attorney General:
+
+On behalf of the Senate Select Committee to Study Governmental Operations With Respect to Intelligence Activities, we write to request the delivery forthwith to the members whose names are listed in the attachment hereto of any files on them or documents concerning them that are in the possession, custody or control of the Department of Justice, including the Federal Bureau of Investigation.
+
+This request is made pursuant to the mandate of the Senate, contained in S. Res. 21. That Resolution requires us to investigate the "conduct of domestic intelligence or counterintelligence operations against United States citizens by the Federal Bureau of Investigation or any other Federal agency".
+
+One means of accomplishing this objective is to review the material, if any, which the Department of Justice has gathered on members of the United States Senate.
+
+This request is made pursuant to the Committee's mandate and not under the Freedom of Information Act. The exemptions to that Act are designed to allow federal agencies and departments the degree of confidentiality necessary to conduct the ongoing activities of the Executive Branch, not to prevent a duly constituted Congressional Committee from understanding the nature, legality, and propriety of some of those activities. Whether as a matter of agreement between the Committee and the Department some material that may be in any such files should be withheld depends upon an analysis of the weight of the particular reason put forward for the proposed withholding balanced against the Committee's need to exercise its mandate.
+
+Obviously, material received by the members of
+
+<table><tr><td>DEPARTMENT OF JUSTICE</td></tr><tr><td>the Select</td></tr><tr><td>8 JUN 6 1975</td></tr><tr><td>R.A.O.</td></tr><tr><td>D</td></tr></table>
+
+ENCLOSURE
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10-30-75 BY: SPACEMAN 11-16-95-1116K
+
+NW 88608 DocId:32989609 Page 118

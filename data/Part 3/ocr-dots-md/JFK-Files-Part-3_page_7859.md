@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_7859.png
+
+Convert to MarkdownA: No.
+
+Q: When you monitored in other matters, was it not customary to know the agent to whom a case was assigned? If so, would you not then relate a conversation overheard to that agent?
+
+A: In the normal course of events, this would be true, and the agent to whom the matter was assigned would be so advised if the overheard conversation was urgent in nature. In the matter of Dr. KING, however, I did not know the agent to whom the case was assigned.
+
+Q: When you completed this monitoring, to whom did you give your logs?
+
+A: I do not recall; normal procedure would have been to give them to my immediate supervisor, Mr. BELTER.
+
+Q: Getting back to the hotel, did you and Mr. CAMPBELL leave together?
+
+A: I do not recall. In all probability, we did.
+
+Q: Did you carry the tapes and notes back to the office?
+
+A: I do not recall. Either Mr. CAMPBELL or I did, or we both may have. If I did carry them, I normally would have turned them over to the custody of Mr. BELTER.
+
+Q: You had no responsibility in regard to the equipment, i.e., setting up, dismantling it, or returning it?
+
+A: That is correct. My function in this matter was very limited and I recollect I was simply to go, monitor, and return.
+
+Q: "Who gave you this assignment?"
+
+A: I believe it was Mr. BELTER.

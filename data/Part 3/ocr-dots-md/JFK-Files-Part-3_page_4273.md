@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_4273.png
+
+Convert to MarkdownSECRET
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+At a National Council meeting of this organization held in Ann Arbor, Michigan, in December, 1968, a manual capacity "Work-In, a National SDS Summer Project" was brought to the attention of delegates to the meeting. This manual which has received wide distribution in this country sets forth a program by Students for a Democratic Society to invade industrial plants and other business organizations this summer for the purpose of disrupting operations and conducting an intensive propaganda campaign among employees geared against the United States and particularly private industry.
+
+At an Eastern Regional Conference of the Students for a Democratic Society held on February 1-2, 1969, at Princeton University, Princeton, New Jersey, a five-page proposal entitled "Smash the Military Machine in the Schools" was distributed by the Columbia University Students for a Democratic Society chapter. This proposal called for fomenting student uprisings, agitational demonstrations and other disturbances and violence in universities and high schools this spring throughout the country. It strongly emphasized a nation-wide attack on Reserve Officers Training Corps on college campuses.
+
+While this proposal has never been passed in the form of a resolution by the National Office of the Students for a Democratic Society, it nevertheless has been implemented on a number of occasions this spring by Students for a Democratic Society members and sympathizers. The major attack against Harvard University in April, 1969, was to abolish the Reserve Officers Training Corps at the University. Such attacks have also occurred at Yale University, George Washington University, Dartmouth College, Cornell University, California State College, Michigan State University and at many other colleges and universities.
+
+At the Students for a Democratic Society National Council meeting held in Austin, Texas, in March, 1969, Michael Klonsky, Students for a Democratic Society National Secretary, advocated that Students for a Democratic Society become a strong, centralized, Marxist-Leninist, revolutionary movement. Many of the national leaders of Students for a Democratic Society support Klonsky in this regard.

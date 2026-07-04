@@ -1,0 +1,46 @@
+# JFK-Files-Part-3_page_6171.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+New York, New York
+
+May 27, 1958
+
+Re: Leonard Bernstein, with aliases
+
+On June 30, 1950, a source who has furnished reliable information in the past, advised that in 1945 when the committee to aid Ben Davis was being considered, both Ben Davis and Jack Stachel described Leonard Bernstein to the source as an adherent of the Communist Party. This source stated that other Communist Party functionaries had also described Leonard Bernstein as a Communist. The source advised that in 1945 Jack Stachel informed him that Bernstein had agreed to submit to Communist discipline. This source advised on December 9, 1954 that he has no direct personal knowledge of Bernstein's willingness to submit to Communist discipline.
+
+Ben Davis and Jack Stachel were members of the National Board of the Communist Party who were tried and convicted in 1949 for violation of the Smith Act of 1940.
+
+Leonard Bernstein, by notarized affidavit dated August 3, 1953, submitted in connection with his application for passport, stated "...although I have never, to my knowledge, been accused of being a member of the Communist Party, I wish to take advantage of this opportunity to affirm under oath that I am not now or at any time ever been a member of the Communist Party or the Communist Political Association. I have never knowingly engaged in activities which supported the Communist movement under circumstances which would warrant the conclusion that I engaged in such activities as a result of direction, domination or control exercised over me by the Communist movement..."
+
+In February, 1958, a source of unknown reliability, but who is acquainted with the subject, advised that he believed Leonard Bernstein to be a Communist. This source based this belief on the way Bernstein talks, that is, that he has continually made anti-American and pro-Russian statements. Source was unable to furnish any specific details pertaining thereto.
+
+AGENCY /CC-7/9/77
+REQ. REC'D 12-1-56
+REP'T, FORM. 11-17-56
+BY 121 T. J. 1-12
+
+AGENCY RAB (O-6)
+REQ. REC'D ________
+DATE FORW. 6-27-58
+HOW FORW. 1-15
+BY LWFJefel
+
+NATIONAL SECURITY INFORMATION
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+COPIES DESTROYED
+891 FEB 20 1958
+
+NW 88614 DocId:32989679 Page 285
+
+COMPREHENSIVE
+
+COMPREHENSIVE
+
+C-2 C-2
+
+36

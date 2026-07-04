@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_5182.png
+
+Convert to Markdowndesks. In this way they are aware of the productivity of the informant program as it concerns them. Also, if there is any particular problem concerning the handling of a particular informant, a supervisor is expected to assist and give guidance to the agent handling this particular informant. Supervisors are also regularly reminded of the importance of the informant program at supervisors' conferences and follow their individual agents to insure that they are fully participating.
+
+Supervisors in this office are not required to approve either closing or opening memoranda on informant files. No record is kept of productivity of informants by desks, however, this information is readily available through the monthly statistical letter submitted on informant production inasmuch as each statistic is reported by classification.
+
+6. Agents are reminded of the criminal informant program and their responsibility to participate in it at each biweekly squad conference.
+
+7. Informant statistics are not kept by RA or road trip territory, however, this information would be available if it were necessary to obtain it by review of the particular informant files that are providing coverage in these areas. Our informant coverage in each RA area is considered adequate at this time and no particular weaknesses are noted. However, efforts are made on a continuing basis to try to improve coverage in all areas.
+
+8. It is felt that informant coverage at Headquarters City is adequate at this time, but as indicated in number seven above, a continuing effort is made to improve this coverage.
+
+Regarding the coverage provided by each criminal desk, it is noted that as of October 12, 1970, the following CIs and PCIs are being handled off the respective desks:

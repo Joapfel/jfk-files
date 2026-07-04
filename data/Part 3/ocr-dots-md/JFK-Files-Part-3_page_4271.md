@@ -1,0 +1,8 @@
+# JFK-Files-Part-3_page_4271.png
+
+Convert to Markdown# Memorandum For the Attorney General
+
+of the Nation, you are requested to authorize a technical surveillance at the office of the national headquarters of the Students for a Democratic Society, at 1103 East 63rd Street, Chicago, Illinois, or at any other premises it may occupy in the future.
+
+APPROVED 3/29/94
+DATE 6/4/67

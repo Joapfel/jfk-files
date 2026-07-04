@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_7025.png
+
+Convert to MarkdownLAWRENCE DUNBAR REDDICK
+
+LAWRENCE DUBAR REDDICK is Professor of Social Sciences at Coppin State College, Baltimore, Maryland. He currently resides at 3704 Winterbourne Road, Baltimore, Maryland.
+
+On September 17, 1943, a confidential source advised she had learned that Dr. REDDICK, who was then Director of the Schomburg Library, 103 W. 125th Street, New York City, was one of the most important unpublicized members of the Communist Party (CP). She stated that REDDICK seemed to be a source of information in regard to socialism and communism in the United States and the Soviet Union.
+
+A confidential source on March 23, 1951, said that he met LAWRENCE DUBAR REDDICK in 1943, through LUCY E GORDON, a staff member of the "Daily Worker" and that both GORDON and BENJAMIN J. DAVIS advised him that LAWRENCE DUBAR REDDICK was at that time a member of the CP. The source also said that REDDICK was an instructor at the George Washington Carver School.
+
+The "Daily Worker" was an east coast communist newspaper, which suspended publication on January 13, 1958.
+
+The George Washington Carver School has been designated by the U. S. Attorney General pursuant to Executive Order 10450.
+
+On February 5 and 11, 1954, LAWRENCE DUBAR REDDICK was interviewed by Special Agents of the Federal Bureau of Investigation in Atlanta, Georgia. He, at that time, stated that he was not, and had never been, a member of, or a sympathizer with, the Communist Party.
+
+On January 21, 1964, a confidential source advised that on January 18, 1964, Dr. LAWRENCE FREDKICK visited with BENJAMIN J. DAVIS at the home of JACOB GREEN, State Chairman of the CP in Maryland. During conversation between REDDICK and DAVIS, it was mentioned that they had attended school together in Georgia and REDDICK commented that if he had stayed with DAVIS, he would have also joined the CP. 28
+
+NW 88614 DocId:32989673 Page 373

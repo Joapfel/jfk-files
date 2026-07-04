@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_893.png
+
+Convert to Markdown# Memorandum to Mr. E. S. Miller
+
+Re: U. S. vs. John William Butenko and
+Igor A. Ivanov, Igor A. Ivanov,
+Appellant
+
+former, it was not in the latter and might prejudice on-going intelligence operations vital to the national security. In these cases, he argued on behalf of disclosure to the defendant of only those portions which the trial court in camera found "arguably relevant" to the Government's case against the defendant.
+
+The Ivanov and Butenko cases were remanded to the District Court, 1) to determine whether there was electronic surveillance which violated either defendant's 4th Amendment rights and 2) if so, to determine whether any of the intercepted conversations were relevant to his conviction. The Supreme Court stated that if the District Court found 1) that there was electronic surveillance but it did not violate the defendant's 4th Amendment rights, or 2) there was electronic surveillance which did violate the defendant's 4th Amendment rights but his conviction was not tainted by evidence obtained from that surveillance, the District Court should enter new judgements of conviction based on the existing record, along with its further findings, thus preserving the defendant's right to further appeal.
+
+On remand in Ivanov the case revolved around two sets of FBI electronic surveillances on which Ivanov was monitored during 1963: 1) 2 microphones at the homes of Ivanov and Karatsuba, a KGB officer and neighbor of Ivanov (for the sake of argument, the District Court held them both to be directed at Ivanov), and 2) a wiretap on the Soviet Mission to the United Nations, and a wiretap and a microphone at Amtorg.
+
+The residence microphones, which at that time Department procedures did not require to be authorized by the Attorney General, were conceded by the Government to be illegal, thus falling within the disclosure requirement of Alderman. The District Court held that the Government, on remand, made full disclosure on these microphones, after some argument, and ruled that the defendant had not shown, and the Government had carried its burden to refute, that Ivanov's case was built on evidence from these microphones.
+
+The more important issues related to the other set of surveillances. The Government contended that those surveillances were duly authorized under the President's national security
+
+SECRET
+
+CONTINUED - OVER
+
+- 2 -
+
+NW#: 88608 DocId: 32989541

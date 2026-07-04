@@ -1,0 +1,69 @@
+# JFK-Files-Part-3_page_5480.png
+
+Convert to MarkdownThe Attorney General
+
+July 18, 1975
+
+Director, FBI
+
+1 - Mr. J. W. Dalseg
+- Mr. J. P. Lee
+
+REC-88
+
+UNITED STATES SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+By letters dated May 14, 1975, with attached appendices, and June 13, 1975, the SSC requested certain information and documents from the FBI.
+
+Enclosed for your approval and forwarding to the Committee is the original of a memorandum containing responses to some of the requests. A copy of this memorandum is being furnished for your records.
+
+Enclosures (2)
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: K. William O'Connor
+Special Counsel for
+Intelligence Coordination
+
+JPL:cml (10)
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'Y
+
+ALL INFORMATION CONTAINED
+BEFORE IS DECLASSIFIED
+DATE/1/1/2000 BY SPADAM/LMF
+
+W.D. BEEGAR
+4063 95N
+
+GPO : 1975 O - 569-920
+
+NEW 88608 DocId:32989626 Page 211
+
+1975 MWF ROOM ☐ TELETYPE UNIT ☐
+
+W.O. BREGAR
+4063 95N
+
+O 4 AUG 6

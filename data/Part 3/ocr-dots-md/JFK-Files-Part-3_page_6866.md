@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_6866.png
+
+Convert to Markdown# MANUAL OF INSTRUCTIONS
+
+## VOLUME IV
+### TABLE OF CONTENTS
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FCI.
+
+5
+2-6-59
+
+NW 88614 DocId:32989673 Page 214

@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_8779.png
+
+Convert to MarkdownCONFIDENTIAL
+
+RE: INTERVIEW OF RETIRED FBI SA BY SSC -
+
+"Q. What Agents do you remember were assigned to that squad?
+Charles Harding, Arthur Hurtagh?
+
+"Q. Yes. Those two, Alden Miller, Richard Hamilton, Richard Davis, Donald Burgess, Randall McGough, Timothy Doroch, Charles Haynes.
+
+"Q. Who monitored the King and SCIG surveillance?
+
+"Q. A number of different gentlemen, some of whom were periodically
+transferred,
+
+"Q. Who were some of those?
+
+"Q. Donald Burgess, Richard Davis, Brian O'Shea, how deceased?
+
+"Q. Who served in a supervisory capacity before Charles Harding?
+
+"Q. Henry Rouse.
+
+"Q. Where is he now?
+
+"Q. I understand he retired, I do not know where he is located.
+
+"Q. What was your involvement with the Bureau's program referred to as CONTROLPRO?
+
+"Q. Mr. Seidel, as I endeavored to explain on May 12, your use of that particular terminology did not register with me at all.
+
+"Q. Recently testimony was given by one or more Bureau officials indicating this program began during the late 1950s and continued to a fairly recent date. Did not your reports regarding King, SCLG, or Levison include in their caption CONTROLPRO?
+
+"Q. It is not my recollection that they did.
+
+"Q. What about a Klan organization?

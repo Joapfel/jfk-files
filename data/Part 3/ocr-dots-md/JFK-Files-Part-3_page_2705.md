@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_2705.png
+
+Convert to Markdown1901
+
+Do you solemnly swear the testimony you are about to give
+before this Committee is the truth, the whole truth, and nothing
+but the truth, so help you God?
+
+Mr. Adams. I do.
+
+Mr. Wannall. I do.
+
+Mr. Mintz. I do.
+
+Mr. Deegan. I do.
+
+Mr. Schackelford. I do.
+
+Mr. Newman. I do.
+
+Mr. Grigalus. I do.
+
+Mr. Kelley. I do.
+
+Senator Tower. It is intended that Mr. Wannall will be
+the principal witness, and we will call on others as questioning
+might require, and I would direct each of you when you do
+respond, to identify yourselves, please, for the record.
+
+I think that we will spend just a few more minutes to allow
+the members of the Committee to return from the floor.
+
+(A brief recess was taken.)
+
+Senator Tower. The Committee will come to order.
+
+Mr. Wannall, according to data, informants provide 83
+percent of your intelligence information.
+
+Now, will you provide the Committee with some information
+on the criteria for the selection of informants?

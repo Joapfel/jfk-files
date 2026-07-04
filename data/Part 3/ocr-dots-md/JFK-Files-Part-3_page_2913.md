@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_2913.png
+
+Convert to Markdown2499
+
+1 revolutionary and violence-prone groups.
+
+2 Now the Committee has received testimony that the New Left COINTELPRO programs was not in fact told to higher authorities, the Attorney General and Congress.
+
+3
+4
+
+5 Do you have any information in this regard?
+
+6 I know in that statement you cite onw or two instances,
+7 but in terms of the bulk of COINTEL programs, the record
+8 seems to date at least to be clear that there was not systematic
+9 information flowing upward through the chain of command to
+10 Director Hoover's superiors:
+
+11 Mr. Kelley: May I ask that I be given the opportunity
+12 to substantiate that with documentation?
+
+13 Senator Hart of Colorado. Sure.
+
+14 Mr. Kelley: Or respond to it.
+
+15 Senator Hart of Colorado. Director Kelley, just in
+passing, do you agree with the statement made by President
+16 Ford that those responsible for harassing and trying to destroy
+17 Dr. King should be brought to justice.
+
+18
+
+19 Mr. Kelley. Those who directly responsible and upon whose orders
+the activities were taken responsible. I don't know if he intended to say
+that, but if he did not, I would say that it would be more proper. Insofar
+as my own opinion is concerned, that it be centered on those who said
+to do it and those who are responsible.
+
+20
+
+21
+
+22
+
+23
+
+24 I took the responsibility for any such program and I don't expect that those under me would be not acting in
+25
+
+WARD & PAUL

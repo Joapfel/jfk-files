@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_78.png
+
+Convert to MarkdownSECRET
+
+IRAN
+* Consulate General of Iran, New York City: 62-93147
+* Embassy of Iran: 62-73579.
+* Iranian Diplomatic Activities in the U. S.: 100-381876.
+
+IRAQ
+* Consulate of Iraq, New York City: 62-96543
+* Embassy of Iraq: 65-55156
+* Iraq Diplomatic Activities in the U. S.: 105-32502.
+
+IRELAND
+* Coverage of Irish Activities: 105-75895
+* Irish Republican Army: 61-7606
+
+ISRAEL
+* Intelligence Coverage of Israeli Activities - NYC: 105-72272
+* Israeli Consulate - Chicago: 105-18322
+* Israeli Consulate - Los Angeles: 105-13545
+* Israeli Consulate - New York City: 65-58190
+* Israeli Embassy - Washington, D. C.: 105-10828
+* Israeli Intelligence Funds: 105-73606
+* Israeli Intelligence Service: 65-58700
+
+ITALY
+* Italian Embassy: 65-30892
+* Italian Fascist Activities in the U. S.: 105-18021
+
+JAPAN
+* Sokagakkai: 64-41658
+
+JORDAN
+* Embassy of Jordan: 65-61885
+* Jordanian Consulate, New York City: 105-55014
+
+KOREA
+* Embassy of Korea: 65-61877
+* Korean Activities in the U. S. (Subs for each field office): 100-25
+* North Korean Espionage Activities: 65-65631
+* North Korean Intelligence Activities: 105-143909
+* LATIN AMERICA
+    * Caribbean Political Activities: 109-581
+    * Central America - Assessment of Internal Security: 64-48874
+    * Cuban Subversion Toward Latin America: 109-653
+    * Continental Latin-American Students Organization: 105-88932
+    * Latin-American Confederation of Christian Trade Unions (CLASC): 109-666
+
+Control-Reference Files
+Page 14
+Revised April 25, 1969
+
+SECRET.

@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_3122.png
+
+Convert to Markdownhas responded to public expectations and from pressure from a higher authority in government.
+
+While this does not excuse what happened, we should temper our criticism of the FBI's excesses by understanding that in large part it was only the instrument of our own intolerance. Indeed, I believe that is why our laws and the charter of the FBI must be carefully redrawn to protect the FBI's integrity from political pressures and hysteria.
+
+Finally, it would be a mistake to regard the abuses of the FBI as those of evil men. The FBI has always been composed of dedicated and hard-working public servants who seek to do their jobs as best they can. The lesson we learn from this history is that we cannot keep our liberty secure by relying alone on the good faith of men with great power.
+
+As Mr. Justice Brandeis once wrote:
+
+"Experience should teach us to be most on guard to protect liberty when government's purposes are beneficient. The greatest dangers to liberty lurk in the insidious encroachment of men of zeal, well-meaning but without understanding."
+
+It is my hope that the FBI witnesses we will hear today can enlighten us as to how it can conduct internal security surveillance programs which do not infringe on our constitutional liberties. I hope they can suggest iron-clad assurances that the abuses of the past will not be repeated."

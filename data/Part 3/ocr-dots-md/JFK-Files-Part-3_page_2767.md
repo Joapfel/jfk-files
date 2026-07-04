@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_2767.png
+
+Convert to Markdownmemorandum to the Department of Justice the problem.
+
+And here we were--the FBI--in a position where we had no
+authority in the absence of an instruction from the
+Department of Justice to make an arrest. Section 241
+and 242 don't cover it because you don't have evidence
+of a conspiracy. It ultimately resulted in a situation
+where the Department called in U. S. Marshals who do have
+authority similar to local law enforcement officials.
+
+So historically, in those days, we were just as frustrated as anyone else was, that when we got information from someone like Mr. Rowe--good information, reliable information--and it was passed on to those who had the responsibility to do something about it, it was not always acted upon as he indicated.
+
+**QUESTION:**
+
+In none of these cases, then, there was adequate
+evidence of conspiracy to give you jurisdiction to act.
+
+**MR. ADAMS:**
+
+The Departmental rules at that time, and still do,
+require Departmental approval where you have a conspiracy.
+Under 241, it takes two or more persons acting together.
+You can have a mob scene and you can have blacks and whites
+belting each other, but unless you can show that those that
+initiated the action acted in concert, in a conspiracy, you
+have no violation.
+
+Congress recognized this and it wasn't until 1968
+that they came along and added Section 245 to the Civil
+Rights Statute which added punitive measures against an

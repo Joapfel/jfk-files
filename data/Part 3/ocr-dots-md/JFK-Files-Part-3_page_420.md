@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_420.png
+
+Convert to MarkdownOFFICE OF THE
+DEPUTY ATTORNEY GENERAL
+
+7/18
+
+TO: Director, FBI
+
+FROM: Bill O'Connor
+
+ATTN: James Adams
+
+FYI
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS INCLASSIFIED
+DATE 10/16/00 BY S2AMVP_

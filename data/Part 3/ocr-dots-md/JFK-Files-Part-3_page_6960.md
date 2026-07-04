@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_6960.png
+
+Convert to MarkdownRe: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+3. Approximate date that the name of each of the above listed persons was entered on the Hunter Mail watch list and any documents concerning continuation of their names on that list.
+
+The following information constitutes the FBI's response to this request:
+
+With regard to request number one above, FBI files contain no letter to or from Ralph Abernathy which was provided without his knowledge.
+
+ANGELA DAVIS
+
+| DATE | SENDER | ADDRESS | SOURCE |
+|---|---|---|---|
+| None shown | Angela Davis | George Jackson | An official of the California State Attorney General's Office |
+
+1/24/73 International Friendship Club, Angela Davis, North Palo Alto, Holding Facility 270, School #36, 270 Grant Street, Kirovabad, Palo Alto, California Azerbaydzhanskaya SSR
+
+Hunter Program
+
+JEREMY J. STONE
+
+| DATE | SENDER | ADDRESS | SOURCE |
+|---|---|---|---|
+| 1/14/71 | Dr. Jeremy J. Stone | Mr. Frank M. Steadman C & P Telephone Co. 1710 E. Street, N.M. Washington, D. C. | An official of the C & P Telephone Co. |
+
+- 2 -

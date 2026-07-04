@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_4846.png
+
+Convert to MarkdownSECRET
+
+in obtaining explosives for him and that he wished
+to have no further dealings with him. After hearing
+(W) this, ROSENTHAL became very irate and gave back to
+(~~A POSADA~~) a number of pencils that he had previously
+secured from him.
+(U)
+
+(U) (~~A POSADA~~) stated that he became very upset over
+the conduct of ROSENTHAL and requested him to leave
+his residence in three seconds or he would shoot him
+in the head. After this threat by [POSADA] ROSENTHAL
+(~~B~~) told him "that someday when he was playing gin rummy
+[POSADA] would be killed". (~)(U) (~~A~~)(~)(U)
+(S)(u)
+
+20. On August 1, 1967, LUIS POSADA was contacted telephonically by SA WELSH. (~~X~~)
+
+[POSADA] stated that on this date he had been
+in contact with DOMINGO ECHEMENDIA. ECHEMENDIA stated
+that NORMAN ROTHMAN had gone to the Hollywood, California
+area and ALBERTO LARRAIN-MAESTRE had departed for Peru.
+Source could not learn the duration of either of these
+two visits.
+
+He stated that he was no longer going to
+contact DOMINGO ECHEMENDIA and told this individual
+that he could no longer supply him with explosive
+material. (~~X) (W)~~
+
+21. On August 4, 1967, [LUIS POSADA] was contacted
+in person by SA WELSH at the corner of US 1 and Bird
+Road. (~~X~~) (S)(U)
+
+[POSADA] stated that several days after his last
+confrontation with ROSENTHAL he received a letter in the
+mail from an unknown individual. He stated that the
+contents of this letter consisted of eight pennies which
+were held together by Scotch tape and a .350 caliber
+bullet. [POSADA] did not know the significance of either
+of the items although he surmised that ROSENTHAL had sent
+these things to him. (~~X~~)
+
+SECRET
+
+- U -
+- COVER PAGE -
+
+SECRET:

@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_9029.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 6/13/75
+
+U.S. SENATE SELECT COMMITTEE. RE: DOCUMENTS PERTAINING TO THE HUSTON PLAN, COINTELPRO, AND OTHER PRACTICES AND PROGRAMS HUSTON PLAN AND RELATED DEVELOPMENT
+
+Caption of Document:
+
+Originating Office: FBI
+
+Delivered by: Richard S. Taylor, Jr. Date: 8/5/75
+
+Received by: AL Skochow
+Appendix C Part I, #7
+Title: Exee. See -
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+DATE 10/19/75 BY: SP 4/15/75 Almajne MOR-16
+
+NEW 88614 DocId:32989606 Page 41

@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_8004.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+Cabinet 6 Drawer 2
+Folder X File (check one)
+First Communication Dated 12/29/65
+Last Communication Dated 2/16/66
+Approximate Pages 10
+
+Derogatory Information: Yes No X (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Administrative
+
+Ticklers Only Originals Only Both X
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Contains memoranda dealing with arrangements for employment and financing for ______, an informant, ______ in Alabama, ______, 1965.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_4264.png
+
+Convert to MarkdownSECRET
+
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+(RI) 105-165706 Sub 34
+
+March 25, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [BLACK PANTHER PARTY] NEW YORK DIVISION
+
+On December 12, 1970, you authorized this Bureau to continue for an additional three months, effective December 28, 1970, a telephone surveillance on the office of the [Black Panther Party (BPP)] in New York City located at 1370 Boston Road. This office has recently been designated the [East Coast Ministry of Information for the] Eldridge Cleaver faction of the BPP. This installation provides extremely valuable and voluminous data regarding the [BPP]. It is an invaluable source for coverage concerning dissension within the Party and the interrelationship between the [Cleaver faction in the United States, Cleaver, and other of his followers in Algeria.] Examples of significant data produced by this source are the following:
+
+On a daily basis since December, 1970, this source furnished details concerning local, national, and international operations of the [BPP], including information on the recent internal dissension within the [BPP] terminating in the factional split between BPP leaders Huey P. Newton and Eldridge Cleaver. On January 10, 1971, this source furnished data concerning the [BPP's fortification of its office at 1370 Boston Road.] On February 8, 1971, the source provided data on the disappearance and expulsion of [BPP] leaders Michael Tabor, his wife Connie Matthews Tabor, Richard Moore, and Edward Joseph. Michael Tabor, Moore, and Joseph are currently
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+SECRET
+
+Group I-
+
+Excluded from automatic downgrading and declassification.

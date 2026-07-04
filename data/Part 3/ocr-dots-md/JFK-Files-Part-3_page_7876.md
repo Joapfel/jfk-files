@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_7876.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Note: 
+Aides Initial:
+
+Cabinet 4 Drawer 1
+Folder X File (check one)
+First Communication Dated 8/4/62
+Last Communication Dated 11/22/63
+Approximate Pages 6
+
+Derogatory Information: Yes X No (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Investigative
+
+Ticklers Only X Originals Only Both
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Technical coverage on [redacted] disclosed conversation wherein claimed [redacted] having affair with girl in El Paso.
+
+Information furnished to R. Kennedy by us.

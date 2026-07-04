@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_8050.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+of the above, we are not aware what sensitive information involving the FBI has been furnished to the Rockefeller Commission by CIA.
+
+The Criminal Division of the Department has received copies of the entire Rockefeller Commission file plus testimony. The Deputy Attorney General has ruled that these files and testimony cannot be turned over to the FBI in toto until such time as the Criminal Division has ruled on any possible criminal culpability on the part of the FBI. To facilitate the review of the Rockefeller Commission files, the Criminal Division will separate out any information it feels involves any FBI criminal culpability. That portion separated out will be the subject of discussion between the Deputy Attorney General and the Director. The remaining portion of the Rockefeller files will then be turned over to the FBI for review to determine if any of the information contained therein could possibly jeopardize sensitive ongoing investigations or adversely affect the security and welfare of FBI sources mentioned therein.
+
+The Legal Counsel Division is preparing a letter alerting the SSC to the possibility that sensitive information may be contained in the Rockefeller files and requesting that Senators Church and Tower consider a briefing by FBI officials regarding those sensitive areas of concern to the FBI which may be embodied in the Rockefeller Commission files.
+
+ACTION:
+
+For information.

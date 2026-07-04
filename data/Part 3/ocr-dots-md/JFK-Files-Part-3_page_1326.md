@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_1326.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER P. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR.,
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+August 28, 1975
+
+Honorable Edward H. Levi
+Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mr. Attorney General:
+
+I would like to bring to your personal attention a situation which has severely restricted our efforts to establish the relevant facts with respect to one of the areas of alleged abuse which is the subject of inquiry pursuant to S. Res. 21.
+
+I have been informed by the staff that numerous materials which have been requested during the past several weeks which pertain to the FBI's activities with respect to Dr. Martin Luther King, Jr., have been withheld from the Committee by the Department because of concern expressed by Mr. Harry Wachtel, the attorney for the King family and estate, as to the appropriateness of the Department's "disseminating" to the Committee contents of conversations monitored during electronic surveillances of Dr. King.
+
+Upon reviewing the lists of materials requested, I am at a loss to understand how most of those items could conceivably be encompassed by the issues raised by Mr. Wachtel, especially in view of the fact that our letters of request have specifically pointed out that tape recordings and transcripts should not be supplied.
+
+Accordingly, I want to take this opportunity to place the Committee formally on record as reaffirming all of the outstanding requests for materials relating to the King matters, with the limited exception of (1) Mr. DeLoach's August 24 - 27, 1964 memoranda which pertain to the 1964 Democratic National Convention, and (2) those portions of any other requested materials which actually summarize or quote from conversations monitored during any electronic surveillance of Dr. King.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/17/66 BY SALMCP
+
+RECEIVED
+AUG 28 1975
+
+62-116393-603
+
+NWW-88608, DocID:32989640, Page 365

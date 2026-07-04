@@ -1,0 +1,77 @@
+# JFK-Files-Part-3_page_3220.png
+
+Convert to Markdowngsh 3
+
+1832
+
+to just some of these problems.
+
+The Chairman. Well, you may be assured that the Committee shares your objective in this regard and we will be working with you and the Department of Justice and others to try and change the laws to give a greater measure of protection to the First Amendment rights of the American people.
+
+I have no further questions. Are there any other questions.
+
+Senator Mondale?
+
+Senator Mondale. Mr. Adams, earlier, in inquiring about the basis for investigating Dr. King, I thought I heard two basic justifications. One, suspicion and fear of Communist influence or infiltration. And secondly, "that he constituted a threat to the success of the Negro movement."
+
+Did I understand that second basis?
+
+Mr. Adams. No. The first I was talking about was not suspicion but information indicating Communist influence.
+
+The second was on this question of motivation that you raised, I don't know what their motive was to get to some of these other activities in order to discredit and remove him, but it was a question -- apparently, they must have felt that he was a threat to either as shown in the files the President and Attorney General expressed concern about the civil rights movement and his continued affiliation with some of these people.
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+NWW 88614 DocId:32989543 Page 109

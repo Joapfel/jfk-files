@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_4742.png
+
+Convert to MarkdownFBI
+
+Date: 9/21/63
+
+Transmit the following in
+(Type in plain text or code)
+Via AIRTEL AIR MAIL
+(Priority or Method of Mailing)
+
+TO: DIRECTOR, FBI (92-3267)
+FROM: SAC, LOS ANGELES (92-113C)
+RE: JOHN ROSELLI, aka.
+AR
+
+ROSSELLI has been residing in Los Angeles since 9/11/63. On 9/20/63, he departed Los Angeles for Las Vegas, Nevada at 12:00 p.m. via TWA Flight #148.
+
+On 9/13/63, VERNON E. LYNCH, Intelligence Unit.
+IRS, Los Angeles,
+
+3-Bureau
+1-Las Vegas (467)
+2-Los Angeles
+(HFD:ged
+(6)
+
+REC-20
+
+LAW OFFICE
+
+92-3267-520
+
+SEP 23 1963
+
+Approved: WGS 188H
+
+Sent _______ M Per _______
+
+Special Agent in Charge
+
+61 SEP 27 1963

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_7684.png
+
+Convert to MarkdownTHE DIRECTOR OF CENTRAL INTELLIGENCE
+
+WASHINGTON, D. C. 20505
+
+Intelligence Community Staff
+
+DCI/IC-75-0619
+
+18 JUN 1975
+
+MEMORANDUM FOR: USIB Ad Hoc Coordinating Group
+SUBJECT : Organization for Liaison with Select Committees
+
+The attached CIA Employee Bulletin lays out the DCI's organization for dealing with the Senate and House Select Committees. It is provided to you for information.
+
+John M. Clarke
+Acting Deputy to the DCI
+for the Intelligence Community
+
+Attachment: as stated
+
+REC-102
+
+3 JUL 2 1975
+
+84 JUL 2 1975
+
+NW 88608 DocId:32989609 Page 87

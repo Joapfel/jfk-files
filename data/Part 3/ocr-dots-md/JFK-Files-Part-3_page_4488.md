@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_4488.png
+
+Convert to MarkdownNO 87-14835
+
+On December 3, 1968, ELIZABETH MILLER, Principal, Peters Junior High, advised that DEBBIE PORTER ROSSI was an eighth grade student, but has been absent since November 18, 1968. No request for forwarding of her school records has been received. School records reflect her mother to be BARBARA ANNE PORTER ROSSI and her father to be ANTHONY ROSSI. She transferred from Sugar Hill School, Buford, Georgia.
+
+On December 10, 1968, appropriate officials at the following hotels were contacted and all advised that there were no unclaimed safe deposit box contents:
+
+ROYAL ORLEANS HOTEL
+
+JUNG HOTEL
+
+ROOSEVELT HOTEL
+
+BOURBON ORLEANS HOTEL
+
+SHERATON-DELTA HOTEL
+
+MONTELEONE HOTEL
+
+SHERATON CHARLES HOTEL
+
+On January 6, 1969, Mrs. MARGAURITE BAHM, Personnel Manager, Marsh-McClennan Insurance Company, 225 Baronne, advised that BARBARA ANNE PORTER ROSSI worked for her company until November 18, 1968, at which time she obtained her pay check, said she was sick, and would be under a doctor's care until such time as she was able to return to work. Her Social Security Number is 257-46-1088, and her date of birth is January 25, 1937. Her father is Reverend PORTER, Buford, Georgia, telephone 945-7031. Her daughter is DEBORA ANN PORTER ROSSI, date of birth March 17, 1956, father ANTHONY ROSSI.
+
+On January 17, 1969, Mrs. BAHM advised she had just received a letter from ROSSI, stating that he had sold a Cadillac on which her company has the policy and requesting that the refund be mailed to Mrs. CAROL POLIZZI, 9511 Shore Road, Brooklyn, New York.

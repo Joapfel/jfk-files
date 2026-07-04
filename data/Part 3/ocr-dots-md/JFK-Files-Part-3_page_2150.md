@@ -1,0 +1,77 @@
+# JFK-Files-Part-3_page_2150.png
+
+Convert to Markdown1 - Mr. Monahan
+
+1 - Mr. Peelman
+
+1 - Mr. Foster
+
+1 - Mr. Aldhizer
+
+1 - Legal Counsel
+
+November 11, 1977
+
+HOUSE SELECT COMMITTEE ON ASSASSINATIONS
+U. S. HOUSE OF REPRESENTATIVES (HSCA)
+
+Reference is made to letter to the Attorney General from G. Robert Blakey, Chief Counsel and Director, HSCA, dated November 7, 1977, requesting confirmation as to the existence or nonexistence of electronic surveillance against the following individuals and business in connection with the FBI's investigation into the assassination of Martin Luther King, Jr:
+
+1. Jerry Ray, brother of James Earl Ray.
+
+2. John Ray, brother of James Earl Ray.
+
+3. Carol Pepper, sister of James Earl Ray, and her husband Albert Pepper.
+
+4. Grapevine Tavern (also known as Jack's Place), 1982 Arsenal, St. Louis, Missouri.
+
+This memorandum is to confirm that, based on a review of appropriate files at FBI Headquarters, the above were not subjects of electronic surveillance by the FBI during the period January 1, 1967, to December 31, 1968, or at any other time.
+
+JTA:sas (69)
+
+ORIGINAL AND ONE SENT TO ASSISTANT ATTORNEY GENERAL, CRIMINAL DIVISION, ATTENTION: MR. ROBERT L. KEUCH AND ONE SENT TO OFFICE OF LEGISLATIVE AFFAIRS.
+
+ALL INFORMATION CONTAINED MAYBE IN IS UNCLASSIFIED DATE 12/3/85 BY J. M. Stockton
+
+NOTE: See Director, FBI, letter to Assistant Attorney General, Criminal Division, Attention: Mr. Robert L. Keuch, dated 11/11/77, captioned, "House Select Committee on Assassinations, U. S. House of Representatives (HSCA)."
+
+APPROVED:
+
+Director:
+Assoc. Dir.
+Crim. Inv.
+Legal Coun.
+Plan. & Insp.
+Rec. Mgmt.
+Spec. Inv.
+Tech. Servs.
+Training
+Public Affs. Off.
+Dep. AD In.
+Bog. Ad. Rm.
+TECH PR.
+LAboratory
+
+Adm. Serv.
+Crim. Inv.
+Fin. & Pers.
+Ident.
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Insp.
+Rec. Mgmt.
+Spec. Inv.
+Tech. Servs.
+Training
+Public Affs. Off.
+
+MAIL ROOM [x] TELETYPE UNIT [ ]
+
+ENCLOSURE
+
+E.B.I./DO.J
+
+N.W. 88608 DocId:32989749 Page 124 E 2-117 2 9 0 - 3/6/8
+
+FEB 11 1977

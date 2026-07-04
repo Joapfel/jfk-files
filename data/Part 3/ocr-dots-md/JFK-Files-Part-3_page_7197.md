@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_7197.png
+
+Convert to MarkdownSECRET - SENSITIVE
+
+Memorandum to Mr. Adams
+
+Re: SELECT COMMITTEE OF THE SENATE
+
+intelligence agencies are exposed to audit-type functions exercised by the Office of Management and Budget, internal audit systems, the General Accounting Office, and the Director of Central Intelligence.
+
+On page 14, after referring to the manner in which the Intelligence Community functions through a series of committees and boards, Mr. Colby states that the work of such committees and boards is limited to foreign intelligence," as internal security falls solely within the jurisdiction of the FBI. The FBI participates in the Intelligence Community effort, however, so that any contributions that foreign intelligence might make to internal security can be properly handled." (S)
+
+On page 17, Mr. Colby expresses confidence that the American people not only support but insist upon an effective intelligence apparatus to protect their security and intelligence. Thereafter, referring to Congress, on page 17, he states "Just tell us in the intelligence business what the Nation wants and does not want, and we will do our best to satisfy it. But also give us a way openly to change these rules when the Nation expects them to be changed." He then calls upon Congress to organize itself to protect the necessary secrecy of our intelligence operations while exercising its responsibility for oversight. (S)
+
+A review of Mr. Colby's proposed statement has revealed no information which I feel would be objectionable from the Bureau's standpoint.
+
+ACTION:
+
+For the Director's information.

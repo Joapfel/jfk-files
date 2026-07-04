@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_2885.png
+
+Convert to Markdown1 that he be willing to, for example, go through oversight with
+2 no reticence, and that I think that he should be chosen very
+3 carefully.
+4
+5 I think further that he should be responsible for those
+6 matters which indicate impropriety or illegality.
+7
+8 Senator Baker. Could you stop for just a second? Who
+9 does he work for? Does the Director, in your view, work for
+10 the President of the United States, for the Attorney General,
+11 for the Justice Department, for the Executive Branch?
+12
+13 Who does the executive of the FBI, the Director of the
+14 FBI, be responsible to, who should he be responsible to?
+15
+16 Mr. Kelley. Jurisdictionally, to the Attorney General,
+17 but I think this is such an important field of influence that
+18 it is not at all unlikely that we can expand it to the
+19 judiciary, the legislative, and of course, we are under the
+20 Attorney General.
+21
+22
+23
+24
+25 Senator Baker. Do you have any problems with the idea
+27 of the President of the United States calling the Director of
+28 the FBI and asking for performance of a particular task?
+29
+Does that give you any difficulty? Or do you think that
+30 the relationship between the FBI Director and the President
+31 is such that that is desirable, or should it be conduited
+32 through the Attorney General?
+Mr. Kelley. I think it should be in the great majority
+35 of the cases conduited through the Attorney General. There
+
+NW 88608 DocId:32989820 Page 32

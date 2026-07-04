@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_8128.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Mr. W. R. Wannall
+
+SUBJECT: CONGRESSIONAL TESTIMONY
+
+DATE: 4/1/75
+
+The purpose of this memorandum is to enclose a paper concerning the opening, closing, and maintenance of domestic security cases in pending status requested as set forth in memorandum to Mr. Callahan from Mr. Adams of the same caption, dated 3/7/75.
+
+Referenced memorandum instructed that the paper was to be non-technical and in a form easily understood for purposes of argument. Legal Counsel Division and writers in the External Affairs Division are to be contacted to coordinate legal aspects and preparation of final paper, respectively.
+
+ACTION:
+
+Legal Counsel Division review attachment for legal considerations.
+
+External Affairs Division review for preparation of final paper.
+
+Enclosure
+
+ALL:vb
+(9)
+
+1 - Mr. N. P. Callahan
+
+1 - Mr. J. B. Adams
+
+1 - Mr. T. J. Jenkins
+
+1 - Mr. D. W. Moore, Jr.
+
+1 - Mr. J. A. Mintz
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. A. B. Fulton
+
+1 - Mr. A. L. Lacey, Jr.
+
+3 MAY 13 1975
+
+NEW 88608 DocId:32989532 Page 78

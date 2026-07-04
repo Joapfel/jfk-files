@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_5251.png
+
+Convert to Markdown2. Place stop notices with the Immigration and Naturalization Service.
+
+3. Place stop, under Subject's name, with the FBI Identification Division.
+
+4. Place stop notices with the appropriate FBI Border Offices.
+
+5. Check toll telephone calls on Subject's parents.
+
+If the objective of this case is obtained, either directly or indirectly as a result of this suggestion memorandum, advise the Bureau by routing slip, attention: The Inspection Division.
+
+Comments of SA GERARD JAMES NORTON, Supervisor RAY M. ANDRESS, and SAC requested.
+
+SA GERARD JAMES NORTON: Inspector's comments are appreciated and recommendations will be done immediately.
+10/22/70
+
+SUPERVISOR RAY M. ANDRESS: This ~~will be followed closely to~~ insure that Inspector's suggestions are carried out.
+
+SAC GEBHARDT: Inspector's comments appreciated. This will be done.

@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_6601.png
+
+Convert to MarkdownLA T-10 (1/9/69)
+LA T-11 (1/28/69)
+
+On December 5, 1968, ANGELA YVONNE DAVIS attended a meeting of the Che Lumumba Club, MSS, SDCOP, at 2128 Third Avenue, Los Angeles. The topic of discussion centered around Communist Party youth action in the community.
+
+LA T-11 (1/29/69)
+LA T-13 (1/29/69)
+
+On January 16, 1969, ANGELA YVONNE DAVIS attended a meeting of the Che Lumumba Club, MSS, SDCOP, at 1048 Oxford Avenue, Los Angeles, California. Topic of discussion centered around racism.
+
+LA T-3 (2/6/69)
+LA T-11 (2/14/69)
+
+On January 30, 1969, ANGELA YVONNE DAVIS attended a meeting of the Che Lumumba Club, MSS, SDCOP, at 2128 Third Avenue, Los Angeles. DAVIS advised that she is dissatisfied with the Black people's progress in the community.
+
+LA T-3 (3/29/69)
+
+On March 29, 1969, ANGELA YVONNE DAVIS attended a meeting of the Che Lumumba Club, MSS, SDCOP at 1048 South Oxford, Los Angeles, California. DAVIS paid $14.00 for club dues.
+
+DAVIS' ATTENDANCE AT
+A MEETING OF THE NEGRO
+MEMBERS OF THE SDCOP
+
+LA T-8 (8/12/68)
+LA T-9 (8/12/68)
+LA T-12 (8/14/68)

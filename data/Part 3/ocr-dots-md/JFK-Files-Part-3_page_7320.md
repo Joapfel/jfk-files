@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_7320.png
+
+Convert to MarkdownDr. John M. Clarke          IC Staff      143ext5477
+Mr. William McAfee         State        101ext21504
+Mr. Benson K. Buffham     NSA          (9)688.-7222
+Mr. Kenneth Geisen         DIA          11ext75101
+Mr. J. Foster Collins     Treasury     184ext2421
+Mr. Merrill T. Kelly      Army          11ext78419
+Captain Donald S. Jones   Navy          11ext53737
+Colonel Jerry D. Alderson Air Force   11ext50006
+Mr. William O. Cregar     FBI          175ext4612
+Dr. Charles Cook         SAFSS        11ext78531
+Mr. Hank Knoche          CIA          143ext4086
+Mr. John Warner          CIA          143ext6111
+Mr. George Cary          CIA          143ext6121
+Mrs. Patricia Taylor     IC Staff     143ext4401
+
+ENCLOSURE
+
+ENCLASUED
+FOR OFFICE USE ONLY
+CLASSIFIED BY DCIS AND CCSDS
+REVISION 1/16
+DATE 1/16/88 BY 5-2 PM 1/16
+
+NW 88608 DocId:32989530 Page 285

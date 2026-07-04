@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_7613.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: Senate Select Committee
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 6/10/75
+
+U.S. SSC to Study Govt Operations with Respect
+Caption of Document: to Intelligence Activities. Re;
+Further Documents Pertaining to the FBI and Dept.
+of Justice; Organization, Structure, and
+Jurisdiction. FBI Appendix B, Part II, Item 15
+
+Delivered by: Richard S. Taylor and Date: 6/23/75 2:00 PM
+Received by:
+Title: Office Manager
+
+Return this receipt to the Intelligence Division, FBI
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10-25-75 BY: SP2000 Rep
+
+MDR-46

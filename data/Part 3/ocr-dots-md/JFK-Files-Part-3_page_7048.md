@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7048.png
+
+Convert to Markdown<table><thead><tr><th colspan="2">In Our Opinion</th></tr><tr><td colspan="2">Assign Congress To Hunt Bombers</td></tr></thead><tbody><tr><td>Here we go again.</td><td>The bombing of a State Department restroom and followup phone call from someone calling itself the "Weather Underground" is reminiscent of times past.<br/>The bombers are apparently protesting any economic aid to non-Communists in South Vietnam and Cambodia.<br/>There's a certain irony in the timing. At the very moment the CIA and FBI are being raked over the coals by self-righteous members of Congress, a radical group like the ones under surveillance in the late '60s and early '70s pulls off a terrorist act.<br/>We wouldn't blame the FBI for turning the investigation of the latest bombing over to the congressional committee investigating government surveillance. Let the legislators handle it.<br/>Some measure of watchfulness must be maintained over agencies like the FBI and CIA. The repugnant aspect of it all is congressmen leading the media bandwagon to roast the agencies.</td></tr></tbody></table>
+
+NOT RECORDED
+
+40 MAR 28 1975
+
+<table><thead><tr><th colspan="2">(Indicate page, name of newspaper, city and state.)</th></tr><tr><th>Pg.</th><th>4</th></tr><tr><th>The Star Beacon</th><th>Ashtabula, Ohio</th></tr></thead><tbody><tr><td>date:</td><td>1-30-75</td></tr><tr><td>dition:</td><td></td></tr><tr><td>uthor:</td><td></td></tr><tr><td>itor:</td><td>Don Rowley</td></tr><tr><td>itle:</td><td>Miscellaneous</td></tr><tr><td>aracter:</td><td>Public relation</td></tr><tr><td>or</td><td>Matters</td></tr><tr><td>lassification:</td><td></td></tr><tr><td>pmitting Office:</td><td>Cleveland</td></tr><tr><td>Being Investigated</td><td>CV 80-0</td></tr></tbody></table>
+
+<table><tbody><tr><td>Assoc. Dir.</td></tr><tr><td>Dep. A.D. Adm.</td></tr><tr><td>D.-A.D. Inv.</td></tr><tr><td>Asst. Dir.</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Film & Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspecting IntelW</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. & Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Jesuit Un.</td></tr><tr><td>Telephone Km.</td></tr><tr><td>Director Sec'y</td></tr></tbody></table>

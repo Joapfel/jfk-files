@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_4604.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Newark, New Jersey
+
+In Reply, Please Refer to
+File No. NK 105-9440
+
+April 25, 1961
+
+Title EVELYN ELEANORE ARCHER
+
+Character IS - CUBA
+
+Reference Report of SA HERBERT L. BLOM dated April 25, 1961, at Newark.
+
+All sources (except any listed below) used in referenced communication have furnished reliable information in the past.
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency. 90H-10H5R
+
+NW 78318 DocId:34489792 Page 17

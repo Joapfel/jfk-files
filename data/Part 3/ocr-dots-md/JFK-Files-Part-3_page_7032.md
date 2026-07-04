@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_7032.png
+
+Convert to MarkdownAT 157-257
+
+GANDHI SOCIETY FOR HUMAN RIGHTS
+
+The Gandhi Society for Human Rights was formed for the purpose of developing a philosophy and technique of non-violent civil rights protests. It is a non-action organization and makes no attempt to influence legislation nor participate in demonstrations. The Society furnishes legal assistance in certain civil rights cases. The organization was incorporated June 14, 1962. .

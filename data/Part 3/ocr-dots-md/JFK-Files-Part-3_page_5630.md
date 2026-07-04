@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_5630.png
+
+Convert to MarkdownThe Attorney General
+
+We will continue to furnish you any pertinent information developed regarding this matter.
+
+1 - The Deputy Attorney General
+
+1 - Mr. Burke Marshall
+Assistant Attorney General
+
+NOTE:
+
+This letter is classified "Confidential" because it contains information, the disclosure of which might reveal the source and adversely affect the national defense. The source is [NY 4099-S*.]
+
+CONFIDENTIAL
+
+- 2 -

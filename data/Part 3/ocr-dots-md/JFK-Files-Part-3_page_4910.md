@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_4910.png
+
+Convert to MarkdownPHYSICAL DESCRIPTION
+
+**Race:** White
+**Sex:** Male
+**Date of Birth:** December 26, 1914
+**Place of Birth:** Bronx, New York
+**Father:** LEON ROTHMAN born Rumania
+**Mother:** BETTY ROTHMAN, born Rumania
+**Wife:** ETHEL HURWITZ born May 26, 1915, New York City
+**Hair:** Black-greying
+**Eyes:** Green
+**Height:** 6'
+**Complexion:** Dark
+**Residence:** 425 Surfside Boulevard
+Surfside, Florida.

@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_7727.png
+
+Convert to Markdown3 - Mr. J. A. Mintz
+   (Mr. J. B. Hotis)
+   (Mr. P. V. Daly)
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. W. O. Cregar
+
+June 4, 1975
+
+The Attorney General
+
+Director, FBI
+
+1 - Mr. E. W. Larson
+
+UNITED STATES SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES
+
+Reference is made to my letter dated May 6, 1975, enclosing a memorandum, same date, which proposed that an FBI position paper dated July 31, 1972, be withheld from the Senate Select Committee on the basis that it was considered to be an internal deliberative document.
+
+Reference is also made to a conversation May 28, 1975, between Deputy Assistant Attorney General K. William O'Connor and Special Agent Paul V. Daly during which Mr. O'Connor advised that it was the Department of Justice decision to make the July 31, 1972, position paper available to the Senate Select Committee. In view of this decision, we will make this document available for review at FBI Headquarters.
+
+Attached for your approval and forwarding to-the Committee is the original of a memorandum advising the Committee of the availability of the July 31, 1972, position paper. A copy of this memorandum is enclosed for your records.
+
+Enclosures - 2
+
+62-116395
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 10-17-2006 BY S.PACM/PAP MJB46
+
+1 - The Deputy Attorney General
+
+Attention: K. William O'Connor
+Special Counsel for Intelligence Coordination
+
+EWL:ekw/lhb/lhb
+(10)
+
+REC-100
+
+SEE NOTE PAGE 2-
+
+JUN 27 1975
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec's
+MAIL ROOM [V] TELETYPE UNIT [ ]
+
+CPO-95+ 546-1

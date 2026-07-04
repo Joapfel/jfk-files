@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_5715.png
+
+Convert to MarkdownSSC REQUEST 9/29/75
+ITEM 18
+
+FMDR16
+SP-2 ALM/FIG
+10/13/00
+S.E. 1965
+
+NW 88614 DocId:32989673 Page 212

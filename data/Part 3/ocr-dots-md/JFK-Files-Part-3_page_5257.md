@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_5257.png
+
+Convert to Markdown# SUGGESTION MEMORANDUM
+
+## BOND DEFAULT MATTERS
+
+INSPECTOR ARNOLD C. LARSON: As of 10/1/70, the San Francisco Office had 48 bond default matters under investigation. This volume of cases presents a fertile field for increased convictions under the Bond Default classification.
+
+An in depth survey conducted by the Inspection Division disclosed that there has been a significant increase in cases received by the FBI for investigation subsequent to the passage of the Bail Reform Act of 1966. This Act liberalized bail and bond procedures in Federal cases whereby subjects were to be considered for release on their own personal recognizance or unsecured appearance bond in contrast to previous procedures which required a specific bond, creating an excellent opportunity for us to achieve statistical accomplishments. The ratio of convictions to the number of cases investigated in bond default matters is one of the highest of any violation handled by the Bureau.
+
+One of our offices, namely San Diego, has been responsible for the most significant portion of the Bureau's convictions in bond default matters as a result of effective liaison with the U. S. Attorney, who felt that an indictment obtained under bond default was more easily proven than the substantive offense. When a subject is apprehended, the sentence is, in part, influenced by the U. S. Attorney, who informs the court the length of time the subject's apprehension has been sought by the Bureau. A number of these cases have arisen through charges of narcotics and smuggling of merchandise and aliens across the border. Subjects were brought before a magistrate, and rather than pleading guilty, subjects obtained a court appointed attorney and entered a not guilty plea. They were released then on either personal recognizance or a minimum bond until their scheduled appearance. When the subject failed to appear in court, a bench warrant was issued, San Diego opened a case, and usually within 30 days an indictment was secured under bond default.
+
+SAN FRANCISCO INSPECTION
+
+10/23/70
+
+WAK:kah

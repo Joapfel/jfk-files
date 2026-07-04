@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_4818.png
+
+Convert to MarkdownERRA, SALERNO and INDELICATO have been identified as members of the La Cosa Nostra (LCN).
+
+On January 16, 1968, MM T-2 advised that PATTY ERRA, NORMAN ROTHMAN, and ANTHONY SALERNO regularly hang around the Hilton Plaza Hotel.
+
+On January 22, 1968, MM T-2 advised that FRANK (LNU), a Cuban and Captain of the waiters in "JOE the Bartender's Room", Hilton Plaza Hotel, Miami Beach, Florida, owes his job to NORMAN ROTHMAN and regularly runs around with ROTHMAN.
+
+## HANG OUTS
+
+On January 16, 1968, MM T-2 advised that subject regularly hangs around the Hilton Plaza Hotel, Miami Beach, Florida.
+
+## CONTACTS
+
+On November 14, 1967, MM T-3 advised that TOMMY ALTAMURA, who was recently shot and killed in Miami, Florida, was in Las Vegas, Nevada, with NORMAN ROTHMAN during June and July, 1967, and also during the latter part of August, 1967.
+
+On November 16, 1967, MM T-4 advised that NORMAN ROTHMAN, 1771 West Avenue, Miami Beach, Florida, which is the address of International Lithographers, had been a resident at Caesar's Palace Hotel-Casino, September 10 through 15, 1967, and while at the hotel, had made the following long distance calls:
+
+| Date | Number |
+|---|---|
+| 9/10/67 | Area Code 305-221-9573 |
+| 9/14/67 | Area Code 305-221-3540 |
+| 9/14/67 | Area Code 305-864-5474 |
+| 9/13/67 | Area Code 305-221-9573 |
+| 9/13/67 | Area Code 305-864-5474 |
+| 9/13/67 | Area Code 213-455-7158 |
+| 9/15/67 | Area Code 305-221-9573 |
+
+2

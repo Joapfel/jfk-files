@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_4790.png
+
+Convert to MarkdownMM 92-1870
+
+The following investigation was conducted by SA WILLIAM R. LISTON, Muncie, Indiana, on May 27, 1968:
+
+Sergeant ROBERT VANDEVENDER, Records, Muncie Police Department, and MARION CUNNINGTON, Chief Deputy, Delaware County Sheriff's Office, advised their files contain no record for JAMES W. HARNEY.
+
+Mrs. IRENE SHORT, Supervisor, Credit Bureau of Muncie, Indiana, advised their files reflect JAMES W. HARNEY and wife CLARA have been in the file since 1949. The last inquiry was in August 1966, at which time they were residing at 805 Dunn Street. JAMES W. HARNEY has been employed at Muncie Chevrolet since November 15, 1961, and his date of birth is July 28, 1922, Elwood, Indiana. CLARA HARNEY, as of May 1965, was listed as a bookkeeper at Superior Laundry, and had been there for ten years. They have a very good credit rating.

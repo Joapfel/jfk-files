@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_5329.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+CHARLES T. HAYNES BY SSC STAFF MEMBERS
+
+did not know, explaining that such information may have been made a matter of record, and yet may not have been made a matter of record. Epstein stated that at this point he would stop the questioning in order for Haynes to go upstairs to the FBI Office and review the files to determine whether or not such information was in the files. Haynes explained that such a project would probably entail extensive file review in order to state whether such information was, or was not, in the file. Epstein asked if Haynes could have someone else conduct the necessary file review regarding this matter, at which time Haynes replied he would request a break at this point to consult with an FBIHQ representative in the FBI Office. After consulting with the FBIHQ representative for approximately five minutes, Haynes returned to Senator Talmadge's office and informed Epstein that the clearance for the interview was based on what Haynes could remember regarding King and not on information from the files. Epstein was advised that any request by him for information from the files should be submitted in writing in the usual manner. Epstein did not pursue this matter any further.
+
+Epstein asked if Haynes knew Bill Sullivan and if he recalled him coming to Atlanta. Haynes replied that he did know Sullivan and recalled him coming to Atlanta in the 1960's at least on one occasion and possibly twice. Haynes explained he recalled Sullivan coming to Atlanta in the early or middle 1960's in connection with a regional type FBI conference regarding developing and handling of informants in Klan organizations, and possibly a second visit at a later time, but no other details were recalled.
+
+Epstein asked Haynes if he knew of any instance where an Agent in Atlanta furnished any information regarding King or the SCLC to the news media and Haynes replied he did not.
+
+Epstein asked if Atlanta had a COINTELPRO file regarding King or the SCLC and Haynes advised it did not. Haynes was asked if he knew of any COINTELPRO information regarding King or the SCLC and Haynes stated he did not. When asked where such material would be filed, Haynes stated that since he knew of none he did not know where it would be filed. When asked if such information could be in the case file, Haynes advised it was possible.

@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_5963.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: SENATE SELECT COMMITTEE
+
+☐ LTR ☑ LHM ☐ Memo ☐ Report dated 10/14/75
+
+U.S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES re 8/26/75 request Part I, Item 3 concerning special mail covers†
+
+FBI
+
+Originating Office:
+Richmond & T. Taylor Jr Date: 9/27
+
+Delivered by:
+
+Received by:
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI
+
+#MDE16
+10/2/00 SPADAM/8/76
+
+ENCLOSURE

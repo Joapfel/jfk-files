@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_7656.png
+
+Convert to MarkdownMemo for Mr. Felt
+Re: Reorganization of CRO
+
+To assume White House name, checks and appropriate correspondence,
+compilation of data and preparation of memoranda on individuals requesting special
+tours or meetings with the Director; compilation of data and preparation of background
+memoranda for dissemination to authorized individuals; and preparation of informative
+memoranda pertaining to organizations asking for data. These functions formerly
+handled by the Summary Memoranda Unit.
+
+SPECIAL INVESTIGATIVE DIVISION
+
+SA Thomas B. Coll
+
+To assume overall responsibility for publicizing FBI fugitives through all available media, prepare narrative and illustrative data for Top Ten Fugitive Program, research and preparation of feature fugitive articles; preparation and dissemination of material concerning fugitives; maintenance of special indices concerning distribution and cancellation of fugitive material to media; and conduct interviews with persons making telephonic or personal calls to FBHQ concerning matters within the jurisdiction of the FBI or of interest to the Bureau. These functions were formerly handled by the Fugitive Publicity Unit.
+
+RECOMMENDATIONS:
+
+1. That the Administrative Division arrange any necessary realignment of space and handle memoranda instructing transfers.
+
+2. That recipient offices promptly survey clerical functions and responsibilities and submit appropriate recommendations in connection with any needed realignment of clerical personnel; also prepare updated organizational charts.
+
+3. That attached airtel to all offices be approved.

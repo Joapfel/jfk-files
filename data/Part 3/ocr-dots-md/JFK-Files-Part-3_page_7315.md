@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_7315.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+
+FROM : W. O. Cregar
+
+SUBJECT: SELECT COMMITTEE OF THE SENATE
+
+1 - Mr. Callahan
+1 - Mr. Adams
+1 - Mr. Mintz
+
+DATE: 1/28/75
+
+1 - Mr. Wannall
+1 - Mr. Cregar
+
+ALL INFORMATION CONTAINED
+NOT BEEN RELEASED
+DATE 9/25/00 BY SP-ALM1976
+
+This memorandum recommends that the original and one copy of four memoranda (copies attached) be furnished to Mr. William Colby, Director of Central Intelligence, for his consideration at the time of his forthcoming appearance before the Select Committee of the Senate.
+
+Memorandum W. O. Cregar to W. R. Wannall, dated 1/27/75, captioned as above, advised that Mr. Colby anticipates being called as the first witness before the Select Committee of the Senate responsible for examining the extent of overt and covert intelligence activities in the U. S. and abroad. In connection with this appearance, Colby has indicated that he intends to make a very strong pitch for the Intelligence Community and has asked all agencies and departments of the U. S. Intelligence Board (USIB) to provide him with memoranda on the following four subjects: (1) examples of how the FBI in its counterintelligence role has materially benefited the U. S. Government, (2) ground rules that the FBI believes should be discussed with the Committee in order to insure that innocent persons are not maligned and sources and methods of investigation are protected, and (3) a chronology of independent boards or commissions which have examined the efficacy and authority of the FBI, and (4) any pending or proposed legislation involving internal security matters submitted by the FBI.
+
+Attached are copies of four memoranda prepared by the Intelligence Division which we propose to deliver to Mr. Colby before the close of business, 1/29/75.
+
+ACTION:
+
+If approved, the original and one copy of each of the four memoranda will be delivered to Mr. Colby's office on the afternoon of 1/29/75, by liaison. REC-111
+
+Enclosures
+
+WOC:ebc
+
+(6)
+
+FEB 8 1975
+
+NW 88608 Doctd:32989530 Page 280

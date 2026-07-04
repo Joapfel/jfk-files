@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_3991.png
+
+Convert to MarkdownIDIU was not perfect. Under Attorney General John Mitchell it supplied a list of names of American dissidents to the CIA. (Tab J) It also was used in conjunction with grand jury proceedings inquiring into terrorist bombings. Both of these activities should be forbidden by the statute authorizing the Justice Department to evaluate civil disturbance information.
+
+Finally, legislation may be needed to make clear that the FBI is <u>not</u> authorized to conduct investigations of organizations or individuals for the specific purpose of compiling a body of data to be used in connection with name checks under the Federal Employee Security Program. The same principle applies to FBI "assistance" to the Secret Service, under the present FBI-Secret Service agreement.
+
+A statute must also address the FBI's current practice of maintaining an Administrative Index (INDEX) of the prime subjects of current domestic intelligence investigations. The past history of the FBI's Security Index and other target lists (Key Activists, Agitator Index, Key Black Extremists) suggests the need to enact legislation banning the compiling of lists of persons by the FBI, unless such persons have been arrested or convicted for specific crimes and the list is used in connection with the investigation of such crimes.

@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_2346.png
+
+Convert to Markdownattempting to advance CPUSA policies he was expelled from the Black Panther Party.
+
+This does not mean that the CPUSA is not striving to play a more effective role in its relationship with activists of both New Left and black extremist groups. Individual Party members do play a role in demonstrations, activities, and workings of these groups. Party publications trumpet in support of all demonstrations which stir up discord in the United States whether it be economic, social, or against the war in Vietnam.
+
+## 2. Pro-Chinese Communist Groups
+
+### a. Progressive Labor Party
+
+Recent years have witnessed the formation of a myriad of extremist organizations enunciating the tenets of Communist China and Mao Tse-tung. The majority have been ineffectual paper organizations and not viable operations. However, one group, the Progressive Labor Party (PLP), is making significant organizational strides in major American cities and on a number of college campuses.
+
+The PLP was founded in 1962, by extremist elements of the CPUSA who were dissatisfied with CPUSA's "revisionism" and who advocated the following of the Chinese communist line in all areas of policy. It is headed by such devoted revolutionaries as ~~the~~ of the ~~CPUSA for extremist views; and~~ who, ~~was found guilty of conspiracy to riot, conspiracy to advocate criminal anarchy, and advocating criminal anarchy.~~
+
+Headquartered in New York City, the PLP has established active branches in a number of major metropolitan areas including Boston, Buffalo, Chicago, Newark, Los Angeles, Philadelphia, and San Francisco. During recent months, it has made a concerted effort to establish PLP branches throughout the United States. Spearheading this drive has been
+
+TOP SECRET
+
+- 3 -

@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_6739.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Director, FBI (157-9-4)
+
+DATE: 11-7-64
+
+FROM : SAC, Birmingham (157-835)
+
+SUBJECT: COUNTERINTELLIGENCE PROGRAM
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS
+
+The Bureau is requested to consider securing copies of income tax returns for the UNITED KLANS OF AMERICA, INC., KNIGHTS OF THE KU KLUX KLAN; ROBERT MARVIN SHELTON, 1708 - 15th Street, East, Tuscaloosa, Ala., or the ALABAMA RESCUE SERVICE, a name by which the UKA is sometimes known.
+
+Inquiry at the banks in Tuscaloosa has failed to reveal any accounts in the name of the UKA or ROBERT M. SHELTON, except a small personal account of SHELTON at the First National Bank of Tuscaloosa. Informants have advised that SHELTON is paid probably $8,000 per year for his work as Imperial Wizard. This money is sent in monthly to UKA headquarters in Tuscaloosa by the individual Klaverns and presumably put in some bank.
+
+An examination of pertinent income tax returns might furnish information concerning the financial standing of SHELTON and UKA which could be used in this program.
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI.
+
+REC-61
+
+2 - Bureau (RM)
+2 - Birmingham
+CBS:mfl
+(4)
+
+EX-102
+
+NOV 9 1964
+
+56DEC2 1964
+
+NW 88614 DocId:32989673 Page 87

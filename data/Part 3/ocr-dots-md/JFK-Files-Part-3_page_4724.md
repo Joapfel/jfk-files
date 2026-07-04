@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_4724.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+U. S. DEPARTMENT OF JUSTICE
+
+COMMUNICATIONS SECTION
+
+NOV 1 9 1962
+
+REVIEWED BY [SIGNATURE] TASK FORCE
+
+ON 7/28/62
+
+☐ RELEASE IN FULL
+
+☑ RELEASE IN PART
+
+☐ TOTAL DENOMINATE
+
+<table><tr><td>Mr. Tolson</td></tr><tr><td>Mr. Belmont</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Casper</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. DeLoach</td></tr><tr><td>Mr. Evans</td></tr><tr><td>Mr. Gale</td></tr><tr><td>Mr. Rosen</td></tr><tr><td>Mr. Sullivan</td></tr><tr><td>Mr. Tavel</td></tr><tr><td>Mr. Trotter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss Holmes</td></tr><tr><td>Miss Gandy</td></tr></table>
+
+TELETYPING
+
+URGENT 11/19/62 8-50 PM AH
+
+TO DIRECTOR, FBI 92-3267
+
+FROM SAC, LOS ANGELES 92-113C 2P
+
+JOHN ROSELLI, AKA, AR.
+
+NO INFORMATION RECEIVED FROM NEIGHBORHOOD SOURCES,
+INFORMANTS AND FISUR THAT ROSELLI CURRENTLY IN LOS ANGELES.
+
+LA FOUR TWO SIX EIGHT DASH C ADVISED THAT ON NOVEMBER
+SIXTEEN LAST HERMAN SPITZEL, FRIEND OF ROSSELLI, WHOSE CAR
+FXXXM ROSELLI IS USING WAS AT FRIAR-S CLUB AND MAKING INQUIRIES
+RE ROSELLI-S WHEREABOUTS.
+
+IRS ADVISED THEY OBTAINED FEDERAL INCOME TAX
+RETURNS ON B AND R AND R AND R ENTERPRISES, INC.,
+
+IRS [JFK Law 11(a)] REC-20 9-2 - Jul 6 - 380
+
+END PAGE ONE 97
+
+5 8 NOV 23 1962
+
+NW 78318 DocId:34489869 Page 2

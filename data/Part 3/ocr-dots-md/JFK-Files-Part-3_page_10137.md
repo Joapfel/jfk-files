@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_10137.png
+
+Convert to Markdown2 - Legal Counsel Division
+(1-Mr. Farrington)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+The Attorney General
+
+Director, FBI
+
+UNITED STATES SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES
+
+Reference is made to a letter from the Senate Select Committee dated March 19, 1975, requesting certain documents and other information from the Federal Bureau of Investigation.
+
+Attached for your approval and forwarding to the Committee is the original of a memorandum which constitutes a response to a request set forth in referenced letter. A copy of this memorandum is enclosed for your records. Processing of the additional requests is continuing on an expeditious basis and further responses will be forthcoming.
+
+Enclosures - 2
+
+EWL:jvl
+(7)
+
+ALL INFORMATION CONTAINED
+BEYOND IS UNCLASSIFIED
+DATE 1/1/761 BY SP-2-RM/76
+
+REC-38
+
+62.116375-53
+
+NOC EX-110
+
+5 APR 10 1975
+
+<table><tr><td>MAILED 7</td></tr><tr><td>APR 9 1975</td></tr><tr><td>-FBI</td></tr></table>
+
+5-7 APR 16 1975
+
+Legal Counsel
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO 954-545
+
+NW 88608 DocId:32989628 Page 414

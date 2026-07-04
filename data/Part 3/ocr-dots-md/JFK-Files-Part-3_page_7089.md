@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_7089.png
+
+Convert to MarkdownCONFIDENTIAL
+
+DCID No. 1/14
+(New Series)
+
+# DIRECTOR OF CENTRAL INTELLIGENCE DIRECTIVE NO. 1/14
+
+## UNIFORM PERSONNEL SECURITY STANDARDS AND PRACTICES GOVERNING ACCESS TO SENSITIVE COMPARTMENTED INFORMATION¹
+
+(Effective 1 July 1968*)
+
+Pursuant to the provisions of NSCID No. 1 (New Series, revised 4 March 1964), paragraph 2, subparagraph a. (5) and in order to ensure uniform protection of sensitive compartmented information, the following personnel security standards and practices are established for all United States Government civilian and military personnel, Government consultants; and employees of Government contractors who require access to sensitive compartmented information or to information which reveals the manner, methods and operational details by which sensitive compartmented information is collected. The standards and practices established herein are to be considered minimal and the departments and agencies may establish internally such additional security steps as may be considered necessary and appropriate to ensure that effective security is maintained. Access to sensitive compartmented information shall be under the strictest application of the "need-to-know" principle and in full accordance with the existing authorities and regulations which govern access thereto.
+
+### Purpose
+
+1. The continued protection of sensitive compartmented information within any one participating agency or among Government contractors affects and is a matter of serious security concern to all participating agencies. The provisions of this Directive shall apply to all persons under the jurisdiction or cognizance of the Executive Branch, without regard to civilian or military status, form of employment, official rank or position, or length of service. The establishment of uniform personnel security standards and practices as well as continuing security programs should enhance the security protection of such information and at the same time facilitate the security certification process among
+
+¹The term "Sensitive compartmented information" as used in this Directive is intended to include all information and materials bearing special community controls indicating restricted handling within present and future community intelligence collection programs and their end products for which community systems of compartmentation have been or will be formally established. The term does not include Restricted Data as defined in Section 11, Public Law 585, Atomic Energy Act of 1954, as amended.
+
+* This directive supersedes DCID 1/14, approved 23 June 1967.
+
+1
+
+CONFIDENTIAL
+
+<table><tr><td>GROUP I<br/>Excluded from automatic<br/>downgrading and<br/>declassification</td></tr></table>
+
+COPY
+
+N° 301
+
+ENCLOSURE
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11-7-66 BY SP 2 ALM/JTG
+
+NW 88608 DocId:32989530 Page 54

@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_4404.png
+
+Convert to MarkdownSECRET
+UNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+March 30, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: DEMONSTRATIONS SPONSORED BY PEOPLES' COALITION FOR PEACE AND JUSTICE (PCPJ), WASHINGTON, D. C., MAY, 1971
+
+INTERNAL SECURITY
+
+Domestic Protest Group
+
+Reference is made to your letter May 6, 1969, concerning the Omnibus Crime Control and Safe Streets Act of 1968.
+
+The National Coalition Against War, Racism, and Repression (NCAWRR) evolved out of the Strategy Action Conferences (SAC) which took place during June and September, 1970, at the University of Wisconsin, Milwaukee, Wisconsin. The SAC brought together organizations previously active in the New Mobilization Committee to End the War in Vietnam (NMC), which had been the guiding force in the massive anti-war demonstrations which took place in Washington, D.C., during November, 1969, and May, 1970. The NCAWRR, at a Continuations Committee meeting which took place at Detroit, Michigan, during January, 1971, changed its name to the "Peoples Coalition for Peace and Justice." This organization has interjected issues such as poverty, racism, repression, and women's rights into the antiwar movement on the premise that the war in Vietnam has a definite effect upon these problems.
+
+The PCPJ infiltrated by members of the Communist Party, USA, and New Left extremists, is led by Rennard Cordon Davis, also known as Rennie Davis, convicted Chicago Seven Conspiracy trial defendant. During April and May, 1971, in Washington, D.C., PCPJ is planning massive antiwar demonstrations which currently call for civil disobedience, including blocking of major arteries into Washington. May Day Collective (MDC) a small hard-core faction of PCPJ personally led by Davis, is
+
+SECRET
+
+Group 1
+
+Excluded from automatic downgrading and declassification
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+Subject to Criminal Sanctions
+
+NW 88608 DocId:32989583 Page 146

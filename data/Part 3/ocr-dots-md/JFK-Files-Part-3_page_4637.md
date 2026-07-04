@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_4637.png
+
+Convert to MarkdownTP 92-1
+
+2. Will conduct all possible investigation with use of highly confidential Bureau techniques to establish whether subject has any connection with the slot machines or gambling equipment that was aboard the 'Orange Sun".
+
+3. Will intensify efforts to establish highly confidential Bureau coverage at subject's residence.*
+
+4. Will provide Bureau with results of investigation of subject and LARRY DE JOSEPH'S efforts to operate in Guatemala noting these results as instructed by the Bureau should be furnished to the Bureau in form suitable for dissemination.
+
+5. Will identify subscribers:
+
+* FR 1-8579, called 6/26/62
+
+* HI 1-8579, called 4/19/62
+
+* HI 5-1551, called 4/2/62
+
+  (all from CONIGLIO residence)
+
+* FR 1-8579, called 3/23/62, 5/5/62, 7/16/62, 8/23/62
+
+  (all from FRANCES CACCIATORE residence, noting same number called 6/26/62 from CONIGLIO)
+
+* FR 1-3561, called 6/6/62, 9/17/62
+
+* NE 3-3872, called 6/11/62
+
+* FR 3-1821, called 6/15/62, 7/6/62, 7/14/62, 8/6/62
+
+* JE 8-5968, called 7/3/62
+
+6. Identify subscriber to FR 4-2906, noting this is the alleged girlfriend, telephone of SIDNEY HOROWITZ, and thereafter consider exploitation, noting HOROWITZ hangs out reportedly at Sunny's Restaurant, Miami Beach, Florida, and has been observed to visit subject's residence in Miami.
+
+- COVER PAGE C -

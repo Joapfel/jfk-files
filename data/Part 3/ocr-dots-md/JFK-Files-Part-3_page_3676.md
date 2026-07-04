@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_3676.png
+
+Convert to MarkdownG. The FBI's internal security intelligence program was used by Presidents from Franklin Roosevelt to Richard Nixon to serve their political interests, usually by collecting information on critics or political opponents.
+
+H. The program was conceived and implemented in secrecy, and although parts of the program were shared with outside authorities from time to time, until now no President, Attorney General, or Congressional committee has been exposed to the entire program in detail.
+
+I. The program is not authorized by statute but is founded on a series of secret or ambiguous Presidential orders, which in turn are based upon a questionable assertion of "inherent constitutional authority".
+
+J. The program continues today, albeit on a much more limited basis than in the late 1960's and early 1970's, and the basic machinery for the program -- the huge informant/confidential source network -- is still operating.
+
+K. There is no statute or internal Bureau or Justice Department policy prohibiting a new Director, Attorney General, or President from ordering the Bureau to expand the program to its earlier dimensions.
+
+## II. Issues and Options
+
+Among the issues and options which might be discussed with former Attorneys General in response to what the Committee has learned are the following:
+
+A. Abolition. Elimination of the FBI internal security intelligence program as Attorney General Harlan Stone ordered in 1924 when confronted with abuses growing out of the FBI's first internal security intelligence program, such as the infamous Palmer raids.
+
+In weighing this option, the Committee should consider the following issues:
+
+1. Whether there are not some functions (e.g., protecting the President, preventing or at least predicting violence by terrorist organizations, or predicting civil disorders) which require intelligence collection.

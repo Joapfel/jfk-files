@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_1011.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+In order to increase the friction between the Student Nonviolent Coordinating Committee (SNCC) and the Black Panther Party (BPP), the New York Office, in August, 1968, made pretext telephone calls to the SNCC office in an attempt to convey the impression to SNCC that the BPP was "out to get them." Purpose was to increase existing friction between SNCC and BPP.
+
+This was effected and subsequently our New York Office received information indicating that James Forman, SNCC leader, was recently threatened by the EPP who said they would "get him." Forman was making himself scarce with his location known only to his wife and SNCC officials.
+
+VRT:dsh
+(9)
+
+100-448006-229, 271
+
+SECRET
+
+34

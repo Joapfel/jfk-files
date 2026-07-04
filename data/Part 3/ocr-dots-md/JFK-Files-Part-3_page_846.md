@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_846.png
+
+Convert to Markdown# ELECTRONIC SURVEILLANCE
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the conter may not be disclosed to unauthorized person- and without the express approval of the FBI.
+
+SECRET MATERIAL ATTACHED
+
+ENCLASUER
+66-8160-3513
+
+NW#: 88608 DocId:32989541 ENCLASUER 66-8160-3513

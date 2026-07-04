@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_4951.png
+
+Convert to Markdown11/11/75
+
+AIRTEL
+
+TO: DIRECTOR, FBI (62-116395)
+(ATTN: INTD - W. O.CREGAR)
+
+FROM: SAC, NEW YORK (134-91)
+
+SUBJECT: FENSTUDY: 1975
+
+ReBuphone call of Bureau Supervisor SEYMOUR PHILIP,
+11/10/75.
+
+This communication is classified "Top Secret" in
+accordance with established classification procedures.
+
+Enclosed for the Bureau are two copies each of 21
+communications pertinent to captioned case.
+
+The original recording of this information is
+contained in 134-91, unless otherwise noted:
+
+1. NYlet to Bu - CPUSA Reserve Fund - 3/16/61
+
+2. NYlet to Bu - CPUSA Reserve Fund - 10/19/61
+
+3. NYmemo to SAC - CPUSA Funds - 11/20/62
+
+4. NYairtel to Bu - STANLEY LEVISION - 1/4/62
+
+5. NYairtel to Bu - M. L. KING - 2/12/62
+
+6. NYmemo to SAC - CPUSA Reserve Funds - 4/20/62
+
+7. NYtel to Bu - M.L. KING - 5/3/62
+
+Of 42 Encls. 21 are to remain
+the other 21 (see) 5 tests
+Bureau (Encls. 42) (RM) SSc j16 destroyed.
+1 - New York
+
+TJD:jir
+
+(4)
+
+Classified by 2/11/6
+Excerpt from GDS, Category 2
+Date of Declassification indefinite
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 12/2/80 BY SPAM/FI U
+
+NW 88608 DocId:32989550 Page 36

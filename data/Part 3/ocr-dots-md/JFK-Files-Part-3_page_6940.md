@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_6940.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : F. A. Branigan
+FROM : V. E. Triplett
+SUBJECT: BUREAU INFORMANT 200 - POLICY
+
+1 - Mr. Branigan
+1 - Mr. Papich
+1 - Miss Triplett
+
+DATE: August 28, 1969
+
+7 file in .
+105-93089
+
+(Information concerning other individuals and organizations)
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.
+
+A more detailed analysis of material received is attacked.
+ACTION: None. This is furnished for your information.
+
+Enclosure
+MET:met.
+
+D-2
+
+NWI-88614 DocID: 32989673 Page 288

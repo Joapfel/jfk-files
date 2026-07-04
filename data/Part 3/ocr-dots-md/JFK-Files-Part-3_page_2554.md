@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_2554.png
+
+Convert to MarkdownJune 30, 1975
+
+6. a list of all local police departments and personnel contacted relative to this COINTELPRO;
+
+7. a list of all media persons contacted in relation to this COINTELPRO and the media affiliation;
+
+8. a list of all FBI personnel connected with this COINTELPRO, their specific connection, and their present location;
+
+9. all other materials the FBI feels is necessary for the Committee to have a full understanding of this COINTELPRO.
+
+The following persons will be interviewed by the Committee; the Committee requests information as to their whereabouts and current relationship to the FBI:
+
+1. Robert E. Gebhardt
+
+2. Harry Morgan
+
+3. David E. Todd
+
+4. Charles Bates
+
+5. Primary case agent(s) responsible for this COINTELPRO in the field.
+
+6. Bureau supervisor for this COINTELPRO.
+
+Please note that the above listed nine (9) categories of documents and six (6) categories of witnesses were furnished to the FBI on June 12, 1975, at the noted briefing, so that progress on this request should be well underway.
+
+I would appreciate it if you would contact me to let me know when this information will be available.
+
+JTE:nb

@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_8.png
+
+Convert to Markdown# OCI quickly put together an experimental President's
+covering the period 4-9 January. This was taken by
+**Intelligence Review**, which Richard Lehman, the Assistant for Special
+Projects, brought to Gen. Clifton on 9 January. Clifton thought the
+**Review** was the best solution to the problem of the President's intelligence
+wasn't reading. He and Bundy agreed that the President would not accept a
+daily intelligence briefing. The President had instructed Clifton that
+the DCI was to see him whenever he wished but that otherwise the President
+relied on Bundy and Clifton to stay on top of the intelligence. Because
+with no warning or word, the President was likely to ask them for the latest intelligence; the daily
+Checklist had to continue. Clifton seemed receptive to OCI's proposal to
+six-person send the Checklist to a few additional persons. No one suggested that
+the Checklist periodically include a special blue-line or green-bordered page
+containing an operational report. 2/
+The next morning Gen. Clifton called Lehman to report that
+and he wanted continued. the White House was very pleased with the **Review**. It had been tried on
+the President at breakfast and it had "worked like a charm." 3/

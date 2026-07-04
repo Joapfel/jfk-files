@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_3154.png
+
+Convert to Markdown1766
+
+to whom violent type activity, shooting and the like, is second
+nature."
+
+Now, how can you reach any conclusion other than a purpose
+was to generate the kind of friction that would induce the
+killing —
+
+Mr. Adams. Well, if that purpose was for that rather than
+generating factionalism, disagreements, disrupting it, it would
+be contrary to the communication I referred to in the other
+file, the Black Panthers versus Ellis, where we notified the
+police of the contract, we notified the individuals of the
+contract and took every action at our command to prevent
+direct violence, and also the fact that the files showed that
+we turned down these situations where violence was involved.
+
+END OF REPORT
+DATE: 2/2/00
+PAGE: 3
+TIME: 12:44
+
+410 First Street, S.E., Washington, D.C. 20003

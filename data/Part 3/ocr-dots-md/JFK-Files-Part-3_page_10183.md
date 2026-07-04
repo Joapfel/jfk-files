@@ -1,0 +1,78 @@
+# JFK-Files-Part-3_page_10183.png
+
+Convert to Markdown# Routing Slip
+
+(Copies to Services Checked)
+
+TO: SAC:
+
+| | |
+| :--- | :--- |
+| [ ] Albany | [ ] Houston |
+| [ ] Albuquerque | [ ] Indianapolis |
+| [ ] Alexandria | [ ] Jackson |
+| [ ] Anchorage | [ ] Jacksonville |
+| [ ] Atlanta | [ ] Kansas City |
+| [ ] Baltimore | [ ] Knoxville |
+| [ ] Birmingham | [ ] Las Vegas |
+| [ ] Boston | [ ] Little Rock |
+| [ ] Buffalo | [ ] Los Angeles |
+| [ ] Butte | [ ] Louisville |
+| [ ] Charlotte | [ ] Memphis |
+| [ ] Chicago | [ ] Miami |
+| [ ] Cincinnati | [ ] Milwaukee |
+| [ ] Cleveland | [ ] Minneapolis |
+| [ ] Columbia | [ ] Mobile |
+| [ ] Dallas | [ ] Newark |
+| [ ] Denver | [ ] New Haven |
+| [ ] Detroit | [ ] New Orleans |
+| [ ] El Paso | [ ] New York City |
+| [ ] Honolulu | [ ] Norfolk |
+
+| | |
+| :--- | :--- |
+| [ ] Oklahoma City | [ ] Omaha |
+| [ ] Philadelphia | [ ] Phoenix |
+| [ ] Pittsburgh | [ ] Portland |
+| [ ] Richmond | [ ] Sacramento |
+| [ ] Salt Lake City | [ ] St. Louis |
+| [ ] San Antonio | [ ] San Diego |
+| [x] Mexico City | [ ] Ottawa |
+| [ ] Surep, by ____ | [ ] Paris |
+| [ ] For information ☐ optional ☑ action | [ ] Rome |
+| [ ] The enclosed is for your information. If used in a future report, ☐ conceal all sources, ☐ paraphrase contents. | [ ] Singapore |
+| [ ] Enclosed are corrected pages from report of SA dated ____ | [ ] Tel Aviv |
+| [ ] Retention For appropriate | [ ] Tokyo |
+
+**TO LEGAT:**
+
+| | |
+| :--- | :--- |
+| [ ] Beirut | [ ] Brasilia |
+| [ ] Bern | [ ] Buenos Aires |
+| [ ] Bonn | [ ] Caracas |
+| [ ] Brasilia | [ ] Hong Kong |
+| [ ] Buenos Aires | [ ] London |
+| [ ] Caracas | [ ] Madrid |
+| [ ] Hong Kong | [ ] Manila |
+| [ ] Mexico City | [x] Ottawa |
+| [ ] Paris | [ ] Singapore |
+| [ ] Rome | [ ] Tel Aviv |
+| [ ] São Paulo | [ ] Tokyo |
+| [ ] Seattle | [ ] Springfiel |
+| [ ] Tampa | [ ] Washington Field |
+| [ ] Quantico | [ ] Attt. |
+
+RE: SENSTUDY 75
+
+Date 5/8/75
+
+PERSONAL ATTN.
+
+Enc.
+Bucfile 62-116395
+Urfile
+
+NW 88608 DocId:32989628 Page 20
+
+All information contained herein is unclassified. File 5-8

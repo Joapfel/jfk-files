@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_4578.png
+
+Convert to MarkdownAirtel
+
+To: SAC, Miami
+2 - New Orleans
+2 - Newark
+2 - Atlanta
+2 - Jacksonville
+
+From: Director, FBI
+
+VICTOR DOMINADOR ESPINOSA HERNANDEZ, et al.
+NEUTRALITY MATTERS
+
+ReNOtel 8/1/63 in captioned matter.
+
+Miami immediately advise results of interview of
+Miami PCI Michael McLaney, particularly whether he is related to
+William Julius McLaney. In view of Michael McLaney's reported
+interest in 6/15/63 plan to bomb Cuba, he might well have a connection
+with this case and may have influenced William McLaney to cooperate
+in captioned matter.
+
+Miami also immediately interview Antonio Soto, Evelio Alpizar, Miguel Alvarez, Sam Benton and Jose de Jesus Basulto Leon who have been mentioned in previous Miami communications as possibly being involved in this matter, as well as any other suspects developed through investigation. Miami also interview Gonzalo Herrera, former Cuban airlines pilot and other logical former Cuban pilots who may have been approached to pilot planes in this matter. If not already done, all suspects connected with the June 15, 1963, attempt to bomb Cuba, which was handled by Customs, should be interviewed.
+
+1 - Albany
+Tolson 1 - New York
+Belmont I - Springfield
+Mohr Casper
+Callahan Conrad
+DeLoach VHN:pal
+Evans Gale (15)
+Rosen Sullivan
+Tavel Trotter
+Tele. Room Holmes Gandy
+
+MAIL ROOM TELETYPE UNIT
+
+<table>
+   <tr>
+    <td>MAILED</td>
+    <td>20</td>
+   </tr>
+   <tr>
+    <td>AUG</td>
+    <td>2-1963</td>
+   </tr>
+   <tr>
+    <td colspan="2">COMM-FBI</td>
+   </tr>
+  </table>
+
+19 AUG 8 1963
+
+AUG 12 1963
+
+62AUG
+
+NW 78318
+DocId:34489629 Page 2

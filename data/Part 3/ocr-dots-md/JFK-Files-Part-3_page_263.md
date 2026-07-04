@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_263.png
+
+Convert to Markdown# Counterintelligence Programs
+
+The "East Village Other," a bimonthly newspaper, planned to hire a pilot to "bomb" the Pentagon with flowers on October 20, 1967, the day before the National Mobilization Committee to End the War in Vietnam was to hold its march in Washington, D. C. The New York Office made a number of pretext calls to the "East Village Other" wherein the caller, posing as a pilot for this venture, made inquiries regarding this venture and eventually agreed to fly the plane. It was decided to "bomb" the Pentagon on October 21, 1967. The caller arranged with Allan Katzman of the newspaper to have the Publishing-Editor-In-Chief of the "East Village Other," Walter Bowart, accompany him on this mission. The caller was to meet Bowart at the Eastern Airlines terminal at Dulles Airport at 1:45 p.m. on October 21, 1967, with 100 to 200 pounds of flowers.
+
+Bowart and other individuals apparently connected with the "East Village Other" arrived at Eastern Airlines ticket counter at 1:00 p.m. on October 21, 1967, in a Volkswagen bus loaded with four cartons of flowers. The group waited until approximately 3:30 p.m. and finally left in disgust.
+
+LEB:dsh
+(9)
+
+100-3-104-34-1645, 1659, 1669
+
+SECRET
+
+157
+
+NW 88608 DocId:32989640 Page 175

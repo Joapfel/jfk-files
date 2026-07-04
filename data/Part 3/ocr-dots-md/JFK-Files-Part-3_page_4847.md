@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_4847.png
+
+Convert to MarkdownSECRET
+
+MM 92-1870
+
+[POSADA] stated that he had heard nothing during the past week from FRANK ROSENTHAL and has told DOMINGO ECHEMENDIA not to contact him.
+
+In conclusion, [POSADA] stated that he was contemplating a trip to Caracas, Venezuela, on Tuesday, August 8, 1967. (✓)
+
+The Federal Bureau of Narcotics, Miami, Florida, made available telephone toll calls from telephone numbers to which ROTHMAN had access. The following toll calls are from telephone number 866-4030, a non-published number, in the name of ETHEL ROTHMAN, wife of NORMAN ROTHMAN:
+
+| Date | Location | Number |
+|---|---|---|
+| 11/10/66 | Hollywood, Florida | 923-8111 |
+| 11/12/66 | Hollywood, Florida | 923-8111 |
+| 11/20/66 | Bronx, New York | OL 2-6779 |
+| 11/27/66 | Bronx, New York | OL 5-4299 |
+| 12/9/66 | Bronx, New York | OL 5-4299 |
+| 12/31/66 | Cincinnati, Ohio | 731-8246 |
+| 1/22/67 | Hollywood, Florida | 922-4993 |
+| 1/22/67 | Hollywood, Florida | 922-4993 |
+| 2/16/67 | Ft. Lauderdale, Florida | LO 5-7433 |
+| 2/16/67 | Bayville, New York | UN 6-4030 |
+| 2/26/67 | Hollywood, Florida | 983-5669 |
+| 3/5/67 | Bronx, New York | OL 2-6779 |
+| 3/15/67 | Hollywood, Florida | 989-9576 |
+
+REVIEWED BY [REDACTED] TASK FORCE - V -
+
+- COVER PAGE -
+
+[ ] PLEASE IN FULL
+[ ] PLEASE IN PART
+[ ] TOTAL DENIAL
+
+SECRET
+
+NW 88608 DocId:32300025 Page 97

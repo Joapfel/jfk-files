@@ -1,0 +1,54 @@
+# JFK-Files-Part-3_page_2543.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COL.
+
+HOWARD H. BAKER, JR., TENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MC C. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+June 27, 1975
+
+The Honorable Edward H. Levi
+The Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mr. Attorney General:
+
+On April 28 I wrote to you concerning certain allegations contained in Newsweek magazine pertaining to the removal from the FBI of certain "personal and confidential" or "official and confidential" files belonging to former Director J. Edgar Hoover. The Select Committee did not receive any acknowledgment or response to the letter until one month later on May 20, at which time we received a memorandum from the FBI. That memorandum was unsigned and stated, in essence, that the FBI had no knowledge of the matter although a former employee might. A copy of my letter of April 28, the FBI memorandum and a letter of transmittal are attached.
+
+As a result of conversations between members of my staff and representatives of the Department of Justice and the FBI, the Select Committee understood that the May 20 memorandum ended the matter and that neither the Department nor the Bureau intended to investigate further. We made it clear that we would proceed with our investigation. In its May 14 comprehensive request of your Department, the Committee had already specified several items (items 21-23 of Appendix C) related to the so-called "Official and Confidential" files which you had described in your testimony of February 27, before the House Judiciary Committee. Furthermore, members of our staff have interviewed a number of persons knowledgeable about the files maintained by Miss Helen Gandy, Executive Assistant to Mr. Hoover, part of which apparently were the "Official and Confidential" files which you had described in your testimony.
+
+On June 8 an article appeared in the New York Times indicating that the Department of Justice was undertaking an investi-
+
+ENCLOSURE
+
+NW 88608 DocId:32989618 Page 223
+
+RECEIVED
+
+JUN 27 1975
+
+K05 C

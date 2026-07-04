@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_399.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+JUL 18 1975
+
+TO: See Distribution
+
+FROM: K. William O'Connor
+Special Counsel for Intelligence
+Coordination
+
+SUBJECT: Proposed Procedures for Access to Department of Justice Files
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/16/90 BY SPAALM KP.
+
+Attached hereto is a sequence of proposed procedures which are being considered by the Attorney General for dealing with the Senate Select Committee, in regard to its desire for access to materials in the Departmental/FBI files.
+
+This document is the result of substantial negotiations; it represents what we understand to be the ultimate scope of access desired by the Senate Select Committee.
+
+The Attorney General wishes to be advised this afternoon of the views of the addressees; accordingly, he has asked that each of you call me before 2:00 p.m., and advise me of your general approval, disapproval, or view. Please excuse the urgency of the requested response; it is necessary to react on a very short fuse because of the extreme pressures which have been generated in this matter. Please call me on 739-5211, by the time indicated above. Your cooperation is appreciated.
+
+Distribution:
+
+Deputy Attorney General
+Solicitor General
+✓Director, FBI
+Mr. Thornburg, Criminal Division
+Mr. Pottinger, CRD
+Mr. Scalia, OLC
+Mr. Uhlmann, OLA
+
+NW 88608 DocId:32989640 Page 311

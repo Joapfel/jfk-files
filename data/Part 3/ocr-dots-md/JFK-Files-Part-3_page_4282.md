@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_4282.png
+
+Convert to MarkdownThe Attorney General
+
+Your authority is requested to institute telephone
+surveillance coverage on the YLP office located at
+949 Longwood Avenue, Bronx, New York for a period of three
+months.
+
+APPROVED
+DATE
+
+SECRET - 2 -

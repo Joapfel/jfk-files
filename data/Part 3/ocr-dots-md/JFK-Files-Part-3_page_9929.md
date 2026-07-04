@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_9929.png
+
+Convert to Markdownnorthwest to the town of Old Iliamna and thence following the south shore of Lake Iliamna to the Kvichak River to the Kvichak Bay; (2) in the islands adjacent to the Alaska Peninsula excluding Kodiak and Afognak Islands which are the responsibility of the Office of Naval Intelligence; (3) in the Aleutian Islands excluding Adak Island which is the responsibility of the Office of Naval Intelligence; and (4) in the Pribilof Islands.*
+
+6. Informing the other subscribing organizations of any important developments.
+
+7. Advising the Federal Bureau of Investigation of the identity and location of the plants engaged in Air Force contracts.
+
+VI. 1. Where Sections III, IV, and V involve general territorial coverage, responsibility for such coverage will pass from one element of the armed forces to another automatically when a change of command responsibility ensues. This provision is subject to modification by direct agreement between the interested elements of the armed forces.
+
+2. While investigative jurisdiction over the civilian populace in former enemy territories occupied by the armed forces has been provided for in Sections III, IV, and V above, those provisions are subject to direct adjustment with the Department of State if and when that Department assumes governmental direction in such areas of occupation.
+
+VII. From time to time it may be desirable in the light of changing conditions to modify or amend this Delimitations Agreement. Subject to the exceptions already provided for above, general amendments or modifications involving all of the four subscribing organizations shall be issued in the form of a revised Delimitations Agreement and not as separate instructions.
+
+VIII. During periods of martial law, or periods of predominant armed forces interest not involving martial law, when agreed upon by the subscribing agencies, the provisions of Appendix A or B, hereto attached, will additionally apply.
+
+IX. All agreements of a continuing nature and applicable to two or more of the subscribing agencies to the Delimitations Agreement which affect the basic jurisdiction thereof which are
+
+*Original paragraph changed. See IIC Working Committee Minutes of September 15, 1954, and June 8, 1955.

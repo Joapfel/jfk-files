@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_5635.png
+
+, Levison recommendeddundator Pitts U'Vell, who had been U.S. Attorney General, National Committee on the CPUSA in December, 1963, under the pseudonym "Corwinus Janusew. Also accepted Levison's suggestion and employs U. N. in the organization, the Southern Christian Fellowship Conference (S.C.F.C.). identified U. 'ell as a combatant in all of the革命, 1963, King announced that U. V. was one of the members of the PULC. However, U. 'ell continues to associate with King, 10 Dec.
+
+Tolson
+
+Belson
+
+Mohr
+
+Sasser
+
+NOTE: See memorandum, Smith to Sullivan, 7/17/63, RSG:JMS/aab:jdd, Conlan re: SENATOR A.S.
+
+MIKE MONRONEY, REQUEST FOR
+
+DIRECTOR'S VIEWS RE
+
+CURRENT RACIAL AGITATION.
+
+2 AU May 19
+
+(15)
+
+28-7-63
+
+MAIL ROOM ☐ TELEPHONE UNIT ☐
+
+READ
+
+RE: WORK!
+
+SEE NOTE ON PAGE THREE RE
+
+CLASSIFICATION No's
+
+NEW 88614 DocId:32989673 Page 137 // 11 15..

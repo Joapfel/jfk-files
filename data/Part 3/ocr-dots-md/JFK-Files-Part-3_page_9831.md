@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_9831.png
+
+Convert to MarkdownThe Attorney General
+
+NOTE CONTINUED:
+
+hands of hostile foreign intelligence services, they would
+reveal the current capability the FBI employs in the field of
+counterintelligence against the total foreign threat.
+
+It is noted that a precedent exists for making the information available for review only at FBIHQ. By letterhead memorandum 4/8/75 we advised the Committee that we would not furnish them a requested list of names and titles of all Intelligence Division personnel at FBIHQ down to and including Unit Chiefs together with a number of personnel below that level but that this list would be made available for review by appropriately cleared personnel of the Committee staff at FBIHQ.

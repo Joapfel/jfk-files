@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_6928.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+
+FEDERAL BUREAU OF INVESTIGATION
+
+In Reply, Please Refer to
+File No.
+
+100-357044
+
+New York, New York
+
+July 24, 1961
+
+Re: "National Guardian,"
+Weekly Guardian Associates, Inc.,
+Internal Security - C:
+Internal Security Act of 1950
+
+Reference is made to memorandum at New York, entitled as above, dated May 22, 1961.
+
+A source, who has furnished reliable information in the past, furnished on July 17, 1961, a revised schedule of the "National Guardian" European tour, July 28 - August 20, 1961.
+
+The schedule of this tour is as follows:
+
+| FROM | TO | Via | CARRIER | FLIGHT NO. | DATE |
+|---|---|---|---|---|---|
+| Idlewild | Copenhagen | Scandinavian Airlines (SAS) | | 912 | 7/28 |
+| Copenhagen | Stockholm | SAS | | 508 | 7/31 |
+| Stockholm | Helsinki | SAS | | 728 | 7/31 |
+| Helsinki | Moscow | Aeroflot | | 108 | 7/31 |
+| Moscow | Kiev | Aeroflot | open | | |
+| Kiev | Prague | Aeroflot | 211 | | 8/17 |
+| Prague | Copenhagen | Malev (Hungarian | 380 | | 8/20 |
+| Copenhagen | Idlewild | SAS Airlines) | 919 | | 8/20 |
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.
+
+This document contains neither
+recommendations nor conclusions
+of the property
+of the
+agency;
+not to your
+units are
+not . outside
+in A-S
+
+A-S
+
+NW 88614 DocId:32989673 Page 276

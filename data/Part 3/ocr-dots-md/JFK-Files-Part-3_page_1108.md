@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_1108.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+On April 1, 1970, the Pittsburgh Office confidentially advised Mr. Richard M. Larry, Sarah Mellon Scaife Foundation, Pittsburgh, concerning a conference at Carnegie-Mellon University (CMU), scheduled for the next weekend by the Gulf Action Project (GAP), to plan for the disruption of a Gulf Oil stockholders meeting scheduled for April 28, 1970, at Pittsburgh. Mr. Larry advised the CMU Administration.
+
+CMU officials contacted representatives of GAP cancelling the conference. GAP protested the cancellation and ultimately CMU allowed the conference to take place provided same did not include planning for the disruption of the stockholders meeting.
+
+TCD:vb
+(9)
+
+100-449698-39-15, 17
+
+SECRET
+
+129

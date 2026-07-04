@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_2336.png
+
+Convert to Markdown# intelligence Community Staff
+ATTN: Central Index
+
+NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.
+
+CLASSIFY AS APPROPRIATE
+
+<table><tr><td>TO:</td><td colspan="3">Intelligence Community Staff</td><td>FROM:</td><td></td></tr><tr><td>ATTN:</td><td colspan="3">Central Index</td><td>FBI</td><td></td></tr><tr><td>SUBJECT:</td><td colspan="6">Abstract of Information Provided to Select Committees</td></tr><tr><td rowspan="2">1.</td><td colspan="6">HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td></tr><tr><td>DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td><td>For Review</td></tr><tr><td colspan="7"><strong>3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</strong></td></tr><tr><td>*</td><td colspan="6"></td></tr><tr><td></td><td colspan="6"></td></tr><tr><td colspan="7"><strong>4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)</strong></td></tr><tr><td colspan="7">Memorandum</td></tr><tr><td rowspan="2">5.</td><td colspan="6">IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)</td></tr><tr><td colspan="6">SSC letter 5/14/75, Appendix C, Part 1, Item 2 & 3</td></tr><tr><td colspan="7"><strong>6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)</strong></td></tr><tr><td colspan="7"><strong>TS</strong></td></tr><tr><td rowspan="2">7.</td><td colspan="6">KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)</td></tr><tr><td colspan="6">intelligence collection</td></tr><tr><td rowspan="2">8.</td><td colspan="6">SUMMARY (see reverse side before completing this item)</td></tr><tr><td colspan="6">For review at FBIHQ. A letter dated 6/20/69 from Huston to Director of FBI concerning resources being targeted toward the monitoring of foreign communist support of revolutionary youth activities in U.S., effectiveness of such resources, gaps in intelligence, and steps which should be taken to provide maximum coverage. All FBI memoranda and other materials pertaining to the correspondence.<br/>MDR 16<br/>ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED<br/>DATE 5/15/69 BY SPA ALM/LEHL 5 weeks</td></tr><tr><td colspan="7"><strong>62-116395</strong><br/>FMK: fmk (4)<br/><strong>ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</strong><br/><strong>TREAT AS YELLOW</strong></td></tr><tr><td>3791 (6.75)</td><td colspan="6">CLASSIFY AS APPROPRIATE</td></tr></table>
+
+NW 88608 DocId:32989618 Page 16
+
+TREAT AS YELLOW

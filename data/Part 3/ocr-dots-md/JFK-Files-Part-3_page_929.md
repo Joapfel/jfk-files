@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_929.png
+
+Convert to MarkdownThe Acting Attorney General
+
+ST-114 REC-38
+Director, FBI 62-24172-356
+
+December 11, 1973
+
+## STUDY OF FBI PROGRAMS AND POLICIES
+
+Reference is made to your letter of December 5, 1973, captioned as above.
+
+I fully support the idea of a study being launched for the purpose of considering the need for additional legislation to enable the FBI to counter violence in the time of crisis such as existed at the time the FBI implemented the COINTELPRO - New Left.
+
+As you know, the FBI has conducted an in-depth study of the scope of FBI jurisdiction and authority and it was concluded that additional legislation is needed to enable us to more fully discharge our responsibilities relating to the national security. Copies of this study have been furnished to the Department.
+
+As for the general study of programs and policies of the FBI which was initiated by former Attorney General Richardson and former Deputy Attorney General Ruckelshaus, we have completed compiling most of the information requested. However, as pointed out during our meeting on December 5, 1973, information requested in item No. 7 relating to Investigative Techniques was so broadly requested by Mr. Ruckelshaus that it encompasses extremely sensitive foreign intelligence collection techniques. Such information is so closely held in the FBI that it is handled on a strictly need-to-know basis. We therefore do not feel that the information should be included in a study of this type which will be beyond the control of the FBI.
+
+Mr. Petersen noted at the meeting that such information is needed if we expect to get legislation which would give us the authority we need in the sensitive foreign field. We recognize this,
+
+TJS:mah (7)
+
+MAILED 2 DEC 1973
+FBI
+
+JAN 8 1974
+
+SEE NOTE, PAGE TWO
+
+UNRECORDED COPY FILED IN 107-4167627-91-4-2439-62-55047-
+
+NWI:88608MAIL:ROCD6CIdP532989541

@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_2611.png
+
+Convert to Markdown1 In short, if we learn a murder or bombing is to be carried out now, can we truly meet our responsibilities by investigating only after the crime has occurred, or should we have the ability to prevent? I refer to those instances where there is a strong sense of urgency because of an imminent threat to human life.
+
+7 Where there exists the potential to penetrate and disrupt, the Congress must consider the question of whether or not such preventive action should be available to the FBI.
+
+9 These matters are currently being addressed by a task force in the Justice Department, including the FBI, and I am confident that Departmental guidelines and controls can be developed in cooperation with pertinent Committees of Congress to insure that such measures are used in an entirely responsible manner.
+
+16 Probably the most important question here today is what assurances I can give that the errors and abuses which arose under the Counterintelligence Programs will not occur again?
+
+18 First, let me assure the Committee that some very substantial changes have been made in key areas of the FBI's methods of operations since I took the oath of office as Director on July 9, 1973.
+
+23 Today we place a high premium on openness, openness both within and without the service.
+
+24 I have instituted a program of open, frank discussion
+
+25

@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_2314.png
+
+Convert to MarkdownThe Attorney General.
+
+Durham stated he eventually received a subpoena to testify before the Senate Select Committee on Intelligence activity, but refused to comply with this subpoena, threatening to hold a press conference concerning his experience with this Committee's investigators if they forced him to appear. Durham said he expressed his feelings to an inconsistent United States attorney in its offices in Washington, D.C., and in a few days he was told to forget the subpoena.
+
+A source advised that action should be taken in this matter.
+
+1 - The Deputy Attorney General
+
+Attention: Michael B. Sheehan, Jr.
+Special Counsel for
+Intelligence Coordination
+
+NOTE:
+
+The above information was contained in Minneapolis teletype to the Bureau, 1/2/76, entitled "American Indian Movement; EM." While Durham, the former MP 4115-E, is no longer being operated as an informant, he periodically contacts the Minneapolis Division. Durham is currently traveling around the country under the sponsorship of the John Birch Society speaking about his knowledge of extremist activity.

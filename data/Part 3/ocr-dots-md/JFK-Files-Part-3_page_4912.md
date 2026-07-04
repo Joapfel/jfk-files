@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_4912.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+Miami, Florida
+
+March 31, 1967
+
+Re: NORMAN ROTHMAN
+ANTI-RACKETEERING
+
+Reference is made to report of Special Agent ALLAN M. TRANKLEY, dated and captioned as above, at Miami, Florida.
+
+The following is a characterization of the informants utilized in above-referenced report:
+
+MM T-1 is a business organization which, at times, is able to furnish general information regarding the criminal element in the Miami, Florida, area.
+
+MM T-2 is an individual who has many contacts among the Cuban element in Miami, Florida.
+
+MM T-3 is an individual who has some knowledge of the criminal element in the Miami, Florida, area.
+
+MM T-4 is an individual who, by virtue of his former position, was able to furnish information regarding subject.
+
+MM T-5 is an individual who mingles with the criminal element on a daily basis in the Miami area.
+
+MM T-6 is a businessman who has wide association in the criminal element in the Miami area.
+
+MM T-7 is an individual who has knowledge of some of the criminal element in the Miami, Florida, area.
+
+MM T-8 is the supervisor of an agency which conducts credit investigationsand can obtain information as to financial and business interests of hoodlums and racketeers.
+
+COPIES DESTROYED
+
+8 (JUN 181 1972)
+
+NW 88608 DocId:32300025 Page 162

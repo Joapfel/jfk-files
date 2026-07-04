@@ -1,0 +1,88 @@
+# JFK-Files-Part-3_page_7286.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+1 - Mr. Adams
+1 - Mr. N.P. Callahan
+
+TO : Mr. W. R. Wannall
+
+FROM : W. O. Cregar
+
+DATE: 1/27/75
+
+1 - Mr. Bassett
+1 - Mr. Wannall
+1 - Mr. Cregar
+
+SUBJECT: SELECT COMMITTEE OF THE SENATE
+
+WILL BE DATED JUN 13 1975
+
+MAY 1962-EDITION
+
+GSA GEN. REG. NO. 27
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intel. Rec. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+Memorandum W. O. Cregar to W. R. Wannall, dated 1/24/75, entitled "United States Intelligence Board (USIB) Meeting of 1/24/75," recommended that Section Chief William O. Cregar's name be provided to the Deputy Director of the Intelligence Community Staff as a point of contact within the FBI to coordinate matters dealing with the Senate Select Committee (SSC). The mandate of the SSC is to examine the extent of overt and covert intelligence activities in the U.S. and abroad.
+
+On the morning of 1/27/75 Mr. John Clarke, Deputy Director of the Intelligence Community Staff, advised that Mr. Colby believes it is necessary for security representatives of FBI, CIA and National Security Agency (NSA), to meet in order to develop recommendations for the SSC as to how documents and testimony furnished to the SSC will be protected against unauthorized disclosure. In this regard, Mr. Donald E. Moore, former Inspector in the Intelligence Division and currently Chairman of the USIB Security Committee, will function as the USIB representative to this group.
+
+OBSERVATIONS:
+
+RECD
+
+FEB 4 1975
+
+According to the Senate Resolution dated 1/21/75 relating to the investigation and study of governmental operations with respect to intelligence activities, the SSC is going to involve all agencies of the Intelligence Community. In anticipation that Bureau representatives will be called to testify and asked to supply some extremely sensitive documents regarding our investigative activity in the U. S., it is believed essential that we have an input into how such documents and testimony are going to be handled by staff personnel of the Committee. Unless we participate in developing security standards, we may find that sensitive documents and testimony that we are called to provide to the Committee cannot be adequately protected from public scrutiny.
+
+WOC:ebc
+
+(6)
+
+CONTINUED - OVER
+
+JUN 13 1975
+
+FEB 13 1975
+
+XEROX
+
+NEW 88608 DocID:32989530 Page 251
+
+~~AMDE 16~~
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 9/25/00 BY SPJ AM 9/16
+5-CORPORATION
+
+# REC-111
+
+13
+
+RICOH
+
+SEROV
+
+PCL

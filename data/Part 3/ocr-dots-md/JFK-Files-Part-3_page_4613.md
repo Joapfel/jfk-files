@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_4613.png
+
+Convert to MarkdownNK 105-9440
+
+BRENNAN stated "RUBY" was worried about her parents knowing she was in Cuba, and she expressed concern about the large number of Chinese men at the Commodore Hotel, Havana, whom she saw eating on one occasion, and stated she did not like it at all.
+
+MANUEL ARQUES, a self-admitted supporter of CARLOS PRIO, exiled former President of Cuba, and naturalized United States citizen of Cuban birth, formerly was Publicity Director of the Cuban Tourist Commission at Miami until he resigned during November, 1960. ARQUES has been identified by several sources as having been an intelligence agent in the United States for JUAN ORTA, who, until recently, was the Secretary for FIDEL CASTRO.
+
+Upon interview by Bureau Agents on December 1, 1960, ARQUES denied ever having been a Cuban intelligence agent. However, he admitted sending written and verbal messages to ORTA during 1959 concerning activities in the United States of "Batistianos." ARQUES stated he was not in accord with policies of the Castro Government and considered communism to be dominant in the Castro regime.
+
+On January 20, 1961, ARQUES advised SA WILLIAM P. KELLY that his residence then was 1050 N. W. Seventh Street, Miami, Florida.
+
+On February 3, 1961, NK T-3 advised that telephone number JE 1 - 7635 was listed to HYMAN GOTTSMAN, 1225 - 11th Street, Apartment 2, Miami Beach, Florida.
+
+The above records are confidential and can only be obtained through issuance of a subpoena duces tecum.
+
+The March 26, 1961, issue of "The Asbury Park Sunday Press" carried the following article concerning the subject following an interview by CHARLES BROWER, Press Staff Writer:
+
+"SHORE WOMAN WHO AIDED CASTRO
+SORRY, SAYS CUBANS LIKE US
+
+" By CHARLES BROWER
+Press Staff Writer
+
+" UNION BEACH -- Despite FIDEL CASTRO's hate America campaign, the average Cuban holds no dislike for Americans.
+
+"This is the observation of a local woman who aided, in what she terms a minor way, the young Cuban dictator's rise to power over three years ago.

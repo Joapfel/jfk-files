@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_2220.png
+
+Convert to MarkdownU. S. Senate Select Committee
+
+auxiliary offices (of which Detroit was one) were required to submit 90-day summary reports on BPP activities. In those cases no annual reports were submitted. It is for this reason that more than five reports are being furnished concerning Black Panther Party activities in Detroit.
+
+Regarding information pertaining to the Richmond, Virginia, Chapter of the Black Panther Party, no annual reports are being furnished as the Richmond Field Office did not submit any reports or LHMs.
+
+Regarding information pertaining to the discovery of a dynamite bomb in the United Nations Building in New York City, no annual reports are being furnished as none were submitted by the New York Field Office.
+
+1 - The Attorney General

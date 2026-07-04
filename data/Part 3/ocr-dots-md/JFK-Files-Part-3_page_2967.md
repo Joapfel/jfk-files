@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_2967.png
+
+Convert to Markdown1905
+
+smn 20
+
+Phone (Area 202) 544-6000
+
+1. engage in criminal activity, and the courts have held that,
+2. especially the Supreme Court in the Newark County Case, that
+3. the very difficulty of penetrating an ongoing operation, that
+4. an informant himself can engage in criminal activity, but
+5. because there is lacking this criminal intent to violate a
+6. law, we stay away from that. Our regulations fall short of that.
+
+7. If we have a situation where we felt that an informant
+8. has to become involved in some activity in order to protect
+9. or conceal his use as an informant, we go right to the United
+10. States Attorney or to the Attorney General to try to make sure
+11. we are not stepping out of bounds insofar as the use of our
+12. informants.
+
+13. Senator Tower. But you do use these informants and do
+14. instruct them to spread dissension among certain groups that
+15. they are informing on, do you not?
+
+16. Mr. Adams. We did when we had the COINTELPRO programs,
+17. which were discontinued in 1971, and I think the Klan is probably
+18. one of the best examples of a situation where the law was
+19. in effect at the time. We heard the term States Rights used
+20. much more than we hear it today. We saw in the Little
+21. Rock situation the President of the United States, in sending
+22. in the troops, pointing out the necessity to use local law
+23. enforcement. We must have local law enforcement, to use the
+24. troops only as a last resort.
+
+25. And then you have a situation like this where you do try
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003

@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_46.png
+
+Convert to MarkdownSTANDARD FORM NO. 64
+
+Office Mem.
+
+Jum • UNITED . GOVERNMENT
+
+TO : MR. TOLSON
+FROM : J. P. MOHR
+SUBJECT: APPLICANT INVESTIGATIONS
+
+DATE: 12/21/49
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED.
+DATE 10-20-49 BY SRALMYNE
+
+The Director has inquired concerning the procedure which was followed in the Atomic Energy Act applicant case whereby the Washington Field Office was not alerted to the fact that Harold Ickes, whose name was given as a reference, should not be interviewed.
+
+There is attached a memorandum dated December 20, 1949 from Mr. Rosen to Mr. Ladd with respect to the specific Atomic Energy case mentioned, namely Fred Ernest Schnepfe, who had given Harold Ickes as a reference on his PSQ or application form. From a reading of the attached memorandum which was prepared by Section Chief G. C. Callan of the Applicant Section, it is obvious that the Supervisors who handle applicant matters in the Investigative Division do not have any policy with respect to the interviewing of references, former employers, associates or others except where the Bureau has specifically indicated that certain individuals should not be contacted, such as Henry Steele Commager, personnel of CBS and the like. As a matter of fact, the present policy in effect at the Seat of Government concerning applicant investigations is to interview all references and the attached memorandum indicates that Harold Ickes had been interviewed in the past in connection with applicant investigations and has exhibited a cooperative attitude. It would seem, therefore, that no action should be taken with respect to the supervisory personnel at the Seat of Government concerning the referral of Harold Ickes' name to the Washington Field Office for interview in connection with the Atomic Energy Act case mentioned.
+
+As you know, at the Executives Conference the Directors wishes with regard to interviewing persons who have demonstrated hostile attitudes toward the Bureau have been considered in the past and no instructions have been issued to the Supervisors at the Seat of Government or to the field concerning this matter except as to specific individuals whose names have been sent to the field in the recent past in an SAC Letter. This matter was called to the attention of the Executives Conference as recently as December 20, 1949 and the Conference felt it would be undesirable for the Bureau to embark upon a program of advising the field to not interview certain individuals in connection with various types of investigations conducted by the Bureau. The Executives Conference realized that the hostile attitude toward the Bureau stems not from our criminal investigative work but from the Bureau's investigative activity in the field of applicant investigations and the Loyalty Program. The Conference feels that the blacklisting of individuals is fundamentally bad and will ultimately result in extreme embarrassment to the Bureau. It is also felt it is extremely
+
+COPY DESTROYED
+
+A50 NOV 25 1949
+
+NWO88600 DocId:32989645 Page 13
+
+RECORDED. (5-7-49) 1-718 1-719 1-720 1-721 1-722 1-723 1-724 1-725 1-726 1-727 1-728 1-729 1-730 1-731 1-732 1-733 1-734 1-735 1-736 1-737 1-738 1-739 1-740 1-741 1-742 1-743 1-744 1-745 1-746 1-747 1-748 1-749 1-750 1-751 1-752 1-753 1-754 1-755 1-756 1-757 1-758 1-759 1-760 1-761 1-762 1-763 1-764 1-765 1-766 1-767 1-768 1-769 1-770 1-771 1-772 1-773 1-774 1-775 1-776 1-777 1-778 1-779

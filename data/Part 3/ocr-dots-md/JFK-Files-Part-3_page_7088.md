@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_7088.png
+
+Convert to MarkdownCONFIDENTIAL
+
+I would like to suggest that you appoint a member of your staff - say, Ben Marshall - as a focal point for handling compartmented information access approvals and assign him the responsibility of insuring that these security standards are met by persons selected to participate in this sensitive area.
+
+The CIA operates a Compartmented Information Branch as a service of common concern to the intelligence community which records the names of all individuals in the Government with access to compartmented information. Your personnel would be similarly recorded which would considerably ease the access certifications to all organizations for the duration of your inquiry.
+
+As indicated, I am prepared to discuss this with you at any time.
+
+Attachments:
+1. DCID 1/14
+2. Suggested Format
+
+CONFIDENTIAL

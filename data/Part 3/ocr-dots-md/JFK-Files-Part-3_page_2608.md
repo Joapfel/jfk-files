@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_2608.png
+
+Convert to Markdownsmh b
+
+1 I believe we have lived up to those promises.
+
+2 The members and staff of this Committee have had unprece-
+
+3 dented access to FBI information.
+
+4 You have talked to the personnel who conduct security-type
+
+5 investigations and who are personally involved in every facet
+
+6 of our day-to-day intelligence operations.
+
+7 You have attended numerous briefings by FBI officials who
+
+8 have sought to familiarize the Committee and its staff with
+
+9 all major areas of our activities and operations in the national
+
+10 security and intelligence fields.
+
+11 In brief, you have had firsthand examination of these
+
+12 matters that is unmatched at any time in the history of the
+
+13 Congress.
+
+14 As this Committee has stated, these hearings have, of
+
+15 necessity, focused largely on certain errors and abuses. I
+
+16 credit this Committee for its forthright recognition that the
+
+17 hearings do not give a full or balanced account of the FBI's
+
+18 record of performance.
+
+19 It is perhaps in the nature of such hearings to focus
+
+20 on abuses to the exclusion of positive accomplishments of the
+
+21 organization.
+
+22 The Counterintelligence Programs which have received the
+
+23 lion's share of public attention and critical comment constituted
+
+24 an infinitesimal portion of our overall work.
+
+25 A Justice Department Committee which was formed last year
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 88608 DocId:32989820 Page 13

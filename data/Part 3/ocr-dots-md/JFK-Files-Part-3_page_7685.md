@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_7685.png
+
+Convert to MarkdownEMPLOYEE
+BULLETIN
+
+No. 452.
+
+10 June 1975
+
+SENATE SELECT COMMITTEE TO STUDY
+GOVERNMENTAL OPERATIONS WITH RESPECT TO
+INTELLIGENCE ACTIVITIES
+
+Mr. E. H. Knoche has been named the focal point within the Agency for liaison with the Senate and House Select Committees investigating intelligence activities. Mr. John Clarke will continue in his capacity as focal point for the Intelligence Community on that same subject. Any Agency employee contacted directly by a Select Committee staff member should refer the caller to the Select Committee Review Staff under Mr. Knoche, on X4086.
+
+DISTRIBUTION: All Employees
+
+ENCLOSURE
+
+NW 88608 DocId:32989609 Page 88.

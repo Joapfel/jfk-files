@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_9824.png
+
+Convert to MarkdownThe Attorney General
+
+As a matter of historical fact, President Roosevelt in August, 1936, did request former Director J. Edgar Hoover to conduct investigations of subversive activities in this country, including communism and fascism. This request, however, was a confidential oral request and there is doubt that any record of it was made outside the FBI. This request, or Presidential mandate, was based, incidentally, on the fact that the law provided that the FBI could conduct such investigations if the Secretary of State should so request.
+
+The study revealed that while the 1929 et seq. directives did not grant any special intelligence-gathering authority to the FBI, we were responsible under these directives to collect all intelligence information furnished by local, state, and Federal law enforcement agencies and patriotic citizens and to sift and coordinate all such information for indications of subversive activity covered by Federal statutes.
+
+The study concluded that the FBI has the responsibility to conduct whatever investigations are necessary to determine if statutes relating to espionage, sabotage, insurrection or rebellion, sedition, seditious conspiracy, advocacy of overthrowing the Government, and other such crimes affecting the national security have been violated. In this connection we note that in a letter dated September 14, 1967, the Department of Justice advised that the FBI is continually alert to the problem of recurring riots and is submitting intelligence reports to the Department of Justice concerning such activity. This letter enumerated several Federal statutes and stated these could be applicable in using maximum available resources, investigative and intelligence, to collect and report all facts bearing on the question of schemes or conspiracies to plan, promote or aggravate riot activity.
+
+In other words, the Department was requesting all possible intelligence-type investigative activity based on the existence of certain statutes. We see this as being no different from our intelligence-type investigations relating to plans of groups or individuals to overthrow, destroy, interfere with or threaten the survival of effective operation of national, state, and local governments.

@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_837.png
+
+Convert to MarkdownThe underlying rationale for, and history behind,
+these concepts is:
+
+Personnel - the generalist allows for a highly
+flexible, mobile force which can be deployed, generally solely
+on the basis of manpower needs, i.e., any agent can do any
+job in the FBI. There are some exceptions; some employees
+have unique abilities which tend to make them less mobile in
+the eyes of administrators, e.g., language or technical
+factors in the case of agent deployment and promotion; they
+are more determinative in cases of clerks: special employees,
+translators, etc.
+
+Administration of cases and conduct of investigation
+these were originally geared to accommodate a relatively few
+criminal and civil investigative matters, and as the responsi-
+bilities of the organization grew they were modified and adapted,
+within the unitary structure, to accommodate the various
+missions. Thus they are quite similar in all three missions.
+
+3. The Issues Raised:
+
+a. Are the missions of law enforcement, internal security, and counterintelligence separable?
+
+b. If so, is complete separation possible, practical or politically feasible or desirable?
+
+c. Can the three missions be accommodated in one organization?
+
+d. By doing so, do any of the missions suffer?
+
+e. If all three missions can be accommodated in one agency, is the FBI currently doing it the best way possible?
+
+f. If not, is it practically or politically feasible or desirable to change the FBI's way of performing the mission?
+
+g. Why are other Western intelligence services separate from law enforcement agencies?

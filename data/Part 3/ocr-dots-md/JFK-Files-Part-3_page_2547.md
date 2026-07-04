@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_2547.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+WASHINGTON, D.C. 20530
+
+MAY 20 1975
+
+Honorable Frank Church, Chairman
+United States Senate Select Committee
+on Intelligence Activities
+Washington, D. C. 20510
+
+Dear Mr. Chairman:
+
+Attached are responses prepared pursuant to requests received from the respective Committees. The response to each Committee is slightly different as was the request. In order to assure clarity for both Committees, a copy of the response to the other Committee is provided with the response to the requesting Committee.
+
+A. WILLIAM O'CONNOR
+Assistant to the Deputy Attorney General
+
+RECEIVED FROM
+
+MAY 21 1975
+
+ENCLOSURE
+
+62-116395-407
+
+NEW 88608 DocId:32989618 Page 227

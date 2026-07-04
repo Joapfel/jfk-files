@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_5140.png
+
+Convert to Markdown1. All internal FBI memoranda pertaining to the imple- mentation of the October 16, 1972, "Memorandum to the Heads of Executive Departments and Agencies" from Attorney General Kleindienst.
+
+m. Any communications between the Justice Department and the FBI regarding the "new standards and guide- lines for use of electronic surveillance . . ." referred to by Attorney General Richardson in his September 12, 1973, letter to Senator J. W. Fulbright.
+
+n. All internal FBI memoranda pertaining to the imple- mentation of the standards and guidelines referred to in item m above.

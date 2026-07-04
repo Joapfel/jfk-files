@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_9921.png
+
+Convert to MarkdownALL INFORMATION CONTAINED
+DURING THE PERIOD IS UNCLASSIFIED
+BY: SP? ALM/JG5
+
+April 8, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+Reference is made to letter dated March 19, 1975,
+to the Attorney General from the Chairman of captioned
+Committee, which enclosed certain requests for documents
+and other information from the Federal Bureau of Investiga-
+tion (FBI).
+
+Attached are copies of various documents which
+are jurisdictional agreements between the FBI and other
+Federal agencies or guidelines prepared by the Attorney
+General with reference to investigative responsibilities
+between the FBI and other Federal agencies insofar as they
+pertain to internal security, intelligence collection,
+and/or counterintelligence matters, operations, or activities.
+
+1. Delimitations of Investigative Duties of the FBI, the Office of Naval Intelligence, the Intelligence Division of the Army and the Office of Special Investigations, Inspector General, U. S. Air Force, dated February 23, 1949, with supplemental agreements 1, 3, 4, 5, and 6. Supplemental agreement number 2 is no longer in effect.
+
+2. Agreement between the FBI and the Central Intelligence Agency, dated February 7, 1966, classified "Secret."
+
+3. Agreement between the FBI and the United States Secret Service, effective July 30, 1973.
+
+RLM:mam
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+SECRET MATERIAL ATTACHED
+
+GPO 954-545

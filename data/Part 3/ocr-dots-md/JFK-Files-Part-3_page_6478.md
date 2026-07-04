@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_6478.png
+
+Convert to MarkdownSSC REQUEST 9/29/75
+ITEM 17
+
+10/13/60 SP2 AFM 138
+
+# make 60
+SP2 AFM 136
+
+ bir q. 65
+
+65
+
+NW 88614 DocId:32989673 Page 209

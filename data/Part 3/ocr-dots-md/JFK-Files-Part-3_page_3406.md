@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_3406.png
+
+Convert to Markdown6. to report civil disturbance information obtained from state and local law enforcement agencies to the Attorney General for the purpose of determining the need to use federal military force under 10 U.S.C. 331 et seq.;
+
+7. to compile such lists of persons arrested or convicted for specific crimes as may be necessary for use in connection with the investigation of such crimes;
+
+8. to provide to the Attorney General or his designee full access to any information in the possession of the FBI which he may deem necessary for the performance of his responsibilities to supervise FBI activities and to submit reports to appropriate Congressional committees on FBI activities;
+
+9. to follow such other procedures and standards consistent with this statute which the Attorney General may prescribe, provided that such procedures and standards shall be published in the Federal Register or, if publication would substantially interfere with the conduct of investigations, reported to appropriate Congressional committees.

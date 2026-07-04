@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_6022.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Mr. J. Walter Yeagley
+Assistant Attorney General
+
+April 12, 1963
+
+Director, FBI
+
+1 - Mr. Ryan
+
+HUNTER PITTS O'DELL
+INTERNAL SECURITY - C
+INTERNAL SECURITY ACT OF 1950
+
+Attached are two copies of the report of Special Agent James F. O'Connell dated April 1, 1963, at New York, New York, on the captioned individual.
+
+T-1 in this report is a source in whom the Department has not yet expressed an interest. T-2 and T-6 are informants who are furnishing information of extreme value and who are not available for interview or testimony. T-3, T-4, and T-5 are confidential investigative techniques.
+
+Enclosures - 2
+
+100-358916
+
+2 - New York (100-91330)
+
+**ATTENTION:** SAC. NEW YORK:
+
+There is no objection to your submitting future reports on a 90-day basis. However, any data developed indicative of Communist Party membership on the part of the subject or any contact by him with members of the National Committee, Communist Party, USA, should immediately be brought to the attention of the Bureau in form suitable for dissemination.
+
+NOTE ON YELLOW: 116
+
+This letter is classified "Confidential" as of APR 15 1963 and pertains to possible operative plans involving current informants, the exposure of whom could adversely affect the national defense and because it transmits copies of a report which is also classified "Confidential."
+
+DR:cah:eeb (6)
+
+APR 17 1963
+
+MAIL ROOM ☐ TELETYP UNIT ☐
+
+NW 88614 DocId:32989673 Page 136
+
+CONFIDENTIAL
+
+GROUP I
+Excluded from automatic downgrading and declassification
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+Subject to Criminal Sanctions

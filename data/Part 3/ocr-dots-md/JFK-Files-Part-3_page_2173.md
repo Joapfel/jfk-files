@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_2173.png
+
+Convert to Markdown3791 (6.75) NW 88608 DocId:32989570 Page 8 CLASSIFY AS APPROPRIATE
+
+NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.
+
+<table><thead><tr><td colspan="8">CLASSIFY AS APPROPRIATE</td></tr><tr><td>TO:</td><td colspan="4">Intelligence Community Staff</td><td>FROM:</td><td colspan="2"></td></tr><tr><td>ATTN:</td><td colspan="4">Central Index</td><td colspan="3"></td></tr><tr><td>SUBJECT:</td><td colspan="8">Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="4">1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td><td colspan="4">2. DATE PROVIDED</td></tr><tr><td>X</td><td>DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td><td colspan="2">1/19/76</td></tr></thead><tbody><tr><td colspan="8">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td></tr><tr><td rowspan="2">X</td><td>SSC</td><td colspan="6"></td></tr><tr><td>HSC</td><td colspan="6"></td></tr><tr><td colspan="8">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)<br/>Memorandum and enclosures</td></tr><tr><td colspan="4">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)<br/>SSC letter 1/7/76</td><td colspan="4">6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>U</td></tr><tr><td colspan="8">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)<br/>Operating procedures</td></tr><tr><td colspan="8">8. SUMMARY (see reverse side before completing this item)<br/><b>Sanitization of documents to be used as exhibits to the public hearings on FBI mail openings.</b> MDR 16<br/>ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 1/3/00 BY SPALM/EHL<br/>62-116395<br/>FMK: fmk (4)<br/>ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75<br/><b>TREAT AS YELLOW</b></td></tr><tr><td colspan="8">5. gjs</td></tr></tbody></table>
+
+TREAT AS YELLOW
+
+5. gjs

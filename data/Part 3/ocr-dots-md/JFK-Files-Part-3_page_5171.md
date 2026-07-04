@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_5171.png
+
+Convert to Markdown137-4867
+137-4680
+137-5260
+
+The second major category handled on this desk is the 88 - Fugitive cases and agents specifically assigned to develop informants in this field are SAs RICHARD C. DU BRUILLE, CLARENCE A. BROM and MICHAEL G. KEALEY. The following informants have been developed in this regard:
+
+137-5469
+137-5426
+137-4294
+
+DESK 3
+
+General Criminal Desk
+
+Supervisor MORRIS M. DE JEAN
+
+The main criminal classifications handled by this desk are ITSMV, Theft or Destruction of Government Property, Crime on Government Reservations, Crime on the High Seas, Probation and Parole Violators, Bond Default Fugitives, and Crime Aboard Aircraft and Air Piracy.
+
+It is noted there are several major military installations within Headquarters City, including the Presidio and the U. S. Naval Shipyard at Hunters Point, as well as numerous Government buildings.
+
+In the ITSMV field SAs DANIEL J. BUCKLEY and EDWARD C. SAUER have been assigned to develop informants and in this regard the following have been developed:
+
+137-470
+137-3528
+
+The fugitive classifications handled off this desk are distributed among the various members of the squad and in these classifications SAs BERLYN H. CLOW, JAMES E. TARLETON, JR. and GARY D. MINYEN have been specifically assigned to develop informants and the following are informants developed in this regard:
+
+137-5291
+137-2164
+137-5425
+
+NW 88608 DocId:32989633 Page 85

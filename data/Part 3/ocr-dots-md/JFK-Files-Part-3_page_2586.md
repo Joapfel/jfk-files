@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_2586.png
+
+Convert to Markdown## Substantial Response
+
+6. All memoranda or other materials reflecting approval or knowledge of any COINTELPRO program by any government official outside the FBI, including, but not limited to, any Attorney General, Member of Congress, or President. (C.19.) (A substantial response to this request was received on July 8, 1975. Analysis of the materials may indicate the need for additional documents.)
+
+## F. Clandestine Informant Activities
+
+### Outstanding
+
+1. All memoranda of the FBI and the Justice Department discussing the legal authority of the FBI to use the following techniques to (1) investigate internal security matters, (2) collect intelligence information, and (3) engage in counterintelligence activities: informants, including possible entrapment, provocation, interference with lawyer-client relationship, or other problems. (A.5.)
+
+### Partial Response
+
+2. With respect to informants, including possible entrapment, provocation, interference with lawyer-client relationship, or other problems, all memorandum and other materials relating to:
+
+a. The original decision to utilize the technique in internal security, intelligence collection, and/or counterintelligence matters, operations, or activities.
+
+b. The policies and procedures of the FBI for the utilization of the technique in internal security, intelligence collection, and/or counter-intelligence matters, operations, or activities. (B.4.a.b.)
+
+(Committee staff members have been given access at FBI headquarters to manual sections relating to informants. These documents should be supplied to the Committee, as have other manual sections. Additional materials are required pertaining to informant problems.)

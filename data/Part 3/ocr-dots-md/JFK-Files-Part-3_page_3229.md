@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_3229.png
+
+Convert to Markdown1841
+
+gsl 12
+
+you both for your testimony this morning. It has been very
+helpful to the Committee, and the Committee will stand adjourned
+until 2:00.
+
+We will stand adjourned in public session. Our next
+public session will be 2:30 tomorrow afternoon for purposes
+of press questioning on the assassination report.
+
+(Whereupon, at 1:07 o'clock p.m., the Committee adjourned,
+to reconvene at 2:30 o'clock p.m., Thursday, November 20,
+1975.)
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

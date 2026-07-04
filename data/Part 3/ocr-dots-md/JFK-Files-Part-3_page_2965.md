@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_2965.png
+
+Convert to Markdown1903
+
+Senator Tower. What criteria do you use in the selection of informants?
+
+Mr. Wannall. Well, the criteria vary with the needs. In our cases relating to extremist matters, surely in order to get an informant who can meld into a group which is engaged in a criminal type activity, you're going to have a different set of criteria. If you're talking about our internal security matters, I think we set rather high standards. We do require that a preliminary inquiry be conducted which would consist principally of checks of our headquarters indices, our field office indices, checks with other informants who are operating in the same area, and in various established sources such as local police departments.
+
+Following this, if it appears that the person is the type who has credibility, can be depended upon to be reliable, we would interview the individual in order to make a determination as to whether or not he will be willing to assist the FBI in discharging its responsibilities in that field.
+
+Following that, assuming that the answer is positive, we would conduct a rather in depth investigation for the purpose of further attempting to establish credibility and reliability.
+
+Senator. Tower. How does the Bureau distinguish between the use of informants for law enforcement as opposed to intelligence collection?
+
+Is the guidance different, or is it the same, or what?

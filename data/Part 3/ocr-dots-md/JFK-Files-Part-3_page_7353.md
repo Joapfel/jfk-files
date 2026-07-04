@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_7353.png
+
+Convert to MarkdownGEORGIA STATE UNIVERSITY
+UNIVERSITY PLAZA
+ATLANTA, GEORGIA 30303
+
+Special Agent Seymour Phillips
+Federal Bureau of Investigation
+Washington, D.C.
+
+PERSONAL AND CONFIDENTIAL
+
+NW 88608 DocId:32989588 Page 26
+
+ALL INFORMATION CONTAINED
+HEREIN IS CONFIDENTIAL BY
+DATE.

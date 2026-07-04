@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_4365.png
+
+Convert to MarkdownOFFICE OF THE DIRECTOR
+
+UNITED STATES DEPARTMENT OF JUSTICE
+FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D.C. 20535
+
+(RI) 105-165706 Sub 37 February 10, 1971
+
+MEMORANDUM FOR THE ATTORNEY GENERAL
+
+RE: [BLACK PANTHER PARTY](#)
+[PHILADELPHIA DIVISION](#)
+
+On November 12, 1970, you authorized a telephone surveillance on the Philadelphia Chapter of the Black Panther Party (BPP), 3625 Wallace Street, Philadelphia, Pennsylvania. This installation has provided extremely valuable information and the following is a summary of the more pertinent information which has been developed.
+
+This source, during November and December, 1970, provided detailed information concerning income, expenditures and debts of the Philadelphia BPP Chapter. It also revealed during December, 1970, that efforts were being made by the BPP to obtain a site on the East Coast to be used for printing the BPP newspaper and that the BPP had formed Stronghold Consolidated Productions, Incorporated, for the purpose of controlling all BPP finances and contractual arrangements. The source also advised during this same month that Philadelphia BPP members were to be instructed to prepare detailed accountings of interviews conducted by Federal Bureau of Investigation Agents.
+
+Considerable data concerning travel of BPP leadership, including attendance at a BPP "ideological institute" in San Francisco, California, was furnished by
+
+SECRET
+Group I
+Excluded-from-automatic-
+downgrading-and-
+declassification.
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI.

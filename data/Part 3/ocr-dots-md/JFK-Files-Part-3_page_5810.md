@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_5810.png
+
+Convert to MarkdownThe Attorney General
+
+Enclosed for your approval and forwarding to the SSC
+is the original of a memorandum which constitutes the Bureau's
+response to the above request.
+
+A copy of this memorandum is being furnished for your
+records.
+
+Enclosures (2)
+
+1 - The Deputy Attorney General
+Attention: Michael R. Shahaan, Jr.
+Special Counsel for
+Intelligence Coordination

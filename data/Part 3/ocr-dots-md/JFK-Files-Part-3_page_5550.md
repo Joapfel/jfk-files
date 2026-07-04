@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_5550.png
+
+Convert to MarkdownMarch 2, 1965
+
+Memorandum for Messrs. Tolson, Belmont, Gale, Rosen, Sullivan, DeLoach
+
+problem is that he thinks the Senator is fine but he does not think that Fensterwald
+is as straightforward, or to put it another way that Fensterwald is smart and
+devious and the Senator is straightforward and not very bright and that is the
+problem. I stated I thought that Fensterwald is trying to get publicity for the
+Senator. The Attorney General stated the Senator said he did not want to get
+into talks and he would give him, the Attorney General, the names and a summary
+of the testimony and told Fensterwald to do so, but he, the Attorney General,
+can't say Fensterwald is going to do it; that he will on some point he did not know
+that he would on all. [I stated I had no faith or confidence in Fensterwald and
+neither did Senator Eastland.] The Attorney General stated that Senator Eastland
+may have already talked to Senator Long or else the Vice President, but somebody
+had waked him up. I stated Senator Eastland said he would do it Wednesday, but
+he may have called him.
+
+The Attorney General stated that is where it stands now and we shall
+see what happens.
+
+J. E. H.
+
+John Edgar Hoover
+Director
+
+<table>
+   <tr>
+    <td>SENT FROM D.O.</td>
+   </tr>
+   <tr>
+    <td>TIME 1/4/78</td>
+   </tr>
+   <tr>
+    <td>DATU 7-2-78</td>
+   </tr>
+   <tr>
+    <td>BY</td>
+   </tr>
+  </table>
+
+NW 88614 DocId:32989673 Page-47

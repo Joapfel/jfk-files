@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_60.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+ALL SUPERVISORS - LATIN-AMERICAN, (Revised)
+RESEARCH-SATELLITE, NATIONAL- DATE: August 10, 1967
+ITIES INTELLIGENCE AND SOVIET SECTIONS
+
+TO : W. R. WANNALL
+
+FROM : 
+
+SUBJECT: CONTROL - REFERENCE FILES
+
+SECRET
+
+CopY NO. 62
+
+Attached is a document which has been issued in all
+Sections to serve as a ready reference for all Supervisors.
+
+It is designed (1) to enable Supervisors to channel
+newspaper clippings, publications data, and other material to
+specific files where it can be readily located for use when
+needed (quick reference to this document will enable you to
+designate material for logical file by file number); (2) to
+eliminate creation of unnecessary control or reference files
+where one already exists; (3) to provide Supervisor with ready
+reference titles to utilize when writing material of general
+nature; (4) to provide a new Supervisor with a starting point
+whereby he can get familiar with background of work under his
+supervision; and (5) to enable Supervisors to have available
+a starting point for necessary research.
+
+Revisions and additions are being issued as they are
+received. Each Supervisor should furnish suggested additions
+and revisions as they occur so document will be current and
+workable. The cooperation of each Supervisor is needed to keep
+it complete and up to date. Send suggested revisions or
+additions to W. R. Wannall, Room 614 - 9&D.
+
+Control-Reference Files
+Page 1 - Revised
+August 10, 1967
+
+NW 88608 DocId:32989645 Page 27

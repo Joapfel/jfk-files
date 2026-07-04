@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_7461.png
+
+Convert to MarkdownThe Attorney General
+
+forth overall recommendations relating to counterintelligence activity. All of these exhibits are in the nature of deliberative, internal work papers wherein opinions were freely expressed because they were not prepared with the idea in mind of publication, and it would appear they would be exempt from disclosure even if the report itself is furnished to Senator Church.
+
+It is, therefore, recommended that, due to the above considerations, those exhibits prepared by the FBI not be furnished to Senator Church if you do decide to give him the report. It is felt the Department should determine if those exhibits prepared solely by the Department, such as Exhibits M and N, should be furnished to the Senator, but it is our recommendation that they not be for the same reasons as stated above.
+
+Exhibit O is a press release dated December 7, 1973, which, of course, is already public source in nature.
+
+You will recall that then Deputy Attorney General Laurence Silberman, in testimony before the Civil Rights and Constitutional Rights Subcommittee of the House Committee on the Judiciary as to why this 30-page report should not be furnished to that Committee stated, "...If we had thought it was appropriate to release the full discussion we would have done so at the time. There are a lot of internal working documents in the Justice Department which go to the making of a final report. This is the Attorney General's report."
+
+Attached for your approval and forwarding to the Committee is the original of a memorandum which sets forth the status of their request for the two documents. A copy of this memorandum is enclosed for your records.
+
+Enclosures - 2

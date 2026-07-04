@@ -1,0 +1,60 @@
+# JFK-Files-Part-3_page_2186.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+1 - Mr. W. R. Wannall
+
+1 - Mr. W. O. Cregar
+
+1 - Mr. J. P. Thomas
+
+October 20, 1975
+
+1 - Mr. P. E. Nugent
+
+STOKELY CARMICHAEL
+
+Stokely Carmichael is a well-known and publicly identified black extremist. Carmichael, during the approximate period 1967 to present, has openly called for revolution by blacks and the destruction of capitalism in America through violent action.
+
+Carmichael was among individuals of investigative interest who were placed on the National Security Agency's (NSA) Watchlist because of his extremist activities and contacts which include both domestic and foreign personalities of similar persuasion.
+
+In addition to maintaining his residence in Guinea and frequent trips to the United States, Carmichael has also traveled to North Vietnam, Cuba and People's Republic of China. Information furnished the Federal Bureau of Investigation by NSA included data concerning his foreign travel, his visits to the United States, travel of associates to visit him in Guinea and invitations to attend various international conferences.
+
+This information received from NSA, in some instances, was furnished appropriate FBI Field Offices to assist this Bureau's investigation in following the travel and extremist activities of Carmichael.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+PEN:adn/eks yes
+
+(9)
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11/6/00 BY SP2ALMIEHC
+
+ORIGINAL AND ONE COPY TO AG
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO : 1975 O - 569-920
+
+NW 88608 DocId:32989570 Page 21

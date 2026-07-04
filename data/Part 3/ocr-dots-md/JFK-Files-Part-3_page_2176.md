@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_2176.png
+
+Convert to MarkdownThe Attorney General
+
+**NOTE:**
+
+The material prepared for delivery to the SSC represents a portion of that requested in SSC letter dated 12/18/75. The SSC desired the material at an early date, and we were expediting our review of files with regard to additional requests contained in the December 18, 1975, letter.

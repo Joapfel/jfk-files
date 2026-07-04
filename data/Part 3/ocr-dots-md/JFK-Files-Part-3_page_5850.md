@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_5850.png
+
+Convert to MarkdownAT 157-257
+
+## C. EDUCATION
+
+The 1964 SCLC "yearbook", supra, reflects ABERNATHY is a graduate of Alabama State College, Montgomery, Alabama.
+
+The January 21, 1967 - January 27, 1967, edition of the "Chicago Defender", a weekly Chicago, Illinois, newspaper on Page 20, published an article entitled "The New Covenant Sunday - SCLC Leader to Speak". This article reflected ABERNATHY previously attended Atlanta University and was the recipient of a Doctor of Law (LLD) from Allen University.
+
+## D. EMPLOYMENT
+
+On May 17, 1968, Mr. JOHN A. RITTER, Credit Bureau of Greater Atlanta, Inc., advised IC MARION W. DAVIS his records reflect RALPH DAVID ABERNATHY was employed from 1951 to 1961 as pastor of the First Baptist Church, 347 North Ripley Street, Montgomery, Alabama. Since 1961 Abernathy has been employed as pastor of the West Hunter Street Baptist Church, 775 Hunter Street, SW, Atlanta, Georgia. These records also indicate that since 1961 ABERNATHY has held the office of Secretary-Treasurer SCLC.
+
+As of May 20, 1968, ABERNATHY continued to be employed as pastor of the aforementioned church and to also serve SCLC on a full-time basis as President.
+
+AT-T-1, 5/68
+
+## E. AFFILIATION
+
+Mr. JAMES R. WOOD, Director of Public Relations, SCLC, on May 2, 1961 furnished a SCLC brochure which set forth the history of this organization and biographical data concerning several individuals.

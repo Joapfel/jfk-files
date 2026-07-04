@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_7969.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Date:
+
+Aides Initial:
+
+Cabinet 6 Drawer 2
+
+Folder X File (check one)
+
+First Communication Dated 12/26/44
+Last Communication Dated 2/9/66
+Approximate Pages 7
+
+Derogatory Information: Yes No X (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Administrative
+
+Ticklers Only __________ Originals Only __________ Both X __________
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Folder contains letterhead memorandum (12/26/44) and memo (2/9/66). Memo sets forth Bureau's position re the defection and possible redefection of _________.
+
+102
+
+NW 88608 DocId:32989617 Page 149

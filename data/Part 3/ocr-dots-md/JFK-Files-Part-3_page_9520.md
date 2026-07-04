@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_9520.png
+
+Convert to MarkdownITEM I.
+
+Q: What about JUNAN Bond's campaign? Any input to influence stat?
+
+A: No. As I recall, Board was already a member of the Georgia legislature in July 1964 and 1965.
+
+Q: What petition surveillance was conducted by Bond?
+
+A: None to my knowledge beyond such courage of a member as may have resulted from courage of SNCI with which Bond was affiliated.
+
+Q: In what manner a question was asked at other members of the Georgia legislature. My answer was that I was only concerned with the subject before me.
+
+ENCLASURERETENTION CONTAINED ALL INFORMATION IS INCLUSIVE OF DATE 12/30/64 BY

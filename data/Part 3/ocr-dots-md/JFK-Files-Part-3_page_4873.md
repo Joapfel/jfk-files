@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_4873.png
+
+Convert to MarkdownUNITED STATES DEPARTMENT OF JUDGE
+FEDERAL BUREAU OF INVESTIGATION
+
+Copy to: 1 - U. S. Attorney, Miami
+(ATTN: Departmental Attorney WALLACE H. JOHNSON, JR.)
+
+Report of: ALLAN M. TRANKLEY
+Date: 6/22/67
+Office: Miami, Florida
+
+Field Office File #: 92-1870
+Bureau File #: 92-9844
+
+Title: NORMAN ROTHMAN
+
+Character: ANTI-RACKETEERING
+
+Synopsis:
+
+Subject continues to reside Surfside, Fla., and still employed with International Lithographers, Inc., Miami Beach, Fla. Subject may be involved in the handling of narcotics. Subject continues to associate with PATTY ERRA and MAX EDER. Identities of individuals Miami area contacted by subject while in Las Vegas, Nevada, set out.
+
+P* -
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED DATE 10-19-96 BY 5668 S/D/KSR (JFK)
+
+DETAILS:
+
+PERSONAL HISTORY AND BACKGROUND
+
+Marital Status
+
+On March 2, 1967, MM T-1 advised that OLGA CHAVIANO is now back with NORMAN ROTHMAN. MM T-1 advised that ROTHMAN had stated that he wished to resume his relationship with CHAVIANO and that he now had plenty of money.
+
+Residence
+
+ROTHMAN continues to reside at 425 Surfside Boulevard, Surfside, Florida.

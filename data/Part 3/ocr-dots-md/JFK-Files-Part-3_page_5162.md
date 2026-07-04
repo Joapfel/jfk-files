@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_5162.png
+
+Convert to MarkdownADDENDUM SPECIAL INVESTIGATIVE DIVISION WPB:bam
+
+7/24/75
+
+The attached portion of the October, 1970 Inspection Report of the San Francisco Office has been received and in the event it is furnished to the Senate Select Committee, it is felt that those portions bracketed or underlined in red should be excised. The pages containing material to be excised are as follows:
+
+179, 181, 209, 211, 222,

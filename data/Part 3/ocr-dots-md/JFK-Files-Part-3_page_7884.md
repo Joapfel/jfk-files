@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_7884.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+Cabinet 4 Drawer 2
+Folder X File (check one)
+First Communication Dated 4/3/52
+Last Communication Dated 10/31/64
+Approximate Pages 60
+
+Derogatory Information: Yes X No (check one)
+
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Prominent person
+
+Ticklers Only ______ Originals Only ______ Both X ______
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Folder with material inside marked "OC - ~~G~~" includes summary memorandum of information Bucfiles and copies of correspondence from and to ~~G~~ Includes information that [ ] alleged to be homosexual.
+
+TOP SECRET MATERIAL CONTAINED
+
+ML

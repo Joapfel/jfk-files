@@ -1,0 +1,75 @@
+# JFK-Files-Part-3_page_3217.png
+
+Convert to Markdown1829
+
+won't you?
+
+Mr. Adams. Well, I would say as part of a normal business
+record, when we do make a judgment that an organization should
+be investigated and we investigate it, and then we find activities
+but we make a conclusion that there is no additional problem
+here, this is a record of our official action. Now, if we
+destroy it, at what point do we get into a situation of being
+accused of doing things and then destroying things to keep from
+showing what we do?
+
+The critical thing on this is whether we are able, and we
+do set up safeguards, where information in our files is not
+misused at a later date, and that is what these guideline
+committees are all about.
+
+d
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

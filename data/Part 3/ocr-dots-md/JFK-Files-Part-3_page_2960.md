@@ -1,0 +1,81 @@
+# JFK-Files-Part-3_page_2960.png
+
+Convert to Markdown0-7 (Rev. 7-11-78)
+
+TO: SAC:
+
+| | |
+| :--- | :--- |
+| [ ] Albany | [ ] Houston |
+| [ ] Albuquerque | [ ] Indianapolis |
+| [ ] Alexandria | [ ] Jackson |
+| [ ] Anchorage | [ ] Jacksonville |
+| [ ] Atlanta | [ ] Kansas City |
+| [ ] Baltimore | [ ] Knoxville |
+| [ ] Binningham | [ ] Las Vegas |
+| [ ] Boston | [ ] Little Rock |
+| [ ] Buffalo | [ ] Los Angeles |
+| [ ] Butte | [ ] Louisville |
+| [ ] Charlotte | [ ] Memphis |
+| [ ] Chicago | [ ] Miami |
+| [ ] Cincinnati | [ ] Milwaukee |
+| [ ] Cleveland | [ ] Minneapolis |
+| [ ] Columbia | [ ] Mobile |
+| [ ] Dallas | [ ] Newark |
+| [ ] Denver | [ ] New Haven |
+| [ ] Detroit | [ ] New Orleans |
+| [ ] El Paso | [ ] New York City |
+| [ ] Honolulu | [ ] Norfolk |
+
+TO LEGAT;
+
+| | |
+| :--- | :--- |
+| [ ] Oklahoma City | [ ] Bern |
+| [ ] Omaha | [ ] Bonn |
+| [ ] Philadelphia | [ ] Brasilia |
+| [ ] Phoenix | [ ] Buenos Aires |
+| [ ] Pittsburgh | [ ] Caracas |
+| [ ] Portland | [ ] Hong Kong |
+| [ ] Richmond | [ ] London |
+| [ ] Sacramento | [ ] Madrid |
+| [ ] St. Louis | [ ] Manila |
+| [ ] Salt Lake City | [ ] Mexico City |
+| [ ] San Antonio | [ ] Ottawa |
+| [ ] San Diego | [ ] Paris |
+| [ ] San Francisco | [ ] Rome |
+| [ ] San Juan | [ ] Tel Aviv |
+| [ ] Savannah | [ ] Tokyo |
+| [ ] Seattle | |
+| [ ] Springfield | |
+| [ ] Tampa | |
+| [ ] Washington Field | |
+| [ ] Quantico | |
+
+RE: TESTIMONY OF ASSISTANT TO THE DIRECTOR-- DEPUTY ASSOCIATE DIRECTOR JAMES B. ADAMS BEFORE THE SENATE SELECT COMMITTEE ON 12/2/75
+
+Date December 5, 1975
+
+☐ For information ☐ optional ☐ action ☐ Surep, by __________
+
+☐ The enclosed is for your information. If used in a future report, ☐ conceal all sources, ☐ paraphrase contents.
+
+☐ Enclosed are corrected pages from report of SA dated __________
+
+Remarks:
+
+Re Bureau R/S of 12/4/75 which provided excerpts of Mr. Adams' testimony.
+
+Attached for your information and assistance, is the complete transcript of above-referenced testimony.
+
+Enc. (1)
+Bufile
+Urfile
+
+STARCHED INDEXED
+SERIALIZED FILE
+
+DEC 3 1975
+FBI-MIAMI
+
+NW 88608 DocId:32989820 Page 107

@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_2628.png
+
+Convert to Markdown2472
+
+has been traditionally some acceptance of the fact that if
+the President wants to see and talk with the Director, he
+may do so, call him directly.
+
+It has been my practice in such an event to thereafter
+report to the Attorney General, whoever it might be, that I
+have been called over and I discussed and was told. And this
+was revealed in full to them.
+
+Senator Baker. I suppose we could pass a statute that
+says the President has to go through the Attorney General,
+although I rather suspect it would be a little presumptuous.
+
+But to go the next step, do you think it is necessary
+for the pursuit of effective oversight on the part of the
+Congress, to have some sort of document written, or at least
+some sort of account of a Presidential order or an order of
+the Attorney General given to a Director of the FBI?
+
+Do you think that these things need to be handled in
+a more formal way?
+
+Mr. Kelley. Personally, it would be my practice in
+the event I receive such an order, to request that it be
+documented. This is a protection as well as a clarification
+as to whether or not it should be placed as part of legislation.
+I frankly would like to reserve that for some more considera-
+tion.
+
+I don't know whether it would be, but I think that it
+can be worked very easily.
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWW 88608 DocId:32989820 Page 33

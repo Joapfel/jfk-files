@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_8215.png
+
+Convert to MarkdownTHE DIRECTOR OF CENTRAL INTELLIGENCE
+
+WASHINGTON, D. C. 20505
+
+21 April 1975
+
+MEMORANDUM FOR: Members of the USIB Ad Hoc Coordinating Group
+
+SUBJECT : Guidelines for Paraphrasing Certain Documents Provided to the Select Committees
+
+1. Attached is a guidance paper, subject as above, prepared by the USIB Security Committee, and approved by the Director of Central Intelligence.
+
+2. In the interest of commonality in our approach to the matter of paraphrasing sensitive documents, it is requested that each of you arrange for the use of these guidelines in the handling of responses from your organizations to requests from the Select Committees.
+
+John M. Clarke
+Associate Deputy to the DCI
+for the Intelligence Community
+
+Attachment
+
+ENCLASUROG
+
+62-1/63 8/95-108
+
+#MOE/6
+CONTAINED
+BY SP2 A/M/1/16
+DATE 1-19-61

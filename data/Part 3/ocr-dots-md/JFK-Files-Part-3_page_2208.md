@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_2208.png
+
+Convert to MarkdownU. S. Senate Select Committee
+to Study Governmental Operations
+With Respect to Intelligence Activities (SSC)
+
+Re: Interview of Former FBI Special Agent (SA)
+Joseph William Magee by an SSC Staff Member
+
+Epstein inquired concerning the relationship between the FBI and CIA. Magee told him that he knew at one time the FBI had one man who was the liaison link with CIA, that person being former SA Sam Papich. Epstein wanted to know if meetings between Papich and the CIA were primarily for the FBI's benefit. Magee responded that he did not know much about the liaison arrangements and meetings but it was his belief that such meetings, as may have been held between FBI and CIA personnel, were designed for the mutual benefit of all parties and that he did not know of any meetings which were designed solely for the FBI's benefit.
+
+Epstein inquired as to what the FBI did relative to certain gases, the exact type unrecalled by Magee in his report on this interview. Magee responded that some FBI SAs possess gas masks to be used for obvious reasons but that the FBI had no programs for use of gas.
+
+Epstein asked Magee what he knew about Martin Luther King, Jr. and whether he, Magee, had ever heard any recordings concerning King. Magee said that he had not but that he understood that the FBI had recordings of King which were bona fide. Magee then told Epstein of his recollection of an obscure news story of an event in North Carolina a number of years ago when it was developed that some of King's associates had illegally sold a number of rental automobiles and that the news account indicated that no prosecution was authorized by the Department of Justice, possibly on the basis that the Department of Justice did not then want to disrupt the civil rights activities of King's associates.
+
+NOTE:
+
+Magee's report of the interview was telephonically furnished to Supervisor S. F. Phillips of the Senstudy 75 Project. Additional data herein taken from W. O. Cregar to W. R. Wannall memorandum 1/2/76, and Legal Counsel to Mr. J. B. Adams memoranda 1/2,5/76.

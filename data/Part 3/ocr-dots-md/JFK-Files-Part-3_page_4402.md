@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_4402.png
+
+Convert to MarkdownSECRET
+Group I
+
+EXCLUDED FROM AUTOMATIC
+downgrading and
+declassification
+
+This document is prepared in response to your request and is not for dissemi-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FEI.
+
+NW 88608 DocId:32989583 Page 144

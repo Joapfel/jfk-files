@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_7256.png
+
+Convert to Markdownby the Pentagon Papers case. Shortly thereafter, the IEC staff was advised that White House Staff Member Gordon Liddy had been appointed to work with the IEC regarding its study of the handling of classified information and by November, 1971. the IEC completed and disseminated a special report entitled "The Unauthorized Disclosure of Classified Information."
+
+## Relationship of the IEC to the "Huston Plan"
+
+In June 1970, J. Edgar Hoover met with President Nixon, at which time Mr. Hoover was appointed chairman of a special committee to coordinate more effectively the intelligence-gathering efforts of the FBI, CIA, NSA, and DIA. The head of each of these agencies was present at a June 5, 1970 meeting with the President, which included White House Staff Assistant Tom C. Huston. Subsequently, a working subcommittee headed by Assistant Director William C. Sullivan of the FBI was formed, and it held a series of meetings beginning June 9, 1970. A final meeting held in late June 1970, a "Special Report" was filed and approved by the head of each member agency.
+
+The "Special Report", which was submitted by Mr. Hoover to the President, was divided into three sections: a summary of the internal security threat; summarized limitations on

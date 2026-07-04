@@ -1,0 +1,310 @@
+# JFK-Files-Part-3_page_6563.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : DIRECTOR, FBI
+FROM : SAC, SAN FRANCISCO
+
+DATE: 5/9/67
+
+SUBJECT: "RAMPARTS"
+IS - C
+Bufile 100-445393
+SF 157-459
+
+ROBERT SCHEER
+SM - SWP
+REGISTRATION ACT
+Bufile 105-106720
+SF 100-46832
+
+Re Bulet to San Francisco, 5/8/67, under the caption of "Ramparts" and Bulet to San Francisco, 5/5/67, under the caption "ROBERT SCHEER, SM-SWP; REGISTRATION ACT."
+
+San Francisco is requesting clarification on which instruction in referenced letters will prevail in the investigation of "Ramparts" magazine.
+
+This document is prepared in response to your request and is not for dissem-
+nation outside your Committee. Its use is limited to official proceedings by
+your Committee and the content may not be disclosed to unauthorized person-
+nel without the express approval of the FBI .
+
+EJO/jr
+(6)
+
+UNRECORDED COPY FILED IN
+
+REC'D 2/23
+
+13 MAY 10. 1967
+
+④ - Bureau (RM)
+2 - San Francisco (1 - 157-459) (1 - 100-46832)
+
+EJO/jr
+(6)
+
+E-2
+
+NW 88614 DocId:32989678 Page 294
+
+1-5
+
+50
+
+7-17-80
+
+1-4-85
+
+4-5
+
+13 MAY 10. 1967
+
+① INTBSEC.
+② SUBMITTING
+③ INTBSECR.
+④ SUBMITTING
+
+21
+
+E-2
+
+31
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1015
+
+1

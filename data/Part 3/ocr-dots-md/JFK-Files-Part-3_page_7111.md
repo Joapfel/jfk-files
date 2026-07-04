@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_7111.png
+
+Convert to Markdown20. The directive for other documents establishing any mail inspection programs within the CIA or at its direction between 1953 and February, 1973; (p.
+
+21. The directive or other document terminating mail inspection programs in
+February, 1973; (p.32)
+
+22. The documents prepared for the review of CIA assistance to other federal, state and local government components; all documents terminating or modifying such assistance as a result of that review; (p.33)
+
+23. All directives subsequent to the directive of May 9, 1973 which similarly requested employees to report questionable activity; all written responses and all other documents reflecting oral responses to such directives; (p.34)
+
+24. All internal regulations, policy statements or similar documents pursuant to the recommendations of the Katzenbach task force in 1967. (p.35)
+
+25. The Presidential Directive of October 9, 1974 regarding reorganization of the intelligence community.

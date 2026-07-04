@@ -1,0 +1,65 @@
+# JFK-Files-Part-3_page_4461.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+
+<table>
+   <tr>
+    <td>Reporting Office</td>
+    <td>Office of Origin</td>
+    <td>Date</td>
+    <td>Investigative Period</td>
+   </tr>
+   <tr>
+    <td>PHILADELPHIA</td>
+    <td>PHILADELPHIA</td>
+    <td>11/24/59</td>
+    <td>10/7/59 - 11/17/59</td>
+   </tr>
+   <tr>
+    <td colspan="2">TITLE OF CASE</td>
+    <td>Report made by</td>
+    <td>Typed By:</td>
+   </tr>
+   <tr>
+    <td colspan="2">ANGELO BRUNO, aka.</td>
+    <td>J. ROBERT PEARCE</td>
+    <td>MMR</td>
+   </tr>
+   <tr>
+    <td colspan="3"></td>
+    <td>CHARACTER OF CASE<br/>ANTI-RACKETEERING</td>
+   </tr>
+  </table>
+
+Reference
+
+Report of SA J. ROBERT PEARCE dated 10/8/59
+at Philadelphia.
+
+- P -
+Leads
+
+MIAMI
+
+AT-MIAMI, FLA.
+
+*1. Will remain in contact with Miami 655-PC who, according to Miami letter to Philadelphia, 12/31/58, dined at the Luau Restaurant, North Bay Village, Fla., on 11/19/58 with ANGELO BRUNO. It should be learned from this informant if BRUNO has liquidated his interest in Cuba; if BRUNO has other financial interests in the Dominican Republic; if BRUNO intends to return to the Miami, Fla., vicinity; and the identity of all individuals with whom BRUNO had interests in the Hotel Plaza Gambling Casino in Havana, Cuba.
+
+Approved
+
+Copies made:
+
+Special Agent
+In Charge
+
+Do not write in spaces below
+
+125 NOV 27 1959
+
+DEC 10 1959
+
+Property of FBI - This report is loaned to you by the FBI, and neither it nor its contents are to be distributed outside the agency to which loaned.
+
+U. S. GOVERNMENT PRINTING OFFICE: 1955 O—344750
+
+NW 78318 DocId:34489331 Page 2

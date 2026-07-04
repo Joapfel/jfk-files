@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_2271.png
+
+Convert to MarkdownU. S. Senate Select Committee
+to Study Governmental Operations
+With Respect to Intelligence Activities (SSC)
+
+While no systematic report was made on a regular basis by former Director Hoover regarding COINTELPRO activities, information regarding the COINTELPROS was periodically provided to his superiors in the Executive and Legislative Branches. FBI files contain considerable documentation clearly establishing no effort was made by Director Hoover to conceal from superior authorities the fact the FBI was engaged in neutralizing and disruptive tactics against revolutionary and violence-prone groups. This documentation is as follows:
+
+1. **Briefing of the President.** On November 6, 1958, Director Hoover presented to President Dwight Eisenhower and the Cabinet an oral briefing entitled "Current Communist Subversion and Espionage in the United States, 1958." Included in the presentation material was a description of the Bureau's effort to "intensify any confusion and dissatisfaction among its (Communist Party, USA) members." Use of informants was cited as a technique to further this goal. This particular effort was referred to as one of several programs to counteract resurgence of Communist Party influence in the United States. In November, 1974, former Assistant to the Director Cartha D. DeLoach advised he recalled very clearly briefing President Lyndon B. Johnson regarding the Bureau's activities against black militants.
+
+2. **Notification of White House.** In 1958, a letter was sent to Presidential Aide Robert Cutler at the White House specifically advising that our COINTELPRO directed against the Communist Party had been initiated in August, 1956, and citing examples of techniques utilized. In 1965, a letter was directed to Presidential Aide Marvin Watson at the White House advising him this Bureau was seizing every opportunity to disrupt the Klan.
+
+3. **Notification of Secretary of State.** In 1961, a letter enclosing a memorandum setting forth examples of COINTELPRO actions directed against the Communist Party was sent to Secretary of State Dean Rusk.

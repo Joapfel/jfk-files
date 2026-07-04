@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_4545.png
+
+Convert to MarkdownJFK ASSASSINATION SYSTEM
+IDENTIFICATION FORM
+
+AGENCY INFORMATION
+
+AGENCY : FBI
+
+RECORD NUMBER : 124-10204-10147
+
+RECORDS SERIES : HQ
+
+AGENCY FILE NUMBER : 92-2781-1ST NR 97
+
+DOCUMENT INFORMATION
+
+ORIGINATOR : FBI
+FROM : SAC, MM
+TO : DIRECTOR, FBI
+TITLE :
+DATE : 05/23/59
+PAGES : 2
+SUBJECTS : LST, ASSOC, BUSS, GAMBLING
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+
+CLASSIFICATION : UNCLASSIFIED
+
+RESTRICTIONS : 4
+
+CURRENT STATUS : RELEASED WITH DELETIONS
+
+DATE OF LAST REVIEW : 10/07/98
+
+OPENING CRITERIA : INDEFINITE
+
+COMMENTS :
+
+<table>
+  <tr>
+    <td>2025 Release under the</td>
+  </tr>
+  <tr>
+    <td>President John F. Kennedy</td>
+  </tr>
+  <tr>
+    <td>Assassination Records</td>
+  </tr>
+  <tr>
+    <td>Collection Act of 1992</td>
+  </tr>
+</table>
+
+NW 78318
+
+DocId:34489545 Page 1

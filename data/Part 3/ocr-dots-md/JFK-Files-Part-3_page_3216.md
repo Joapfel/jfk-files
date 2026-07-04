@@ -1,0 +1,94 @@
+# JFK-Files-Part-3_page_3216.png
+
+Convert to Markdown1828
+
+your own admission —
+
+Mr. Adams. I believe this report had some subsequent
+pages that aren't included in here that did show some additional
+activity or influence.
+
+The Chairman. I am told by the staff that this summary is
+accurate, and the only other thing contained was that these
+women had affiliations with an organization that had protested
+the war in Baltimore.
+
+Mr. Adams. I think there were some other items.
+
+The Chairman. That is the only other association that
+we have been able to determine.
+
+Now, in a case of this kind, do you still carry -- you say
+this has been closed. Apparently the Women's Liberation move-
+ment is no longer under suspicion by the FBI and the case has
+been closed. What happens when the case is closed? Are those
+women's names still left in the files?
+
+Are they forever more contained?
+
+Mr. Adams. Yes.
+
+The Chairman. In the system? Yes. There is no -- yes.
+
+Mr. Adams. Yes.
+
+The Chairman. Pretty soon you will have us all in the
+system.
+
+I mean, if there is no way, even after surveillance has
+been terminated to terminate the references of individuals
+through the files of the system, you will one day have us all,
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

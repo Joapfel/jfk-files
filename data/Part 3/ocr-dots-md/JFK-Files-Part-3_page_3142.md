@@ -1,0 +1,91 @@
+# JFK-Files-Part-3_page_3142.png
+
+Convert to Markdownthat our whole domestic intelligence operations were secret.
+The COINTELPRO operation was. I mean, I think we all agree that
+this was, to be effective, they felt it should be secret. But
+back in our -- this is printed appropriation testimony which
+went to the members of the Committee. It was mailed out to
+newspapers, friends, anyone that was interested in it, back
+in 1967 talking about Internal Security's operations, the New
+Left movement, Young Socialist Alliance, Chicago trial, nationwide
+demonstrations, student agitation, anti-war activities, the
+Committee of Returned Volunteers, Communist Party, U.S.A.,
+Progressive Party, Socialist Party, extremist organizations,
+Black Panther Party. All of these items and statements about
+extremists, white extremists and hate type groups, the Republic
+of New Africa, Minutemen, our coverage of subversive organiza-
+tions -- there are several groups, organizations and movements
+which I discussed showed the wide coverage we must maintain
+to follow on their activities and changing tactics, and in spite
+of the proliferation of these organizations, our informant
+coverage at all levels has been of great value and assistance,
+enabling us to keep abreast of our investigative responsibilities.
+
+This is the same way through all of our public appropriation
+testimony. We have told the world we are investigating black
+hate groups, New Left groups.
+
+So, I merely mention this to try to put in the frame of
+reference of these men feeling, they know we are investigating
+
+1754
+
+gmnl3
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+that our whole domestic intelligence operations were secret.
+The COINTELPRO operation was. I mean, I think we all agree that
+this was, to be effective, they felt it should be secret. But
+back in our -- this is printed appropriation testimony which
+went to the members of the Committee. It was mailed out to
+newspapers, friends, anyone that was interested in it, back
+in 1967 talking about Internal Security's operations, the New
+Left movement, Young Socialist Alliance, Chicago trial, nationwide
+demonstrations, student agitation, anti-war activities, the
+Committee of Returned Volunteers, Communist Party, U.S.A.,
+Progressive Party, Socialist Party, extremist organizations,
+Black Panther Party. All of these items and statements about
+extremists, white extremists and hate type groups, the Republic
+of New Africa, Minutemen, our coverage of subversive organiza-
+tions -- there are several groups, organizations and movements
+which I discussed showed the wide coverage we must maintain
+to follow on their activities and changing tactics, and in spite
+of the proliferation of these organizations, our informant
+coverage at all levels has been of great value and assistance,
+enabling us to keep abreast of our investigative responsibilities.
+
+This is the same way through all of our public appropriation
+testimony. We have told the world we are investigating black
+hate groups, New Left groups.
+
+So, I merely mention this to try to put in the frame of
+reference of these men feeling, they know we are investigating
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

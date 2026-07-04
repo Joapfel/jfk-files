@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_4675.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+TOP SECRET
+
+MAY 1963 EDITION
+GSA GEN. REG. NO. 27
+
+# Memorandum
+
+W. C. Sullivan
+
+W. R. Wannall
+
+ATTACK ON SPANISH VESSEE "SIERRA ARANZAZU," 9/13/64
+
+NEUTRALITY MATTERS
+
+for review at FBIHQ by
+
+1 - Mr. Belmont
+
+1 - Miss Holmes
+
+1 - Mr. Evans
+
+1 - Mr. Sullivan
+
+1 - Liaison
+
+1 - Mr. Wannall
+
+1 - Mr. Nasca
+
+Bureau Source Six (Communications Intelligence, classified "Top Secret") has revealed that Spanish Ambassador to U.S. Merry del Val on 9/23/64 reported to his Foreign Ministry that he had visited General Marshall Carter, Deputy Director of Central Intelligence Agency (CIA), the previous day and next intended to visit the Director of the FBI. CIA has provided us a memorandum showing that on 9/22/64 the Ambassador met with General Carter who referred to assurances given by Secretary of State Dean Rusk that the U.S. was not involved in the sinking of captioned vessel.
+
+Source Six revealed that the Ambassador had a conference with State Department officials, including Mr. John Crimmins, who is the Coordinator of Cuban Affairs, on 9/20/64. Following the conference the Ambassador advised the Spanish Foreign Ministry that he was told by a State Department official that the investigation of the sinking of captioned Spanish vessel was being carried out principally by the FBI in Miami and Puerto Rico and that in this connection the State Department official had an interview with Director of the FBI. In this connection, it may be noted that Bureau representatives met with Crimmins in his office at State Department regarding this matter on the morning of 9/20/64 (memo- randum dated 9/20/64 submitted) and the Ambassador was probably told that State Department official had met with one of the Director's representa- tives and not the Director himself. We have no information indicating the Director has met with State Department official regarding this matter.
+
+Our memoranda in captioned matter dated 9/20 and 22/64 show that at request of Assistant Attorney General Yeagley we are investigating activities of an anti-Castro organization known as Secret Organization of Continental Action (OSAC). This investigation was started last July. Following the sinking of captioned vessel on 9/13/64, the OSAC claimed it was responsible for the sinking and, thus, we have been investigating this incident since that time. Crimmins on 9/20/64 advised us the Spanish Government was most upset over the attack on its vessel and that the U.S. Government agreed to cooperate in an investigation the Spaniards are conducting. He asked if Bureau would object to his making available our investigative results to Spanish officials and we told him that we interposed no objection to State Department's doing so at its discretion.
+
+NOT RECORDED
+71 OCT 14 1964
+
+WRW:ams OCT 15 1964
+
+CONTINUED - OVER
+
+OCT 14 1964
+
+(8)
+
+CLASSIFIED EXCEPT WHERE SHOWN OTHERWISE.
+
+ALLENFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED EXCEPT
+WHERE SHOWN OTHERWISE.

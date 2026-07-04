@@ -1,0 +1,10 @@
+# JFK-Files-Part-3_page_6135.png
+
+Convert to Markdown<table>
+   <tr>
+    <td>CLASSIFY AS APPROPRIATE</td>
+    <td>: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</td>
+   </tr>
+  </table>
+
+<table><tbody><tr><td colspan="4">TO: Intelligence Community Staff<br/>ATTN: Central Index</td><td colspan="2">FROM:<br/>FBI</td></tr><tr><td colspan="6">SUBJECT: Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="3">1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td><td colspan="3">2. DATE PROVIDED</td></tr><tr><td>X</td><td>DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td></tr><tr><td colspan="6"></td></tr><tr><td colspan="6">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td></tr><tr><td>X</td><td>SSC</td><td>HSC</td><td></td><td></td><td></td></tr><tr><td colspan="6">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)<br/><b>Memorandum and enclosures</b></td></tr><tr><td colspan="6">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)<br/><b>SSC letter 10/7/75</b></td></tr><tr><td colspan="6">6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/><b>U</b></td></tr><tr><td colspan="6">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)<br/><b>Information handling<br/>Intelligence collection</b></td></tr><tr><td colspan="6">8. SUMMARY (see reverse side before completing this item)<br/><b>Documents furnished relating to mail intercept program. These documents, previously reviewed at FBIHQ, and now are delivered properly excised for public hearings.</b></td></tr><tr><td colspan="6">62-116395<br/>FMK: fmk<br/>(4) ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</td></tr><tr><td colspan="6">TREAT AS YELLOW</td></tr></tbody></table>

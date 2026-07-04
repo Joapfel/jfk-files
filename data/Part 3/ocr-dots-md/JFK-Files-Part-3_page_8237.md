@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_8237.png
+
+Convert to Markdownthe volume of the material you have requested is considerable. At our meeting, I showed you a list of the materials that have already been provided, and Mr. Miller has been kept advised about the status of other materials.
+
+In discussing some of the concerns of people in the Intelligence Community about the procedures addressed above, you agreed to raise with the Committee the question of ultimate disposition of materials provided. I understand that this is in train. In this connection, I was very much appreciative of your reassurance that you and the Committee members will consult with me prior to the release of any classified materials in public statements or unclassified reports of the Committee. Such consultation is consistent with the spirit of the inquiry.
+
+I believe our staffs are working well together. There have been the usual inherent problems that one can expect in an investigation of this scope. Because the Select Committee staff personnel engaged in the inquiry are relatively new to the field of intelligence and to the seriousness of the inquiry, expectations are ambitious. But there is something to be said for both sides of the equation. For example, we await the convenience of your investigators on selective follow-up matters on which they had requested further data. Meanwhile, we have urged and are providing the staff with detailed briefings by way of introduction to the Agency's history and functions. I am personally convinced that direct discussions about our work and about specific instances of interest to the staff investigators will be far more direct and productive to them (saving us much useless work) than engaging in debates about massive document transfer requests.
+
+To that end, I am very anxious to renew and by this letter I would repeat my request to you that the Committee move personally and directly into the inquiry at an early date. I am delighted that you and the Committee are coming to visit our headquarters for a discussion of the Intelligence Community and the Agency and for an exchange on the precise interests which
+
+2

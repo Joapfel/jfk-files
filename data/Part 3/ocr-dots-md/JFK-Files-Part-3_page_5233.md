@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_5233.png
+
+Convert to MarkdownSELECTIVE SERVICE MATTERS
+
+4-M-5
+
+INSPECTOR ARNOLD C. LARSON: The following comments, observations, recommendations and instructions are being made after an in-depth review of a representative number of your Selective Service Act matter cases and administrative files along with conversations with supervisory and Agent personnel and review of the answers to questions in a separate yellow (4-M-5):
+
+The San Francisco area is a haven to draft dodgers and this undesirable situation will not be reversed until we make this area unattractive for "bums,""hippies," and members of white and black extremist groups who come to San Francisco in order to avoid the draft. Several obstacles must be surmounted in order to reverse this undesirable situation. The indifferent attitude that the judges have displayed to date must be reversed towards a tough handling of Selective Service Act violators. Supervisory and Agent personnel must maintain an aggressive attitude and continue to be a leader in streamlining processing procedures by the United States Attorney's Office and various Selective Service Boards to insure that these violators are promptly prosecuted in the courts. Every technique available to the Bureau should be used to get the judges, United States Attorney and public riled up about this ridiculous situation. Aggravated violators should be put in jail.
+
+There are 2,983 "hippie-type" communes in the San Francisco Division comprising in excess of 20,000 population. 1,050 of these communes are located in the Berkeley and Oakland areas comprising in excess of 10,000 population and 43 communes are known to be violently oriented. Your office has eight subjects who have committed Selective Service Act violations that are members of white and black extremist groups. Every effort should be made to take these individuals out of circulation by placing them in jail. Information concerning their activities with extremist groups should be furnished to the probation officers so that they can so inform the judges in their presentencing report. All Agents handling Racial Matters and Selective Service Act matters should be periodically reminded to be on the alert
+
+SAN FRANCISCO INSPECTION
+4-M-5
+10/28/70
+OLD:lcj/dp
+
+NW 88608 DocId:32989633 Page 147

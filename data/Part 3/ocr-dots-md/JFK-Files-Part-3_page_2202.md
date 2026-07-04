@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_2202.png
+
+Convert to MarkdownFederal Bureau of Investigation
+United States Department of Justice
+
+Washington, D. C.
+
+(typed July 1, 1947)
+
+~~PERSONAL~~ A HEIR TO THE ORDER OF A CHAOS.
+~~STRICTLY CONFIDENTIAL~~
+
+~~BUREAU BULLETIN NO.~~
+SERIES 104
+
+hetter to ace saco:
+
+TO ALL INVESTIGATIVE EMPLOYEES: RE: TRUTH SERUMS
+
+Dear Sir:
+
+The Bureau has received inquiries recently concerning the reliability of the so-called truth serums. The Bureau is not in possession of any information concerning the use of drugs or chemicals which will compel a person to speak only the truth. The Bureau, however, will not tolerate any experiments or participation on the part of its personnel in the utilization of the so-called truth serums or other chemicals alleged to have a similar effect. All employees are accordingly cautioned against any participation whatsoever in the utilization of truth serums or similar drugs in connection with any cases.
+
+Obviously, great criticism would be directed at the Bureau if it utilized any element of this kind in connection with its investigations. Obviously, the Bureau cannot jeopardize its good reputation by even considering the utilization of such an investigative procedure and, consequently, in the event any Bureau agent violates these instructions, drastic administrative action will be taken.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+
+DATE 11/3/00 BY SPA ALM/EHL John Edgar Hoover
+Director
+
+FOR VICTORY
+
+BUY
+UNITED
+STATES
+DEFENSE
+BONDS
+AND
+STAMPS
+
+NW 88608 DOCID:32989570
+
+Letter to all Bureau and Sac's
+
+July 2-47
+
+KRBN

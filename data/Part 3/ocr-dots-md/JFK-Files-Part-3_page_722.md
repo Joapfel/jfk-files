@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_722.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+ON INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF SA EARL M. PETERSEN
+BY SSC STAFF MEMBER
+
+Mr. Seidel:
+
+Did you get heavy pressure from Bureau officials to take action in this program?
+
+SA Petersen:
+
+Not any more than any other case, and I had a number of other cases assigned to me at the time the COINTELPRO was assigned to me.
+
+Mr. Seidel:
+
+What type of things did you do?
+
+SA Petersen:
+
+I do not recall at this time any specific action taken in the program. I do recall that a Black Panther leader, Walter Wallace, was removed as leader of the party in San Diego. I believe it was suspected that he might have cooperated with the FBI. This could have been accomplished by interviewing him where the interview could be seen by other party members. If the Agents shook his hand, smiled, and acted like he was a friend, it might plant the seed of suspicion in the minds of other BPP members. I do not recall specifically whether this happened but at any rate, Wallace was not trusted and was removed as leader of the party.
+
+Mr. Seidel:
+
+Could such a thing get Wallace killed or injured?

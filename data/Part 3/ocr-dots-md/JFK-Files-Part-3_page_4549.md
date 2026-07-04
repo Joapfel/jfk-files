@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_4549.png
+
+Convert to MarkdownFBI
+
+Date: 6-17-59
+
+Transmit the following in:
+
+PLAIN TEXT
+(Type in plain text or code)
+
+Via
+AIRTEL
+AIRMAIL
+
+(Priority or Method of Mailing)
+
+TO: DIRECTOR, FBI (92-2781)
+FROM: SAC, MIAMI (92-88)
+
+SANTO TRAFFICANTE, JR., Aka.
+ANTI-RACKETEERING
+
+MM 416-C advised 6-16-59, wedding of subject's daughter being held as scheduled, Sunday, 6-21-59, at Havana Hilton Hotel, Havana, Cuba. Ninety-eight R.S.V.P. invitations tendered to associates and friends, Tampa and Miami, Fla. Air transportation, hotel accommodations and all expenses included.
+
+JIMMIE LONGO, subject's "bodyguard" advised informant's source deportation proceeding against subject by Cuban authorities "off." Informant advised he learned from other sources LUIS ORLANDO RODRIQUEZ, removed as cabinet minister by FIDEL CASTRO, had been pressing case against subject and American underworld element.
+
+JOSE NAVARRE now holding office. Will "cooperate."
+
+Extra copies furnished for Legat, Havana.
+
+5 - Bureau (AM)
+3 - Miami (2 - 92-88)
+(1 - 137-225)
+JPO:plm
+(8)
+
+REC- 73
+
+EX- 131
+
+7 JUN 19 1959
+
+Approved:
+Sent
+M Per
+
+62 JUL 6 Special Agent in Charge
+1959 168 CRIME SOLVER
+
+NW 78318
+Doctd:34489548 Page 2

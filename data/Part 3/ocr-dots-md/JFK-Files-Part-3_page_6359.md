@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_6359.png
+
+Convert to MarkdownLetter to Distribution
+
+RE: COUNTERILLUSTRATION PROGRAM
+107-0-4
+
+3. In no instance can his individual tax returns under Molton indicate the amount of income for his position as Imperial Wizard or President of the USA. However, his returning do incidentally he has received some salary payments from each source as "Tax Warrants," "J. Z. Gason," "Indigo Tire Company," "J. E. M. Truax & Co.," and "Finn & Johnson Kilo, Corp." In addition as your interlocutors have advanced Molton's accounts receivable all his time on this business and he paid almost $10,000 annually by the end, it would appear those salary securites are covering tax payments made to him by his company for his Kila employment. Necessary investigation should be conducted to resolve the true source of Molton's income.
+
+4. Molton's return for 1995 shows other income received from a wiring diagram enterprise in Nashville, Tennessee. This source of income could also be cited to determine its legitimacy. It is possible Molton's relationship with this enterprise also represents a cover for his own activity or that the payments made to him were for offsetting an lawsuit of the Kila.
+
+5. In no instance does Molton indicate any interest or dividend income. It is unknown if he has a bank account at the First National Bank of Tuscaloosa. An attempt should be made to determine if he has failed to report interest actually earned. It is also noted the corporate returns filed by the USA do not include instances indicate interest received,
+
+6. Molton's return for 1993 lists other income of $500 as received from "Coriolus - Dixie Engineering Co." Four instances are directed to an auditorial letter appearing in the Tuscaloosa "News," edition of 6/12/94, wherein it is indicated Molton had been listed on the payroll of a Dixie engineering firm so a public relations man. Investigation should be conducted to determine Molton's relationship with the Dixie Engineering Co. and also whether this company had a contract involving the use of Federal and/or state funds.
+
+7. The corporate returns of the USA, as filed by Molton, in no instance indicate salary payments although both Molton and his wife have been reported by your informants as full-time employees.

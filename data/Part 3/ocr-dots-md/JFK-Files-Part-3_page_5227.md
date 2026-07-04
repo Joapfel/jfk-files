@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_5227.png
+
+Convert to MarkdownAll Agents are to be reminded that in dealing with informants, they are to be particularly alert and not leave themselves open for criticism or false accusations. The importance of having an alternate contacting Agent or another Agent along during the course of certain interviews is advisable in case any compromising situation is attempted.
+
+With the recent enactment of Senate Bill 30 you should concentrate on increasing your informant coverage in the areas covered by this legislation. Also in regard to the passage of Senate Bill 30 dealing with gambling, which you are aware does not now require interstate activity, you should not overlook the utilization of your racial informants to furnish information to your office concerning gambling activities. Other divisions of the Bureau have been particularly successful in coordinating the information from racial informants in to the CIP and IGA programs.
+
+## Statistical Accomplishments
+
+During the fiscal year (fy) you recorded two convictions in the CIP-IGA category. During the fy 1970 your office had three convictions. During the first three months of fy 1971 you have recorded one conviction in this category.
+
+According to the information furnished by your office you have four cases pending prosecution, two of which are in the 159 (LMRDA-IM) category and two are in the 92 (Anti-Racketeering) category. Only one of these cases is in the CIP-IGA program. A review of your files indicates that in file 179-24 in a case captioned JAMES FRATIANNO, EXTORTIONATE CREDIT TRANSACTION (ECT), the subject was indicted under Title 18, Section 894 of the U.S. Code. Your office was working the case under Anti-Racketeering classification and the file was opened after the ECT indictment.
+
+In regard to the possible statistical accomplishments, from the above file it would appear the local office of the United States Attorney will seek indictments under the ECT statute. A review of your cases in this category reveal only three Office of Origin cases. The files also indicate instances wherein there are shylocking activities among the gamblers where there are large debts outstanding. A review of your

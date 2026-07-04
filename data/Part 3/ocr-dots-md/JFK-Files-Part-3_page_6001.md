@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_6001.png
+
+Convert to Markdown19. All materials reflecting the manner in which Director Hoover's notation was "(b)ing' handled", as noted on the bottom of page 4 of Mr. Rosen's November 20, 1964 memorandum to Mr. Belmont, subject "Telegram from Martin Luther King, Jr., dated November 19, 1964, Civil Rights Matters," together with all materials reflecting what steps were taken and by whom:
+
+20. The response to John Doar's August 19, 1964 letter to Mr. James R. Malley which requested a name check with respect to persons who were delegates of the Mississippi Freedom Democratic Party.
+
+NP
+
+21. The division and section assignment of James R. Malley as of August 19, 1964.
+
+PREY HANDLED
+7/14
+
+22. All materials which reflect approval of Mr. Sullivan's recommendations which were contained in the latter's November 22 and 27, 1964 memoranda to Mr. Belmont, subject "Communism and the Negro Movement--A Current Analysis."
+
+P HANDED
+
+23. All materials reflecting contacts or communications between Mr. Sullivan and Mr. Mchr, and between Mr. Sullivan and Mr. DeLoach, as described in the second paragraph of Mr. Sullivan's November 27, 1964 memorandum to Mr. Belmont, subject "Communism and the Negro Movement--A Current Analysis."
+
+24. The table of contents page(s) and/or chapter or section headings of:
+
+a. The article captioned "Communism and the Negro Movement-- A Current Analysis" which was attached to Mr. Sullivan's 10/15/63 memorandum to Mr. Belmont under the same caption.
+
+b. The paper which was the up-to-date revision of the article described in Item 24 (a) above and which paper was attached to Mr. Sullivan's November 22, 1964 memorandum to Mr. Belmont, subject "Communism and the Negro Movement--A Current Analysis."
+
+c. The memorandum captioned "Martin Luther King, Jr.: His Personal Conduct" which was transmitted with the December 21, 1964 letter from Director Hoover to Senator Hubert H. Humphrey.

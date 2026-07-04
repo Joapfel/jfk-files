@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_7870.png
+
+Convert to MarkdownCaption on Folder or File: (Print)
+
+Aides Initial:
+
+FBI TELEVISION SERIES AGREEMENT
+
+Cabinet 3 Drawer 2
+Folder X File (check one)
+First Communication Dated 12/11/64
+Last Communication Dated 2/6/73
+Approximate Pages 15
+Derogatory Information: Yes No X (check one)
+Describe Category; i.e. investigative, congressional, prominent persons, administrative, information, policy, personnel, information from other agency, (use miscellaneous category as little as possible): Administrative
+Ticklers Only X Originals Only Both
+
+Describe General Content of File or Folder: (use separate page if necessary)
+
+Memoranda and letters relating to the FBI series.

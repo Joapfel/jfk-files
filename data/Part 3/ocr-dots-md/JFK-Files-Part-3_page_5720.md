@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_5720.png
+
+Convert to Markdown(1) Which group involved
+
+(2) Whether action taken was on initiative of individual members or with knowledge or approval of leadership
+
+In initial communication reporting violent act, advise if there is or is not indication of organization participation.
+
+If act of violence is a criminal violation over which Bureau has jurisdiction, be guided by instructions concerning the specific violation; if the act of violence is a bombing or attempted bombing having religious or racial aspects or involving a religious or educational institution, be guided by the specific instructions relating to bombings and attempted bombings.
+
+e. Agents are not to attend functions or rallies of any Klan or hate group although open to the public.
+
+f. These investigations must be both vigorous and incisive. The fundamental objective is to identify those who may be engaged or responsible for acts of violence, and care must be taken to avoid becoming involved in widespread, nebulous investigation which does not go to the heart of the problem at hand. When a case is opened, it should receive immediate continuous attention until the initial allegation is resolved. The case should be promptly closed if it is definitely determined that it does not fall within the criteria set out in item 3a above.
+
+g. Individual cases should be opened on officers, leaders, and active workers in these organizations to determine whether they have been involved in acts of violence or have a definite potential for future acts of violence. Good judgment and discretion must be exercised in the case of prominent individuals who may be dupes of such organizations and who may hold nominal office. Immediately advise the Bureau when investigation of a prominent person is contemplated; and if there is any question as to whether there is sufficient probable cause to fully justify investigation, no investigation should be conducted without Bureau approval.
+
+h. Names of members in attendance at meetings should not be set out in investigative reports but should be indexed from informant reports. Names of new members should be furnished the Bureau by letter for indexing purposes.
+
+4. Informants and interviews
+
+a. In order that the Bureau may discharge its responsibilities, it is mandatory that information be obtained regarding all pertinent Klan or hate organization activities. In this regard it is necessary that informants be developed in all such organizations which meet the criteria set forth in 3a above. Efforts in this regard must be discreet.
+
+b. Preliminary interviews with rank-and-file members of an organization and other individuals not connected with such organizations conducted solely for the purpose of determining the attitude of the individual may be authorized by the SAC. To obtain authority from the SAC, credit, arrest, informant, and indices checks should be made and a memorandum prepared for the SAC setting forth this information so that he may make a decision regarding the propriety of the interview. Officials of local groups or national officers are not to be interviewed without prior Bureau authority. Likewise where a greater than usual risk is involved, such as individuals employed in the newspaper field, educational field, radio and television industry, and the like,
+
+2-6-59
+
+N:W 88614 DocId:32989673. Page 217

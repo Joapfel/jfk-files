@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_4374.png
+
+Convert to Markdown# Memorandum for the Attorney General
+
+between Supreme Commander Huey P. Newton and Minister of Information Eldridge Cleaver. This split between two conflicting factions has the potential for violence, which presents a danger to the black communities. The Washington, D. C., chapter of the BPP has aligned itself with Newton; however, some members have openly discussed their possible support of Cleaver.
+
+Your authority is requested to reinstitute the telephone surveillance at 2327 18th Street, Northwest, and 1932 17th Street, Northwest, both Washington, D. C., for a period of three months.
+
+The monitoring will be conducted in accordance with instructions contained in your letter of July, 14, 1969, entitled "Electronic Surveillances."
+
+APPROVED John Mitchell
+DATE 4/6/71

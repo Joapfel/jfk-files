@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_5434.png
+
+Convert to Markdown**QUESTION:**
+
+Mr. Kelley, earlier you spoke of the advantages and limitations of hindsight. After having examined the records of the break-ins and other surreptitious activity, you observed that you thought it was well intentioned, I believe, in most cases. Did you also observe that there was any gross misuse of authority in the process of that?
+
+**MR. KELLEY:**
+
+I do not note in these activities any gross misuse of authority.
+
+I see a consistent thread of well-intentioned activities. Perhaps now in the present society, and in the context of now and in those times, I do not feel that it was a corruption of the trust that has been placed in us. As now we have determined a valuation that perhaps could be wrong, but in those days there was no intention to engage in activities which were prohibited, illegal, or otherwise wrong.
+
+**QUESTION:**
+
+Mr. Kelley, why wouldn't an act like the bugging of Martin Luther King's hotel room have been a betrayal of trust? These Agents took an oath under the Constitution and that was prohibited by Federal law at that time.
+
+**MR. KELLEY:**
+
+There have been a number of articles written about this situation.
+
+In reviewing this situation, I feel that the authority stemmed from the proper source. It was a matter which was construed in those times as of considerable concern to the country, and the FBI acted in accordance with the request which was made that it be installed.

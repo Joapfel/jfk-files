@@ -1,0 +1,82 @@
+# JFK-Files-Part-3_page_4619.png
+
+Convert to MarkdownFBI
+
+Date: 2/6/61
+
+Transmit the following in
+
+(Type in plain text or code)
+
+Via AIRTEL
+
+(Priority or Method of Mailing)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, MIAMI (105-3507)
+
+RE: CHANGED
+EVELYN ARCHER aka
+Mrs. Walter Korabiak,
+Ruby Archer
+IS - CUBA
+(00: NEWARK)
+
+Title of this case is marked CHANGED to reflect
+the additional name RUBY ARCHER, by which the subject is
+also known.
+
+Re Newark letter to Director 1/31/61.
+
+Newark airtel to Director 2/18/58, in case entitled
+"CARLOS PRIO SOCARRAS; ET AL, FPM-CUBA; NEUTRALITY MATTERS;
+REGISTRATION ACT," (00: MIAMI) (Bufile 109-430) (Newark file
+109-2) (Miami file 2-165), reflects one RUBY ARCHER was listed
+as receiving mail at Mounted Ridge, Route 1, Box 208, Keyport,
+N. J., which box belonged to one Mrs. ALICE ARCHER. This
+information was furnished by JOHN HYER, Assistant Postmaster,
+Keyport, 2/14/58. Mrs. ALICE ARCHER's home was reflected by
+HYER to be on New Jersey Highway 36, Union Beach, N. J.
+
+Further investigation at Union Beach reflected
+EVELYN ARCHER may have also used the name RUBY KORBIN. (The
+-RUC-
+REC- 59
+
+3 - Bureau (AM) (RM)
+MCT-16
+05-95507
+2
+
+1 - Houston (Info) (AM) (RM)
+SO
+2 - Newark (105-9440) (Encs-2) (AM) (RM)
+
+2 - Miami (1 - 105-3507)
+(1 - 105-2221)
+
+Approved:
+Sent:
+M
+N
+Sec.
+
+Special Agent in Charge
+
+APPROPRIATE AGENCIES
+AND FIELD OFFICES
+ADvised BY POSTING
+SLIP NO. 821713 ENQ.
+C.C. Wick
+DATE: 5/28/61
+
+JTY-YA
+
+FEB 9 1961
+
+COMPONENT
+
+SEC.
+
+NW 78318 DocId:34489792 Page 32

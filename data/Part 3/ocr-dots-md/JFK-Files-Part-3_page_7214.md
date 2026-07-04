@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_7214.png
+
+Convert to MarkdownThe Intelligence Community is also subject to intensive audit, both internally within the departments and agencies involved, and to the extent feasible by the General Accounting Office. Even in those areas exempted by law from GAO review, our internal procedures follow the same standards and practices of audit and accounting that apply to the other components of the Government.
+
+Lastly, consistent with the policy outlined in Section 102(e) of the National Security Act of 1947, the Director of Central Intelligence has been charged by the President with providing overall leadership to the Intelligence Community. He has been directed to review all expenditures for foreign intelligence within the Government and make an annual recommendation to the President as to the appropriate level thereof. This charge requires him to insure that the intelligence activities of the various departments and agencies give us the best intelligence product at the least cost.
+
+The Intelligence Community functions through a series of committees and boards that bring the different agencies together. I have submitted an annex to this presentation outlining these relationships. The work of these committees and boards is limited to foreign intelligence, as internal security falls solely within the jurisdiction of the FBI. The FBI
+
+-NW 88608 DocID:32989530 Page 179-

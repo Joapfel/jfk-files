@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_3395.png
+
+Convert to Markdownstandards or limitations other than the supervision of the
+Attorney General and oversight by Congress. In view of the
+Select Committee's findings as to the vast overbreadth of FBI
+domestic intelligence investigations and the abuses committed
+in the name of "counterintelligence", Congress would in effect
+be permitting future expansion of FBI operations to match past
+policies.
+
+C. Option Two -- A Separate Security Intelligence Agency
+
+Congress might give serious consideration to legislation
+creating a separate Security Intelligence Agency within the
+Justice Department. It would perform the functions of the
+present Counterintelligence Branch of the FBI Intelligence
+Division, dealing with foreign intelligence and counterintelli-
+gence/counterespionage. The FBI itself has considered this
+option as part of the larger question of separating all FBI
+intelligence functions from the law enforcement functions of
+the Bureau. (Tab E)
+
+A separate agency would be justified only if it was
+authorized to conduct investigations of a wider scope and using
+different techniques than would otherwise be permitted. In
+other words, Congress could decide that foreign counterintelli-
+gence investigations should go beyond investigation of specific
+crimes, that techniques such as electronic surveillance should
+be used without a warrant or with a special type of warrant,

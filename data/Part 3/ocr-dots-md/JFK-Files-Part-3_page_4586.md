@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_4586.png
+
+Convert to MarkdownCONFIDENTIAL
+
+NY 105-49812
+
+DETROIT:
+
+Detroit airtel to Bureau, 3/6/63, reflects LENNA SCHWEITZER JONES and mother stayed overnight at Ann Arbor, Michigan, 2/20/63, at the Bell Tower Motel. The possibility exists JONES executed a registration form at that time which might furnish handwriting specimens.
+
+Detroit should also consider contact, through established sources at University of Michigan, Ann Arbor, for samples of writing of LOUIS HENRY JONES which might be located in the files of the University of Michigan, which he attended as a graduate student.
+
+CLEVELAND:
+
+It is noted WOLLAND's family presently resides in Shaker Heights and WOLLAND herself resides there at irregular intervals. Cleveland attempt, through logical sources to obtain known specimens of WOLLAND's handwriting for comparison with questioned Detroit material.
+
+PORTLAND:
+
+WOLLAND, prior to May, 1963, resided and worked in the Portland area.
+
+Portland, at logical sources, seek to obtain known specimens of WOLLAND's handwriting.
+
+WFO:
+
+Will at United States Department of State Passport Office attempt to obtain for comparison such samples of the writing of WOLLAND, LENNA SCHWEITZER JONES and LOUIS HENRY JONES, as may appear on forms executed by them in connection with passport applications.
+
+For the assistance of WFO, the following are pertinent passport numbers:
+
+LOUIS H. JONES
+LENNA JONES
+BETH WOLLAND
+
+NO. 1595958
+NO. 1595957
+NO. B-053303
+
+CONJUGENTIAL
+
+NW 78318
+DocId:34489662 Page 3

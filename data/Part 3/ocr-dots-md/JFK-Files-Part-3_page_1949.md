@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_1949.png
+
+Convert to MarkdownLOUIS STOKE, OHIO, CHAIRMAN
+
+CHARLES R. BURKE, N.C.
+WALTER E. FAUNTHROY, D.C.
+YVONNE BRATHWAITE CURKES, CALIF.
+CHRISTOPHER J. DODD, CONN.
+HAROLD E. FORD, TENN.
+FLOYD J. FITZHAN, IND.
+ROBERT W. EDGAR, PA.
+
+SAMUEL H. BURKE, NO
+STEWART G. BURKE, CONN.
+CHARLES HONE, NEBR.
+HAROLD S. SAWYER, MICH.
+
+Select Committee on Assassinations
+U.S. House of Representatives
+
+3331 HOUSE OFFICE BUILDING, ANNEX 2
+WASHINGTON, D.C. 20515
+
+DEC 15 1977
+
+The Honorable Griffin B. Bell
+Attorney General of the United States
+Department of Justice
+Washington, D.C. 20530
+
+Attention: Mr. Robert L. Keuch
+Deputy Assistant Attorney General
+Criminal Division, Room 2113
+
+Dear Mr. Attorney General:
+
+In connection with the investigation by this Committee into the death of Dr. Martin Luther King, Jr., it is requested that the Federal Bureau of Investigation review its files on electronic surveillance and determine the dates and places of any and all electronic surveillance of Dr. King and any other individual directly or indirectly associated with the SCLC.
+
+At this time the Committee only desires a written confirmation as to the existence of such electronic surveillance and the dates and places involved with no reference to the results of such surveillance.
+
+Your prompt attention to this matter will be greatly appreciated.
+
+GRB:mek
+
+cc: Mr. Danny O. Coulson
+
+ENCLOSURE

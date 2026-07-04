@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_5435.png
+
+Convert to MarkdownYou say that it was a matter which was then a violation of the law. Within the warrantless wiretaps under ordinary circumstances they could conceivably be construed as a violation, but under the umbrella of the protection of the country they have been authorized, so I don't subscribe to the feeling that they knowingly, in such an installation, violated the law with the intent to violate the law.
+
+**QUESTION:**
+
+Mr. Kelley, do you still--does the FBI still--compile personal information on the personal behavior of Members of Congress, members of the press, and other people?
+
+**MR. KELLEY:**
+
+The FBI receives a great deal of information from time to time. We are charged when we have a complaint to write up that complaint. We feel that not only are we following the archival rules that such must be recorded, but also we feel in discharge of our duties we should record it because such information might well dovetail with some investigation that we are conducting. People come to us to tell about these things for reasons--not just to spill out gossip and rumor and to possibly put someone on the spot. We inform them, for example, at the time they submit this information a record will be made of this but if it is outside the jurisdiction of the FBI we so state. They know before they leave, for example, that nothing will be done about it other than to record it.

@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_870.png
+
+Convert to MarkdownSeptember 14, 1973
+
+ELECTRONIC SURVEILLANCE
+
+1. The Problem:
+
+Use of electronic surveillance falls into three broad areas: criminal, domestic national security, and foreign national security.
+
+Little policy consideration need be given to use in criminal cases. Such use is prescribed and proscribed in Title III of the Omnibus Crime Control and Safe Streets Act of 1968, has been upheld by the courts, and has been used to great advantage under the current procedures and policy. In short, there is no policy problem in this area.
+
+Electronic surveillance in both domestic and foreign national security cases is primarily used for intelligence purposes, not evidentiary purposes; however, it often produces information of evidentiary value.
+
+The only Congressionally approved electronic surveillance is for the sole purpose of obtaining evidence of stated crimes (Title III).
+
+Foreign national security electronic surveillances produce a good deal of positive intelligence value to U.S. foreign policymakers, a good deal of information necessary for counterintelligence activity, and, rarely, information of evidentiary value.
+
+Domestic national security electronic surveillances produce information valuable to law enforcement in thwarting murders, serious injury to persons, and extensive damage to property, and also, rarely, information of evidentiary value.
+
+Electronic surveillance in domestic national security cases which was previously approved by the Attorney General for the President utilizing his Constitutional powers has been prohibited by the Supreme Court in the Keith case, i.e., held illegal without prior judicial approval.
+
+This document is prepared in response to your request and is not for dissemi-nation outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express approval of the FBI. E/M
+
+NW#: 88608 DocId: 32989541

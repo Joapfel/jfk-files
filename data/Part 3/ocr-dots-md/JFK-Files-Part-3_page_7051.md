@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_7051.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+
+RE: SENSTUDY 75
+
+attempt to get some clarification and hopefully be in a
+position to provide some information as to how the White House,
+Mr. Silberman and Mr. Wilderotter wanted to proceed.
+
+It is the opinion of both Mr. Mintz and Mr. Wannall that the Bureau must immediately set up a Task Force to handle the tremendous amount of information that will be required from the FBI, including the coordination of our responses with other agencies who might be involved in such an answer, as well as to insure that both the Department of Justice and the White House are fully informed. We can anticipate very short deadlines and requests for information that are not readily retrievable from Bureau records without considerable research involving several divisions in the Bureau.
+
+ACTION:
+
+That ~~a Task Force~~ be immediately created within the
+Bureau to facilitate the collation of information as well as
+the coordination of ~~such information responsive to the requests~
+we can anticipate receiving from Select Committees of the Congress.
+
+NW 88608 DocId:32989530 Page 16

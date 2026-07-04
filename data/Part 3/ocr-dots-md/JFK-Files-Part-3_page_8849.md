@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_8849.png
+
+Convert to MarkdownALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATEID 17/808 BY SPSS Matf
+02-1/613 25-7
+MOR-16
+
+The United States of America
+Transportation Department
+MEMORANDUM CARD COPY
+DO NOT FOLD, SPINDLE OR MUTILATE
+
+<table><thead><tr><th>TRAVELER MUST ASSESS THE COST OF TRANSPORTATION AND/OR ACCOMMODATIONS AND RECORD IN SPACES BELOW</th><th></th><th></th></tr></thead><tbody><tr><td>42:63</td><td>25.60</td><td>74.55</td></tr><tr><td colspan="3">TOTAL</td></tr></tbody></table>
+
+TICKET AGENT WILL NOT ACCEPT THIS
+
+NW 88614 DocId:32989606 Page 106

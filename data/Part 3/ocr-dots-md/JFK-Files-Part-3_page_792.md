@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_792.png
+
+Convert to MarkdownThe Deputy Attorney General
+
+Item (8)(b) should be reconsidered with the following language:
+
+"If the Task Force Leader has any objections to the excursions or paraphrases, the FFI will furnish a written statement of the grounds for its position to the Special Counsel who shall resolve the matter by negotiation within 24 hours."
+
+Item (8) should be reconsidered with the following language:
+
+"The Staff and the Members of the Committee may examine the original materials to which the Staff is given access as extensively as necessary between the hours of 8:00 a. m. and 5:30 p.m., Monday through Friday, in the FBI J. Edgar Hoover Building at Room 4171."
+
+In light of the difficulties described, it is my strong recommendation that such procedures should not be hastily agreed upon with the Committee and that full discussion should be had concerning this matter by representatives of the FBI, the Attorney General, the Committee and the Counsel to the President.

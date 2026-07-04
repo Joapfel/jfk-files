@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_8219.png
+
+Convert to Markdown(d) Names of particular employees whose physical safety or future careers might be placed in jeopardy by exposure.
+
+(e) Foreign or US sources, official or otherwise who agreed to cooperate under terms of explicit or implied confidentiality, who would be embarrassed or endangered by disclosure of their role.
+
+(f) Assumed identities, locations or other information permitting identification of defectors or refugees who might be targeted for retaliation.
+
+(g) Identifying information on intelligence services of friendly and neutral countries and collaboration of those services with US intelligence agencies.
+
+(h) Identification of technical foreign intelligence operations of high vulnerability or extremely high political sensitivity.
+
+(i) Details of arrangements with US and foreign banks, investment houses, etc., in support of intelligence operations.
+
+(j) Specific information on special relationships with private firms established with the approval of top corporate officials. This includes names of firms or industrial associations that collaborate in a special manner such as providing cover for foreign intelligence operations.
+
+(k) Names of firms collaborating with US intelligence agencies in collection and assessment programs (especially those having large foreign clientele).
+
+(l) Proprietary, trade secret or patent information.

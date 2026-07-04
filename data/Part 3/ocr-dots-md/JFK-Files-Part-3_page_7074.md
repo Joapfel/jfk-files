@@ -1,0 +1,68 @@
+# JFK-Files-Part-3_page_7074.png
+
+Convert to Markdown1 - Legal Counsel Division
+1 - Mr. W. O. Cregar
+
+April 4, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+Reference is made to letter dated March 19, 1975,
+to the Attorney General from the Chairman of captioned
+Committee, which enclosed certain requests for documents
+and other information from the Federal Bureau of Investiga-
+tion (FBI).
+
+Attached are various documents which constitute an
+initial and partial response to the Committee's request.
+These documents are described as follows:
+
+1. A memorandum from Attorney General Ramsey Clark to FBI Director J. Edgar Hoover, dated September 14, 1967.
+
+2. Two FBI memoranda recording instructions received from President Franklin D. Roosevelt by FBI Director Hoover concerning FBI investigations of subversive activities and which indicate meetings between President Roosevelt and Director Hoover on August 24 and 25, 1936.
+
+3. A memorandum from Director Hoover to FBI Associate Director E. A. Tamm, dated September 10, 1936.
+
+4. Presidential directives dated September 6, 1939; January 8, 1943; July 24, 1950; and December 15, 1953.
+
+The various other requests contained in the Committee's letter of March 19, 1975, are receiving attention and response will be forthcoming at the earliest possible time.
+
+Enclosures (8)
+
+1 - The Attorney General
+
+EWL:jvl
+
+(5)
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.:
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+GPO 634-545
+
+NW 88608 DocId:32989530 Page 39
+
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+
+TOTAL COPY
+
+GPO 634-545

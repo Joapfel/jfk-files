@@ -1,0 +1,86 @@
+# JFK-Files-Part-3_page_9654.png
+
+Convert to MarkdownCODE
+
+TO SACS NEW YORK
+BOSTON
+DETROIT
+LOS ANGELES
+
+TELETYPE
+
+MIAMI
+SAN FRANCISCO
+SEATTLE
+WFO
+
+IMMEDIATE
+
+JUNE 18, 1975
+
+FROM DIRECTOR FBI
+
+TOP SECRET
+
+SENSTUDY 1975; BUDED: JUNE 24, 1975.
+
+THE FOLLOWING REQUEST FOR INFORMATION HAS BEEN ADDRESSED TO THE ATTORNEY GENERAL AND FROM THE ATTORNEY GENERAL TO FBIHQ FROM THE SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES: " . . .
+
+THE FOLLOWING REQUESTS PERTAINING TO THE TECHNIQUE REFERRED TO AS 'MAIL SURVEILLANCE, INCLUDING MAIL COVERS AND OPENING MAIL' AND THE UTILIZATION OF THIS TECHNIQUE 'IN INTERNAL SECURITY, INTELLIGENCE COLLECTION, AND/OR COUNTERINTELLIGENCE MATTERS, OPERATIONS, OR ACTIVITIES:' (1) FOR ALL INCIDENTS OF MAIL OPENING OR MAIL INTERCEPT BY OR ON BEHALF OF THE FEDERAL BUREAU OF INVESTIGATION FROM JANUARY 1, 1960, UNTIL THE PRESENT, PLEASE STATE THE PHYSICAL LOCATION WHERE THE OPENING OR INTERCEPT WAS CONDUCTED, THE NAMES OF THE INDIVIDUALS WHO PARTICIPATED IN THE OPENING OR INTERCEPT, THE TYPE OF MAIL OPENED OR INTERCEPTED,
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Spec. Inq.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec's:
+
+JPL:jdp
+(4)
+
+CLASSIFIED BY
+
+DECLARATION OF
+
+MOR-16
+
+REC-75
+
+62-1/6395-249
+
+FEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+JUN 18 1975
+
+TELETYPE
+
+SECRET
+
+JUN 20 1975
+
+IN ENVELOPE
+
+MAIL ROOM ☐ TELETYPE UNIT ☑
+
+ROUTE IN ENVELOPE
+
+GPO : 1975 O - 569-920
+
+NWK:88614 DocId:32989606 Page 176
+
+84 JUL 25 1975
+
+ Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route in envelope Route

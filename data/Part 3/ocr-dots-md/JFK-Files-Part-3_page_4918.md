@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_4918.png
+
+Convert to MarkdownSECRET 2 - Mr. J. A. Mintz
+(1 - J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. J. T. Aldhizer
+
+62-116395
+
+November 20, 1975
+
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to SSC requests contained in letter of Senator Frank Church dated November 7, 1975, for materials concerning Martin Luther King, Jr.
+
+The purpose of this memorandum is to effect delivery to the SSC of information and materials in response to requests contained in the above SSC letter.
+
+The attention of the SSC is invited to FBI memorandum dated November 11, 1975, which referred to a highly sensitive oral briefing furnished to Senator Church and selected members of the SSC Staff by FBI personnel on November 5, 1975. This briefing was intended, in part, to serve in lieu of any written information in response to SSC requests for communications documenting Stanley David Levison as a secret member of the Communist Party, USA (CPUSA).
+
+Because of SSC insistence in requesting items to establish factual basis for Levison's secret CPUSA membership, as set forth in referenced SSC letter, our New York office was contacted for documents representing original recordings from Bureau informants concerning Levison. As a result our New York office provided the material which is now being delivered and which has served as a basis for statements in various FBI documents that Levison was a secret member of the CPUSA.
+
+ORIGINAL AND ONE TO AG MDR16
+
+JTA:adn
+
+(8)
+
+SECRET
+
+Classified by 2047
+
+EXEMPT FROM GDS, Category Number 2
+
+Date of Declassification Indefinite
+
+NATIONAL SECURITY INFORMATION
+
+Unauthorized Disclosure
+
+Subject to Criminal Sanctions
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+FACTO STUB
+
+GPO : 1975 O - 569-920
+
+NW 88608 DocId:32989550 Page 3

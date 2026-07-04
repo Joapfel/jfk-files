@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_7303.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+
+RE: SELECT COMMITTEE OF THE SENATE
+62-116395
+
+With regard to the origin and disposition of the "Huston Plan," we anticipate having an initial paper ready for discussion with representatives of the National Security Agency (NSA), CIA and the Department of Justice by Wednesday, 2/5/75. This coordination is necessary inasmuch as both CIA and NSA were actively involved in the development of the Plan. The Department's participation is necessary inasmuch as the Intelligence Evaluation Committee (IEC), chaired by the Department, evolved from one of the recommendations set out in the "Huston Plan." Mr. James Wilderotter, Associate Deputy Attorney General, is a member of the Ad Hoc Coordinating Group for Congressional Inquiry and is preparing an input to the "Huston Plan" annex, which input will describe the origin, function and disposition of the IEC.
+
+Prior to releasing these two annexes for Mr. Colby's use, they will be submitted to the Director for his approval.
+
+**ACTION:**
+
+For information.

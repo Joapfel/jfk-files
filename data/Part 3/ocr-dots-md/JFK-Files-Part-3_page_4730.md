@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_4730.png
+
+Convert to MarkdownTHE FOREIGN SERVICE
+OF THE
+UNITED STATES OF AMERICA
+
+The American Embassy
+Rome, Italy
+
+Date: July 30, 1963
+
+To: Director, FBI (92-3267)
+
+From: Legat, Rome (92-77) (RUC)
+
+Subject: JOHN ROSELLI, aka ANTI-RACKETEERING
+
+Re Los Angeles airtel 6/3/63 which requested
+Legat check birth records in Caserta, Italy.
+
+Dr. Aristide Manopulo, Central Bureau, Criminal
+Division, Italian National Police, Rome, Italy, advised on
+July 26, 1963, that a check of the birth records in Caserta,
+Italy, and in the surrounding communities failed to reveal a
+record for Vincenzo Roselli, Maria Russo Roselli, or Giovanni
+Roselli. The records were also searched under the name Rosselli.
+
+Dr. Manopulo stated all of the above individ-
+uals are unknown in Caserta and in the surrounding communities.
+
+5 - Bureau
+
+(1 - Liaison Section)
+(2 - Los Angeles 92-113)
+
+1 - Rome 92-77
+
+TJB:RAA
+(6)
+
+EX-108
+
+60 AUG 12 1963
+
+508
+
+AUG 5 1963
+
+63
+
+NW 78318 DocId:34489887 Page 2

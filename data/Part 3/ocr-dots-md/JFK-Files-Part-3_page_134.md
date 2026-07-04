@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_134.png
+
+Convert to Markdown**SECRET**
+
+Counterintelligence Programs
+
+The San Francisco Office placed an anonymous telephone call to Mrs. Thelma Seale, mother of Bobby Seale, National Black Panther Party (BPP) leader. Seale, after a speech in Connecticut on May 19, 1969, was to make speeches in Eugene, Corvallis and Portland, Oregon. Telephone call was ostensibly from a "brother" in Oregon telling Mrs. Seale it would be dangerous for Bobby to make the Oregon appearances. Mrs. Seale told BPP Headquarters about the call and it was decided that Seale should not go.
+
+Results, as reported in San Francisco letter May 26, 1969, were that Seale passed up $1, 130 in Eugene and $600 in Corvallis and possibly caused rift with affiliates of the Students for a Democratic Society who were to appear with him.
+
+JTA:lfj
+(9)
+
+100-448006-967
+
+SECRET
+
+30
+
+NW 88608 DocId:32989640 Page 46

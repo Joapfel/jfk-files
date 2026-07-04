@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_6583.png
+
+Convert to Markdown<table><tr><td colspan="2">CLASSIFY AS APPROPRIATE</td></tr><tr><td>TO: Intelligence Community Staff<br/>ATTN: Central Index</td><td>FROM:<br/>FBI</td></tr><tr><td colspan="2">SUBJECT: Abstract of Information Provided to Select Committees</td></tr><tr><td colspan="2">1. HOW PROVIDED (check appropriate term. If a document was made available for review but not transmitted, so note.)</td></tr><tr><td>X DOCUMENT</td><td>BRIEFING</td><td>INTERVIEW</td><td>TESTIMONY</td><td>OTHER</td><td>2. DATE PROVIDED<br/>10/17/75</td></tr><tr><td colspan="6">3. TO WHOM PROVIDED (check appropriate term; add specific names if appropriate)</td></tr><tr><td>X</td><td colspan="5">SSC</td></tr><tr><td colspan="2"></td><td>HSC</td><td colspan="3"></td></tr><tr><td colspan="2">4. IDENTIFICATION (provide descriptive data for documents; give name or identification number of briefer, interviewee, testifier and subject)<br/>Memorandum and enclosures</td></tr><tr><td colspan="2">5. IN RESPONSE TO (list date and item number if in response to formal request, otherwise state verbal request of (name), initiative, subpoena, etc.)<br/>SUC letter 9/12/75</td></tr><tr><td colspan="2">6. CLASSIFICATION OF INFORMATION (enter U, C, S, TS or Codeword)<br/>S</td></tr><tr><td colspan="2">7. KEY WORDS (enter the appropriate key words from the list provided separately; if key words not listed are used underline for emphasis)<br/>Intelligence collection<br/>Information handling</td></tr><tr><td colspan="2">8. SUMMARY (see reverse side before completing this item)</td></tr><tr><td colspan="2">Dates, names, addresses of senders and addressees of letters to or from various individuals which were obtained by the FBI without the knowledge of the individuals, and the source of these letters, the basis for the subversive investigation, date and name of each entered on the Hunter Mail watch list and any documents concerning continuation of their names on the list.</td></tr><tr><td colspan="2">62-116395<br/>FMK: fmk<br/>(4) ORIGINAL VIA LIAISON TO CENTRAL COMMUNITY INDEX IN CONNECTION WITH SENSTUDY 75</td></tr><tr><td colspan="2">TREAT AS YELLOW</td></tr></table>
+
+3791 (6-75)
+
+NW 88614 DocId:32989673 Page 314
+
+CLASSIFY AS APPROPRIATE
+
+M

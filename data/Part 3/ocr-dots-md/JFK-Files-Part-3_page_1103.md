@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_1103.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+On September 15, 1969, Jack Noble, Assistant State Attorney General, Santa Fe, New Mexico, contacted the Santa Fe Resident Agency of the FBI and requested that he be furnished public source information regarding Peter Gunn Montague to assist Governor David F. Cargo in deciding whether or not to appoint Montague to the Governor's Technical Advisory Committee on Air and Water Pollution. Montague had been affiliated with the Albuquerque Movement for a Democratic Society which was affiliated with Students for a Democratic Society.
+
+On November 18, 1969, Mr. Noble advised public source information regarding Montague enabled the Governor to make the correct decision in deciding against appointing Montague.
+
+JWD:cah (9)
+100-449698-15, 17
+
+SECRET
+
+124

@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_7274.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. BASSETT
+FROM : F. B. GRIFFITH
+SUBJECT: SENSTUDY 75
+
+DATE: 2/6/75
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Mell. W. G.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+SENSTUDY 75 is the code word for a new control file for all communications relating to the Senate Select Committee (SSC) to conduct investigation and study of conventional operations with respect to intelligence activities.
+
+Pursuant to recommendation in memorandum W. O. Cregar to W. R. Wannall dated 1/27/75 regarding the SSC, I attended a meeting of the Ad Hoc Security Group of the U. S. Intelligence Board (USIB) Security Committee at CIA Headquarters on 2/5/75. Security representatives from DIA, NSA and CIA were present at this meeting which was concerned with proposals to protect the integrity of classified documents which will necessarily be provided the SSC during its investigation. Results are set forth below.
+
+Attached are copies of: (1) proposed agreements the Director of Central Intelligence (DCI) will be asked to obtain from the SSC; (2) guides for protection of classified information and of documents furnished the SSC; and (3) proposed secrecy agreement to be executed by SSC staff members and employees. These items were discussed paragraph by paragraph and revisions agreed upon were penciled in. These revised drafts will be discussed at a meeting on 2/7/75 of the Ad Hoc Group of USIB on Congressional Investigations to be attended by Section Chief W. O. Cregar. At this time a final version will be approved for presentment to the DCI.
+
+The registry of the Joint Committee on Atomic Energy referred to on page 2 of the guides was described as a facility geared to handle and account for classified documents to the satisfaction of the intelligence community. It is guarded and has a suitable alarm system.
+
+REC-19
+
+The guides include the possibility that agencies presenting testimony may conduct their own security sweeps of the hearing room; calls for a system of document control as well as control from reproduction and destruction of classified material. Consideration of secure transcription procedures is requested with the
+
+Enclosures (3)
+1 - Messrs Callahan, Adams, Mintz,
+Wannall, Cregar
+
+FBG:njw
+
+84 FEB 24 1975
+
+CONTINUED - OVER
+
+NW 88608 DocId:32989530 Page 239

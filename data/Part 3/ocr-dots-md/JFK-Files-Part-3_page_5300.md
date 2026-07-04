@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_5300.png
+
+Convert to MarkdownU. S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+W. JOHN BENTON BY SSC STAFF MEMBERS
+
+SA Benton was asked if he had any knowledge of any telephone calls intercepted between Martin Luther King, Jr. and the Attorney General of the United States during the period of time he monitored the telephone. SA Benton advised he did not have any knowledge of any calls intercepted between Martin Luther King and the Attorney General of the United States.
+
+SA Benton was asked if he had any knowledge of any telephone calls to the Democratic Convention in 1964 by Martin Luther King, Jr. that were intercepted during the monitoring operation. SA Benton advised he did not have any knowledge of any intercepted calls made by Martin Luther King to the Democratic Convention during 1964.
+
+SA Benton was asked at the time he was assigned to the monitoring of the King telephones by the Special Agent in Charge of the Atlanta Field Division did he question his assignment. SA Benton advised absolutely not.
+
+SA Benton was asked that during the period he monitored the King telephones did he ask to be relieved of his assignment. SA Benton answered absolutely not.
+
+SA Benton was asked at this time does he question his assignment to the monitoring of the King telephones and SA Benton answered absolutely not.
+
+The interview was terminated at 10:32 A. M. this date, July 22, 1975.

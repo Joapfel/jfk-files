@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_2977.png
+
+Convert to Markdown1915
+
+plans for a subsequent town meeting in Washington with the
+names of local political leaders who would attend.
+
+Now the information, the informant information came as
+part of an investigation of an allegedly subversive group
+participating in that coalition. Yet the information dealt
+with all aspects and all participants. The reports on the
+plans for the meeting and on the meeting itself were disseminated
+to the State Department, to military intelligence, and to the
+White House.
+
+How do we get into all of that?
+
+Mr. Adams. Well--
+
+Senator Hart of Michigan. Or if you were to rerun it,
+would you do it again?
+
+Mr. Adams. Well, not in 1975, compared to what 1969
+was. The problem we had at the time was where we had an
+informant who had reported that this group, this meeting was
+going to take place and it was going to be the Daily World,
+which was the east coast communist newspaper that made comments
+about it. They formed an organizational meeting. We took
+a quick look at it. The case apparently was opened in May .28,
+1969 and closed June 5 saying there was no problem with this
+organization.
+
+Now the problem we get into is if we take a quick look
+and get out, fine. We've had cases, though, where we have
+stayed in too long. When you're dealing with security in like-

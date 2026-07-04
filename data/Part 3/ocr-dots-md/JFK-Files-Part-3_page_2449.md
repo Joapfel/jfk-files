@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_2449.png
+
+Convert to Markdown# FBI
+
+Date:
+
+Transmit the following in
+
+(Type in plaintext or code)
+
+Via
+
+(Priority)
+
+WFO 62-10744
+
+PAGE FIVE
+
+TOP SECRET
+
+ORVIS J. AUERSWALD
+ORVILLE G. AUSEN
+ROBERT H. BATES
+CLAUDE W. BOGLEY
+CHARLES T. COUNTS
+WILLIAM DESONIA
+PETER R. DURLAND
+JAMES T. FEILD
+HARVEY FENSTERMACHER
+CHARLES A. FERGUSON
+ROBERT W. FEUER
+CARL E. GRAHAM
+DARWIN M. GREGORY
+ROBERT S. KENNEMUR
+ROBERT KLEINSCHMIDT
+WILLIAM O. LANDER
+ERNEST J. LANDREVILLE
+
+Approved: ________ Sent ________ M Per ________
+
+Special Agent in Charge
+
+NW 88608 DocId:32989618 Page 129
+
+U.S.Government Printing Office: 1972 - 455-574

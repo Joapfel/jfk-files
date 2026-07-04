@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_6662.png
+
+Convert to MarkdownSeptember 8, 1975
+
+DOCUMENT REQUEST
+
+1. An unexcised copy (except for the identity of the informant) of the 2/12/62 airtel from the SAC, New York, to the Director, FBI, subject "Dr. Martin Luther King, Jr., SM-C (00: Atlanta)."
+
+2. All materials reflecting the steps taken by the FBI which "prevent(ed) the CPUSA from seizing control of the National Association for the Advancement of Colored People," as stated in the last paragraph of page 4 of the enclosure captioned "Communist Party USA" which was attached to Director Hoover's January 10, 1961 letter to Robert Kennedy.
+
+3. Reports which were submitted by the Atlanta and New York field offices pursuant to the following instructions which were contained in the second paragraph of page 1 of the February 27, 1962 letter from the FBI Director to the SAC, Atlanta, captioned "Martin Luther King, Jr., Security Matter - C, Office of Origin: Atlanta," (a copy of which was disseminated to the New York field office:
+
+New York and Atlanta are instructed to review their files and prepare a report suitable for dissemination which will include all information of a security nature plus complete background data.
+
+4. The "Bureau letters to Atlanta, 7/20/62, to Mobile, 7/20/62, and to Savannah, 9/17/62" which are referenced in the first paragraph of the 10/11/62 memorandum from the SAC, Atlanta, to the FBI Director, captioned "Communist Infiltration of the Southern Christian Leadership Conference, IS-C, (00:Atlanta)."
+
+5. The "Correspondence received from the Atlanta and New York Offices" as indicated in the first sentence of Mr. Baumgardner's October 22, 1962 memorandum to Mr. Sullivan, subject "Communist Infiltration of the Southern Christian Leadership Conference, Internal Security-C".
+
+6. All materials reflecting instructions issued to the New York and Atlanta field offices "to furnish the Bureau recommendations concerning a communist infiltration investigation of (SCLC) and the recommendations received from those two field offices for a "communist infiltration investigation of SCLC", as indicated in the second paragraph of Mr. Baumgardner's October 22, 1962 memorandum to Mr. Sullivan, subject "Communist Infiltration of the Southern Christian Leadership Conference, Internal Security-C".
+
+ALL FBI INFORMATION CONTAINED
+HEREIN TO BE UNCLASSIFIED
+DATE 11-8-66 BY SP-2 ALM/JTG
+
+#MOE16
+
+SPECIFY TIME PERIOD
+TIME PERIOD
+
+NW 88614 DocId:32989673 Page 10

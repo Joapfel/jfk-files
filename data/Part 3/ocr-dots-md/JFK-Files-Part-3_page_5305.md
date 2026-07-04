@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_5305.png
+
+Convert to MarkdownU.S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+INTERVIEW OF FBI SPECIAL AGENT (SA)
+O. RICHARD HAMILTON BY SSC STAFF MEMBERS
+
+Squad that the case be closed since there had been no known communist influence upon the activities of the SCLC organization for a long period of time. In response to the mechanics of closing the case they were advised that SA Hamilton dictated a letter to FBI Headquarters from the Special Agent in Charge of the Atlanta Office, advising that a review of the file reflected no communist influence upon the activities of SCLC and that unless advised to the contrary by FBI Headquarters, the case was being closed. The Staff Members asked if a form letter was used whereby blanks were filled in and they were advised this was not the case. The Staff Members inquired if FBI Headquarters agreed with the closing and SA Hamilton advised that to his knowledge, no communication was thereafter received from Headquarters which would disagree with the closing of that case. The Staff Members inquired as to whether SA Hamilton or anyone in Atlanta conferred with any persons in the New York Office of the FBI prior to closing the case and SA Hamilton advised that to his knowledge this did not occur. The Staff Members then inquired as to the basis for closing the case on SCLC as compared with the basis for opening the case originally. Hamilton advised he did not specifically recall the wording of any communications upon which the case was originally opened, however, a review of the case at the time it was closed did not indicate that SCLC might be involved in any activities which could constitute a violation of the Internal Security Statutes. The Staff Members inquired as to whether the investigation was based upon the Smith Act and SA Hamilton stated he did not recall specifically seeing the words "Smith Act", however, FBI investigations regarding communist influence was based upon the communist goal of forceable overthrow of the U.S. Government.
+
+The Staff Members asked if, after the death of King, whether Stanley Levison was in contact with Reverend

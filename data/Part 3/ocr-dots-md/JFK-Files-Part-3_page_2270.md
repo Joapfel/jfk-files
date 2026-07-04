@@ -1,0 +1,66 @@
+# JFK-Files-Part-3_page_2270.png
+
+Convert to Markdown1 - Mr. J. B. Adams
+
+2 - Mr. J. A. Mintz
+(1 - Mr. J. B. Hotis)
+
+1 - Mr. W. V. Cleveland
+
+62-116395
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/31/75 BY SPALM/EHL
+
+January 12, 1976
+
+U.S. SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS
+WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to the testimony of FBI Director Clarence M. Kelley before the SSC on December 10, 1975. During this testimony, certain questions arose on which answers were deferred. Set forth hereinafter are the unanswered questions along with the responses thereto.
+
+Senator Howard H. Baker, Jr., inquired as to Director Kelley's feeling concerning an Inspector General concept extending Governmentwide. Senator Baker asked the Director to think about the question and furnish his thoughts at a later date. Upon reflection and consideration of the question, Director Kelley has decided it would be inappropriate for him, as Director of the FBI, to comment concerning the need for a national Inspector General as it would affect any agency other than the FBI.
+
+Senator Gary Hart stated that although higher authorities had been alerted to the existence of Counterintelligence Programs (COINTELPROS) in one or two instances, in terms of the bulk of the Programs there was no systematic information flowing upward through the chain of command to former Director Hoover's superiors. Specifically, Senator Hart indicated the SSC had received testimony that the existence of the COINTELPRO effort against the New Left had not been made known to higher authorities and asked if Director Kelley had any information in this regard. Director Kelley asked for an opportunity to substantiate the notification provided by former Director Hoover to higher authorities.
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+ORIGINAL AND ONE COPY TO AG
+
+AJD:mjg
+
+(10)
+
+SEE NOTE PAGE NINE
+
+This document is prepared in response to your request and is not for dissemination outside your Committee. Its use is limited to official proceedings by your Committee and the content may not be disclosed to unauthorized personnel without the express written approval of the FDI.
+
+ENCLOSURE
+
+GPO 954-546
+
+MAIL ROOM TELETYPE UNIT
+
+NW 88608 DocId:32989570 Page 105
+
+1314

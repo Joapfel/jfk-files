@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_232.png
+
+Convert to MarkdownSECRET
+
+Counterintelligence Programs
+
+On December 1, 1964, James Farmer, National Director of the Congress of Racial Equality (CORE), was furnished information about Eugene Joseph Tournour, employed as an organizer of CORE, 317 Evergreen Street, Chicago, Illinois. Tournour had been active in Communist Party organizations since 1957 and in 1964 was considered a Communist Party member by leaders of the Party in Chicago. An FBI Headquarters official furnished this information to Mr. Farmer.
+
+On January 25, 1965, Tournour advised an informant that he received a letter from CORE's National Office firing him.
+
+TJD:ekw
+(9)
+100-3-104-9-430, 480
+
+SECRET
+
+126
+
+NWW 88608 DocId:32989640 Page 144

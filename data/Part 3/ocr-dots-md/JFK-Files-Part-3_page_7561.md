@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_7561.png
+
+Convert to MarkdownMay 5, 1975
+
+MEMORANDUM
+
+From: John Elliff
+
+Subject: "Intelligence Division Position Paper on Jurisdiction" dated February 13, 1975
+
+1. The following documents directly related to this Position Paper have not been supplied to the Select Committee:
+
+(1) The previous Position Paper, dated July 31, 1972.
+
+(2) Appendices I, J, K, M, and P.
+
+2. Parts I and II discuss the Presidential directives which may serve as the basis for FBI national security intelligence activities. Part IV lists statutes and Executive Orders affecting FBI jurisdiction. There is no mention in Parts I and II of the first Executive Order cited in Part IV. This is Executive Order #11605, dated July 2, 1971, amending Executive Order #10450, of April 27, 1953, relating to security requirements for Government employment.
+
+These Executive Orders have been further amended by a more recent Executive Order of June 4, 1974. This latest order abolished the so-called "Attorney General's List" and revised the criteria for determining the suitability and loyalty of Government employees.
+
+The following questions arise:
+
+(1) In what way, if any, do the Executive Orders relating to employment security provide a legal basis for FBI intelligence activities?
+
+(2) In what way, if any, did the Executive Order of June 4, 1974, affect the legal basis for FBI intelligence activities?
+
+3. The analysis in Parts I and II discusses the legal basis for FBI national security intelligence investigations. There is no specific discussion of other intelligence activities. These other activities are variously described in the attached documents and quoted memoranda. The terms used include "counterespionage" (Presidential Directive of June 26, 1939),
+
+ALL INFORMATION CONTAINED
+BEFORE IS UNCLIPPED
+DATE 1-26-74 BY LPAALYAR
+
+ENCLOSURE
+
+NW 88608 DocId:32989588 Page 234

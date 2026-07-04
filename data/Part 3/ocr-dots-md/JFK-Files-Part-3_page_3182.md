@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_3182.png
+
+Convert to Markdown1794
+
+easily say it would not be proper.
+
+Senator Huddleston. But you don't know whether it happened or whether the act was carried out?
+
+Mr. Adams. I do not know.
+
+Senator Huddleston. Mr. Adams, getting on to another subject, one of the techniques used very frequently by the Bureau in its attempt to discredit individuals was to utilize the press. It was customary to send anonymous letters on many occasions to editors, broadcasters, commentators and columnists around the country containing information or suggesting information about an individual that the Bureau wanted to discredit in some way.
+
+There was also some evidence that the Bureau utilized within the press itself on a regular contact basis certain columnists or broadcasters for the purpose of disseminating information that the FBI wanted to get out about individuals.
+
+How extensive was this custom utilized?
+
+Mr. Adams. I don't believe it was very extensive.
+
+In fact, I think there were probably very few incidents where untrue information was put out.
+
+That is my recollection.
+
+On disseminating public source information there were a number of instances of that which is still proper to date under guidelines. I just don't know of many instances where untrue information was used, and I do not know of too many
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

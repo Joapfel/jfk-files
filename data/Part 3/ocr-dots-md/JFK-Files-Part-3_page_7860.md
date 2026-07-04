@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_7860.png
+
+Convert to MarkdownQ: When he gave it to you, was it done while you were alone or was someone else present?
+
+A: I do not recall. I feel it occurred in Mr. BELTER's office which did not offer a good deal of privacy. If anyone else was present, however, it was probably Mr. CAMPBELL.
+
+Q: Did you know the location of Dr. KING's hotel room in regard to your location at the hotel?
+
+A: I do not recall, I do not think so.
+
+The interview ended with some questions in an attempt to refresh my memory as to the actual date of the monitoring. In substance, this is covered in my fifth answer under item three above.

@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_4796.png
+
+Convert to MarkdownMM 92-1870
+
+AUDREY MORITZ, who is the common law wife of THOMAS "SONNY" CIANCUTTI, top hoodlum from Pittsburgh, formerly resided with CIANCUTTI at 5715 West Hollywood Boulevard, Hollywood, Florida, but have since returned to the Pittsburgh area.
+
+Previous investigation disclosed that ROTHMAN may have contacted the subscribers to the following Las Vegas, Nevada telephone numbers:
+
+382-4925
+734-6947
+734-1212
+735-1855
+735-6614
+735-8586
+735-0330
+735-0830
+382-3657
+735-7317

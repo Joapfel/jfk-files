@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_3764.png
+
+Convert to Markdown62-116395
+
+December 9, 1975
+
+U. S. SENATE SELECT COMMITTEE 1 - Mr. S.F. Phillips
+TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+RE: INTERVIEW OF FORMER FBI ASSISTANT DIRECTOR (AD) ROBERT WICK BY SSC STAFF MEMBERS
+
+This memorandum concerns an interview of former FBI AD Robert Wick by SSC Staff Members.
+
+On November 5, 1975, Wick advised this Bureau that on October 31, 1975, he had been contacted by an individual identifying himself as Mike Epstein of the SSC who requested Wick to come to Washington for a two to three hour interview concerning a matter relating to his employment. Epstein did not further describe the subject matter although Wick attempted to obtain such information from Epstein.
+
+Upon receipt of the above information from Wick, this Bureau determined from Epstein that the subject matter was to be Martin Luther King, Jr., and that fact was relayed to Wick on November 5, 1975. Wick was also told that he was being released from his secrecy agreement with the FBI for the purpose of the interview, confined to the indicated subject matter. Wick was also advised by this Bureau that he was not required to answer questions falling within four privileged areas: matters pertaining to pending investigations; information from third agencies, including foreign intelligence agencies; information concerning sensitive methods and techniques; and information which might divulge the identities of FBI sources.
+
+Attached hereto is a copy of a MEMORANDUM FOR THE FILE dated November 12, 1975, which Wick voluntarily furnished this Bureau and which represents his report pertaining to the interview.
+
+Enclosure
+
+1 - 67-
+(Personnel file former Assistant Director Robert Wick)
+ORIGINAL AND ONE COPY TO AG
+
+SFP:mjgm (10)
+
+See NOTE PAGE TWO
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+GPO : 1975 O - 569-920
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 10/30/80 BY SPZAMSO
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Soc'y ____

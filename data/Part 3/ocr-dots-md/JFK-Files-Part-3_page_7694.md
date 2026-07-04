@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_7694.png
+
+Convert to Markdown5-140 (Rev. 1-21-74) FEDERAL BUREAU OF INVESTIGATION
+
+WASHINGTON, D. C. 20535
+
+Addressee: Senate Select Committee
+
+☐ LTR [X] LHM ☐ Memo ☐ Report dated 6/14/75
+
+Caption of Document:
+U.S. Senate Select Committee: Re: Other
+Specific FBI Practices and Procedures
+Item #24, Part III, Appendix C
+
+FBI
+
+Originating Office:
+
+Delivered by: Paul V. Daby Date: 6/13/75
+
+Received by:
+
+Title:
+
+Return this receipt to the Intelligence Division, FBI

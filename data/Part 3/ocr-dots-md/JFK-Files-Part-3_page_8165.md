@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_8165.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+WASHINGTON, D.C. 20505
+
+11 MAR 1975
+
+The Honorable Frank Church
+Chairman
+
+Select Committee to Study Governmental
+Operations with Respect to Intelligence
+Activities
+
+United States Senate
+Washington, D. C. 20510
+
+Dear Mr. Chairman:
+
+This letter will confirm and reduce to writing some
+of the matters agreed upon at our recent meeting.
+
+At the outset, I should like to express my deep
+personal appreciation for the candor and helpfulness of
+you and Senator Tower in that meeting and for your
+sensitivity to the respective responsibilities under our
+Constitutional framework of the Select Committee and the
+Central Intelligence Agency in the area of your review.
+For my part, I should like to renew again, for myself and
+the CIA, my promise of cooperation with respect to the
+important work of the Select Committee. In my judgment,
+a spirit of good faith and cooperative effort is not only
+necessary to enable your Committee to discharge its
+responsibilities fully and expeditiously, but is indeed in
+the best interests of the intelligence community as well.
+I am convinced that a responsible and thorough review of
+U.S. intelligence activities will serve to vindicate the
+CIA and enhance the public's understanding of the important
+contribution that the intelligence efforts of this nation
+can make toward the goal of preserving and strengthening
+our democracy.

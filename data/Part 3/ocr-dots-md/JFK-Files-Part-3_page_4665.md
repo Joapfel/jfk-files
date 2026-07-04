@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_4665.png
+
+Convert to MarkdownDate 10/31/62
+
+Records of the General Telephone Company of Florida reveal that the below listed telephone toll calls have been charged to telephone number 248-3347, which is subscribed to by the Columbia Restaurant Liquor Annex, address 2117 East Broadway Avenue. This service has been afforded since January 9, 1940.
+
+Billing Date July 6, 1962
+
+6/6/62 to Miami, Florida, FR 3-3561, a night person to person 14 minute call
+
+6/11/62 to Miami, Florida, NE 3-3872, a day station 3 minute call
+
+6/15/62, a telegram to New York, New York
+
+6/15/62 to Miami, Florida, FR 3-1821, a night station 7 minute call
+
+6/19/62 to Sarasota, Florida, 955-8733, a night person to person 4 minute call
+
+7/3/62 to Miami, Florida, JE 8-5968, a night station 5 minute call
+
+7/4/62 to Sarasota, Florida, 388-1916, a night station 8 minute call
+
+7/5/62 to St.Petersburg, Florida, 361-1011, a night person to person 3 minute call
+
+Billing Date August 6, 1962
+
+7/2/62, collect call from Rochester, New York, a night person to person 13 minute call
+
+7/3/62, collect call from Rochester, New York, a night station 22 minute call
+
+On 10/23/62 at Tampa, Florida File # TP 92-1 TP 92-31
+by IC HENRY E. MC INTURFF: dh Date dictated 10/29/62
+
+This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.
