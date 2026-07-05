@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_10735.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+Memorandum
+
+TO: DIRECTOR, FBI (157-9-Main)
+
+FROM: SAC, ATLANTA (157-826) (P)
+
+SUBJECT: COUNTERINTELLIGENCE PROGRAM
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS
+(UNITED KLANS OF AMERICA, INC.,
+KNIGHTS OF THE KU KLUX KLAN)
+
+DATE: 9/16/64
+
+ReBulet 9/2/64.
+
+In 1960, a comparatively small group of Klansmen pulled out of U. S. Klans, Knights of the Ku Klux Klan, Inc., and formed a new Klan group called Knights of the Ku Klux Klan, Inc.
+
+The Imperial Wizard of this new group was ROBERT L. BING of Jonesboro, Georgia. In the Summer of 1961, following a meeting between BING and officials of United Klans of America, Inc., Knights of the Ku Klux Klan (United Klans), the Knights of the Ku Klux Klan, Inc., were merged into United Klans and BING was given the position of Imperial Klokard of United Klans held at Birmingham, Alabama, 9/5-6/64. At this meeting, BING was opposed for election as Imperial Klokard by AT 1705-R and J. D. JOHNWON, a Georgia State Klan Officer.
+
+CALVIN CRAIG, Grand Dragon for Georgia of United Klans, through his support and influence to AT 1705-R, AT 1705-R was elected Imperial Klokard.
+
+AT 1652-R, AT 1705-R, AT 1700-R, AT 1720-R, and AT 1761-R have all reported that BING is extremely bitter, particularly at CRAIG, over his defeat.
+
+Recently, BING made a trip to Macon, Georgia, and contacted ROBERT LEE DAVIDSON, JR. He asked DAVIDSON to join with him in an effort to get CRAIG removed as Grand Dragon for Georgia. DAVIDSON did not commit himself but told BING he would think it over and notify him when he had reached a decision.

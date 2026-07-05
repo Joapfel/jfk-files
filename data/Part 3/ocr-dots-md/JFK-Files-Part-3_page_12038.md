@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_12038.png
+
+Convert to MarkdownOur ghetto informants have materially increased from 4,605 at the time of the last inspection to 6,224 as of 1/12/71, which represents an increase of 1,619.
+
+At the time of the last inspection we were operating 438 informants furnishing information concerning white extremist organizations and as of 1/12/71 we are operating 376 such informants, which represents a decrease of 62. This is to be expected as a result of the continuing decline of Klan and other white extremist activities.
+
+By memorandum dated 5/5/70 from G. C. Moore to Mr. W. C. Sullivan, captioned "Racial Informant Development, Black Panther Party (BPP), Racial Matters," it was recommended and approved that two Special Agents of the San Francisco Division be assigned to work exclusively on developing a top-level informant in the BPP. It was also approved that $1,000 could be expended for the purpose of developing a top-level informant. As part of this program we have been in contact with a national BPP leader on several occasions, and while he has not agreed to cooperate with this Bureau he remains friendly to the contacting Agents and further efforts are contemplated to induce his cooperation. In addition we have been successful in obtaining the cooperation of another national BPP leader's wife, and through her cooperation we have made contact with this leader. Again the leader has not indicated a willingness to cooperate; however, additional contacts will be initiated with him. This operation was specifically designed to develop top-level informant in the top echelon of the BPP which is critically needed. We will continue to pursue the development of a top-level informant until it is accomplished.
+
+## GHETTO INFORMANTS
+
+Ghetto informant program was instituted 10/11/67 to fulfill an urgent need to develop a network of "listening posts" in the ghetto areas of our cities. Ghetto informants were those persons living or working in the ghetto areas who furnished information concerning general racial conditions in their areas. As the field has gained experience in the handling of ghetto informants their value has steadily increased. Ghetto informants today are being utilized by field offices to attend public meetings held by extremists, to survey extremist

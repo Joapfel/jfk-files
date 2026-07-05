@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_12144.png
+
+Convert to MarkdownIt is noted that this case was originally opened as a PSI and potential double agent case. It is still in a pending status and is still being reported by you as a potential double agent case, when in fact the individual (Azaryan), against whom Nelson was directed departed the U.S. in June, 1970.
+
+A review of the Nelson file fails to contain any instructions or directions regarding the development of Nelson as a double agent and in addition a review of the Azaryan file similarly contains no information or instructions from the Bureau in this regard. There appears to be a definite weakness in the overall administration and supervision of this "potential double agent" at the Seat of Government.
+
+You are requested to advise the following:
+
+1. What is your overall supervisory policy in connection with developing potential security informants directed against a double agent?
+
+2. Why you continue to carry this case (Nelson) in a pending status when the subject whom he was directed against (Azaryan) left the U.S. for Russia in June, 1970.
+
+3. Why you failed to instruct and aggressively direct the office of origin in the Nelson case against the double agent target Azaryan.
+
+4. Why you have the Nelson case listed as a potential double agent when in effect he was being developed as a PSI.
+
+Explanations Requested:
+
+1. Case supervisor and Unit Chief Bowen F. Rose for failure to detect the above delinquencies in your overall supervision of the Nelson matter.
+
+2. Comments of Section Chief William A. Branigan, Inspector D. E. Moore and Assistant Director Charles D. Brennan requested.

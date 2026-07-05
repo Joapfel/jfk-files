@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_10720.png
+
+Convert to MarkdownLetter to Atlanta
+
+RE: COUNTERINTELLIGENCE PROGRAM
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS
+157-9-Main
+
+The Bureau is pleased with past successes achieved by our counterintelligence efforts in other phases of our investigative responsibilities. To insure our success in this new endeavor, the agent to whom the program is assigned in each office must have a detailed knowledge of the activities of the racist groups in the territory and that knowledge must be coupled with interest, initiative and imagination. The Agent must be alert for information which has a disruptive potential. The information will not come to him -- he must look for it. The most effective way of being assured of keeping on top of the situation is to maintain close contact with those Agents who handle the investigation of the racial and hate groups and their membership and also to periodically review relevant files.
+
+If an enthusiastic approach is made to this new endeavor, there is no reason why the results achieved under this program will not equal or surpass our achievements in similar-type programs directed against subversives.

@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_11839.png
+
+Convert to MarkdownIt is realized the above survey reveals only a small part of the Division's production; however, it gives some insight into the amount of actual supervision and direction being afforded the field as an overall consideration. It is not felt or implied that a "letter writing" program for the sake of writing letters be instituted as obviously this does not relate to supervision. It may indicate, however, among other things, the amount of intensity of positive supervision being afforded, as an over view and is being furnished for your information as well as for mine.
+
+The above analysis (manpower) reveals in your Division a need for 9 men on the McLek case, 2 for Chinese matters and one for Special Coordination Unit. On a priority basis, inspection surveys reveal the manpower is available as indicated. It is felt your Chinese program must "get going now" in view of impending developments.
+
+In addition, our proposals will allow you to assign men permanently to McLek and make other necessary shifts in manpower to get away from the temporary assignment basis you now have and which is disruptive to all Sections involved. It is also acknowledged some of the realignment indicated has been proposed by your Division in studies made by you prior to this inspection.

@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_10956.png
+
+Convert to Markdowna. CIA would not conduct investigation of any foreign official in U.S. and if CIA felt such investigation warranted, FBI should be consulted.
+
+b. No foreign official would be approached for recruitment by CIA without its conferring with FBI.
+
+c. When CIA agent arrives in U.S. for visit or assignment, FBI will be advised and two agencies will confer regarding handling of agent in this country, it being recognized each case has its individual peculiarities.
+
+d. Before approaching any foreign official or visitor for recruitment assessment, CIA will clear with FBI.
+
+3. As result of conference with CIA in January, 1966, the above "ground rules" were modified and expanded and agreed upon by both agencies early this year (Confirmed by letter to Admiral Raborn 2/7/66). New ground rules in summary are as follows:
+
+a. CIA will not initiate investigation of any foreign official in U.S. without concurrence of FBI. (Comment: This is essentially same as (a) in January, 1964, ground rules. Only difference is that wording of this modification implies more sympathetic FBI attitude towards any proposed CIA investigations.)
+
+b. CIA will seek FBI concurrence before approaching for recruitment any foreign official or communist bloc visitor in U.S. FBI will concur if CIA action does not conflict with any FBI operations. (Comment: This is similar to (b) and (c) ground rules adopted in January, 1964, with two differences. First, it drops requirement that CIA clear with us before approaching a non-Soviet visitor although it must still do so with regard to non-Soviet officials. Secondly, it specifically commits the FBI to concur if proposed CIA action does not conflict with FBI operations.)
+
+c. CIA will advise FBI prior to meetings between CIA assets and foreign officials or communist bloc visitors of interest to FBI. (Comment: This was not included in previous set of ground rules.)
+
+d. Agents of CIA who come to U.S. will be identified to FBI by name or appropriate description depending on national security interest involved.
+
+e. When CIA agent arrives in U.S. for a visit or assignment, FBI will be advised and two agencies will confer regarding handling of agent in U.S. It is recognized each case will have

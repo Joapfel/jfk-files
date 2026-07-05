@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_11468.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Cointelpros
+62-116009
+
+34 percent of all Cintelpro actions within areas of constitutional or statutory violation, obviously indicating possible criminal or civil liability. This indicates the thrust of the forthcoming SSC report, as relates to our discontinued Cintelpros, will either criticize the Petersen Committee report as an inadequate review or one possibly based on incomplete information. The SSC very likely intends to dispute the Petersen Committee report conclusion that the "overwhelming bulk of these activities were clearly legitimate and proper undertakings, within the scope of the FBI's ongoing responsibilities," and to characterize the activities as criminal or civil violations of individual rights or outside the mandate or charter of the FBI.
+
+We may expect the SSC, in its forthcoming report, as was done in public hearings, to highlight FBI Cintelpro abuses using selected documentation from FBI files to support its conclusion. It is likely the SSC will recommend legislation to preclude future Cintelpro-type activities and it is possible it will recommend criminal or civil prosecutions. As was done with the Petersen Committee report, the subjective characterization of an action as falling within one of several arbitrarily described categories is not only a matter of individual interpretation, but raises questions which cannot be objectively answered. Whether or not these actions are truly thought to be prosecutable offenses, the innuendo arising from their characterization is in itself damaging.
+
+ACTION:
+
+None. For information.

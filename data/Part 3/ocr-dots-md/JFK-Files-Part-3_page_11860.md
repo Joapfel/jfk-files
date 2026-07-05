@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11860.png
+
+Convert to MarkdownWhile there is no objection to the Inspector's
+suggestion that all communications approving initial payments
+on a regular basis to these informants be routed through
+Mr. Tolson's office for review and approval it must be pointed
+out, of course, that this creates a substantial increase in the
+preparation and review of related correspondence, not previously
+required. In view of this forseeable increase in work load,
+it is respectfully suggested that we continue to handle initial
+payment correspondence under existing regulations.

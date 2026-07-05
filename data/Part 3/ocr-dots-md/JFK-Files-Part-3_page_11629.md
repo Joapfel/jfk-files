@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_11629.png
+
+Convert to MarkdownDuring March, 1971, Washington Field Office was authorized to interview Robert J. Lee, admitted National Socialist White People's Party (NSWPP) official allegedly involved in raid on Mobilization Committee to End the War in Vietnam to cast suspicion on Jesse Clayborn Stephens, self-styled east coast coordinator for Minutemen and to disrupt cooperative relationship between respective organizations and effect possible defection of Lee. Interview appeared to be successful in that rapport was established with Lee which may be beneficial in the future. Lee volunteered information concerning NSWPP matters not previously known to the Bureau and indicated he would be receptive for further contacts. It is felt this matter has long range potential.
+
+CURRENT STATUS OF PROGRAM
+
+While counterintelligence of Klan and white
+hate groups is an ongoing thing all counterintelligence
+programs as such which were operated by this division
+were discontinued by airtel to all field offices 4/27/71.
+In exceptional instances where counterintelligence action
+appears warranted, recommendations are now submitted to
+the Bureau under the individual case caption to which it
+pertains. These recommendations are then considered on
+an individual basis.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/20/71
+
+LLA:CO
+4-H
+
+NWW 88608 DocId:32989638 Page 104

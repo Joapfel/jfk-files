@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_11823.png
+
+Convert to MarkdownApril 15, 1971
+
+# CASE LOAD REDUCTION
+## NATIONALITIES INTELLIGENCE SECTION
+
+We intend to reduce our current case load from 4197 to 3739, a reduction of 458 active cases and a reduction in the average case load for the 13 Agents handling case supervision from 322 to 287.
+
+This reduction is in part contingent upon re-establishing the moratorium on SI cases and would be effected as follows:
+
+**Middle and South American Unit** - By re-establishing the moratorium on SI cases, 30 pending cases would be closed. This Unit has a current case load of 976 active cases and reduction will result in a net case load of 946.
+
+**Chinese Unit** - The recently approved streamlining procedures will result in approximately 30 days' time in the closing of 160 cases on deserting seamen. This Unit has 1628 current active cases and with reduction will have a net of 868 active-cases.
+
+**Nationality Unit** - We intend to restrict the investigation of the Jewish Defense League to the high-level national leaders which will result in reduction of 143 active cases. Unit has current case load of 917 active cases and with reduction referred to above will have an active case load of 774.
+
+**Cuban Unit** - Upon re-establishment of moratorium on SI cases the case load in this Unit would be reduced by 125 pending active investigations. The current case load of 1276 will be reduced to 1151.
+
+In addition, re-establishment of the moratorium will result in eliminating approximately 600 SI cases which are presently carried in an inactive status.
+
+The reduction in the Chinese Unit will be accomplished within a 30-day period. The reduction of SI cases upon re-establishment of the moratorium and the remaining reduction will be effected upon your concurrence.

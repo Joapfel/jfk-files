@@ -1,0 +1,84 @@
+# JFK-Files-Part-3_page_11453.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+JAN 28 1976
+
+TELETYPE
+
+NR 12 SD PLAIN
+
+5:54PM JANUARY 23, 1976 URGENT ASC
+
+TO: DIRECTOR
+
+FROM: SAN DIEGO (66-1714)
+
+ATTN: INTD AND LEGAL COUNSEL
+
+RE: SAN DIEGO TELETYPE TO THE BUREAU JANUARY 27, 1976.
+
+THE SAN DIEGO UNION NEWSPAPER OF JANUARY 28, 1976, CONTAINS AN ARTICLE STATING CITY COUNCILMAN FLOYD MORROW WILL ON JANUARY 29, 1976, PROPOSE A COUNCIL RESOLUTION REQUESTING THE SENATE INTELLIGENCE COMMITTEE CONDUCT HEARINGS IN SAN DIEGO TO HEAR LOCAL WITNESSES IN CONNECTION WITH RECENT DISCLOSURES THAT THE FBI "PROMOTED VIOLENT DISRUPTION OF BLACK GROUPS AND POLITICAL DISSIDENTS" IN SAN DIEGO DURING THE LATE 1960S AND EARLY 1970S. THE RESOLUTION WILL REQUEST THAT THE CITY OF SAN DIEGO HAVE A REPRESENTATIVE ON THE SENATE COMMITTEE TO OBTAIN INFORMATION GAINED BY THE PANEL IN ITS HEARINGS.
+
+THE ARTICLE FURTHER STATES THAT SAN DIEGO CITY COUNCILMAN LEON WILLIAMS MET FOR MORE THAN AN HOUR IN SAN DIEGO ON JANUARY 27, 1976, WITH SENATE INVESTIGATOR ARTHUR JEFFERSON
+
+MDR 16
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+DATE 1/8/76 BY ALM/ETT EX-116 REC-50
+
+4 FEB 13 1976
+
+84 FEB 25 1976
+
+NW 88608 DocId:32989578 Page 31
+
+<table><thead><tr><th></th><th></th></tr></thead><tbody><tr><td>Assoc. Dir.</td><td></td></tr><tr><td>Dep.-A.D.-Adj.</td><td></td></tr><tr><td>Dep.-A.D.-Inv.</td><td></td></tr><tr><td>Asst. Dir:</td><td></td></tr><tr><td>Admin.</td><td></td></tr><tr><td>Comp./Syst.</td><td></td></tr><tr><td>Ext. Affairs</td><td></td></tr><tr><td>Files & Com.</td><td></td></tr><tr><td>Gen. Inv.</td><td></td></tr><tr><td>Ident.</td><td></td></tr><tr><td>Inspection</td><td></td></tr><tr><td>Intell.</td><td>X</td></tr><tr><td>Laboratory</td><td></td></tr><tr><td>Plan. & Eval.</td><td></td></tr><tr><td>Spec. Inv.</td><td></td></tr><tr><td>Training</td><td></td></tr><tr><td>Legal Coun.</td><td></td></tr><tr><td>Telephone Rm.</td><td></td></tr><tr><td>Director Sec'y</td><td></td></tr></tbody></table>
+
+EX-116
+
+LEA COUNCIL
+
+II-116 5-March-76 13897
+
+5-March-76
+
+4 FEB 13 1976
+
+11-16 LEA COUNCIL
+
+EX-116
+
+LEA COUNCIL
+
+II-116 5-March-76 13897
+
+5-March-76
+
+II-116 LEA COUNCIL
+
+EX-116
+
+EX-116
+
+II-116 5-March-76 13897
+
+5-March-76
+
+II-116 LEA COUNCIL
+
+EX-116
+
+EX-116
+
+II-116 5-March-76 13897
+
+5-March-76
+
+II-116 LEA COUNCIL
+
+EX-116
+
+EX-116
+
+II-116 5-March-76

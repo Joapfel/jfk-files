@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_12284.png
+
+Convert to MarkdownBLACK PANTHER PARTY
+
+VI. "SOCIALISTIC" PROGRAMS
+
+Panther Party leaders insist their primary aim is to serve the "people," meaning ghetto blacks. To establish good intent, Party officials have set up a series of community services aimed at recruiting members and sympathizers and building Party influence in ghetto areas. These programs, described by the Panthers as "socialistic" programs, are supposed to be carried out by all Party branches and include: "liberation schools" to give our people a knowledge of self"; free health clinics, with money, medical supplies and professional services donated by laymen and professionals in the community; free clothing programs, with clothing donated by the community; Community Information Centers, to answer the basic needs of the people"; and a monthly free shuttle bus service for families of blacks in prison. Few of these programs actually are carried out, and those that have been attempted have been mostly unsuccessful.
+
+The program that has received the most publicity is the "breakfast program," devised as a further means of indoctrinating Negro youth in Panther teachings of racism and rebellion. As expressed in *The Black Panther*, June 14, 1969, "The youth we are feeding will surely feed the revolution." Breakfasts are held for ghetto children either at churches, housing projects, Panther Community Information Centers, or other space that can be obtained free of charge. Panthers usually ask local businessmen to donate food or money to this program, boycotting stores that refuse to participate. At these functions, children have been known to sing such chants as: "I am a revolutionary. I am a revolutionary. There's going to be some barbecue if Huey's not set free. Power to the people."
+
+In 1969, Panther "Coloring Books" were printed and given out at these breakfasts. The books contained 22 pages of drawings teaching the children to distrust, hate, and kill police officers.

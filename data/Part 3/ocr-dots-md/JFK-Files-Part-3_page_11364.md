@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_11364.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 15 1975
+
+NR004 RH PLAIN
+
+3:50 PM NITEL MARCH 25, 1975 EJM
+
+TO DIRECTOR
+
+ATTENTION: BUDGET AND ACCOUNTING SEC.
+
+FROM RICHMOND 1P
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+REBUTEL TO ALL SACS MAR 24, 1975.
+
+RICHMOND HAS ONE AGENT ASSIGNED APPROXIMATELY 30 PERCENT
+OF HIS TIME TO INTERNAL SECURITY AND NO AGENTS ASSIGNED TO
+COUNTERINTELLIGENCE MATTERS. ONE SUPERVISOR DEVOTES LESS
+THAN 5 PER CENT OF HIS TIME TO SUCH CASES.
+
+END
+
+DBS FBIHQ CLR
+
+<table><thead><tr><th></th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>Acct. No.</td><td></td><td colspan="3"></td></tr><tr><td>Dep.-A.D.-Attn.</td><td></td><td colspan="3"></td></tr><tr><td>Dep.-A.D.-In-</td><td></td><td colspan="3"></td></tr><tr><td>Acct. No.:</td><td></td><td colspan="3"></td></tr><tr><td>Adm.</td><td></td><td colspan="3"></td></tr><tr><td>Cut. Swt.</td><td></td><td colspan="3"></td></tr><tr><td>Ext. Affairs</td><td></td><td colspan="3"></td></tr><tr><td>Fil. & Cm.</td><td></td><td colspan="3"></td></tr><tr><td>Gen. Inv.</td><td></td><td colspan="3"></td></tr><tr><td>Ident.</td><td></td><td colspan="3"></td></tr><tr><td>Insection</td><td></td><td colspan="3"></td></tr><tr><td>Intell.</td><td></td><td colspan="3"></td></tr><tr><td>Laboratory</td><td></td><td colspan="3"></td></tr><tr><td>Plan. & Eval.</td><td></td><td colspan="3"></td></tr><tr><td>Spec. Inv.</td><td></td><td colspan="3"></td></tr><tr><td>Training</td><td></td><td colspan="3"></td></tr><tr><td>Legal Coun.</td><td></td><td colspan="3"></td></tr><tr><td>Telephone Rm.</td><td></td><td colspan="3"></td></tr><tr><td>Director Sec'y</td><td></td><td colspan="3"></td></tr></tbody></table>
+
+# more/6
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1-17-76 BY SP-2 ATM-196
+
+300
+
+NW 88608 DocId:32989628 Page 382

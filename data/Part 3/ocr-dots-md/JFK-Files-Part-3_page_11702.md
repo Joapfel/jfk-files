@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_11702.png
+
+Convert to MarkdownAMERICAN REPATRIATE PROGRAM
+
+The American Repatriate Program which was instituted in February, 1962, to specify procedure to be followed upon receipt of information that U.S. citizens residing in Cuba had been issued Swiss Protection Passports by Swiss Embassy in Havana, Cuba, for travel to U.S., was discontinued by memorandum W. R. Wannall to Mr. C. D. Brennan, dated March 25, 1971.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+1/18/71
+VHN:emj
+4 - H
+
+164
+
+NWW-88608-DocID:32989638-Page-177

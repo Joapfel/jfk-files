@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10954.png
+
+Convert to Markdowncoordinated. This would be most important if the individual in any way was connected with or associated with an intelligence service.
+
+2) DOD is anxious to have freedom to assess and recruit Bloc diplomats not known to be engaged in intelligence activity. On the surface, this does not appear to present a problem, but realistically speaking it is impossible for us to know that a Soviet diplomat, not known to be engaged in intelligence activity one day, appears on the scene the following week as an agent or coopted agent. To give CIA wide latitude in this field could create a truly undesirable mess. We believe that if CIA is permitted to move on such targets it should be done on a selective basis and with maximum coordination.
+
+3) CIA's organizational and operational deficiencies, such as lack of discipline, poor internal coordination, unsatisfactory records, all introduce headaches which undoubtedly will continue to exist for many years.
+
+4) There continues to be an element of mistrust and misunderstanding between the two organizations because of the historical reasons described above..
+
+5) Continuing lack of one agency's appreciation for the other's objectives, responsibilities and operational philosophy.
+
+6) The absence of a clearly defined Bureau policy and objectives in the field of foreign intelligence collection. CIA really does not know the nature and the extent of our interests, and consequently this lends to confusion and misunderstanding.

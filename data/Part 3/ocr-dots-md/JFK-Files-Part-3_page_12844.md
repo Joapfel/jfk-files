@@ -1,0 +1,71 @@
+# JFK-Files-Part-3_page_12844.png
+
+Convert to Markdown# UNITED STATES GOVERNMENT
+
+## Memorandum
+
+TO : Mr. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENATE COMMITTEE ON INTELLIGENCE ACTIVITIES
+HOUSE COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+DATE: 6-13-75
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+
+Prior memoranda have been submitted reporting that the Capitol Police Department would handle security checks of the space assigned to captioned Committees as well as the offices of the individual members.
+
+Arrangements were made through the Sergeant at Arms of the Senate and House of Representatives to advise us of the Committee Members who have their private offices checked and the dates on which these checks were made.
+
+On June 13, 1975, Captain Eugene Brannon of the Capitol Police Force advised Inspector Bowers that three members of the Senate Committee and two members of the House Committee have had their private offices checked to date. These are:
+
+* Senator Frank Church (D-Idaho) who had his office in room 245 Russell Senate Office Building and his Capitol office, room S-201 checked on 5-14-75.
+
+* Senator Gary Hart (D-Colorado) whose office in 6325 Dirkson Senate Office Building was checked on 5-22-75.
+
+* Senator Richard Schweiker (R-Penna.) whose office in 347 Russell Senate Office Building was checked on 6-5-75.
+
+1-Mr. Adams
+1-Mr. Wannall
+1-Mr. Mintz
+1-Mr. Cregar
+1-Mr. Bowers
+
+REC-102
+
+CONTINUED - OVER
+
+17 JUN 19 1975
+
+DWB:lgpjnp
+(7)
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE10 19 1975 BY:SPARKS
+
+Buy U.S. Savings Bonds Regularly on the Payroll Savings Plan
+
+84 JUL 19 1975
+
+NW 88614.DocId:32989606 Page 206

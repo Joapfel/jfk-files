@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_12818.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Vannall
+
+To: Intelligence Evaluation Committee (IEC)
+
+"Robert C. Nordian, Assistant Attorney General, Internal Security Division, Meeting with the Director, 11/25/70," has been excised to delete information not germane to IEC. Copy of original memorandum not excised attached.
+
+**ACTION:**
+
+If approved, copies of the above-described memoranda, which are attached, will be transmitted to the Department by LIM for referral to the Senate Select Committee.

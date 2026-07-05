@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11957.png
+
+Convert to Markdown# COUNTERINTELLIGENCE PROGRAM - DISRUPTION OF WHITE HATE GROUPS 4-H
+
+## BACKGROUND, DATE OF INCEPTION AND DESIRED OBJECTIVES
+
+This program was initiated in September, 1964, for the purpose of exposing, disrupting and otherwise neutralizing activities of white extremist organizations, their leaders and adherents. There are currently 17 field offices regularly participating in this program and as specific situations arise other divisions also participate.
+
+## POSITIVE RESULTS ACHIEVED
+
+The following are highlights of accomplishments achieved through this program since last inspection: A racial informant of the Birmingham Division has been able to influence Robert Shelton, leader of the largest Klan group, United Klans of America, Inc., (UKA), to be more moderate in his speeches by opposing violence and stressing need for law and order as well as continuing his acts against communism. This has been effective in toning down Klan violence.
+
+Midwest coordinator of National Socialist White People's Party, formerly known as American Nazi Party, was expelled from that organization after publicity furnished under this program disclosed he was of Jewish descent.
+
+Through manipulation of informants, anonymous letters and utilization of friendly press services we were successful in creating a split in the UKA in North Carolina. This split was brought about when a rally of dissident Klansmen in September, 1969, showed their disaffection with the UKA leadership by burning their Klan membership cards. This split was highlighted in front-page news stories in North Carolina newspapers.
+
+During 1970 National Klonvokation, Robert Shelton, who was again elected Imperial Wizard, made a speech indicating his feelings that high ranking members of the UKA may be disloyal and that he definitely plans to use a polygraph machine and
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+1/12/71
+JLA:lmj
+4-H

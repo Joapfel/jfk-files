@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_10392.png
+
+Convert to Markdownconsultation is not available, and an indication of immediate danger exists, the USSS may take such action as is necessary with respect to carrying out its protective responsibilities. Any information obtained by the USSS during such action will be furnished to the FBI as expeditiously as possible.
+
+"The FBI will not conduct investigation of individuals or groups solely for the purpose of establishing whether they constitute a threat to the safety of the President and certain other persons unless there is an indication of a violation of Title 18, U. S. Code, Section 1751, or other statute over which the FBI has jurisdiction.
+
+"It will be the responsibility of the FBI to advise the USSS when investigation is being initiated under Title 18, U. S. Code, Section 1751 and thereafter to furnish the USSS with copies of the FBI investigative reports as they are prepared. It will be the responsibility of the USSS to furnish the FBI any information in its possession or which may come to its attention which reasonably indicates that a violation of Title 18, U. S. Code, Section 1751, has been or is being committed.
+
+"The USSS also agrees to furnish the FBI any information in its possession or which may come to its attention indicating a violation of any other statutes over which the FBI has investigative jurisdiction.
+
+"The FBI, under its responsibility for investigation of violations of Title 18, U. S. Code, Sections 112, 970, 1116-1117, 1201 and 1751 will take cognizance of the protective responsibilities of the Treasury Department under Title 3, U. S. Code, Section 202 and Title 18, U. S. Code, Section 3056 and thus does not limit or interfere with the authority of the Secretary of the Treasury in the discharge of his statutory protective responsibilities. This is not to be construed as vesting concurrent investigative jurisdiction with the Treasury Department with respect to investigations of individuals or organizations engaged in activities affecting the national security including terrorism, treason, sabotage, espionage, counter-espionage, rebellion or insurrection, sedition, seditious conspiracy, neutrality matters, Foreign Agents Registration Act, or any other Statute or Executive Order relating to national security. Any investigations of such groups or individuals for any reasons other than in connection with protective responsibilities must be closely coordinated with and have the concurrence of the FBI in order to minimize interference with national security responsibilities of the FBI.
+
+## "IV. Information to be Furnished to the United States Secret Service by the Federal Bureau of Investigation
+
+### "A. When an individual or group is referred by the FBI to the USSS, the following information will be furnished to the extent available:"

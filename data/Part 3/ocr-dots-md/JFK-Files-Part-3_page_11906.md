@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_11906.png
+
+Convert to Markdownhas virtually fallen apart and there is practically
+no organized activity. Membership is approximately
+180, but individuals remain violence prone.
+
+The National States Rights Party under the direction of J. B. Stoner is likewise experiencing difficulty in increasing either membership or activity and consequently is planning to move its headquarters from Savannah, Georgia, to Atlanta, Georgia. In the meantime this organization continues to grind out anti-Negro and anti-Jewish propaganda in crude fashion in their publications and speeches. Membership is approximately 150.
+
+The National Socialist White People's Party (NSWPP) (formerly the American Nazi Party) has its headquarters in Arlington, Virginia, which is the center for its activities. There is moderate activity in Los Angeles and Chicago. Recently a serious split in the leadership has occurred as a result of counterintelligence action taken on the part of the Bureau through use of racial informants. Here again membership continues to decline. They appear to be content with publishing a variety of anti-Negro, anti-Jewish publications and preparing their "White Power" telephone messages. Membership is approximately 125.
+
+The above is set forth to show the general accomplishments made by this Unit in the Klan and white hate field during the past year. Some specific examples of accomplishments are hereafter set forth:
+
+In February, 1970, we furnished information to the White House, the Army, Secret Service, Internal Revenue Service, the Internal Security and Civil Rights Divisions of the Department and the Inter-Division Information Unit, which we received from racial informants of our Tampa Division who advised that the United Florida KKK had printed 15,000 protest letters which were being made available to the public for mailing to President Nixon in connection with school desegregation. We also furnished a copy of the actual protest letter for the benefit of the White House and other agencies.
+
+On February 20, 1970, Robert DePugh, National Coordinator of the Minutemen, mentioned above, was sentenced to four years imprisonment following conviction for bond default. It is noted DePugh was previously convicted and released on bond for Federal Firearms Act violation.

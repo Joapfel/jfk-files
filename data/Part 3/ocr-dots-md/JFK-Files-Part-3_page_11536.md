@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_11536.png
+
+Convert to MarkdownPage
+
+Suggestion Memorandum (Continued)
+
+Survey Concerning Computerization of Security Informant Indices                                     321
+
+Supervision and Control of Security Informant Development and Coverage by Internal Security and New Left Sections                                                      324
+
+Utilization of Inserts in Reporting Investigative Results in Criminal Cases by Legal Attaches                                                    325
+
+Black Nationalist Photograph Album                                                                            327
+
+Young Socialist Alliance Internal Security - Communist (Trotskyist)                                                           329
+
+Automation of Intelligence Data re New Left and Extremist Individuals                                                                331
+
+Preparation of Interview Reports (FD-302) in Security Type Investigations                                              334
+
+Black Extremist Activities In Penal Institutions - Extremist Matters                                                         340

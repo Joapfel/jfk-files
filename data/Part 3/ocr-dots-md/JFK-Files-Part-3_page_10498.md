@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_10498.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+NR 004 LR PLAIN
+
+3:09 PM URGENT MARCH 26, 1975 GM
+
+TO DIRECTOR
+
+FROM LITTLE ROCK (66-1880)
+
+ATTENTION BUDGET AND ACCOUNTING SECTION.
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+RE BUREAU TELETYPE TO ALL SAC'S, MARCH 24, 1975.
+
+FOLLOWING SET FORTH IN RESPONSE TO REFERENCED
+
+TELETYPE:
+
+TWO AGENTS IN LITTLE ROCK DIVISION ASSIGNED PART-TIME ON INTERNAL SECURITY AND COUNTERINTELLIGENCE MATTERS WITH BREAKDOWN OF TIME SPENT AS FOLLOWS:
+
+ONE AGENT SPENDS APPROXIMATELY 45 PERCENT OF TIME ON INTERNAL SECURITY AND 5 PERCENT ON COUNTERINTELLIGENCE MATTERS. SECOND AGENT SPENDS APPROXIMATELY 65 PERCENT OF TIME ON INTERNAL SECURITY AND 10 PERCENT ON COUNTER-INTELLIGENCE MATTERS. ONE SUPERVISOR SPENDS APPROXIMATELY 8 PERCENT OF HIS TIME ON INTERNAL SECURITY AND 2 PERCENT ON COUNTERINTELLIGENCE MATTERS.
+
+END
+
+<table><tbody><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Asst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files &amp; Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspection</td></tr><tr><td>Intell.</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. &amp; Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></tbody></table>
+
+NWW 88608 DocId:32989628 Page 335

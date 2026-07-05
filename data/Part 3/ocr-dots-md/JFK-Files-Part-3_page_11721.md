@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_11721.png
+
+Convert to Markdown# Personnel
+
+We recently recommended that one agent and one clerk be added to Madrid in the event of a future expansion. While the present complement can handle the normal FBI cases, the emphasis on HILEV items can best be satisfied by an additional agent.
+
+## Recommendation
+
+Continue.
+
+### MEXICO CITY
+
+Our operation in Mexico is unique in that we are actively developing informants and working most closely with the cooperative Mexican officers who handle our cases. there. This is our largest office both in terms of case load and personnel. Unlike Canada where practically all our work is handled by one agency, we are dealing with a number of different agencies in Mexico most of which lack the training and sophistication of the Royal Canadian Mounted Police (RCMP) hence the disparity in the personnel required to handle our work north and south of the border. In an effort to streamline our operations in Mexico, the Legal Attache has been instructed to reduce the number of informants he is operating and to cut back on his investigation in certain areas such as the American Communist Group in Mexico.
+
+### Productivity
+
+Two hundred and eighteen persons wanted in the United States were located by the Mexico City Office during fiscal 1971. Thirty "informal deportations"were arranged and 53 stolen automobiles were recovered. The case load as of 6/30/71 was 627 which is below average on a per agent basis. As of 8/23/71, the office had submitted 37 HILEV items of which 28 were actually disseminated. This is substantially above average.
+
+### Personnel
+
+We feel the present complement is adequate until the Legal Attache recommends additional "Resident Agencies." The large expanse of territory and the necessity of working

@@ -1,0 +1,8 @@
+# JFK-Files-Part-3_page_11155.png
+
+Convert to Markdownall agencies alerted through that mechanism. Agencies will designate on their submissions to the central index, the name and telephone number of the releasing party.
+
+8. Ad hoc members should be prepared to discuss and come to some agreement on this matter at the next meeting.
+
+John M. Clarke
+AD/DCI/IC

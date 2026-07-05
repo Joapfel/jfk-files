@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_12789.png
+
+Convert to MarkdownREVOLUTIONARY HANDIWORK OF THE
+URBAN GUERILLA
+
+predawn kill all--destroy all mission was launched as a pilot, an experimental operation with a two fold objective. One was to put counter-revolutionary theory into practice in America --to bring in-to the streets the fascist ruling clique's solution to the Party--to test and evaluate the techniques of counter-insurgency urban warfare. The second important
+
+billized and rallied mass support for the Party and soundly condemned the actions of Chicago's fascist killer groups.
+
+Make trouble, fall, make trouble, fall again until their doom. This is the logic of fascists the world over. In Chicago, they refused to acknowledge the bankruptcy of their counter-insurgency campaign. In December, in Los
+
+Angeles, Southern California, Chapter of our Party, came under attack by fascist killer groups. Although outnumbered and using inferior weapons, our Party repelled and held at bay the fascist shock troops and sounded the end of Chicago type operations in a fuselage of bullets. We learned valuable lessons paid for with the blood of our revolutionary comrades. The fascist ruling clique has seen the support, that their homicidal raids have generated for the Party. They now know that if conditions are favorable, they will receive tilt for tat and then some. They now know that Black and all progressive people will not sit idly by and pacify the action of above ground killer groups Fascists have tried to rally the support of the American people to their avowed aims and failed.
+
+Now begins the phase of underground, clandestine operation of fascist directed killer groups. This is all part of the nature of the fascist ruling clique. The fascists will no doubt expand the techniques of their South American lackeys who operate unrestricted, unswayed by either democratic institutions or public opinion. As the tempo of the struggle increases so will the fascist acts of reactionary terror and violence increase. The primary target of forming clandestine kill groups will be both our people and our Party. If we are to survive as a people, this next phase of attacks, and pave the way to victory, it is imperative that our people be armed with the ideology of the Party. For only then will our people be able to cope with, both, ideological and physical attacks initiated by the insane fascist ruling clique. Huey P. Newton, Minister of Defense, said that our Party must be a living shield that stands between our people and the fascist pigs and that our paper should serve to educate our people so that they will survive.
+
+As the attacks against the Party escalate, so must the awareness of our people be channelled toward acceptance and even more, active participation in urban guerrilla warfare. Phase two of the fascist plans will surely and soundly be defeated. The fascists will awake to find themselves bogged down on that last front. They will be swallowed up in the morass of a people's war. Their graves will be dug by revolutionary urban guerrilla forces amidst the asphalt, concrete and steel of the cities.
+
+ALL POWER TO THE PEOPLE
+DEFEAT U.S.A FASCISM ON
+EVERY FRONT
+
+WE'LL ALL BE TOGETHER ON
+THE DAY OF VICTORY
+
+Randy Williams,
+Political Prisoner
+
+N\W 88614 DocID:32989606 Page 151

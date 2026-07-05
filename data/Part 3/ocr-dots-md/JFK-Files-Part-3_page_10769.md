@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_10769.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. BELMONT
+FROM : A. ROSEN
+SUBJECT: PERSONNEL TRANSFERS TO EFFECT PROPOSED REASSIGNMENT OF SUPERVISORY RESPONSIBILITIES IN RACIAL MATTERS AND RACIAL INFORMANTS
+
+DATE: 8/18/64
+
+Pursuant to Mr. Gale's memorandum of 8/4/64, to Mr. Tolson, in the above-captioned matter, the personnel on the attached list will be transferred from the Civil Rights Section, General Investigative Division, effective 9 a.m., 8/19/64, to the Domestic Intelligence Division.
+
+Enclosure
+
+AR:WW
+(12)
+- 1 - Mr. Belmont
+- 1 - Mr. Rosen
+- 1 - Mr. Malley
+- 1 - Mr. McGowan
+- 1 - Mr. Callahan - Att: Movement
+- 1 - Mr. Callahan - Att: Voucher Statistical Section, Rm. 6221 IB
+- 1 - Mr. Mohr
+- 1 - Mr. Evans
+- 1 - Mr. DeLoach
+- 1 - Mr. Tavel
+- 1 - Mr. Sullivan
+
+RECOV XEROXed
+OCT 8 1964
+
+REMOVED BY SRD
+
+NWM88608 DocId:32989629 Page 166

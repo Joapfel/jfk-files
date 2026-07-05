@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_10283.png
+
+Convert to MarkdownCONFIDENTIAL
+
+Memorandum to Mr. W. R. Wannall
+Re: William G. Miller
+105-213145 (S)
+
+Rapota and possibly other Soviets. WFO has noted that Mr. Miller is also known to have been in contact with Aleksandr A. Kokorev, a First Secretary of the Soviet Embassy, Washington, D. C., and a known officer of the Soviet Military Intelligence (GRU). (S)
+
+While Mr. Miller was most cooperative on the last occasion he was interviewed by the FBI, it is noted he did not provide any particularly significant information concerning [the] Soviets with whom he had contact. While it is not known at this time whether he could presently provide meaningful information, an interview with him at this time, when he is now the Staff Director of the Select Committee to Study Governmental Operations, could well be untimely and indiscreet.
+
+ACTION:
+
+(1) In view of impending contacts which will be had by FBIHQ with Mr. Miller, the purpose of this memorandum is to draw attention to the fact that Mr. Miller has had past contact with representatives of Soviet intelligence services and may be continuing to have same. (S)
+
+(2) If you agree, there is attached a communication to WFO captioned, "Grigoriy A. Rapota; IS - R (SOVEMB-KGB)" which denys authority for an interview with Mr. Miller at this time and instructs that office to promptly advise FBIHQ of any additional contacts between Mr. Miller and representatives of the Soviet Embassy, Washington, D. C., which may come to its attention. (S)
+
+CONFIDENTIAL
+
+- 2 -
+
+SECRET
+
+NW.88608 DocId:32989628 Page 120

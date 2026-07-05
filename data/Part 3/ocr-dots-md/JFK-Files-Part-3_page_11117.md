@@ -1,0 +1,113 @@
+# JFK-Files-Part-3_page_11117.png
+
+Convert to MarkdownSenate CIA Committee Says
+White House Stalls on Data
+
+By George Lardner Jr.
+Washington Post Staff Writer
+
+The Senate Committee on Intelligence Operations disclosed yesterday that the White House is still stalling on a month-old request for the directives involving covert activities by the Central Intelligence Agency and other arms of the Government.
+
+Sen. Frank Church (D-
+Idaho), the committee chair-
+man, told reporters after a
+closed, 2½-hour meeting that
+he had been authorized to
+write another letter to Pres-
+ident Ford asking him to ex-
+pedite the request,
+
+The committee asked Mr. Ford on March 12 for all the executive orders and top-secret National Security Council directives concerning the CIA and the rest of the intelligence community, including the command structure at the White House.
+
+The President was also
+asked to supply the committee
+with a copy of CIA Director
+William E. Colby's January
+report to Mr. Ford on allega-
+tions of illegal domestic spy-
+ing by the agency.
+
+But all the committee has
+gotten so far, Church said,
+has been what the White
+House evidently regards as
+the least sensitive documents
+on the list.
+
+Church said he did not know "what the hang-up is" since White House aides have indicated they consider the committee's entire request as "perfectly proper."
+
+Church did not spell out all
+of “the” more sensitive data”
+that is still being withheld,
+but he said it includes both
+the Colby report and the top-
+secret White House and Na-
+tional Security Council direc-
+tives dealing with covert oper-
+ations, both foreign and do-
+mestic.
+
+The Idaho senator said the
+committee is reserving the
+right to make public eventu-
+ally any documents it gets and
+is accepting nothing with
+"strings attached." But he de-
+clined to speculate on whether
+this might be the reason for
+the administration's hesitance.
+
+Church said all of the rec-
+ords were essential to the
+committee's mandate to inves-
+tigate the CIA and the rest of
+the government's intelligence
+community. He said he still
+had no reason to think at this
+point that the White House
+would refuse to give them up,
+but he emphasized that he saw
+no reason for further delay.
+
+Church said the committee
+also authorized its staff of
+about 35 lawyers and investi-
+gators to start gathering evi-
+dence and interviewing wit-
+nesses as the prelude to a pro-
+
+jected round of public hear-
+ings this summer. The House
+has also ordered a similar in-
+quiry but its committee,
+headed by Rep. Lucien Nedzi
+(D-Mich.), has yet to choose a
+staff director.
+
+The Senate committee's chief counsel, Fritz Schwarz, said directors have now been named for all four of its task forces. They are William Bader, head of the foreign intelligence task force; John Elliff, head of the domestic intelligence task force; Alton H. Quanbeck, head of the Military intelligence task force, and David Aaron, head of the task force that will study the intelligence community's 'command and control structure.'
+
+Bader is a former Senate Foreign Relations Committee aide and has recently been working with the Ford Foundation. Elliff is a Brandeis University professor and expert in domestic law enforcement activities. Quanbeck has been director of the Brookings Institution's defense analysis project and Aaron has served on the National Security Council staff.
+
+Schwarz said that each of
+the task forces will cut across
+the lines of various intelli-
+gence agencies and focus on
+general avenues of inquiry,
+such as the “legal authority
+and legal restraints” for intel-
+ligence work; the targets and
+techniques of intelligence-
+gathering, counterintelligence
+and covert operations, and the
+question of who orders and
+controls those activities.
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/18/61 BY SP2 ALM/116
+
+"The Washington Post"
+
+April 10, 1975
+
+N.W. 88608 DocID:32989628 Page 135

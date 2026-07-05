@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_11569.png
+
+Convert to Markdown# ACCOMPLISHMENTS
+## COMMUNIST PARTY, USA, UNIT
+
+The major accomplishment of this Unit evolves from the case entitled, "Solo, IS - C." Due to the sensitive nature of this case, it will be orally discussed with the Inspector.
+
+In essence, this case involves sources developing intelligence information of the highest quality concerning the Communist Party, USA (CPUSA), the Soviet Union and its satellites, and the world communist movement. Since its inception, 38 successful missions to communist countries have been completed. Information developed by this operation from high-level contacts in the world communist movement is continually disseminated to the highest levels of our Government and, in many instances, is information not available from another source.
+Examples of this since early 1971 include the following: Soviets requested CPUSA to provide analysis of public opinion in U.S. regarding Nixon Administration and U.S.-Soviet relations to be used by General Secretary of the Communist Party of the Soviet-Union (CPSU), Leonid Brezhnev, in speech before 24th Congress of CPSU in March, 1971, and essence of analysis was provided; during the 24th Congress, it was learned Soviets doubted whether U.S. was serious on disarmament and they were concerned over U.S.-Chinese communist improved relations; Soviet countermeasures to counteract include planned vast propaganda campaign against U.S., initiation of a European Security Conference to isolate U.S., and improvement of Soviet relations with Japan; General Secretary, CPUSA, Gus Hall, planned visit to North Vietnam and Laos Spring of 1971, thereafter returning to U.S. to hold mass rallies to raise antiwar movement in U.S. to a new high; visit was set for 5/15-20/71; however, North Vietnamese canceled same, angering Hall who felt this resulted from Chinese communist pressure; information concerning possible split in CPUSA along racial lines; details concerning meeting of CPUSA leaders and Soviet Ambassador to U.S. Anatoliy F. Dobrynin, at which time Dobrynin stated hope for world peace would be improved if President Nixon were re-elected in 1972.
+
+All of this information was furnished the White House and other interested officials of our Government, usually by teletype. Central Intelligence Agency has expressed great interest in information developed by this operation and on July 24, 1970, requested permission to include pertinent data developed by our operation in a "Top Secret/No Foreign/Controlled Dissemination" classified document for senior U.S. Intelligence Board officials.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/18/71
+
+PCM:sfw
+
+NW 88608 DocID:32989638 Page 44

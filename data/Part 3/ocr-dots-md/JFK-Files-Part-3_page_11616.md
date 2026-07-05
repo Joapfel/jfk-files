@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_11616.png
+
+Convert to Markdown4-E
+
+Party (PSO), Armed Revolutionary Independence Movement (MIRA),
+Armed Commandos for Liberation (CAL), and the Nationalist Party
+of Puerto Rico (NPPR), the oldest of the revolutionary groups.
+MIRA and CAL, in particular, are dominated by native Puerto
+Ricans who had many years of sabotage training in Cuba, returned
+surreptitiously to Puerto Rico and led the wave of major
+explosions which heavily damaged United States installations
+in metropolitan Puerto Rican areas. Property loss resulting
+from such acts of violence since 1967 has been estimated at over
+$15 million with an economic loss of over $100 million.
+
+In addition to the previous apprehension of Filiberto Ojeda Rios, Cuban espionage agent and leader of several major bombing expeditions, the FBI was instrumental in the arrest by Police of Puerto Rico (POPR) of Narciso Rabell Martinez and Roberto Jose Todd Pagan, two other long-time espionage agents with extensive sabotage training in Cuba. Following the deaths of two police officials and an ROTC cadet during a riot in March, 1971, at the University of Puerto Rico, one of our informants was able to identify and bring about the arrest of a Federation of University Students for Independence (FUPI) leader involved in the killings. FUPI is a radical college student group which advocates violence in bringing about independence for Puerto Rico.
+
+Our sources in the Puerto Rican independence field have given us information concerning subversives traveling between Puerto Rico and New York City to transport incendiary devices for use in acts of sabotage. Also a close rapport has been established between POPR and our San Juan Office in recent months. The resulting arrests and seizure of explosives, as well as intelligence material, have slowed down the acts of violence noticeably during the first seven months of 1971.
+
+We are quite apprehensive that the National Conference of Governors has been scheduled for September 12-15, 1971, at San Juan. Realizing the volatile nature of the Puerto Rican independence movement, we have directed an airtel to all offices pointing up the powder keg situation and asking that every effort be made to obtain advance information concerning planned acts of violence to be carried out against participating officials. We are watching this situation closely and are prepared to give the POPR all logical assistance in helping to curtail any such plans.

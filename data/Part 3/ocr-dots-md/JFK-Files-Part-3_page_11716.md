@@ -1,0 +1,60 @@
+# JFK-Files-Part-3_page_11716.png
+
+Convert to Markdown# LEGAL ATTACHE OFFICES
+FOREIGN LIAISON
+
+4-H-1
+
+COMMENTS OF SECTION CHIEF W. R. WANNALL: In response to the
+Inspector's inquiry,
+comments follow concerning (1) the 11 foreign offices in
+operation prior to the expansion in December, 1970, (2) the
+6 new offices opened in December, 1970, and (3) the 6
+additional offices which we proposed be opened in response
+to the Director's inquiry in May, 1971. With respect to
+categories (1) and (2) it is noted that these 17 offices
+have just undergone inspection, most of them during the
+current month. As very few of the inspection reports are
+yet available, these comments are necessarily based upon those
+facets of the work which it is possible to observe from the
+Seat of Government.
+
+(1) Offices in Operation Prior to Expansion
+
+BERN
+
+Our operations in Switzerland are most delicate
+because of the fierce independence of the Swiss, who would
+not permit the use of "Legal Attache" as it was considered
+too widely identified with the FBI. As a result, our
+representative is known in the Embassy and in Switzerland
+merely as an Attache. The office has become increasingly
+important in the criminal field very recently as a result of
+the large scale thefts of securities in the United States
+and their transportation to and attempted sale or hypothecation
+in Switzerland. In addition, it has long been the goal to
+obtain access to information concerning bank accounts opened
+in Switzerland by subjects of our investigations. Progress
+has been slow but we have been able to secure limited
+information and the cooperation received is the direct result
+of the personal liaison of our Legal Attache.
+
+Productivity
+
+During fiscal 1971, the office located 7 fugitives
+and arranged 4 "informal deportations." Its pending case load
+as of 6/30/71 was 83 which is approximately average on a per
+agent basis in the foreign field. Through 8/23/71 Bern had
+submitted 7 HILEV items of which 5 were actually disseminated.
+This is the smallest number of submissions of any Legal Attache
+and the second smallest number of acceptable items.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+4-H-1
+
+8/23/71
+
+GAD.doc
+
+NW 88608

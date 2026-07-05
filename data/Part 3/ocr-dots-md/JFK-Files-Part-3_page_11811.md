@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_11811.png
+
+Convert to Markdown# ADEQUACY OF PERSONNEL
+
+6-E
+
+SECTION CHIEF W. A. BRANIGAN
+ESPIONAGE SECTION
+
+(1) The authorized personnel of the Espionage Section as of the close of business August 17, 1971, is as follows:
+
+| | AGENT | CLERK | SECRETARY | CLERK-STENO |
+| :--- | :---: | :---: | :---: | :---: |
+| **Front Office** | 2 | 0 | 2 | 0 |
+| **Soviet Unit - Washington** | 3 | 2 | 1 | 1 |
+| **Soviet Unit - New York** | 4* | 3 | 1 | 1 |
+| **Special Cases Unit** | 2 | 5** | 1 | 0 |
+| **Coordination Unit** | 3 | 3*** | 1 | 1 |
+| **Satellite Unit** | 4 | 5 | 1 | 0 |
+
+*Special Agent George M. Quinn was designated to replace Special Agent Victor R. Schaefer. Special Agent Quinn is currently assigned to the Inspection Division; date of reporting to the Espionage Section is not known.
+
+**Intelligence Analyst, GS-10, Mary E. Triplett, performing work in lieu of Special Agent.
+
+***Clerk, GS-7, A. Iris Kirby, performing work in lieu of Special Agent.
+
+(2) By letter dated July 28, 1971, Special Agent George M. Quinn was ordered for assignment to the Domestic Intelligence Division.
+
+By letter dated August 17, 1971, Dale P. Ramacciato submitted his resignation to be effective at close of business
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8-19-71
+
+WAB:hke
+
+6-E

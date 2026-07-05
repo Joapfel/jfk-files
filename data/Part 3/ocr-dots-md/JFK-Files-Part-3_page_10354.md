@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_10354.png
+
+Convert to MarkdownLegal Counsel to Adams Memo
+
+RE: SENSTUDY 75
+
+With regard to Part I relating to legal authorities, they stated
+they were amenable to the Bureau furnishing them whatever documents they
+have retrieved up to this time which have been recovered pursuant to their
+request of 3-19-75 and that no additional detailed review need be conducted
+until they review the aforementioned documents. At the end of their review
+they will make any additional specific requests concerning this part of their
+request. They also asked that in our response we furnish them copies of documents
+listed on a three-page paper prepared by the staff of the Senate Select Committee,
+a copy of which is attached.
+
+Staff Director Miller requested that the Bureau expedite their
+response to the Senate Select Committee's request as the first meeting of that
+Committee is scheduled for Wednesday, 4-9-75, and he felt strongly that they
+must have material that showed progress in their study of the FBI prior to that
+time. Mr. Miller requested that, if necessary, the request be responded to in
+a piecemeal basis and that the complete response does not necessarily have to
+be made at one time.
+
+It is suggested that we make available to this Committee as soon
+as possible those documents which we have furnished the General Accounting
+Office (GAO) which also fall within the 3-19-75 request of the Senate Select
+Committee. In this regard staff members have advised they are in contact with
+GAO auditors concerning the FBI.
+
+By way of observations it is obvious that the staff members of
+the Committee are well versed in Bureau policy and procedures. To this point
+they have been cooperative and we should insure that we give a timely response
+to their various requests.
+
+**RECOMMENDATIONS:**
+
+(1) That the Intelligence Division advise whether modification
+of the Senate Select Committee's request concerning legal authorities for
+investigations and the modification of the table of organization of the Intelligence
+Division are acceptable and, if so, expeditiously prepare the necessary response
+to the Senate Select Committee.
+
+RECOMMENDATIONS
+CONTINUED - OVER
+
+NW 88608 DocId:32989628 Page 191

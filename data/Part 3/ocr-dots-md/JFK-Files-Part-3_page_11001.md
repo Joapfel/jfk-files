@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_11001.png
+
+Convert to MarkdownMaterial furnished includes policy, statutes, instructions and related matters covering FBI investigations in the security field generally. Limited, extremely sensitive material excluded but available for review by appropriately cleared personnel of the SSC Staff at FBI Headquarters.
+
+7. REQUESTER/DATE OF REQUEST: SSC. 3/19/75
+
+8. RELEASING AUTHORITY: FBI
+
+9. DATE OF SUBMISSION: 4/7/75
+
+10. LOCATION OF FILE COPY: FBI file 62-116395-75
+
+11. RELATION TO INTELLIGENCE COMMUNITY PROBLEMS:
+
+No direct relation.
+
+NOTE: Original via liaison to Central Community Index in connection with Senstudy 75.

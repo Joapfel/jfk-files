@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_10724.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO Mr. W. C. Sullivan
+FROM : Mr. F. J. Baumgardner
+SUBJECT: COUNTERINTELLIGENCE PROGRAM-
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS
+
+DATE: August 27, 1964
+
+1 - Mr. Belmont
+1 - Mr. Sullivan
+1 - Mr. Baumgardner
+1 - Mr. Gray
+1 - Mr. Trainor
+1 - Mr. Ryan
+
+Memorandum from Mr. J. H. Gale to Mr. Tolson dated 7/30/64 captioned "Investigation of Ku Klux Klan and other Hate Groups" was approved by the Director authorizing the Domestic Intelligence Division to give consideration to the application of counterintelligence and disruptive tactics to hate groups and to thereafter make appropriate recommendations. It is our recommendation that we immediately initiate a hard-hitting, closely supervised, coordinated counterintelligence program to expose, disrupt and otherwise neutralize the Ku Klux Klan (KKK) and specified other hate groups.
+
+This new counterintelligence effort will take advantage of cur experience with a variety of sophisticated techniques successfully applied against the Communist Party, USA, and related organizations since 1956. Primarily, we intend to ex positive scrutiny the devious maneuvers and duplicity of the hate groups; to frustrate any efforts or plans they may have to consolidate their forces; to discourage their recruitment of new or youthful adherents; and to disrupt or eliminate their efforts to circumvent or violate the law. Our counterintelligence efforts against hate groups will be closely supervised and coordinated to complement our expanded intelligence investigations directed at these organizations.
+
+We are furnishing general instructions to 17 field offices (14 Southern offices responsible for active investigation of 17 Klan groups and 6 hate organizations, and New York, Chicago and Baltimore, who have active investigative responsibilities for one hate organization each) relating to the administration and prompt enactment of this new counterintelligence program. Briefly, these instructions require the 17 participating offices to submit to the Bureau on or before 10/15/64 an analysis of possible counterintelligence operations, including any specific recommendations for action. Thereafter (commencing 1/1/65) the participating offices will submit a 90-day status letter setting
+
+Enc: 9-3-64
+157-9-Main
+1 - 100-3-104-Main (CPUSA, Cointelpro)
+
+REC 20
+
+SEP 24, 1964
+
+DR:bgc (8) SEP 3 0 1964 CONTINUED - OVER
+
+NW-88608-Dobd-32080620 Page 121

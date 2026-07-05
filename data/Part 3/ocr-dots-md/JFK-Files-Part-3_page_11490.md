@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_11490.png
+
+Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+On January 26, 1976, Special Agent Seymour Fred Phillips of this Bureau conferred with Mr. John T. Elliff, Director, Domestic Intelligence Task Force, SSC, and told Elliff of our findings both as to what our files contained and what Elder had told us. Inquiry was made of Elliff as to the necessity or pertinence of the SSC requesting of the FBI access to materials which CIA had furnished to the FBI inasmuch as the SSC had already had access to such material at CIA. Mention was made of the Third Agency consideration which Elliff indicated he was cognizant of, but he stated the SSC's purpose in making the request was in the form of a double check to insure the SSC gained access to all of the material it desired.
+
+It was explained to Elliff that this request, in light of the factors involved, would place an undue burden on the FBI as there might not be any way to retrieve the information it was requesting to see. This point was emphasized by the fact that FBI indices contained only a single reference to "CI/C/S," that referred to above.
+
+Elliff responded that he would check with the member of the SSC Staff handling this matter and further advise.
+
+On January 27, 1976, Elliff advised Phillips that he had checked out the matter and, in view of all the factors present, it would be unnecessary for the Bureau to take any further action on Item 1 of the January 20, 1976, request other than to submit the instant memorandum.
+
+## 1 - The Attorney General
+
+**NOTE:** Contact with Elder at CIA was by Supervisor Andrew J. Duffin of the Senstudy 75 Project.

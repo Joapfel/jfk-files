@@ -1,0 +1,62 @@
+# JFK-Files-Part-3_page_11476.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+FROM : W. O. Gregar
+SUBJECT: SENSTUDY 75
+
+1 - Mr. J. B. Adams
+1 - Mr. T. J. Jenkins
+1 - Mr. J. A. Mintz
+DATE: 2/6/76
+1 - Mr. D. W. Moore
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Gregar
+
+Assoc. Dir.
+Dep. AD Adm
+Dep. AD Jnh
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun
+Telephone Rm.
+Director Sec'y
+
+This memorandum briefly reviews the speech made on the floor of the Senate by Senator Frank Church entitled "Government Adherence to the Law: A Call for a Temporary Special Prosecutor on Intelligence Abuses." The speech (attached) received some press coverage, most of which dealt with Senator Church's proposal that a special prosecutor be designated to look into the so-called intelligence abuses.
+
+In brief, the statement by Senator Church reviews that information which was the subject of testimony by the majority and minority councils of the Senate Select Committee (SSC) before the full Committee on 11/18/75. No new so-called abuses were identified by Senator Church and the speech was merely a rehash of those activities conducted by the intelligence community over the years which the SSC now describes as abuses. Specifically, the Church statement makes reference to the following:
+
+COINTELPRO:
+
+The COINTEL Program has been the subject of extensive press inquiries and many documents have been made public under the Freedom of Information Act. It was the subject of an extensive investigation by the Department of Justice. The Bureau made all COINTEL files available for the Department's review. Its investigation culminated in a report by former Assistant Attorney General Petersen which concluded that "the overwhelming bulk of the activities carried out under the Program (COINTEL) were legitimate and proper intelligence and investigative practices and techniques."
+
+62-116395
+
+WOC:mjg
+
+(7)
+
+ENCLOSURE
+
+CONTINUED - OVER
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+DATE 11/7/76 BY SP 2 ALM/EHL
+
+84 FEB 25 1976
+
+NW 88608 DocId:32989578 Page 54

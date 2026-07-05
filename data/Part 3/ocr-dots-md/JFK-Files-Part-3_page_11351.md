@@ -1,0 +1,100 @@
+# JFK-Files-Part-3_page_11351.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 2 5 1975
+
+TELETYPE
+
+NR 004 OM CODE
+
+4:38 PM NITEL 3/25/75 BJP
+
+TO: DIRECTOR
+
+FROM: OMAHA
+
+ATTENTION: BUDGET AND ACCOUNTING SECTION
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+RE BUREAU TELETYPE TO ALL OFFICES MARCH 24, 1975.
+
+OMAHA CURRENTLY HAS SEVEN AGENTS ASSIGNED FULL TIME TO INTERNAL SECURITY MATTERS, WITH TWO AGENTS SPENDING 60 PER CENT AND TWO AGENTS SPENDING 25 PER CENT OF THEIR TIME ON IS MATTERS. ONE SUPERVISOR SPENDS APPROXIMATELY 50 PER CENT OF HIS TIME ON IS MATTERS.
+
+TWO AGENTS AND ONE SUPERVISOR SPEND APPROXIMATELY 10 PER CENT OF THEIR TIME ON COUNTERINTELLIGENCE MATTERS.
+
+END
+
+MSE FBIHQ
+
+<table>
+  <tbody>
+    <tr>
+      <td>Assoc. Dir.</td>
+    </tr>
+    <tr>
+      <td>Dep.-A.D.-Adm.</td>
+    </tr>
+    <tr>
+      <td>Dep.-A.D.-Inv.</td>
+    </tr>
+    <tr>
+      <td>Asst. Dir.:</td>
+    </tr>
+    <tr>
+      <td>Admin.</td>
+    </tr>
+    <tr>
+      <td>Comp. Syst.</td>
+    </tr>
+    <tr>
+      <td>Ext. Affairs</td>
+    </tr>
+    <tr>
+      <td>Files & Com.</td>
+    </tr>
+    <tr>
+      <td>Gen. Inv.</td>
+    </tr>
+    <tr>
+      <td>Ident.</td>
+    </tr>
+    <tr>
+      <td>Inspection</td>
+    </tr>
+    <tr>
+      <td>Intell.</td>
+    </tr>
+    <tr>
+      <td>Laboratory</td>
+    </tr>
+    <tr>
+      <td>Plan. & Eval.</td>
+    </tr>
+    <tr>
+      <td>Spec. Inv.</td>
+    </tr>
+    <tr>
+      <td>Training</td>
+    </tr>
+    <tr>
+      <td>Legal Coun.</td>
+    </tr>
+    <tr>
+      <td>Telephone Rm.</td>
+    </tr>
+    <tr>
+      <td>Director Sec'y</td>
+    </tr>
+  </tbody>
+</table>
+
+NOTE: INFORMATION CONTAINED FOR REVIEW PURPOSES ONLY.
+THIS NOTICE IS UNCLASSIFIED.
+
+DATE: 11-17-75 BY: SF 2707/176
+
+3/17A
+
+NW 88608 DocId:32989628 Page 369

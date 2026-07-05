@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_10738.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, MOBILE
+
+SUBJECT: COUNTERINTELLIGENCE PROGRAM
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS
+
+DATE: 10/12/64.
+
+Re Bureau letter to Atlanta, 9/2/64.
+
+Analysis of Potential CI Action Against Organizations and Personnel of United Klans of America, Inc., KKKK (UKA); Improved Order of the U.S. Klans, KKKK, Inc. (IOUSK); and the Alabama States Rights Party (ASRP)
+
+Files on captioned organizations have been reviewed at the Mobile Office to discover any information of the kind which would prevent a potential for effective CI action. This review of files includes the files of the organizations themselves and of individuals known to be officers and members of the organization. It is the understanding of this office that this information would consist of situations involving potential friction between individual members or between rival organizations; or would consist of information reflecting immorality, particularly sexual immorality, on the part of one or more members, possibly involving the wife or wives of other members; or consisting generally of information of a highly unfavorable or embarrassing nature pertaining to a member or group of members which would be not known, and the exposure of which could produce suitable conflicts. A minimum of such information is contained in Mobile files pertaining to Klan and States Rights Party personnel. There have been conflicts between individuals within groups and between members of different groups, but those conflicts have already matured and have already produced the division and animosity of which the situations were capable. Unlike personnel of Communist organizations,

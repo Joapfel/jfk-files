@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_11051.png
+
+Convert to MarkdownMemorandum J. B. Hotis to Mr. Dalbey
+Re: FBI AUTHORITY IN DOMESTIC
+INTELLIGENCE MATTERS
+
+In summary, it is premature to say that the First Amendment line of cases, dealing with the "chilling" concept offers any substantial impediment to our intelligence investigations. There is less reason for optimism, however, with regard to congressional intervention. We should be prepared, therefore, to meet arguments regarding the need for outside supervision.—The sound answer, which should satisfy governmental needs and individual rights, is found in tight internal controls and carefully developed guidelines.

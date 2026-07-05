@@ -1,0 +1,8 @@
+# JFK-Files-Part-3_page_11583.png
+
+Convert to MarkdownAs a result of dissemination of advance information developed
+by this source, authorities were able to further control
+these demonstrations and reduce the violence arising out of
+such activity.
+
+With reference to the complicated Weatherman investigation, much progress has been made recently in the development of information on the technical aspects of the actual operation of the Weatherman underground, particularly its use and methods of obtaining false identities, its courier system, its use of radical attorneys in covert support roles and in the movement of its support personnel. Effort is continually being made to develop new techniques and approaches to facilitate this investigation. A "stop index" program in NCIC, for Bureau use only, concerning extremists on Priority I of the Security Index was initiated in June, 1971. This program enables our field offices to receive prompt notice by teletype when police agencies make inquiries about these subjects. In addition, new procedures have recently been devised whereby the Identification Division can better disseminate to the field arrest information on Security Index subjects for whom no fingerprints are on file. This is accomplished by periodic submission by the field of Security Flash Notices to determine if fingerprints have been received since the last check.

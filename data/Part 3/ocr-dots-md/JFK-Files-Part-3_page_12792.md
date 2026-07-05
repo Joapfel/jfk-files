@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_12792.png
+
+Convert to Markdown## TO ALL REVOLUTIONARY ARTISTS
+
+I would like to take this time to express on behalf of the Black Panther Party our warmest thanks to all revolutionary artists who have given their talents and thoughts to the people through revolutionary art. We would like to say that every artist's work that has appeared in the Black Panther Newspaper this past year has been a great contribution of visual interpretation of the ideology of the Black Panther Party and of the oppressed people of the world.
+
+ALL POWER TO THE PEOPLE
+DEATH TO THE FASCIST PIGS
+Emory Douglas
+Minister of Culture
+Black Panther Party
+
+1971 YEAR OF THE YOUTH
+YOUTH MAKES THE REVOLUTION

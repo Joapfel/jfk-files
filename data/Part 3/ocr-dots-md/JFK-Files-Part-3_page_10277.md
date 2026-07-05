@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_10277.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. Adams
+
+FROM : Legal Counsel
+
+DATE: 4-10-75
+
+SUBJECT: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+In connection with our investigations of staff members for
+captioned Committee, we have developed derogatory information on two
+individuals which has been brought specifically to the attention of William Miller,
+Staff Director of the Committee, One of these involved Mrs. Diane Eloise
+LaVoy whose sister-in-law questioned her loyalty and declared she "does not
+love America." The sister-in-law said Mrs. LaVoy constantly criticized the
+U. S. Government and its policy and underlying weaknesses of our society.
+Another individual said she was highly critical of CIA activities. This information
+was pointed out to Miller on 3-25-75 when the results of the investigation were
+delivered to him, and he also was advised that the CIA would be furnished the same
+data in accordance with our agreement concerning these matters.
+
+On 3-24-75 and 3-28-75 results of the investigation concerning
+Mrs. Betty Dale Ellison were delivered to Miller and he was advised that a prior
+supervisor with eight years of training and experience in psychiatric care stated
+he felt Mrs. Ellison needs psychological examination. He termed her a troublesome
+maker and said he would have fired her if he had the authority. He described
+her definitely as a security risk due to her mental and emotional instability. It
+also was pointed out to Miller that other former supervisors described her as
+unstable when working under pressure and unable to get along with fellow employees.
+Miller was told that this information also would be furnished to CIA.
+
+On 4-2-75 Miller advised Inspector Bowers he had considered the
+matter involving Mrs. LaVoy and had discussed it with the Committee Chairman,
+and they had decided to proceed with her as a staff member since they did not feel
+the derogatory remarks by her sister-in-law were sufficiently strong enough to
+disqualify her since the remainder of the investigation was favorable.
+
+1 - Mr. Adams
+1 - Mr. Cleveland
+1 - Mr. Wannall
+1 - Mr. Mintz
+
+REC-100 1 - Mr. Cregar
+1 - Mr. Steel
+1 - Mr. Farrington
+1 - Mr. Bowers
+
+APR 22 1975
+
+DWB:kjs (10)
+
+CONTINUED - OVER
+
+APR 29 1975

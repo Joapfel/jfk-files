@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_11882.png
+
+Convert to MarkdownINSPECTION
+
+DOMESTIC INTELLIGENCE DIVISION
+
+JANUARY 8-26, 1971

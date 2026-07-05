@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11772.png
+
+Convert to MarkdownMemorandum to Mr. Tolson
+Re: Proposed Transfer of Supervisory Responsibility for Certain Cases from General Investigative Division to Domestic Intelligence Division
+
+business, civic, etc.). Threats or false reports also constitute violations within the statute and the entire discussion within this memorandum includes threats or false reports under the use of the term bombing matters. Although the Department frequently resorts to other statutes for prosecutive considerations, this appears to have no significant bearing on the question of supervisory responsibility which is directed toward the full development of the investigation to establish identity of the perpetrators of the bombing violation and evidence to support prosecution.
+
+In the vast majority of potential bombing violations that arise from the field, the Department is promptly advised and appropriate dissemination made without there being a substantial supervisory responsibility thereafter for the following of investigations because relatively few are opened by the Department for full investigation. For example, in FY 1968 there were approximately 15 bombing matter cases opened for full investigation at the Department's request whereas approximately 170 instances occurred of dissemination of initial information to the Department with no subsequent investigation requested. Of the 15 bombing matter cases opened for full investigation during FY 1968, nine were in the racial field (apparently Klan inspired), five in the foreign nationalist field and one unrelated to DID responsibility.
+
+The following guidelines are proposed for determination of supervisory responsibility in bombing matter cases that hereafter will lie with DID (all others remaining with GID). Bombing matters (including threats) wherein:
+
+1. The victim is a diplomatic or other establishment of a foreign government (such as embassy, consulate, official or quasi-official tourist agency, purchasing agency, etc.).
+
+2. It is apparent or circumstances strongly indicate that the bombing was instigated by a foreign nationalistic organization, group or coalition (such as recent series of bombings by so-called Cuban power groups), or member thereof.
+
+3. It is apparent or circumstances strongly indicate that the bombing was instigated by a subversive organization (such as Communist Party, Socialist Workers Party, or Students for a Democratic Society), or member thereof.
+
+4. It is apparent or circumstances strongly indicate that bombing was instigated by a white or black extremist group (such as Minutemen, Ku Klux Klan, Nation of Islam or Black Panthers Party), or member thereof.
+
+DETAILS CONTINUED - OVER
+J 33
+
+NW 88608 DocId:32989638 Page 247

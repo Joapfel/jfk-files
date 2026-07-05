@@ -1,0 +1,98 @@
+# JFK-Files-Part-3_page_11312.png
+
+Convert to MarkdownNRO04 KX CODE
+
+8:10 PM NITEL MARCH 25, 1975 WEH
+
+TO: DIRECTOR, FBI (ATN: BUDGET & ACCOUNTING SECTION)
+FROM: SAC, KNOXVILLE (100-00)
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+RE BUREAU TELETYPE DATED MARCH 24, 1975, CAP-
+TIONED AS ABOVE.
+
+INTERNAL SECURITY AND COUNTERINTELLIGENCE
+MATTERS ARE SUPERVISED EXCLUSIVELY ON THE ASAC'S
+DESK IN THE KNOXVILLE DIVISION. IT IS ESTIMATED
+THAT THE ASAC SPENDS APPROXIMATELY 25 PERCENT OF
+HIS TIME ON SUCH MATTERS, DIVIDED 15 PERCENT TO IN-
+TERNAL SECURITY AND 10 PERCENT TO COUNTERINTELLIGENCE.
+
+IN ADDITION, THERE ARE FIVE AGENTS WITHIN THE
+DIVISION WORKING PRIMARILY ON SECURITY MATTERS. TWO
+OF THESE AGENTS SPEND 80 PERCENT OF THEIR TIME ON IN-
+TERNAL SECURITY WORK AND 5 PERCENT OF THEIR TIME ON
+COUNTERINTELLIGENCE; ONE AGENT SPENDS 75 PERCENT ON
+INTERNAL SECURITY AND 20 PERCENT ON COUNTERINTELLIGENCE;
+ONE AGENT SPENDS 60 PERCENT ON INTERNAL SECURITY AND
+35 PERCENT ON COUNTERINTELLIGENCE; AND ONE AGENT SPENDS
+20 PERCENT ON INTERNAL SECURITY AND 75 PERCENT ON
+
+<table>
+   <tr>
+    <td>Assoc. Dir.</td>
+   </tr>
+   <tr>
+    <td>Dep.-A.D.-Ac'l</td>
+   </tr>
+   <tr>
+    <td>Dep.-A.D.-Inw.</td>
+   </tr>
+   <tr>
+    <td>Acst. Dir.:</td>
+   </tr>
+   <tr>
+    <td>Admin.</td>
+   </tr>
+   <tr>
+    <td>Comp. Staff.</td>
+   </tr>
+   <tr>
+    <td>Ext. Affairs</td>
+   </tr>
+   <tr>
+    <td>Files &amp; Rec.</td>
+   </tr>
+   <tr>
+    <td>Gen. Inv.</td>
+   </tr>
+   <tr>
+    <td>Ident</td>
+   </tr>
+   <tr>
+    <td>Inspection</td>
+   </tr>
+   <tr>
+    <td>Int'l.</td>
+   </tr>
+   <tr>
+    <td>Lab. Stcty</td>
+   </tr>
+   <tr>
+    <td>Plan. &amp; Eval.</td>
+   </tr>
+   <tr>
+    <td>Spec. Inv.</td>
+   </tr>
+   <tr>
+    <td>Training</td>
+   </tr>
+   <tr>
+    <td>Legal Coun.</td>
+   </tr>
+   <tr>
+    <td>Telephone Rm.</td>
+   </tr>
+   <tr>
+    <td>Director Sec'y</td>
+   </tr>
+  </table>
+
+ALL INFORMATION CONTAINED
+HERewith IS NOTASSISTED
+DATE: 1/17/75
+
+SP29Aln/1976
+
+NW 88608 DocId:32989628 Page 330

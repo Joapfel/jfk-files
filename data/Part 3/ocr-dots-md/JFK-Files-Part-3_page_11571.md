@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_11571.png
+
+Convert to MarkdownACCOMPLISHMENTS
+FOREIGN INFLUENCE AND PRO-CHICOM UNIT
+
+A prime responsibility of the Bureau and the intel-
+ligence community is to develop intelligence relating to efforts
+of foreign hostile governments, organizations, and individuals
+who influence, direct, or dominate the domestic subversive and
+extremist movements. There has been considerable evidence
+compiled over the years of this foreign influence. Since the
+last inspection, the following noteworthy achievements in our
+investigations relating to foreign influence have been
+accomplished:
+
+1. In March, 1971, a coalition of leftist individuals including subversives and extremists under the sponsorship of the Clergy and Laymen Concerned About Vietnam, American Friends Service Committee, and Fellowship of Reconciliation traveled to Paris where they were in contact with the North Vietnamese and other elements antagonistic to the U.S. We developed two informants to participate in this travel and as a result, identified all 170 people in attendance, their activities, contacts, and objectives. All information developed was afforded dissemination to appropriate Government agencies and we were commended by one intelligence agency for the excellent coverage.
+
+2. The World Peace Council is the leading Soviet-dominated international effort to discredit and subvert U.S. domestic and foreign policy. Upon determining the World Peace Council would hold a General Session in Budapest, Hungary, in May, 1971, an effort was made to obtain informant coverage. An informant was developed for the travel and coverage resulted in the identification of all American participants including the Communist Party, USA, delegation and the activities of these individuals at the meeting. All pertinent documents relating to the Conference were obtained, as were the contacts and activities of American subversives at the Conference. Widespread dissemination of intelligence relating to this Conference was made and both the White House and Central Intelligence Agency favorably commented on its exceptional value.
+
+3. During the past six months, the Unit has afforded specific coverage to the travel of U.S. citizens to three hostile communist countries: North Vietnam, North Korea, and Communist China. All individuals traveling to these countries during 1970 have been identified and, where pertinent, investigations have
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/18/71
+
+DR: sfw
+
+4-E
+
+NW 88608 DocId:32989638 Page 46

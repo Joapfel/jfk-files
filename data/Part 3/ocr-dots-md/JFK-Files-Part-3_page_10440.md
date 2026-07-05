@@ -1,0 +1,146 @@
+# JFK-Files-Part-3_page_10440.png
+
+Convert to Markdown5
+
+NR008 AT CODED
+
+5:44 PM URGENT MARCH 26, 1975 LAP
+
+TO: DIRECTOR, FBI
+
+FROM: ATLANTA (100-0)
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+RE BUREAU TELETYPE TO ALL SACS, MARCH 24, 1975.
+
+FOLLOWING IS BREAKDOWN OF ATLANTA AGENT PERSONNEL PRESENTLY
+WORKING ON INTERNAL SECURITY AND COUNTERINTELLIGENCE MATTERS ALSO
+INCLUDING IN THIS AREA ALL OF CLASSIFICATIONS GENERALLY REGARDED
+AS SECURITY WORK AND EXTREMIST WORK, AS WELL AS THOSE RELATING TO
+EXPLOSIVES AND INCENDIARY DEVICES:
+
+| POSITION | PER CENT OF TIME |
+|---|---|
+| 1 SAC | 5 |
+| 1 AS AC | 3 |
+| 1 SUPERVISOR | 75 |
+| 1 SUPERVISOR | 3 |
+| 3 HEADQUARTERS CITY AGENTS | 100 |
+| 4 | 90 |
+| 2 | 80 |
+| 1 | 50 |
+| 1 | 40 |
+| 2 | 20 |
+
+<table>
+   <tr>
+    <td>
+     Assoc. Dir.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Dep.-A.D.-Adm.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Dep.-A.D.-Inv.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Asst. Dir:
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Admn.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Comm. Syr t.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Comm. Syr r.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Eval.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Cun.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Rm.
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+   <tr>
+    <td>
+     Sec'y
+    </td>
+    <td>
+     —
+    </td>
+   </tr>
+  </table>
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/7/75 E15-241m1975
+
+NWW 88608 DocId:32989628 Page 277
+
+FEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 26 1975
+
+TELETYPE
+
+R-4068
+
+#m0e16
+
+NOTE: Supervisor Charlie Hoppees, Atlanta, telephonically contacted 3/27/75. He will send Nitele 3/27 breaking above out by IS & CI matters separately. DA
+
+3/20/

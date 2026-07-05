@@ -1,0 +1,129 @@
+# JFK-Files-Part-3_page_11178.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: CONGRESSIONAL COMMITTEES
+REVIEW OF FBI OPERATIONS
+
+DATE: 4-3-75
+
+The purpose of this memorandum is to recommend that all responses for the production of records, etc., received from Congressional committees be forwarded by letterhead memorandum through the Deputy Attorney General to the requesting committee, and also that in selected instances a property stamp or statement be affixed to certain documents limiting access.
+
+With the proliferation of committees in Congress looking into FBI operations, it is essential that a standard procedure for the forwarding of documents to the requesting committees be established. Inasmuch as requests such as the request of the Senate Select Committee on Intelligence Activities have been forwarded to this Bureau through the Department, it would appear logical that responses to such inquiries and all other inquiries of Congressional committees, whether they be directed to the Department and/or the Bureau, be responded to through the Department. Such a procedure not only will make all our responses consistent but will also give the Department an opportunity to review and approve documents being made available to Congress.
+
+In connection with our preparation of responses to requests of Congressional committees, it is suggested that all responses should be by letterhead memorandum, the first paragraph of which should clearly describe the specific request which is being responded to in the letterhead memorandum.
+
+In those instances where documents are of a nature that we are not desirous of unauthorized personnel, whether they be in Congress or otherwise, having access to, we should affix a property stamp. This property stamp should read as follows:
+
+APR 11 1975
+
+"This document is prepared in response to your request and is not for dissemination outside of your Committee. Its use is limited to official proceedings by your Committee and the contents may not be disclosed to unauthorized personnel without the express approval of the FBI."
+
+1 - Mr. Adams
+1 - Mr. Callahan
+1 - Mr. Jenkins
+1 - All Assistant Directors
+
+PVD:kjs (21)
+
+JUN 11 1975 RECOMMENDATIONS - OVER
+
+LEGAL COUNSEL
+
+APR 10th REC-18 62-116 3/95-66
+
+SJE 10th REC-18 62-116 3/95-66
+
+CFO 10th REC-18 62-116 3/95-66
+
+NEW FORM NO. 10
+198Y REVISED EDITION
+GSA GEN. REG. NO. 27
+
+Assoc. Dir. 
+Dep. AD Adm. 
+Dep. AD Inv.
+Asst. Dir.: 
+Admin. 
+Comp. Syst. 
+Ext. Affairs 
+Files & Com. 
+Gen. Inv. 
+Ident. 
+Inspection 
+Intell. 
+Laboratory 
+Legal Com. 
+Plan & Eval. 
+Spec. Inv. 
+Training 
+Telephone Rm. 
+Director Sec'y
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1-18-75 BY SP-2 ALM/146
+
+~~SJE 10th~~ REC-18
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN. REG. NO. 27
+
+NEW FORM NO. 10
+REVISED EDITION
+GSA GEN.

@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_11658.png
+
+Convert to MarkdownEAST-WEST EXCHANGE PROGRAM
+
+Bufile: 105-42300
+
+4-H
+
+This program originated in 1955 in an attempt to provide internal security safeguards regarding the admission of Soviet and satellite nationals. Soviet intelligence regards the visits of East-West Exchange Agreement participants as opportunities to promote intelligence activity.
+
+As a result of the 1970 Inspection revisions were made in the investigative action taken in this field. The change was made as a result of other manpower commitments. SAC Letter 70-25 provided that no investigations will be conducted of groups or individuals participating in the East-West Exchange Program in the absence of any information indicating affiliation with Soviet intelligence. Buffles are checked on all Soviet participants and where information is developed showing intelligence affiliation, cases are then opened and the field instructed to conduct necessary investigation.
+
+During the period of January-June, 1971, 982 individuals were scheduled to enter the U. S. under the provisions of this exchange program and of this number, we had information indicating Soviet intelligence affiliation on 25 of these individuals.
+
+With regard to Soviet exchange students there are currently 32 in the U. S. Based on information furnished by defector sources and investigations of Soviet students previously in the U. S., we have determined that Soviet intelligence utilizes these students in an intelligence capacity, principally as spotters. In view of this, we afford these students active investigation. We have also found that a number of these students return to the U. S. for assignment at one of the Soviet establishments and in most instances, contacts which they made while in the U. S. as students are generally reactivated. The case of Yuriy Aleksandrovich Gostintsev is an example of an individual entering the U. S. under the East-West Exchange Program as a graduate student and engaging in intelligence activities. Ironclad, our sensitive defector in place, advised that Gostintsev who entered the U. S. 5/9/71 for a period of six months to do research at three American universities was working for Dr. Martin Summerfield at a laboratory at Princeton University. According to our source, Gostintsev, on 7/2/71, turned over a portfolio of 1,000 pages to a Soviet intelligence officer who
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8/19/71
+
+JPL:tdp
+
+4-H
+
+NW 88608 DocId:32989638 Page 133

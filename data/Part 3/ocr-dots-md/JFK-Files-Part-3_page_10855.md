@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_10855.png
+
+Convert to Markdownintelligence officers assigned to these matters. It is anticipated that DOD's efforts will become more extensive.
+
+CIA estimates there are approximately 10,000 employees and dependents assigned to the diplomatic establishments and international organizations represented in this country by approximately 120 foreign nations. It can readily be seen that we would have to establish priorities and well-defined objectives in order to cope effectively with the problem presented by the vast number of persons and establishments which could be considered for clandestine coverage.
+
+Today there are approximately 40 nations in addition to the Soviet-bloc countries, whose establishments in this country we consider "target" countries for the purpose of developing live sources therein. In the absence of more precise criteria, our initial efforts in a program designed to expand our clandestine gathering of foreign intelligence, could be directed against these "target" nations.
+
+### (a) Objectives:
+
+Under a program confined to the clandestine gathering of foreign intelligence in this country, and consistent with the intelligence needs of this Government, we would have as our objectives:
+
+1. Increasing substantially the number of live sources of high quality in diplomatic establishments, trade missions, consular offices or international organizations located within the United States;
+
+2. Expanding our present technical and microphone coverage in such establishments.
+
+*(This material, which is a peculiarly sensitive foreign intelligence operation, will be covered in a briefing to be arranged by the Counsel to the President.)*
+
+NW 88608 DocID:32989629 Page 252

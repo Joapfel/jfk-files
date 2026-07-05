@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_10845.png
+
+Convert to Markdownwith the Bureau during World War II. It was during these years that an atmosphere of mistrust and lack of confidence was created.
+
+3) CIA was established as our first over-all, worldwide intelligence agency. The events and the maneuvering which led to this certainly did not bring with them a harmonious relationship.
+
+4) Unfortunately, CIA grew big and grew fast, particularly because of an unsettled atomic world and developments such as the Korean War. The Agency did not jell effectively as an organization, and with this came numerous difficulties, many of which exist to this day.
+
+5) Each organization has lacked adequate knowledge of the other's operational machinery, objectives, and "ways and means of doing things."
+
+6) An element of rivalry actually developed over the years, and this, when not tempered with prudence and sound judgment, creates unhealthy situations.
+
+7) A growing tendency on the part of CIA to expand its operational activities not originally contemplated in the formation of that agency.
+
+It can be recognized that with this background it has not been an easy matter to establish a good working relationship with CIA without frequent conflicts, and sometimes agonizing negotiations. It could be suggested that the ideal situation would be to remove CIA from the U. S. with the understanding that we would assume responsibility for any and all activity in the intelligence field. As described in another section of this report, such a move would be highly infeasible for the Bureau.
+
+It is to our credit that despite the problems of the past there have been some highly constructive developments in FBI-CIA relations, particularly as they affect activities in the U. S. Several years ago arrangements were made whereby CIA's Office of Security could conduct applicant investigations without infringing upon our jurisdiction. For several years we have been permitting CIA to interview aliens for foreign intelligence information under ground rules which have been very successful. Our liaison-

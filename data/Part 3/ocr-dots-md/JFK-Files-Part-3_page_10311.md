@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_10311.png
+
+Convert to MarkdownSECRET
+
+be stored in the Remington Rand safes. The documents in the
+Remington Rand safes can be drawn by anyone on the staff, but
+must be receipted for with the Registry Officer. The documents
+are to be read on the tables placed there for that purpose in
+the Research Section.
+
+Further control of classified documents is directed through
+the assigning of a staff employee given responsibility for the
+reproduction of documents on the xerox machine. He will con-
+trol the number of copies made on typewriters.
+
+All classified material is secured in safes at the end of
+the working day.
+
+H. Classified Waste
+
+It is estimated that one 50-pound bag of classified waste
+will be generated each week while the Committee is in session.
+Once the bag is filled with classified waste, it will be
+placed in the locked trunk of Mr. Marshall's automobile and
+taken to the Federal Reserve Building incinerator where he
+will witness destruction by burning. In the event this incin-
+erator is booked to capacity, he will take the classified waste
+and burn it at the D. C. incinerator. Should either incin-
+erator become unavailable to the Committee, Mr. Marshall was
+assured that CIA would consider assisting him in the secure
+disposition of Committee classified waste.
+
+I. Compartmented/TS Storage
+
+A room dedicated as the codeword/TS storage room is in
+the northeast corner of the auditorium. Its five walls are
+solid masonry ranging from 6" to 8" thick. A 1/8" stainless
+steel door frame is bolted to the masonry walls. A pre-
+fabricated 9 gage wire cross-patch metal frame door is attached
+to the steel frame serving as access control to the dedicated
+room. The door will be secured by lock and key once classified
+material arrives for storage. This room will be alarmed.
+
+J. Telephone
+
+The Facility has six standard telephones in the auditorium.
+Five of the telephones will be equipped with conversation
+
+- 5 -
+SECRET
+
+NW 88608 DocId:32989628 Page 148

@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_10638.png
+
+Convert to MarkdownNATIONAL STATES RIGHTS PARTY (NSRP)
+
+00:BA
+
+The NSRP in NYC is operated by WILLIAM HOFFMAN, Esq., who is a self-identified person. This is a one man organization in NYC with no membership other than HOFFMAN who utilizes P.O. Box 1243, CPO, Brooklyn, NY, as his NSRP mailing address. Because of this there are no meetings of this organization in NYC.
+
+WHITE YOUTH CORPS (WYC),
+
+00:CG
+
+No information has been developed by NY indicating the WYC exists in NY.
+
+Recommendations:
+
+In view of the above, NY has no specific recommendations at the present time. Logical persons handling above captioned and related matters are alert to captioned program, and in the event information is developed which would make some counterintelligence activity feasible, the Bureau will be advised.
+
+NY will again review the above files so that a letter will reach the Bureau on or before 1/1/65.

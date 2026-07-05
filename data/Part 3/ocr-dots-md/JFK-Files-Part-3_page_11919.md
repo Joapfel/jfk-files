@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_11919.png
+
+Convert to MarkdownWeatherman and their ilk will doubtless try to organize wider support in the broad youth culture, most of which is not presently committed to violence. By the continuation of energetic efforts to prosecute the instigators of violence, we can increase the isolation of terrorist groups and reduce their influence on youth. This objective is being forcefully pursued wherever possible. In Seattle, a group of seven violence-prone individuals with Weatherman connections were tried in November and December, 1970, on Federal ARL; Conspiracy; and Destruction of Government Property charges. A mistrial in this case was declared December 10, 1970; however, due to the defendants' misconduct in court, all seven were cited for contempt. These Seattle indictments were made possible through New Left informant coverage.
+
+The East Coast Conspiracy to Save Lives, led by the notorious Berrigan brothers, has been the subject of intensive investigation since the last inspection. This group, which is masked as a religion-oriented peace group, has actually plotted kidnaping and violence. This matter has been presented to a Federal Grand Jury with the result that six individuals, including Philip Berrigan, were indicted on January 12, 1971. Seven other individuals, including Daniel Berrigan, were named by the Grand Jury as unindicted coconspirators.
+
+Information set forth above referring to New Left extremists and the Weatherman organization also applies to work handled by the Special Investigations Unit - East.

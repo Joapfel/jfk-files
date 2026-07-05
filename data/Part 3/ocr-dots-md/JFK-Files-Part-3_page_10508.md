@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_10508.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 27 1975
+
+TELETYPE
+
+NR002 MM CODE
+
+925AM URGENT MARCH 27, 1975 JWB
+
+TO DIRECTOR
+
+FROM MIAMI 1P
+
+ATTENTION: BUDGET AND ACCOUNTING SECTION
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+RE BUREAU TELETYPE TO ALL SACS, MARCH 24, 1975.
+
+FOLLOWING ARE MIAMI OFFICE STATISTICS SHOWING PERCENTAGES
+OF TIME ASSIGNED TO COUNTERINTELLIGENCE (CI) MATTERS AND INTERNAL
+SECURITY (IS) MATTERS BY SPECIAL AGENT PERSONNEL:
+
+SACS - 0; ASACS - 0.
+
+SUPERVISORS - CI MATTERS: ONE ASSIGNED 90 PERCENT; ONE
+ASSIGNED 5 PERCENT. SI MATTERS: ONE ASSIGNED 50 PERCENT; ONE
+ASSIGNED 5 PERCENT.
+
+SPECIAL AGENTS- CI MATTERS: 15 ASSIGNED FULL TIME; TWO
+ASSIGNED 50 PERCENT; ONE ASSIGNED 40 PERCENT; ONE ASSIGNED 5
+PERCENT. IS MATTERS: TWO ASSIGNED FULL TIME; THREE ASSIGNED
+75 PERCENT; ONE ASSIGNED 60 PERCENT; ONE ASSIGNED 50 PERCENT;
+ONE ASSIGNED 30 PERCENT; FIVE ASSIGNED 10 PERCENT.
+
+END.
+
+JDR
+
+FBIHQ CLR
+
+<table><tbody><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A.D.-Inv.</td></tr><tr><td>Acst. Dir.:</td></tr><tr><td>Admin.</td></tr><tr><td>Comp. Syst.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Files & Com.</td></tr><tr><td>Gen. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>Inspection</td></tr><tr><td>Inell.</td></tr><tr><td>Laboratory</td></tr><tr><td>Plan. & Eval.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Training</td></tr><tr><td>Legal Coun.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></tbody></table>
+
+NWW 88608 DocId:32989628 Page 345

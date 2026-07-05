@@ -1,0 +1,77 @@
+# JFK-Files-Part-3_page_10421.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+1 - Legal Counsel Division
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+TO : Legal Counsel Division
+
+DATE: 4/7/75
+
+FROM : Mr. W. R. Wannall
+
+1 - Mr. A. L. Lacey, Jr.
+
+SUBJECT: U. S. SENATE SELECT COMMITTEE MATERIAL; AUTHORIZATION TO RELEASE EXHIBITS IN "INTELLIGENCE DIVISION POSITION PAPER ON JURISDICTION" DATED 2/13/75
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir.: 
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Soc'y ____
+
+The purpose of this memorandum is to advise that on 4/7/75, Mr. James Wilderotter, Executive Office Building, Washington, personally reviewed and approved each of the following exhibits from the captioned paper for release to the Select Committee:
+
+1) Exhibit A - Historical Highlights.
+
+2) Exhibit B - Confidential Memoranda: John Edgar Hoover, 8/24/36; 8/25/36; and, 9/10/36.
+
+3) Exhibit C - Presidential Directives: 6/26/39; 9/6/39; 1/8/43; 7/24/50; 12/15/53; and, 10/30/47.
+
+4) Exhibit D - The Delimitations Agreement of 2/23/49, as amended.
+
+5) Exhibit E - National Security Council Charters of the IIC and the ICIS.
+
+6) Exhibit F - National Security Action Memorandum 161, 6/9/62.
+
+7) Exhibit G - Department of Justice Memorandum dated 3/5/64, setting forth new Charter for the IIC under supervision of the Attorney General.
+
+8) Exhibit H - Preamble and Section 101 of the National Security Act of 1947.
+
+9) Exhibit L - Excerpt from former FBI Director Hoover's briefing of the National Security Council on 11/6/58.
+
+REC-23
+
+EX-110
+
+5 APR 10 1975
+
+CONTINUED - OVER
+
+ALL:vb
+
+(5)
+
+LEIGH
+
+NEW 88608 DocId:32989628 Page 258
+
+*~~MODEL CONTAINED WITHIN THIS DOCUMENT IS UNCLASSIFIED BY SP-ALM 1/8/76~~*

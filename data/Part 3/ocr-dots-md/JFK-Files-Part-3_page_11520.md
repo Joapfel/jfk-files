@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_11520.png
+
+Convert to MarkdownCOPY
+
+ROY A.TAYLOR
+11th District
+North Carolina
+
+CONGRESS OF THE UNITED STATES
+House of Representatives
+Washington, D.C. 20515
+
+January 29, 1976
+
+Mr. William H. Lawrence
+314 Swiss Pine Lake Drive
+Spring Pine, North Carolina 28777
+
+Dear Mr. Lawrence:
+
+Thank you for your recent letter, the copy of your letter to Senator Morgan and the newspaper clippings.
+
+I am not among those Members of Congress who have been criticizing the FBI and CIA. In my judgement both agencies are vitally essential. It is coincidental that you included the editorial, "Is America Going Mad" from U.S. News and World Report. This editorial made such sense to me that last week I placed a copy of it in the Congressional Record along with my own comments of agreement. Enclosed is a copy of my remarks for the Record along with a copy of a news release which I mailed to all news media in the Eleventh Congressional District.
+
+I know that Senator Morgan will read your letter very carefully and will welcome the opportunity it affords him to respond to you directly.
+
+RAT:ao
+
+Enclosure
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+
+DATE 1/17/76 BY SL22ALM/ETC
+
+ENCLOSURE
+
+62-116393-2

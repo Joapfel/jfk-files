@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_12931.png
+
+Convert to Markdown2 - Mr. J. A. Mintz
+   (Mr. J. B. Hotis)
+1 - Mr. W. R. Wannall
+
+The Attorney General
+
+June 13, 1975
+
+Director, FBI
+
+1 - Mr. W. O. Cregar
+1 - Mr. R. L. Moore
+
+UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+
+By letter dated May 14, 1975, with attached appendices, the SSC requested certain information and documents from the FBI.
+
+Enclosed for your approval and forwarding to the Committee are the original of a memorandum and enclosures which serve as a response to two of the SSC requests.
+
+A copy of the memorandum with enclosures is being furnished for your records.
+
+Enclosures (28)
+
+62-116395
+
+1 - The Deputy Attorney General
+
+Attention: K. William O'Connor
+Special Counsel for
+Intelligence Coordination
+
+RIM:mam
+
+(9)mm7
+PLM
+
+REC-102
+
+JUN 23 1975
+
+SECRET MATERIAL ATTACHED
+
+MA101 ROOM ☐ TELETYPE UNIT ☐
+
+GPO : 1975 O - 569-920
+
+NEW 888614 Reelid 37989606 Page-48

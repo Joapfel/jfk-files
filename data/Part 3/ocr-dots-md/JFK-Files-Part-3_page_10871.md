@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_10871.png
+
+Convert to MarkdownThis would permit CIA to levy requirements on us. For example, if we recruited the Third Secretary of the French Embassy, CIA might wish to ask any number of questions dealing with the French political situation. If we felt that the request was reasonable, we could handle this through our source.
+
+It will be noted that the program does not preclude CIA from development of foreign intelligence sources in the U. S. for fulfillment of CIA responsibilities. CIA will continue to operate under existing ground rules which are designed to protect Bureau interests.
+
+We believe that if the program is implemented and jells we will be in a position to "spot" sources required by CIA and other agencies to discharge their responsibilities. This would apply to cases where the target was in the U. S. for a visit or if he had some specialized knowledge not related to our internal security responsibilities. These would be targets which other agencies could handle without interfering with our operations and without making us carry a load for another agency. This particular concept should include a Bureau attitude that any and every source handled by another agency in the U. S. potentially can be useful to us. We should have an outlook that all sources should be exploited to the fullest extent and under secure conditions. If another agency has a capability to open a door we should take advantage of the situation.
+
+In those instances where CIA has a source in the United States, we should prod that agency to seek information of interest to the Bureau, and where obviously necessary we should arrange access to the CIA source. The important feature of this new concept is that we assume the role of projecting initiative, leadership and aggressiveness. Our position should be such that we push the other agencies to use their resources even to the point of healthy irritation.
+
+We have looked at CIA as the "other agency" in this picture, but we should not neglect the potential of agencies such as ACSI, Air Force, ONI and State. All of them have entree to diplomatic circles. The day-to-day contacts which officials of these agencies have with personnel of foreign governments produce many "pieces" of personality data which, when added up over a period of time,

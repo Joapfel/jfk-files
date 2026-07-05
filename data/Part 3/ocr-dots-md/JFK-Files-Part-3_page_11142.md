@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_11142.png
+
+Convert to MarkdownThe Attorney General
+
+Director, FBI
+
+UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED BY: 18/04
+
+Reference is made to the Senate Select Committee letter dated March 19, 1975, requesting certain documents from the FBI and my letter to you dated April 10, 1975, enclosing a memorandum and a copy of the "Intelligence Division Position Paper on Jurisdiction," dated February 13, 1975, less certain exhibits, for the Committee's use.
+
+The purpose of this letter is to make available for your information a copy of the aforementioned paper with all exhibits intact. The Committee's copy of the paper has missing exhibits because of "Third Agency Rule" requirements. Authority to release these exhibits is being expeditiously sought so they may be made available to the Committee.
+
+The exhibits extracted from the Committee's copy included Exhibit I, J, K, M, and P.
+
+REC-106
+
+Mr. James Wilderotter, Associate Counsel to the President, has reviewed and approved all exhibits left in the paper and has requested to review the extracted exhibits after "Third Agency Rule" approval has been granted and before the exhibits are forwarded to the Committee. This will be done at the earliest possible time.
+
+Enclosure
+
+ALL:vb
+
+(7)
+
+GPO 954-546
+
+MAIL ROOM [x] TELETYPE UNIT [ ]

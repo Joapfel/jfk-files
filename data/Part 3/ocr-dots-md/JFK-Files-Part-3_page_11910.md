@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_11910.png
+
+Convert to Markdown# ACCOMPLISHMENTS
+
+4-E
+
+SECTION CHIEF R. D. COTTER: Accomplishments of Research Section since last inspection follow.
+
+## Central Research Unit
+
+This Unit has continued to perform a wide range of research and writing assignments, preparing various documents and special reports, most of which have been disseminated outside the Bureau as well as to our field offices. These have included the following:
+
+* An extensive special assignment on New Left research for the Director.
+
+* Statement by Director for use before President's Commission on Campus Unrest.
+
+* Issues (14) of Current Intelligence Analysis (CINAL), a periodic intelligence letter summarizing significant items of interest in the security field.
+
+* Issues (9) of The Extremist Speaks, a monthly compilation which shows the extremist views of right, left, and racially-oriented groups and individuals in the United States.
+
+* Monographs (7) setting out in-depth studies of significant factors in the security-intelligence field.
+
+* A comprehensive survey concerning the potential for racial violence, four (4) special reports for the North Atlantic Treaty Organization (NATO), and miscellaneous research assignments for the Division.
+
+* In addition, a number of special studies have been prepared in response to requests from the White House. These include:
+
+    * A "Top Secret" study on domestic intelligence for the Inter-Agency Committee for Intelligence.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+1/12/71
+
+LJB:amt
+
+4-E

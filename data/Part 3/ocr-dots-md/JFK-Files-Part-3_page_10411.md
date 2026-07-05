@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_10411.png
+
+Convert to MarkdownMemorandum to Mr. Wannall dtd 3/3/75
+
+Re: SENSTUDY 75
+62-116395
+
+ADDENDUM, LEGAL COUNSEL DIVISION, 3/5/75, JH:msl
+
+In view of the direct impact on operations of the Intelligence
+Division, we feel that representatives of that Division should participate
+in and coordinate these matters. Legal Counsel will review attached
+CIA paper and will furnish representative to assist the Intelligence Division
+regarding proposals and legislative language.

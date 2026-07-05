@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_11676.png
+
+Convert to MarkdownINTERNATIONAL BLACK WORKERS CONGRESS, aka
+BLACK WORKERS CONGRESS
+
+Budfile 157-21532
+
+The International Black Workers Congress (IBWC),
+which is in its formative stages, is dominated by James
+Forman, an official in the black revolutionary Student
+National Coordinating Committee. The IBWC makes its
+headquarters in Detroit, Michigan, at the same locale as
+that of League of Revolutionary Black Workers, a black
+extremist labor union in that city.
+
+IBWC is involved in the organizing of black
+workers and students to further the revolutionary struggle
+in the United States and other parts of the world as well
+as for the purpose of building unity among all third world
+peoples. IBWC's stated objective in organizing black
+workers is to bring about a national work stoppage, thus
+severely damaging the United States economy. James Forman
+has repeatedly stressed the necessity for blacks to be
+organized to change the capitalistic system to that of a
+Marxist-Leninist society through seizure of state power.
+
+The IBWC held a regional meeting in Gary, Indiana,
+in June, 1971, at which discussions centered around organizing
+black workers into a Marxist-Leninist society and preparations
+for a drive to organize blacks employed in the steel industry
+and in the "U. S. Post Office." It was indicated that IBWC
+would receive assistance from the pro-Chinese Communist Progressive
+Labor Party (PLP) in the form of advice concerning organizing
+activities,
+
+An IBWC conference tentatively scheduled to be held
+in Detroit on August 21 - 22, 1971, has apparently been
+canceled. Indications are that the conference site has been
+shifted to Chicago, Illinois, where the conference will be
+scheduled within two weeks.
+
+It is particularly significant to note IBWC leader
+~~James Forman~~, together with other United States black extremists,
+including affiliates of the League of Revolutionary Black
+Workers, recently undertook travel abroad which was to include
+visits to North Korea, North Vietnam, the Soviet Union, and
+Algeria.

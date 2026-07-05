@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11846.png
+
+Convert to MarkdownThe Security Informant Unit would be handling 904 cases, averaging 452 cases when reduced to two supervisors. Under the new case count system, these informant cases are largely cases with mail in hand requiring attention and close supervision because of funds being involved as well as the general sensitivity of these cases. In the event of sick or annual leave, one man could not possibly keep mail current and work loads in other units would, as a practical matter, preclude use of other personnel to carry out the work. The supervisor retained would reduce the case load in the Subversive Individuals Unit to a more reasonable and practical 533 case load average and also allow for a limited degree of flexibility in the informant matters from time to time as necessary. This provides the seven men from this Branch. (This includes one man from the New Left Section, as indicated.)
+
+New Left Section: Will make one man available as recommended.
+
+Regarding reallocation of Agent personnel to top priorities regarding the Espionage Branch, the following comments are made:
+
+Extremist Intelligence Section will make two supervisors available and absorb the 559 Klan and White Hate cases with no Agent personnel. It must be borne in mind this, in effect, constitutes a net reduction of four supervisors to black extremist matters at a time when these activities are on a definite upswing. This can be lived with on a short term emergency basis and as manpower becomes available from the inevitable winddown of McLek, appropriate recommendations will be considered within the Division as to reallocation of that manpower with this in mind consistent with overall Division needs at that time.
+
+Nationalities Intelligence Section will make two men available as recommended. With regard to the two Units being reduced, it is pointed out that the Middle and South American Unit is responsible for matters

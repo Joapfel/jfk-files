@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11688.png
+
+Convert to MarkdownKEY BLACK EXTREMIST PROGRAM
+
+4-H
+
+Key Black Extremist (KBE) Program initiated 12/23/70 with Director's approval to intensify investigative coverage of selected black extremists throughout United States who are extremely active and most vocal in their calls for terrorism and violence. Ninety individuals are currently on the KBE list, including such persons as Stokely Carmichael, Huey Newton and David Hilliard.
+
+Objective of program is to develop complete and detailed information on the day-to-day activities and future plans of KBE individuals. Investigative summary report is required followed by investigative report every 90 days.
+
+All KBE individuals are included in Priority I of Security Index. Each is included in the Black Nationalist Photograph Album. All aspects of their finances are determined. Their handwriting specimens are placed in the National Security File in the Laboratory Division. Their fingerprints are included in the Black Extremist Section of the Single Fingerprint File in the Identification Division. Particular attention is paid to their travel. Possible criminal violations are vigorously pursued. Emphasis is placed on obtaining record of their inflammatory statements. High level of informant coverage on each individual is required.
+
+Supervision of KBE investigations is handled on the individual desks and additions to and deletions from KBE list must be approved by Bureau. Inasmuch as KBE individuals are of the type whose investigation would ordinarily require close supervision by Bureau supervisors, the administration and supervision of this program entails only a minimum amount of time above that which would ordinarily be expended on the supervision of the cases of these persons.
+
+Continuation of this program will be justified in December, 1971.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/18/71
+HEH:acs
+4-H
+
+151

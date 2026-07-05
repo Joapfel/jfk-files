@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_12044.png
+
+Convert to MarkdownINSPECTOR DONALD E. MOORE
+(1-24-71 CGS:EWL:DEM/djw:ekn)
+
+The comments and observations of the Inspector dealing with a "POTENTIAL DOUBLE AGENT PROGRAM" have been carefully reviewed and the following comments are responsive to the questions raised:
+
+For purposes of clarification it is important that the terminology and designations used be defined. The designation "Potential Double Agent" (PDA) is a descriptive term denoting an individual usually already approved by the Bureau as a Potential Security Informant (PSI) or as a Security Informant (SI). The approval of a PSI or SI is based on his current or potential capabilities to furnish information of intelligence or security interest. If individuals in either of these categories have an association with a Soviet-bloc official, for statistical purposes they are considered as PDA's. This labeling is incidental to their primary designation as a Bureau-approved PSI or SI, and their administrative handling at the Bureau conforms with overall Bureau policy and instructions relating to all Bureau approved sources, whether or not they are considered to be PDA's, and this designation does not alter the administrative handling of these cases.
+
+Justifications for Bureau-approved PSI's and SI's are required on a six-month basis following definitely established form. The primary purpose of this justification is administrative in nature to insure the individual involved continues to meet Bureau standards. Substantive information which may have been furnished is reported in detail in the 134 file maintained by the Office of Origin as required by Bureau regulations. This information is then reported to the Bureau under appropriate substantive captions. Normally the only occasion when substantive data received from a source appears in the informant case file is in the semi-annual justification letter in extremely abbreviated form. See Section 107K, paragraph 7, page 13, Manual of Instructions which states,
+
+"Correspondence in security informant and potential security informant matters should be strictly limited to administrative handling of informant and should not contain information more properly furnished under substantive case caption."

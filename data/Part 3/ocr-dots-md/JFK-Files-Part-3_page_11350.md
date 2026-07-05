@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11350.png
+
+Convert to Markdown# 1967年3月25日
+
+RECEIVED
+TELETYPE'D
+UNIT
+
+MAR 25 10:37AM '75
+
+62-116395-S6

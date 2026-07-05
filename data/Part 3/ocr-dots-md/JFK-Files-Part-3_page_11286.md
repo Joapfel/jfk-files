@@ -1,0 +1,101 @@
+# JFK-Files-Part-3_page_11286.png
+
+Convert to MarkdownNR 005 CV CODE
+8:25PM NITEL 3/25/75 RJB
+
+TO: DIRECTOR
+
+FROM: CLEVELAND (66-5641)
+
+CONFIDENTIAL
+
+ATTENTION: BUDGET AND ACCOUNTING SECTION
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+RE BUREAU TELETYPE TO ALL SACS, MARCH 24, 1975.
+
+CLEVELAND HAS THE FOLLOWING NUMBER OF AGENTS ASSIGNED
+TO INTERNAL SECURITY WORK: SAC NONE, ASAC NONE, SUPERVISORS
+TWO, AGENTS 20. THE FOLLOWING NUMBER ARE ASSIGNED TO COUNTER-
+INTELLIGENECE WORK: SAC NONE, ASAC NONE, SUPERVISORS ONE,
+AGENTS 16. THE THREE SUPERVISORS HANDLE SECURITY-TYPE
+MATTERS EXCLUSIVELY.
+
+CLEVELAND HAS UTILIZED PERCENTAGES OF AGENT'S TIME SPENT
+IN THESE CATEGORIES WHERE APPLICABLE, ESPECIALLY IN THE
+RESIDENT AGENCIES.
+
+GLASSIFIED BY 6020, XGDS CATEGORY 2, INDEFINITE.
+
+END
+
+HOLD FOR ONE
+TJT FBI WASH D
+
+<table>
+  <tbody>
+    <tr>
+      <td>Assoc. Dir.</td>
+    </tr>
+    <tr>
+      <td>Dep.-A.D.-Adm.</td>
+    </tr>
+    <tr>
+      <td>Dep.-A.D.-Inv.</td>
+    </tr>
+    <tr>
+      <td>Asst. Dir.:</td>
+    </tr>
+    <tr>
+      <td>Admin.</td>
+    </tr>
+    <tr>
+      <td>Comp. Syst.</td>
+    </tr>
+    <tr>
+      <td>Ext. Affairs</td>
+    </tr>
+    <tr>
+      <td>Files &amp; Com.</td>
+    </tr>
+    <tr>
+      <td>Gen. Inv.</td>
+    </tr>
+    <tr>
+      <td>Ident.</td>
+    </tr>
+    <tr>
+      <td>Incoraction</td>
+    </tr>
+    <tr>
+      <td>Intell.</td>
+    </tr>
+    <tr>
+      <td>Laboratory</td>
+    </tr>
+    <tr>
+      <td>Plan. &amp; Eval.</td>
+    </tr>
+    <tr>
+      <td>Spec. Inv.</td>
+    </tr>
+    <tr>
+      <td>Training</td>
+    </tr>
+    <tr>
+      <td>Legal Coun.</td>
+    </tr>
+    <tr>
+      <td>Telephone Rm.</td>
+    </tr>
+    <tr>
+      <td>Director Sany</td>
+    </tr>
+  </tbody>
+</table>
+
+~~MAR 25 1975~~
+TELETYPE
+
+NEW 88608 DocId:32989628 Page 304

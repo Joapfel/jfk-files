@@ -1,0 +1,73 @@
+# JFK-Files-Part-3_page_12604.png
+
+Convert to Markdown5010-106
+
+UNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. W.R. Wannall
+
+FROM : V.V. Kolombatovic
+
+SUBJECT: HENRY B. MONTAGUE
+FORMER CHIEF POSTAL INSPECTOR,
+U. S. POSTAL SERVICE
+SCHEDULED APPEARANCE BEFORE SENATE
+SELECT COMMITTEE 6/12/75
+
+1 - Mr. Adams
+1 - Mr. Mintz
+1 - Mr. D.W. Moore
+
+DATE: 6/5/75
+
+1 - Mr. Wannall
+1 - Mr. Cregar
+1 - Mr. Kolombatovic
+1 - Mr. Crescioli
+
+Assoc. Dir. _______
+Dep. Asst. Adm. _______
+Dep. AS Rev. _______
+Asst. Dir. _______
+Admin. _______
+Comp. Syst. _______
+Ext. Affairs _______
+Files & Com. _______
+Gen. Inv. _______
+Ident. _______
+Inspection _______
+Iniell. _______
+Laboratory _______
+Plan. & Eval. _______
+Spec. Inv. _______
+Training _______
+Legal Coun. _______
+Telephone Rm. _______
+Director Sec'y _______
+
+This memorandum is to advise of the scheduled appearance, under oath, of former Chief Postal Inspector Henry B. Montague before the full Senate Select Committee (SSC) in Washington, D. C., on 6/12/75.
+
+On 6/4/75 Mr. Ron L. Jackson, Assistant Chief Inspector, U. S. Postal Service, advised Liaison Agent L.A. Crescioli that he was contacted this date by Mr. Montague who informed Jackson that he, Montague, was scheduled to appear before the full SSC on Thursday, 6/12/75. According to Jackson, Mr. Montague appeared to be very concerned about his appearance before this Committee. In fact, Montague requested that Jackson alert FBI Director Kelley to the fact that Montague will appear before this Committee. Montague did not indicate any specifics to Jackson as to why he was so concerned over his scheduled testimony before the Committee.
+
+In the way of background, Montague was the Chief Postal Inspector from 1961 to the Spring of 1969, on which latter date Mr. William J. Cotter assumed the position of Chief Postal Inspector. Prior to 1961 Montague was the Inspector-in-Charge of the New York Division of the Postal Service. In the opinion of Mr. Jackson, Montague is a man of the highest integrity and most certainly is not involved in any wrongdoing. Jackson confidentially advised the Liaison Agent that it is his belief that Montague is so concerned about his appearance before the Committee because he may have to reveal certain agreements that prevailed in the past between the Bureau and the Postmaster General concerning mail covers that have not been made public to date.
+
+J-8:tdp ('-) / CONTINUED - OVER
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 0/19/75 BY SPADAM Imf
+
+62-1163.95
+
+NOT RECORDED
+
+46 JUN 17 1975
+
+84 JUN 18 1975
+
+NW 88614 Doctd:32989606 Page 211
+
+M C H I T Y
+I T A N G R O

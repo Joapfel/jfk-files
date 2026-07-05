@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_12094.png
+
+Convert to MarkdownNEW LEFT SECTION
+
+|                     | Cases | Men   | Average |
+|---------------------|-------|-------|---------|
+| Front Office       | 0     | 2     | 0       |
+| Security Informant Unit | 567* | 3     | 189     |
+| (Est.)             |       |       |         |
+| New Left Individuals Unit | 1464 | 4     | 488     |
+| New Left Groups Unit | 952  | 4     | 238     |
+| Special Investigations Unit | 2341 | 8     | 293     |
+| Sabotage           | 167  | 1     | 167     |
+|                     | ---   | ---   | ---     |
+|                     | 5491 | 22    | 275     |
+
+* 600 (Est) cases to Internal Security Section with those organizations transferred.

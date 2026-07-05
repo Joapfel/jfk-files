@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_11911.png
+
+Convert to MarkdownAn extensive brief, "Special Report, Nationwide Civil Disturbances," at the request of Vice President Agnew (revised periodically).
+
+A study, "'Stop the Bombing' Campaign: A Communist Cause," at request of President's Foreign Intelligence Advisory Board, concerning foreign influence in the 1964-68 campaign seeking a halt to U.S. bombing of North Vietnam.
+
+"Top Secret" blind memoranda (3) for a special intelligence evaluation committee on extremist and terrorist groups in the U.S.
+
+A "Secret" paper for the U.S. Intelligence Board analyzing "Racism, Radicalism, and Nationalism in the Caribbean."
+
+This Unit has also collected and prepared material for various articles, speeches, and surveys, and has prepared special memoranda for the information of Bureau officials. Personnel of this Unit have handled lectures on the subjects of communism, the New Left movement, and racial extremism. These have consisted of classified lectures to Bureau's New Agents and In-Service classes, appearances before other intelligence agencies and National Academy classes, and a number of nonclassified lectures before civic, church, and law enforcement groups. Since last inspection, a total of 42 speeches have been handled involving outside groups.
+
+## Special Records Unit
+
+Primarily responsible for records keeping, this Unit is also engaged in emergency planning. In addition, beginning in September, 1970, the Unit has prepared the Division's portion of the "Brief For Director's Use In Connection With Attorney General's Staff Conference," Thursdays, at 5 p.m.
+
+Also beginning in September, 1970, this Unit has prepared the "FBI Summary of Extremist Activities," a weekly summary of racial extremist activities, which is disseminated to the White House, top Government officials, the intelligence community, and each field office. The White House has been highly commendatory of this paper, praising the content, format, and style. The Director approved an incentive award for the Agent who prepares the summary.

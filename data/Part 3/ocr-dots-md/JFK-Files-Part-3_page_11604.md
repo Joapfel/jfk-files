@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_11604.png
+
+Convert to Markdownarrested were Bureau fugitives. We had previously identified
+the two Bureau fugitives from fingerprints from material
+submitted by them to news media in May claiming credit for the
+murders. The two Bureau fugitives, Richard Moore and
+Edward Joseph, were BPP members who were reportedly in Algeria.
+A machine gun utilized in armed robbery and in possession of
+Moore was determined to be same weapon used in machine gunning
+of two NYC police officers on 5/19/71. Moore has been indicted
+by Queens County, New York, Grand Jury for attempted murder of
+the two officers. He and Joseph remain in custody of local
+officials.
+
+Our intense investigation has in some respects
+decimated the BPP in NYC. We have kept them on the defensive
+and in hiding. Our investigation and interview program has
+resulted in developing a witness who is an associate of the
+prime suspects in this case.
+
+Based upon her testimony of acts of violence, she
+identified seven Panthers who participated in killing a Negro
+BPP leader in NYC. Of the seven, three had previously been
+arrested in the above-mentioned armed robbery 6/5/71. The
+remaining four became Bureau fugitives for Unlawful Flight
+to Avoid Prosecution for murder.
+
+On 8/7/71 a Panther informant of our Detroit Office
+under instructions to locate the four fugitives located
+Michael Dennis Hill; one of the four, who was accompanied by
+an associate. Based upon informant's report, Hill and
+Anthony Nicholas La Borde were arrested, both armed with
+firearms, and La Borde also had a live hand grenade in his
+possession. A Federal Grand Jury has indicted Hill and La Borde
+with possession of destructive device and La Borde also charged
+with harboring Hill.
+
+Hill is reportedly the "trigger man" in shooting of
+two officers on 5/19/71 and our witness has stated Hill was
+extremely upset for his failure to actually kill the officers
+and is a likely suspect in killing the two officers two nights
+later on 5/21/71. Hill is described as the "hit man" of BPP
+
+NW 88608 DocID:32989638 Page 79

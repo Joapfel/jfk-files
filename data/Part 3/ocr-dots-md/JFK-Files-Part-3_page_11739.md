@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_11739.png
+
+Convert to MarkdownSECTION CHIEF W. R. WANNALL
+NATIONALITIES INTELLIGENCE SECTION
+
+At the outset it should be noted that Western nations have been isolated from
+
+Communist China for more than twenty years. The Chinese communists (Chicoms) have established themselves officially in countries of the same or similar political persuasion and, therefore, we receive little or no data concerning the Chicoms which is relevant to our investigative responsibilities in the security field. We have been fortunate, however, to receive from Royal Canadian Mounted Police (RCMP) much data relating to their experience with the Chicoms who are now firmly officially established in Canada. The programs and methods we use or may implement in the future to deal with the Chicoms must, in some measure, be based on our prior experience in the security and intelligence fields and an analysis of the data we have received from the RCMP.
+
+Recent Developments and Appraisals Thereof
+
+Since last inspection (1/8-26/71), the following significant developments have occurred:
+
+1. The Chicom Embassy in Canada has become operational. The Embassy staff numbers 26, of whom nine (33 percent) are known or suspected intelligence officers. The significance of the aforementioned figures is obvious when we recall the report of an RCMP source who quoted the wife of an Embassy official as stating "The (Chicom) staff will necessarily be large as it will be responsible for the United States as well as Canada." In addition, RCMP has advised, based on its intensified and expanded coverage of the Chicoms, that at least 50 percent of Chicom effort in the intelligence field having a Canadian base will be directed against the United States. RCMP has confidentially advised us that the Canadian External Affairs Office is willing to allow the Chicom official staff in Canada a maximum of 60 persons. This approximates the number of individuals staffing Soviet official establishments in Canada.
+
+In appraising the above, we must heed the warning flags and prepare for a severe test of our resourcefulness. We cannot expect less than a substantial effort by the Chicoms to mount a variety of intelligence operations against this country from Canada. This situation will exist at least as long as no official Chicom establishment is located in this country.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/23/71
+
+FXO:dgo
+4-H-3
+
+J01

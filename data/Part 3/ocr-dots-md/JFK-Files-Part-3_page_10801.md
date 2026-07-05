@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_10801.png
+
+Convert to Markdownc. Director of Central Intelligence Directives
+
+To implement the National Security Act of 1947 as amended and the various National Security Council Intelligence Directives issued pursuant thereto, the Director of Central Intelligence has issued numerous Directives (DCID's). The first of these having a direct bearing on jurisdictional matters is DCID No. 2/3, captioned "Domestic Exploitation of Nongovernmental Organizations and Individuals." NSCID No. 2, paragraph 7, states that CIA shall be responsible for the selective exploitation within the U. S. of such organizations and individuals as sources of foreign intelligence information. We, therefore, have avoided, and should avoid, any operations among nongovernmental organizations and individuals designed solely to produce foreign intelligence without CIA prior approval or nullification of these provisions.
+
+DCID No. 2/3 provides for exploitation of nongovernmental U. S. citizens by CIA domestic field offices and states, "In cases where the Federal Bureau of Investigation has indicated an operational interest in a U. S. citizen, Central Intelligence Agency will coordinate with that agency prior to further contact."
+
+This DCID also provides for exploitation by CIA domestic field offices of aliens, following a prior name check with FBI so our statutory obligations may be properly met without CIA interference.
+
+It is of possible interest to note that in dealing with these two matters, DCID No. 2/3 refers to nongovernmental U. S. citizens but only to aliens (without the restrictive adjective). The NSCID on which it is based refers to nongovernmental individuals without distinguishing between citizens and aliens. Thus, there appears to have been an intention to confine CIA's intelligence exploitation functions within the U. S. A review of our file on CIA (62-80750) indicates this might well have been a concession to the Bureau since we went on record opposing delegation of any intelligence collection functions within the U. S. to CIA in letters to Lieutenant General Hoyt S. Vandenberg (then Director of Central Intelligence Group) on June 25, 1946, (Serial 96), August 6, 1946, (Serial 138), and August 23, 1946, (Serial 222), which have been discussed more fully under the heading "National Intelligence Authority."

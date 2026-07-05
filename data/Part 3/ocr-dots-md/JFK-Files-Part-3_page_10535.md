@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_10535.png
+
+Convert to MarkdownTHE FOLLOWING REPRESENTS SAS IN RAS:
+
+|       | IS   | CI   |
+| :---- | :--- | :--- |
+| 1 SA  | 5    |      |
+| 1 SA  | 45   | 45   |
+| 1 SA  | 2    | 2    |
+| 1 SA  | 50   | 25   |
+| 1 SA  | 30   | 10   |
+| 1 SA  | 75   | 20   |
+| 1 SA  | 5    | 70   |
+| 1 SA  | 2    | 5    |
+| 1 SA  | 70   | 30   |
+| 1 SA  |      | 10   |
+| 1 SA  | 5    | 10   |
+| 1 SA  | 55   | 15   |
+| 1 SA  | 5    | 1    |
+| 1 SA  | 1    | 5    |
+| 1 SA  | 35   | 50   |
+| 1 SA  | 5    | 3    |
+
+IN SUMMARY, 16 RAS AVERAGED 24 IS, AND 19 CI.
+
+END
+
+KAC FBIHQ CLR
+
+NW 88608 DocId:32989628 Page 372

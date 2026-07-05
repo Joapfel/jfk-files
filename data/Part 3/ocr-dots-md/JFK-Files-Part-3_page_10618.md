@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_10618.png
+
+Convert to Markdownby from one to five members of each of the three klaverns and are well covered by informants. The State Grand-Dragon-BILL-WILLIAMS has continually cautioned members against violence and any type of illegal activities.
+
+None of the klaverns have engaged in violence.
+
+# 1. LITTLE ROCK KLAVERN
+
+Of the four members, who attend weekly meetings (JOE J./FARMER), who is considered the head of this small group, draws a pension from the Federal Government and, according to informants, is afraid to engage in any illegal activity or to let his name be used in connection with the klan for fear of losing his pension. The two informants maintain the full confidence of the other two members. In recent months the klavern ran a series of small ads in a Little Rock daily newspaper in an effort to renew interest and gain new members. The klavern received a number of responses, but no action whatsoever has been taken by the klavern to take in any new members. The klavern has no organized activity other than the weekly meetings described by informants as being "bull sessions" with the principal topic being politics.
+
+No recommendation for counterintelligence is being made concerning the Little Rock Klavern.
+
+# 2. TEXARKANA KLAVERN
+
+This klavern has not held any klavern meetings as such in several months, and it appears that the principal reason for the lack of meetings was the inter-view of members and leaders concerning the assassination of President KENNEDY. Klavern representatives regularly attend state meetings, one reason being that State-Grand-Dragon BILL WILLIAMS, who officiates at state meetings, is a member of the Texarkana Klavern. Of the five or six members who from time to time attend state meetings, two are informants. On 10/1/64 advised that the Grand Dragon had stated that hereafter Texarkana Klavern members will meet with the Bivins -ildare, Texas, Klavern of the AAK.

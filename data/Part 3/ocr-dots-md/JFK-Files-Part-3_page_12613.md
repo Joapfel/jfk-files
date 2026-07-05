@@ -1,0 +1,63 @@
+# JFK-Files-Part-3_page_12613.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+1 - Mr. J. B. Adams
+1 - Mr. W. V. Cleveland
+
+TO :MR. W. R. WANNALL
+
+FROM : MR. W. O. CREGAR
+
+SUBJECT: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+HOUSE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+DATE: June 3, 1975
+2 - Mr. J. A. Mintz
+(J. B. Hotis)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+1 - Mr. L. F. Schwartz
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD Inv. ____
+Asst. Dir. ____
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Intell. 1
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legg.-Court. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+MEMORANDUM W. R. WANNALL TO M. J. A. MENTZ 4/11/75
+
+recommended that a draft of the proposed Memorandum of Understanding concerning clearance procedures for Staff Members of the captioned Committees be coordinated with Central Intelligence Agency (CIA) and other appropriate members of the intelligence community.
+
+On 6/2/75 the draft Memorandum of Understanding was discussed by SA L. F. Schwartz with Mr. John M. Clarke, Associate Deputy, Intelligence Community Staff, and Mr. Donald E. Moore, Chairman, Security Committee, U. S. Intelligence Board, who advised that the draft had been reviewed by CIA and by the Security Committee on behalf of the intelligence community. They requested that the draft be revised in order to recognize the need for certain Staff Members to be cleared for access to compartmented information (a procedure already being followed by the Church Committee) and the desire of the Director of Central Intelligence (DCI) that it be made clear that the DCI will only offer his advice upon the request of the Committee Chairman and that in all cases the final determination as to clearance is the responsibility of the Committee Chairman.
+
+Attached is a revised draft of the Memorandum of Understanding incorporating the changes proposed by Mr. Clarke and Mr. Moore which changes are underscored. Both Mr. Clarke and Mr. Moore were of the opinion that since Senator Church's Committee was already following the procedures outlined in the Memorandum of Understanding, and had completed the Committee Staff, it would be inappropriate to furnish a copy of the Memorandum of Understanding to Senator Church.
+
+62-116395
+Enclosures
+
+JUN 18 1975
+
+(8) HEREIN IS UNCLASSIFIED
+
+CONTINUED - OVER
+
+84 JUN 18 1975
+
+NW 88614 DocId:32989606 Page 220

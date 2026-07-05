@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_11594.png
+
+Convert to Markdown# ACCOMPLISHMENTS
+
+4-E
+
+Section Chief W. A. Branigan
+Espionage Section
+
+The primary mission of this Section involves counterintelligence operations against Soviet-Bloc Intelligence Services (SBIS). Counterintelligence, by definition and in practice, is a reaction to initiative displayed by a hostile intelligence service. This factor largely inhibits bold and aggressive initiatives on our part and the major part of our efforts is spent in routine, programmatic, non-remunerative work and patient, painstaking analysis of information developed. Positive counterintelligence achievement in the final analysis depends on the ability to detect and exploit in a timely fashion circumstances which arise naturally--contriving, to the extent this is feasible, to anticipate, encourage, or modify circumstances to our own advantage or the disadvantage of the SBIS.
+
+In this perspective, the accomplishments listed below are most noteworthy. These are highlighted by the current operation of four defectors-in-place and the identification of three "illegal" agents since the last inspection. From both a quantitative and qualitative viewpoint, these successes represent an extremely high level of accomplishment in these two vital areas.
+
+In keeping with the Inspector's instructions, brevity will be stressed in the examples portrayed. Security and the "need-to-know" principle also requires limitation of detailed information on many cases discussed. These matters, however, are identified sufficiently so that any additional data desired may be obtained from the individual file. Accomplishments cited are restricted to the most significant and/or representative.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/19/71
+
+FWL:pdr
+
+4-E
+
+57

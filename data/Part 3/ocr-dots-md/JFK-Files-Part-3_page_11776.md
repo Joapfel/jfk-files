@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_11776.png
+
+Convert to MarkdownADDENDUM
+
+INSPECTOR E. S. MILLER:
+(ESM:wmj 8/23/71)
+
+For the information of General Investigative Division, by separate write-up
+Domestic Intelligence Division (DID)
+was advised that Assistant to the Director Sullivan has suggested that DID be
+divided into two separate Divisions. In order that suggestion could be analyzed
+during current inspection, DID was requested to furnish certain observations
+regarding suggestion. Among these, Division was asked "In the event you feel
+work now being handled by another Division should be realigned in the event
+above suggestion adopted, so indicate under appropriate new Division."
+
+DID responded, "It will be noted that supervision of antiriot and bombing cases currently in General Investigative Division has been included in table of organization of proposed Domestic Intelligence Division and specifically assigned to the Extremist Intelligence Section. Four Agents and two clerks are now assigned to this Unit in the General Investigative Division and should, of course, be transferred to the new Division.
+
+"This is the most logical move and will afford tighter and more effective supervision of antiriot and bombing violations in view of fact that extremists and terrorists mostly involved are being actively investigated by Domestic Intelligence Division (DID). Accordingly, in addition to avoiding duplicative supervisory action, it follows that DID is better prepared to handle these criminal investigations and final prosecutive actions."
+
+A separate white write-up captioned "Anti-Riot Laws and Bombing Matters" was prepared and DID asked specifically to comment regarding these matters.
+This addendum is part of that write-up.
+
+You are requested to furnish your views of Mr. Sullivan's suggestion both as to the present structure of DID and as to the handling in the event DID is split. For your information, DID has proposed ARL and Bombing Matters be handled in the Extremist Intelligence Section.
+
+Comments of Assistant Director Rosen requested. It would be appreciated if you would expedite this request.

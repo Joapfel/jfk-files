@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10784.png
+
+Convert to Markdown(d) On May 9, 1934, President Roosevelt called a White House conference attended by the Attorney General, Secretary of Treasury, Secretary of Labor, Director of FBI and Chief of United States Secret Service to deal with the problem of growth of fascist organizations in the United States. The conference agreed that there should be an investigation of these groups and their activities for intelligence purposes. Since the only Federal law believed applicable at the time was the Immigration Law, the President decided that the Commissioner of Immigration and Naturalization Service would confer with the Chief of Secret Service and the Director of the FBI to work out details of the investigation.
+
+Mr. Hoover immediately issued orders to FBI personnel to conduct an intensive and confidential investigation of the Nazi movement. This was the first general intelligence investigation made by the Government into fascist activities in this country.
+
+(e) As a result of President Franklin Roosevelt's concern over activities of the communists and other subversive groups, a series of conferences was held in the latter part of August and early September, 1936, participated in by the President, the Secretary of State and the Director of the FBI. As a result of his concern over the international character of communism and fascism, the President stated the FBI should conduct necessary investigations and coordinate information upon these matters in the possession of the Military Intelligence Division, the Naval Intelligence Division and the State Department.
+
+It is noteworthy that it was specified the investigation was to be for intelligence purposes only.
+
+The Presidential Order was implemented by the Director in a letter to all Special Agents in Charge, September 5, 1936.
+
+(f) As a result of opposition primarily by the State Department against accepting the FBI as the coordinating agency in the investigations of all subversive activities in the United States, President Roosevelt, on June 26, 1939, issued a confidential directive to Cabinet members which established an Interdepartmental Intelligence Coordinating Committee composed of the FBI and the Intelligence Divisions of the War Department and the Navy. He named the FBI as the coordinating agency to receive all reports on subversive activities.

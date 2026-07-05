@@ -1,0 +1,58 @@
+# JFK-Files-Part-3_page_11426.png
+
+Convert to MarkdownFRANK CHURCH, IDAHO, CHAIRMAN
+JOHN G. TOWER, TEXAS, VICE CHAIRMAN
+
+PHILIP A. HART, MICH.
+WALTER F. MONDALE, MINN.
+WALTER D. HUDDLESTON, KY.
+ROBERT MORGAN, N.C.
+GARY HART, COLO.
+
+HOWARD H. BAKER, JR., ENN.
+BARRY GOLDWATER, ARIZ.
+CHARLES MCC. MATHIAS, JR., MD.
+RICHARD S. SCHWEIKER, PA.
+
+WILLIAM G. MILLER, STAFF DIRECTOR
+FREDERICK A. O. SCHWARZ, JR., CHIEF COUNSEL
+CURTIS R. SMOTHERS, MINORITY COUNSEL
+
+United States Senate
+
+SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+(PURSUANT TO S. RES. 21, 94TH CONGRESS)
+
+WASHINGTON, D.C. 20510
+
+February 19, 1976
+
+Michael E. Shaheen, Jr., Esq.
+Special Counsel for Intelligence Coordination
+Office of the Deputy Attorney General
+U. S. Department of Justice
+Washington, D. C. 20530
+
+Dear Mike:
+
+The Select Committee requests delivery of certain materials pertaining to the Secret Army Organization and the role of an FBI informant therein, which materials have been identified to the FBI by Mr. Sam Bouchard of the Committee staff.
+
+ALL FBI INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/8/90 BY SP 2 ALM/EHL
+
+MDR 16
+
+ENCL.
+
+RECEIVED
+FEB 19 1976
+
+62-116395-1403
+
+ENCLOSURE
+
+NW 88608 DocId:32989578 Page 4

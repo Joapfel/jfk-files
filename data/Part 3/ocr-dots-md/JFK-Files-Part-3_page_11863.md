@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_11863.png
+
+Convert to Markdowngiven to the initial and continuing costs and redesigning the source information
+card (FD 348). The security of this information must be considered as
+data concerning informant matters is highly sensitive.
+
+Comments of Unit Chief Grigalus; Section Chiefs Gray,
+Shackelford, G. C. Moore, Branigan, and Wannall; and Assistant Director
+Brennan are requested.

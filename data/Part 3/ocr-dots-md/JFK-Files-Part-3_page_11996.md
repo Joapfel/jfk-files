@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_11996.png
+
+Convert to Markdown# COUNTERINTELLIGENCE OPERATIONS AGAINST CHINESE COMMUNIST INTELLIGENCE ACTIVITIES IN THE UNITED STATES (CHICOIN)
+
+(Bufile 105-135614)
+
+SECTION CHIEF W. R. WANNALL
+
+NATIONALITIES INTELLIGENCE SECTION
+
+## 1. Background and Date of Inception
+
+Chinese Communist (Chicom) intelligence service, lacking base from which to operate in United States, must rely on illegal and third-country operations to develop intelligence data in U. S. Chicom was instituted in May, 1965, to combat these efforts.
+
+## 2. Scope and Desired Objectives
+
+To create situations and place our informants in contact with known Chicom agents in foreign countries, with ultimate aim being Chicom recruitment of our assets for illegal operation within U. S., resulting in penetration of Chicom intelligence activities inside our borders.
+
+## 3. Positive Results Achieved Since Last Inspection
+
+In August, 1970, we directed Los Angeles informant, code name DINA, to travel to Canada to initiate contact with representatives of New China News Agency (NCNA) who are known Chicom intelligence agents. Source succeeded in making such contact and arousing interest of NCNA personnel. As bonus, source also encountered a double agent (code name ICED TEA) operated by Royal Canadian Mounted Police (RCMP) who has assignment from NCNA principal to recruit illegal agent in U. S., and who now intends to propose recruitment of DINA to Chicom.
+
+Seattle source, code name JUDD, has developed close association with key Chicom sympathizer in Vancouver, British Columbia, Canada, and during period was invited to visit two Chicom ships in port at Vancouver. Source also made trip to
+
+JRH:dgo
+1/12/71
+4-H

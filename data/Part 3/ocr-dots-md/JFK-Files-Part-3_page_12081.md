@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_12081.png
+
+Convert to Markdown(1) All positions were occupied as of close of business 1/8/71, although one resignation was pending (described in item 2 below).
+
+(2) Miss Agnes M. Klima, Clerk-Stenographer, GS-4, assigned to Stenographic Pool, submitted her resignation effective 1/14/71 and acknowledgement of same was dated 1/6/71. This stenographic position was approved to be filled by assigning a GS-4 Clerk (Miss Barbara A. Hatcher) who had passed the stenographic test and request for replacement for Miss Hatcher dated 1/8/71 was submitted. Miss Hatcher actually was transferred to the stenographic position in the pool as of beginning of business 1/11/71 when her replacement, Miss Cheryl D. Carpenter, reported to this Section for assignment.
+
+(3) There was no shortage or overage of authorized personnel as of close of business 1/8/71.
+
+(4) Authorized clerical personnel complement is considered adequate but not excessive.
+
+(5) As result of last inspection authorized Agent complement was reduced from 17 to 15. This manpower savings was effected by discontinuing two programs and streamlining a third one. Supporting memoranda in this regard have been submitted as attachments to yellow write-up 5-A-4on Section and Unit Analysis dated 1/12/71.
+
+Memorandum to All Bureau Officials and Supervisors 70-13 dated 7/29/70 noted that the Liaison Section of Domestic Intelligence Division was being abolished effective immediately. This resulted in a cut-back of one Section Chief plus eight supervisory Special Agents who were engaged in domestic liaison functions. Calls from other U. S. agencies formerly handled by these nine men are now handled by Agent personnel throughout the Bureau who are principally concerned with the subject matter of the call. By far, the majority of such calls are handled by Agent personnel presently assigned to Nationalities Intelligence Section. In addition, representatives of other agencies who were contacted in their offices prior to discontinuance of Liaison Section frequently call at Domestic Intelligence Division for consultation. Arrangements were made for couriers representing certain other sensitive agencies, such as National Security Agency and Central Intelligence Agency, to call at Domestic Intelligence Division for the purpose of delivering or receiving mail requiring protective services of armed couriers.

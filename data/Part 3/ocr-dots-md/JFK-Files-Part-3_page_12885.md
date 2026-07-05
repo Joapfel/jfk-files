@@ -1,0 +1,136 @@
+# JFK-Files-Part-3_page_12885.png
+
+Convert to MarkdownMay 21, 1975
+
+The following represents the writer's recollection
+of testimony given this date before the Senate Select Committee
+(SSC) pursuant to subpoena. The session commenced at 10 a.m.
+former
+5/21/75 in Room 607, Caroll Arms Hotel. . Present was Senator
+Robert Morgan (North Carolina); Lester B. Seidel, Staff Member;
+Mr. Jack Smith, Staff Member; Mr. John Bailey, Assistant
+Minority Counsel, and a male reporter. Senator Morgan placed
+the writer under oath. Approximately four or five minutes later
+Senator Morgan excused himself with a general statement to
+the effect he had other pressing matters. The entire proceedings
+with only two exceptions were conducted by Lester B. Seidel.
+
+Seidel explained the writer was entitled to counsel,
+had the privilege of invoking provisions of the Fifth Amendment,
+and would have the privilege of making an opening and closing
+statement. Seidel inquired whether the writer understood his
+rights and the Committee's rules and regulations, a copy of
+which he had made available.
+
+The writer acknowledged receipt of the Committee's
+rules and regulations as furnished by Seidel at 9:31 a.m.
+5/21/75. He also acknowledged he had been informed of the right
+to counsel but inasmuch as this Committee was not understood
+
+ENCLOSURE
+
+NW 88614 DocId:32989606 Page 2-16
+
+GHIJKL MNO P Q R S T U V W X Y Z
+
+ZhiHui
+
+Coordinating
+
+G-H-I-J-K-L-M-N-P-Q-R-S-T-U-V-W-X-Y-Z
+
+GHIJKL HUO O CONGRATULATIONS
+
+S E P T E M B E R 6
+
+A 6
+
+ELIMINATED
+
+E.L.H.M.F
+
+BY : ALAN F. SIMON
+
+DATE : 10/19/75
+
+FOR THE COMMITTEE OF THE SENATE ON COMMITTEES
+
+GILL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE : 10/19/75 BY
+
+COMMITTEE ON CIVIL RIGHTS
+
+EXFREE INFORMATION CONTAINED
+PLEASE CONTACT THE COMMITTEE IF YOU ARE ABLE TO PROVIDE ADDITIONAL MATERIAL TO BE INCLUDED IN THE COMMITTEE'S RECORDS.
+
+CONFIDENTIAL
+
+UNCLASSIFIED
+
+62-116395-2645
+
+# Alan G. Sentinella
+
+# The following represents the writer's recollection of testimony given this date before the Senate Select Committee (SSC) pursuant to subpoena. The session commenced at 10 a.m. former 5/21/75 in Room 607, Caroll Arms Hotel. . Present was Senator Robert Morgan (North Carolina); Lester B. Seidel, Staff Member; Mr. Jack Smith, Staff Member; Mr. John Bailey, Assistant Minority Counsel, and a male reporter. Senator Morgan placed the writer under oath. Approximately four or five minutes later Senator Morgan excused himself with a general statement to the effect he had other pressing matters. The entire proceedings with only two exceptions were conducted by Lester B. Seidel.
+
+SEIDEL
+
+Coordinating
+
+G-H-I-J-K-L-M-N-P-Q-R-S-T-U-V-W-X-Y-Z
+
+ZhiHui
+
+Coordinating
+
+G-H-I-J-K-L-M-N-P-Q-R-S-T-U-V-W-X-Y-Z
+
+Gill Information contained herein is unclassified
+DATE : 10/19/75 BY : ALAN F. SIMON
+
+Enclosure
+
+62-116395-2645
+
+EXFREE INFORMATION CONTAINED
+PLEASE CONTACT THE COMMITTEE IF YOU ARE ABLE TO PROVIDE ADDITIONAL MATERIAL TO BE INCLUDED IN THE COMMITTEE'S RECORDS.
+
+CONFIDENTIAL
+
+UNCLASSIFIED
+
+EXFREE INFORMATION CONTAINED
+PLEASE CONTACT THE COMMITTEE IF YOU ARE ABLE TO PROVIDE ADDITIONAL MATERIAL TO BE INCLUDED IN THE COMMITTEE'S RECORDS.
+
+Dated: 10/19/75
+
+By: ALAN F. SIMON
+
+EXCLOSURE
+
+62-116395-2645
+
+EXCLOSURE
+
+62-116395-2645
+
+EXCLOSURE
+
+62-116395-2645
+
+EXCLOSURE
+
+62-116395-2645
+
+EXCLOSURE
+
+62-116395-2645
+
+EXCLOSURE
+
+62-116395-2645
+
+EXCLOSURE
+
+62-116395-26

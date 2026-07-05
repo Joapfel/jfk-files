@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_11622.png
+
+Convert to MarkdownIn view of the sensitivity of these particular
+operations, it is suggested that I or my Number One Man
+be consulted for details.
+
+Investigation of Unauthorized Disclosure of
+Classified Information to "The New York Times:
+by Daniel Ellsberg
+
+On June 15, 1971, the Attorney General requested
+the FBI conduct all necessary investigation into the
+publication of classified information by "The New York
+Times." Our continuing investigation on a "special" basis
+into this matter has, from its inception, identified
+Daniel Ellsberg, Senior Research Associate, Center of
+International Studies, Massachusetts Institute of
+Technology, Cambridge, Massachusetts, as being the principal
+suspect in this matter. Investigation has revealed that
+Ellsberg had access to the material involved while employed
+at Rand Corporation, Santa Monica, California; reproduced
+classified documents in Los Angeles, California, in
+October, 1969; and subsequently made copies of this material
+available to various members of Congress who failed to make
+the data public. Strong circumstantial evidence has been
+developed indicating that in March, 1971, he made copies
+of the information available to representatives of "The New
+York Times" for reproduction.
+
+On June 28, 1971, a Federal Grand Jury at
+Los Angeles returned a two-count indictment charging Ellsberg
+with violation of Section 793 (E) of the Espionage Statute
+in that he unlawfully retained classified documents and
+failed to deliver them to appropriate Government officials.
+He was also charged with violation of Section 641 of the
+Theft of Government Property Statute in that he converted
+to his own use certain documents having a value of excess
+of $100.
+
+Investigation revealed that Anthony Russo, former
+employee at Rand Corporation and associate of Ellsberg,
+assisted Ellsberg in the reproduction of documents in
+October, 1969. He was immunized from prosecution and
+
+N\!W \*8608 :Doc\#:32989638 P\!ag\# e97

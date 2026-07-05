@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_11865.png
+
+Convert to MarkdownSUGGESTION MEMORANDUM
+
+SUPERVISION AND CONTROL OF SECURITY INFORMANT
+DEVELOPMENT AND COVERAGE BY INTERNAL SECURITY
+AND NEW LEFT SECTIONS
+
+INSPECTOR E. S. MILLER:
+
+At the time of the last inspection a suggestion was submitted (pages 227 - 233) pointing out advantages in implementation of a program in this area of operation which would make our approach to both above types of informants and Extremist (Racial) informants uniform. You agreed to implement for one year; however, your subsequent efforts to initiate the program were lost in a "security of transmitting problem."
+
+Your Extremist Intelligence Section solved the same problem by having the field send their informant reports to the Bureau by secure teletype and it is understood that method of handling is satisfactory. The overall Extremist Informant Program also appears productive.
+
+It is recommended that you again favorably consider the prior suggestion and tailor implementation after its counterpart in the Extremist Section. Administration of such a program should be more efficiently handled now since you have reinstituted handling of these informants by a Security Informant Unit.
+
+Comments of Assistant Director Brennan requested.
+
+ASSISTANT DIRECTOR C. D. BRENNAN:
+(JAS:cb - 8/27/71)
+
+This suggestion will be favorably considered. A careful analysis will be conducted to tailor the suggestion to the needs of the Sections affected, keeping uniformity in mind. This matter will be closely followed by me.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/26/71
+
+ESM:wmj

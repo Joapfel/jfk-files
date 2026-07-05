@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_10740.png
+
+Convert to Markdownand, in fact, the current program of the Mobile Office is to intensify and make more extensive the informant coverage of pertinent organizations. These informants will be particularly alert for personal information of the kind which might be suitable for the institution of CI action in the future, and such information will be diligently sought by Agents conducting investigation concerning these organizations and individuals. Mobile will also continue to be alert for any opportunity to utilize the system which has been effective in the past, that of cooperating with local law enforcement to take the kind of action which discourages unlawful action on the part of the Klan groups.
+
+Recommendation
+
+The Mobile Office has no recommendation for any logical immediate CI action at this time.
+
+Action Groups :
+
+Mobile racial informants have furnished the identities of most individuals within the UKA and ASRP who are considered the most likely to commit acts of violence or intimidation. Most of these persons have been under investigation for some time, and in many instances Summary Report have been furnished to the Bureau pertaining to them. In each of the instances of bombings in the vicinity of Montgomery, Ala., including the bombings in Mississippi in recent weeks, Agents have interviewed neighbors and employers of these individuals and have made visual checks, particularly late at night, in efforts to ascertain whether or not the persons themselves were home or whether or not their automobiles were parked at their residences. In many cases, and probably in most cases, these Klan personnel become aware of these inquiries and on several situations it is known that they observed Agents checking their cars and observing their residences at night. These persons are therefore under the impression that Bureau Agents have them under virtually constant surveillance. They remarked to each other in the presence of informants on occasion that they feel that their telephones are tapped and they have also expressed the fear that their meeting places are subjected to microphone devices. It is believed that this fear of their part constitutes a very effective deterrent, and may very well be a principal reason for their failure to take any unlawful measures in connection with the racial

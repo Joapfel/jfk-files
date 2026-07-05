@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_11556.png
+
+Convert to Markdownassists in preparation of daily summary memorandum; and assists in prepara-
+tion of weekly White House summary.
+
+H. J. Morgan, as case Agent, has primary responsibility for
+supervision of SALT Lek case; reviews all incoming correspondence and
+sets out pertinent leads relative to SALT Lek; assists in preparation of daily
+memorandum summarizing investigation in all three major leak cases afore-
+mentioned; assists in review of daily teletype traffic in all three major leak
+cases; review of dissemination of weekly reports in SALT Lek; assists in
+preparation of White House summary.
+
+L. E. Belanger handles all ELSUR checks; reviews, correlates
+and conducts necessary research relative to all material received from
+Department of Defense in Ellsberg investigation; responsible for backup file
+reviews in connection with New Left contacts by Ellsberg; assists in preparation
+of weekly White House memorandum; assists in preparation of daily summary
+memorandum.
+
+T. J. Seabaugh assigned exclusively to a comprehensive study,
+charting and research into extensive travel performed by Daniel Ellsberg;
+responsible for setting out leads to insure complete coverage of all details
+of travel facets of investigation.
+
+J. P. Benedict responsible for extensive file reviews regarding numerous news media personnel and personalities involved in Ellsberg investigation to ascertain their susceptibility to interview as cooperative sources; conducting extensive research and charting of the considerable telephone traffic involved in this matter, including traffic from Daniel Ellsberg, Anthony Russo, the Sheehans, "The New York Times," the Washington bureaus of all newspapers involved, traffic from various hotels utilized by Ellsberg and his contacts, and all other individuals whose telephone traffic has been subpoenaed as a result of Departmental action via Grand Jury subpoena.
+
+W. W. Hamilton assists in preparation of daily summary memo-
+randum; responsible for review and appropriate preparation of all summary
+teletypes for dissemination to Department of Justice; file reviews on the
+numerous news personalities being considered for interviews as potential
+cooperative sources in the Ellsberg investigation; handling of correspondence
+connected with leads obtained from daily teletypes; assists in preparation of
+White House summary.

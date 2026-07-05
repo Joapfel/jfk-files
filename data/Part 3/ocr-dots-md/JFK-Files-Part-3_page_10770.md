@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_10770.png
+
+Convert to Markdown| NAME | TITLE | GRADE | SALARY |
+|---|---|---|---|
+| Joseph G. Deegan | Special Agent | GS-13 | $13,26513,755 |
+| Frederick H. Freund, Jr. | Special Agent (A) | GS-14 | 15,415 16,130 |
+| Louis A. Giovanetti | Special Agent | GS-14 | 14,515 15,150 |
+| Charles A. Parkis, Jr. | Special Agent (A) | GS-14 | 14,515 15,150 |
+| Joseph C. Trainor | Special Agent | GS-14 | 15,415 16,130 |
+| Mary A. Cammann | Clerk-Stenographer | GS-5 | 4690 5000 |
+| Kathryn T. Chernitsky | Clerk-Stenographer | GS-A/5 | 42154480 5000 |
+| Sue E. Waller | Clerk-Stenographer | GS-5 | 4690 5000 |
+| Carol Ann Hancock | Clerk | GS-4 | 47755080 |
+| Wilbur Lane Perkins | Clerk | GS-4 | 4915 5230 |
+
+NW.88608 DocId:32989629 Page 167

@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_11509.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+(1) The type of material upon which FBI bases its assessment of potential for terrorist violence.
+
+(2) Investigative techniques and intelligence gathering activities utilized by the Bureau to collect material upon which above assessments are based.
+
+(3) Examples whereby Bureau intelligence investigations in the past have been responsible for uncovering information subsequently used by this Bureau to prevent violence.
+
+(4) Ultimate threat, as compared to the immediate threat, which basic revolutionary organizations pose to the security of this country.*
+
+Elliff offered that none of the above areas have been prejudged by SSC Members and stated that substantial differences exist in these areas among Senators composing the SSC.
+
+Mark Gitenstein then noted that this Bureau has furnished the SSC with documents pertaining to a number of examples where information, developed as a result of intelligence investigations, was responsible for initiating preventive-type action. He requested, if possible, additional examples of a substantive nature which would help establish the necessity for intelligence investigations. Additionally, he requested further delivery of documents helping to clarify Bureau actions in four of the previously furnished preventive-type actions referred to above.
+
+* Meeting scheduled for afternoon of CONTINUED - OVER 1/29/76 by Intelligence Division to formulate Bureau's position in above four - 2 - general areas.

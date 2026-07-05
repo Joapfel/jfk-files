@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_12190.png
+
+Convert to Markdown(Addition questions)
+
+ITEM I.
+
+Q: What about JUVAN Bond's Campaign? Any effort to influence stat?
+
+A: No. As I recall, Board was already a member of the Georgia legislature. July 1964 or 1965.
+
+Q: What election was conducted by Bond?
+
+A: None to my knowledge beyond such courage of a state as may have resulted from Convoy of SNCI which Bond was affiliated.
+
+Q: In some manner a question was asked at other members of the Georgia legislature. My answer was stat - yes only concern is Hall - 3/25 - Jun. andufft forcing Governor
+
+ALL INFORMATION CONTAINED IS CONFIDENTIAL
+DISTRIBUTION IS LIMITED TO DUE Diligence
+Mar-16
+
+ENCLOSURE
+
+MM# 88614 DocId:32989606 Page 42

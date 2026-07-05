@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11726.png
+
+Convert to Markdown- 11 -
+
+4-H-1
+
+1971. As of 6/30/71, there was a pending case load of 27, which is the smallest case load of any foreign office. Beirut has submitted 61 HILEV items, of which 31 have been used and three are still pending. This is the largest number of items used submitted by any office.
+
+## Personnel
+
+Present complement is fully adequate and cannot be reduced. Vacation relief for the Legat should come from Rome and for the clerk from Tel Aviv (we cannot send Assistant Legat Rubenstein to relieve in Beirut because of the political situation).
+
+## Recommendation
+
+In view of the high production of HILEV items, the office should be continued.
+
+## CARACAS
+
+This office was opened to cover the large area of northern South America, together with the numerous territories and independent countries in the West Indies. It is essentially a road trip office and affords the Bureau coverage in an area where we have been totally dependent upon the Department of State and the Central Intelligence Agency for the handling of our leads. Our Legat, who started out with a semihostile Ambassador, has won the latter's respect and has made a gratifying start at development of the large and scattered area assigned to him. In addition to the Latin-American countries, he is covering French, British, and Dutch possessions; and the effectiveness of his liaison is demonstrated by his ability to devise channels of communication to his contacts throughout his area.
+
+## Productivity
+
+During the first six months of 1971, Caracas located 11 FBI fugitives, one fugitive for another agency, and three Selective Service delinquents, while arranging one informal deportation. His case load 6/30/71 was 72, which is well below average on a per agent basis but is expected to increase with the further development of his territory. He has submitted 25 HILEV items, of which 12 have been used. This is slightly below average.

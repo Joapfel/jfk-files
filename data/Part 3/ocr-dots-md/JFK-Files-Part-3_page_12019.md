@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_12019.png
+
+Convert to MarkdownREPUBLIC OF NEW AFRICA
+
+4-H
+
+Budfile 157-9079 :
+
+The Republic of New Africa (RNA), formed in
+Detroit, Michigan in March, 1968 by followers of
+Malcolm X, assassinated black extremist, has chapters
+in ten U.S. cities and a current hard-core membership
+of 100-130 individuals.
+
+RNA was primarily formed by Milton and Richard Henry, black extremists of long standing in the Detroit, Michigan, area. When first formed, the RNA named as its President in exile Robert Franklin Williams, violence-prone black extremist then residing in China. Williams has since returned to the U.S. but has resigned from his position as head of the RNA due to his own legal problems and dissension existing within the organization.
+
+RNA was established to create a black nation within the U.S. demanding from the U.S. Government the States of Alabama, Georgia, Louisiana, Mississippi and South Carolina, in addition to individual reparations of $10,000 per black citizen as payment for 400 years of ancestral slave labor.
+
+RNA's organizational structure was designed to be revolutionary in character and its founders proposed that efforts be made for international recognition and financial assistance from Cuba, Red China and the black nations of the world. RNA established a black army known as the Black Legion whose duty was to protect the persons and property and to attack the enemies (the police) of that nation. Training programs were instituted and uniforms complete with the leopard skin epaulets were disigned as the official dress for the Black Legionnaires.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+1/8/71
+
+GTT:sef
+
+4-H
+
+NW 88608 DocId:32989638 Page 494

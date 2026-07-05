@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_11654.png
+
+Convert to Markdown# COKMA PROGRAM
+
+4-H
+
+65-73750
+
+1. Title is code word for physical surveillance coverage of known meeting areas utilized by Soviet intelligence in the past several years. The New York Office instituted this program in July, 1970. This program receives close supervisory attention, is evaluated on a continuing basis and was subject of justification memorandum dated 8/16/71. In view of the success of this program by the New York Office, consideration has been given to its implementation by the Washington Field Office, however, the absence of subway transportation facilities used extensively by the Soviets in New York City precludes its adaption by the Washington Field Office.
+
+2. The New York Office has catalogued known meeting areas as a result of past physical surveillances of Soviet-intelligence officers, information received from defectors-in-place and double agents operating against Soviet-intelligence officers. It is almost impossible to conduct a discreet physical surveillance of a trained intelligence officer and this program places our Agents in an area where there is a likelihood of a Soviet meet without surveillance hazards that could thwart meetings. Our objective is to identify American agents meeting Soviet intelligence officers under clandestine circumstances.
+
+3. The New York Office utilized one four-man team initially in connection with this program. During the initial six months of this program, seven Soviet intelligence officers were observed in the area selected for coverage (Jamaica area of the Queens, New York,) on 22 occasions. Two individuals were observed in contact with Soviets and one individual contacted a Polish official. Based on the results obtained, coverage was expanded to the Flushing and Woodside section of the Queens, as well as the Rego Park section of the Queens, adding an additional four-man team. Since January known or suspected Soviet intelligence officers have been observed on 38 occasions accompanied by unknown individual or individuals on five occasions in the area covered by this program. We have determined through our Ironclad source the Soviets have placed the Jamaica section of the Queen off limits for meetings. While we are still affording this area some coverage
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8/19/71
+
+BFR:cgc
+
+4-H
+
+NW 88608 DocId:32989638 Page 129
+
+117

@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_11601.png
+
+Convert to Markdown4-E
+
+was held in abeyance pending final approval of the White House, which had requested a temporary delay. Soviet has been on summer leave and recently returned to the U. S. We are currently seeking concurrence from the White House so that arrest may take place at the next meeting scheduled for 9/13/71.
+
+## VI. Dissemination of Significant Intelligence Data
+
+One of the products of our counterintelligence operations is the development of intelligence data of interest to other U. S. agencies. The following are examples of significant data which has been disseminated on a high level since the last inspection.
+
+1. Dissemination to National Security Agency regarding an unknown subject connected with that Agency who was reported to us as cooperating with the KGB.
+
+2. Dissemination to Atomic Energy Commission concerning a high official of that Agency who was being cultivated by the Soviets for intelligence purposes.
+
+3. Dissemination to State, CIA, and the White House of information we developed concerning the delivery to the Soviet Embassy on June 17, 1971, of a package containing a copy of the "Pentagon Papers."
+
+4. Dissemination to White House, CIA, and State concerning an intelligence approach made by the Soviets to a member of the President's Science Advisory Committee.
+
+5. Dissemination to the White House of information we developed concerning the receipt by Soviet intelligence of information concerning Dr. Kissinger's trip to China prior to the release of this information by the President. This information was obtained from an American agent of the KGB in Washington, D. C..
+
+6. Dissemination on high level to White House and CIA concerning Soviet intelligence targets relating to the Strategic Arms Limitation. Talks then in progress.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/19/71
+EWL;pdr
+4-E

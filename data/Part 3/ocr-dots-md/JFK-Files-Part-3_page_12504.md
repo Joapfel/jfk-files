@@ -1,0 +1,10 @@
+# JFK-Files-Part-3_page_12504.png
+
+Convert to MarkdownMemorandum to Mr. Adams
+Re: Senate Select Committee, etc.
+
+RECOMMENDATIONS:
+
+1. That the names of individuals described in the body of the memorandum of July 30, 1964, and other identifying data be deleted prior to furnishing the copy to the Committee.
+
+2. In regard to future responses to requests for documents of a deliberative nature that our policy be that names and identifying data will be deleted prior to disclosure of the documents.

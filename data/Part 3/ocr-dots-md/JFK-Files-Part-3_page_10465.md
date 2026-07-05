@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_10465.png
+
+Convert to MarkdownEND
+
+REC 4 DBS FBIHQ CLR
+
+| IS | CIM |
+|---|---|
+| ONE AGENT | 30 PERCENT |
+| ONE AGENT | 40 PERCENT |
+| ONE AGENT | 25 PERCENT |
+| THREE AGENTS | 10 PERCENT |
+| ONE AGENT | 10 PERCENT |
+| SIX AGENTS | 5 PERCENT |
+| TWO AGENTS | 2 PERCENT |
+| FOUR AGENTS | 5 PERCENT |
+
+| | CIM |
+|---|---|
+| 5 PERCENT | 0 PERCENT |
+| 8 PERCENT | 25 PERCENT |
+| 0 PERCENT | |
+
+| | CIM |
+|---|---|
+| 50 PERCENT | 20 PERCENT |
+| 25 PERCENT | |
+
+NW 88608 DocId:32989628 Page 302

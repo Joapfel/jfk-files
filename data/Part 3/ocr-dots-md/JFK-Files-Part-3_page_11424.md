@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_11424.png
+
+Convert to MarkdownOFFICE OF THE DEPUTY ATTORNEY GENERAL
+
+WASHINGTON, D.C. 20530
+
+FEB 19 1976
+
+TO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Steven K. Blackhurst
+Assistant Special Counsel for
+Intelligence Coordination
+
+SUBJECT: SSC Request Dated February 19, 1976
+
+Attached is a letter from the SSC dated
+February 19, 1976. Please arrange for an appropriate
+response.
+
+ALL FEI INFORMATION CONTAINED
+HERREN IS UNCLASSIFIED
+DATE 11/8/76 BY SP ALM EHL
+
+ST-101 REC-50 62-116395-1403
+
+FEB 26 1976
+
+ENCLOSURE
+
+cc: Paul Daly
+
+84 MAR 2
+
+NW 88608 DocId:1089578 Page 2

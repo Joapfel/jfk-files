@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_11101.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+CONFIDENTIAL
+
+Memorandum
+
+TO : Mr. W. R. Wannall
+FROM : W. A. Branigan
+
+SUBJECT: WILLIAM G. MILLER
+IS - R
+
+1 - Mr. B. Adams
+1 - Mr. J. A. Mintz
+1 - Mr. W. R. Wannall
+
+DATE: 4/14/75
+
+1 - Mr. W. A. Branigan
+1 - Mr. W. O. Cregar
+1 - Mr. V. H. Weimar
+
+Mr. William G. Miller is the Staff Director for the Select Committee to Study Governmental Operations with respect to intelligence activities. On 10/5/73, representatives of our Washington Field Office, (WFO) interviewed Mr. Miller, with Bureau approval, [relative to contacts he had had with members of the Soviet Embassy, Washington, D. C.] At that time, Mr. Miller was the Director of the Special Senate Committee to Terminate the National Emergency. On that occasion he was most cooperative, and upon being advised that the FBI's interest in [Soviet Embassy personnel focused more on their personalities rather than Soviet policies] per se, Mr. Miller agreed to be interviewed whenever the FBI felt such was necessary.
+
+WFO has recently conducted an interview with Mr. Albert Ashton Lakeland, Jr., Executive Assistant to Senator Jacob Javits of New York, [relative to his past contacts with Grigoriy A. Rapota, a former Third Secretary assigned to the Soviet Embassy, Washington, D. C. Rapota was a known officer of the Committee for State Security (KGB), Political Branch (PB), who was extremely active on Capitol Hill.] In the course of the interview with Mr. Lakeland, he advised that among others Mr. William G. Miller was known to have had numerous contacts with Soviet Embassy personnel, although he was not able to state with certainty that Mr. Miller had been in contact with Rapota.
+
+62-116395
+£1 APR 26 1975
+
+WFO has now requested [NOT RECORDED] bureau through the Legal Analysis Office obtain concurrence of the chairman of the aforementioned committee for Agents of WFO to again interview Mr. Miller concerning his possible contact with
+
+(105-213145) (5)
+
+VHW:danclan
+
+(7)
+
+Classified by 5683 WRS
+Exempt from GDS, Categories 2 and 3
+Date of Declassification Indefinite
+
+CONTINUED - OVER
+
+CONFIDENTIALITY LIMITS ON DETECTORS
+
+ENC. — Sent 4-17-75
+
+RECORDS
+
+LSCN STUDY - 7)

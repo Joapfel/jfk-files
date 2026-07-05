@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_12794.png
+
+Convert to MarkdownTHE BLACK PANTHER
+MARCH 20, 1971, P. 4
+
+THE BLACK PANTHER
+OCTOBER 3, 1970, P. 9.
+
+THE BLACK PANTHER
+OCTOBER 17, 1970, P. 16
+
+Only the power of the people can free political prisoners
+
+NW 88614 DocId:32989606 Page 156

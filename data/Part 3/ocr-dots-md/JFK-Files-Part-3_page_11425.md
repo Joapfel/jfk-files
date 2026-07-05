@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_11425.png
+
+Convert to MarkdownTO: John A. Mintz, Assistant Director
+Legal Counsel Division
+Federal Bureau of Investigation
+
+FROM: Steven K. Blackhurst
+Assistant Special Counsel for
+Intelligence Coordination
+
+SUBJECT: SSC Request Dated February 19, 1976
+
+Attached is a letter from the SSC dated
+February 19, 1976. Please arrange for an appropriate
+response.
+
+cc: Paul Daly
+
+FEB 19 1976

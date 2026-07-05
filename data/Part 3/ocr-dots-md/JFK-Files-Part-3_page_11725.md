@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11725.png
+
+Convert to Markdownsubstantially above average on a per Agent basis and the third highest of the foreign offices on that basis. Tokyo has submitted 40 items for HILEV dissemination, of which 17 have been used. This is slightly above average.
+
+## Personnel
+
+We have recommended that one Agent and one clerk be added to Tokyo in the event of further expansion. This would permit more frequent visits to Taiwan and South Korea and would also permit widening of contacts within Japan itself, which is necessary if increased emphasis is to be placed upon HILEV production.
+
+## Recommendation
+
+Continue.
+
+### (2) New Offices Opened in December, 1970
+
+The following six offices were opened in December 1970, for the specific purpose of developing HILEV intelligence. Four of these offices were opened in entirely new territory while two were assigned areas previously handled by other Legats. In considering these six offices, it must be recognized that they were primarily intended as intelligence collectors and not as sources of normal Bureau cases. We have been pleased, however, to note that several of these offices are making a substantial contribution to the Bureau's domestic jurisdiction in addition to their HILEV work.
+
+## BEIRUT
+
+This is a one-man post established in new territory where there had previously been little need for coverage. The Legat has developed several very productive sources of political intelligence and at the present time is the highest producer of HILEV items. He has been commended for this. Nevertheless, should there be any reduction in White House interest in HILEV items, we could not justify continuation of this office.
+
+## Productivity
+
+One FBI fugitive and one Selective Service delinquent were located by this office between January and June,

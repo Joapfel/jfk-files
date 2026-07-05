@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_12115.png
+
+Convert to MarkdownADDENDUM
+
+SECTION CHIEF GEORGE C. MOORE
+
+1/21/71
+
+I agree that the suggestion made by the Inspector has merit and should further strengthen the productivity of our Ghetto Informant Program and increase our concrete accomplishments. Necessary instructions will be issued to the field to implement the suggestion as set forth by the Inspector.
+
+SECTION CHIEF R. L. SHACKELFORD: I concur with the above suggestion.
+
+ASSISTANT DIRECTOR CHARLES D. BRENNAN: I concur with the above suggestion and as stated above the appropriate suggestion will be issued to comply with the Inspector's suggestion.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+1/21/71
+
+JGD:d1b
+
+NW 88608 DocId:32989638 Page 590

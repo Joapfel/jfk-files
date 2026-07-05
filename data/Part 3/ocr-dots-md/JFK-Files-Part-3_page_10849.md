@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10849.png
+
+Convert to Markdown# H. CURRENT AGREEMENTS BETWEEN FBI AND CIA
+
+1. According to SAC Letter 59 dated 5/24/49, CIA and FBI had reached agreement whereby clearance would be requested of FBI before CIA conducted an interview with an alien in the U.S. This clearance would consist of a review of Bureau files concerning individual in question.
+
+According to same SAC Letter, agreement had been reached by the FBI and CIA whereby CIA was allowed to contact American businessmen without obtaining clearance from FBI in order to obtain positive foreign intelligence information and arrange covers for CIA personnel abroad. This agreement was based strictly on collection of foreign intelligence and positively did not allow for the formulation of a network of confidential informants for CIA in the U.S.
+
+Regarding FBI-CIA agreement that CIA would clear with us prior to interviewing aliens in U.S., following documentation has been located. By letter 2/19/48 Director of CIA Hillenkoetter wrote Director and referred to National Security Council Intelligence Directive No. 7, 2/12/48. This Directive states in part that CIA will be responsible for exploitation on highly selective basis within U.S. of business concerns, other nongovernmental organizations and individuals as sources of foreign intelligence information. Hillenkoetter commented that CIA had been interviewing foreign businessmen, immigrants and refugees on small scale, always clearing matter first with FBI office in area concerned. He asked Director's views as to possible expansion of this activity.
+
+By letter 2/26/48 Director replied to Hillenkoetter. In part, this letter pointed out FBI had no objection to CIA interviewing individuals enumerated above for foreign intelligence purposes; however, it was suggested that prior to interview such individual matters be cleared with FBI Headquarters.
+
+2. Bureau letter to CIA 1/16/64 confirmed results of meetings between CIA and Bureau via liaison in discussing reorganization of CIA's Domestic Operations Division (DOD). Letter recognized CIA needs (recruitment of sources in U.S. who may be used abroad; recruitment of diplomats, including UN representatives, who might be useful to CIA in overseas operations or who might be transferred to Soviet-bloc countries; training of agents recruited; handling of agents developed abroad who come to U.S. for a visit or assignment; and approaches to foreign officials and visitors to assess their potential as sources when they leave the U.S.). Our letter to CIA set forth the following ground rules to be followed in connection with CIA's operations in order to avoid operational conflicts and embarrassment:

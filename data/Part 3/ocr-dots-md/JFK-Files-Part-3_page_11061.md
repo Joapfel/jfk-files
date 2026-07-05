@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_11061.png
+
+Convert to Markdownyou use the maximum available resources, investigative and
+intelligence, to collect and report all facts bearing upon
+(riot activity)." Elaborating on this point, he said, "In
+these circumstances we must be certain that every attempt is
+being made to get all information bearing upon these problems;
+to take every step possible to determine whether the rioting
+is pro-planned or organized; and, if so, to determine the
+identity of the people and interests involved; and to deter
+this activity by prompt and vigorous legal action." The
+Attorney General's evaluation of the importance of
+intelligence in this instance applies with equal force to
+other areas of the FBI's security work.
+
+In December, 1967, the Department of Justice, aware
+of the high priority of intelligence in dealing with civil
+disorders, created the Inter-Division Information Unit. This
+is a repository for "reports which relate to individual or
+organizational activities which may play a part in instigating
+or spreading civil disorders" and includes intelligence
+"relating to black power and black nationalist organizations,"

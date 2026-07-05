@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_11733.png
+
+Convert to Markdowninformants and sources during our period of operation there,
+and we feel that these could be reactivated to become a
+productive source of HILEV material.
+
+The following are the three new offices which we
+proposed be opened, each to have a complement of 2 Agents
+and 2 clerks:
+
+CANBERRA, AUSTRALIA
+
+This office could cover Australia and New Zealand
+thereby relieving Hong Kong from its present futile efforts
+to cover the area by road trip and give on-scene coverage
+in this huge area where our work has been increasing. We
+presently are trying to cover 35 leads in the area which
+indicates there is a nucleus of essential Bureau business
+upon which an office can be predicated. Here again,
+however, the primary function of the new office would be
+production of HILEV items.
+
+KUALA LUMPUR, MALAYSIA
+
+This office would cover Thailand, Malaysia
+and Singapore, presently handled out of Hong Kong, and
+would initiate coverage in Indonesia, where we have no
+coverage other than through State and the Central
+Intelligence Agency. There is now a nucleus of 20 Bureau
+cases pending, insufficient to justify the opening of an
+office, but the high interest in Southeast Asia would
+indicate that any production of political intelligence
+should include coverage in this area. Opening of the two
+foregoing offices, plus Manila, would relieve Hong Kong
+of all road trips and permit that office to concentrate
+on the important security matters involved in the new
+relationship between Communist China and the United States.

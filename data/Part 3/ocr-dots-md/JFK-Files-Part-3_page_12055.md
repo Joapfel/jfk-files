@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_12055.png
+
+Convert to Markdown- 3 -
+
+report pertinent information concerning observation of the vehicle to WFO by routing slip for compilation and determination of suspicious patterns which should be resolved through concentrated surveillance coverage on the basis of available information (again the basic COKMA philosophy). This is being used on a trial basis in WFO to test its productivity and value. If found to be of assistance, consideration will be given to implementing in New York Office; however, in this instance again, the program is designed to exploit conditions prevelant in Washington, D. C., rather than New York where Bureau personnel do not reside in same general area as Soviets and therefore, might not be expected to produce positive results. Means of transportation available in both areas, previously mentioned, was also considered.
+
+SPIA letters themselves are a vehicle for "cross-fertilization" of ideas between recipient and submitting offices. They contain monthly, detailed summaries of intelligence activities which have occurred in the submitting offices. They are routed to each Espionage Section Supervisor for review. If significant information is contained in submission from WFO which might be applicable to New York, or vice versa, Bureau Supervisor directs attention of appropriate office: to the information by means of communication in the substantive file involved. Weekly Section Conferences allow for a more current discussion of significant or unusual developments as they occur in individual cases providing a more immediate vehicle for directing attention of one office to developments in another which might be applicable to a current or prior investigation.
+
+Periodically, Espionage Section learns from other intelligence organizations, foreign and domestic, of new intelligence techniques or changes in MO by Soviets which should
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+ECP:eco
+1/22/71
+
+1/43
+
+NW 88608 DocId:32989638 Page 530

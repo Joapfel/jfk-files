@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_10567.png
+
+Convert to MarkdownRECEIVED
+TELEYPED
+UNIT
+
+May 25, 1970 7:09 PM
+Subject: RE: [GAP] New Issue
+Date: 7 May 1970 11:01:00 A.M.
+From: Gap Administration (GAP)
+To: G.A.P. Staff and Consultants
+Cc: G.A.P. Staff and Consultants
+Sent: 7 May 1970 11:01:00 A.M.
+
+ NW 88608 DocId:32989628 Page 404
+
+62-116395-56

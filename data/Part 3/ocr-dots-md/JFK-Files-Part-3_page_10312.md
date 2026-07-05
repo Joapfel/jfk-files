@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_10312.png
+
+Convert to Markdownmasking devices. A central switch installed ahead of the telephone instruments will disconnect all telephones simultaneously, should the need arise. The telephone system is maintained by the local telephone company.
+
+## K. Security Briefings
+
+All new members of the committee receive a thorough briefing from Mr. Marshall on security procedures and security responsibilities. Briefings are periodically reinforced when conditions warrant.
+
+## L. Security Duty Check Procedures
+
+Custodians secure the safe cabinets assigned to them, i.e. Mr. Shea, codeword room, Messrs. Kieves, Petersen, and Ms. Orloff, Research area. Mr. Marshall double checks behind them. The custodian, Security Director and the roving guard patrol check the entire auditorium to ensure all classified material has been secured at the end of the day.
+
+## M. Counteraudio Inspection
+
+Mr. Marshall has taken action on this requirement and continues to monitor this area to provide the Committee with as much security protection against the Audio threat as possible.
+
+## N. Shredder
+
+The facility has one Destroyit Model 51 Shredder used only for shredding the most sensitive documents. Other documents are not shredded in this machine because of its limited shredding capability.
+
+## O. General Observations
+
+The security procedures implemented within the Senate Select Committee facility are sufficient to provide a proper environment for the protection of classified materials. The survey officers were pleased with the security director's dedication to the objective of providing the best security possible for the Committee.

@@ -1,0 +1,350 @@
+# JFK-Files-Part-3_page_10325.png
+
+Convert to Markdown1 - Legal Counsel Division
+1 - Mr. W. O. Cregar
+1 - Mr. W. R. Wannall
+
+April 9, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+Reference is made to letter dated March 19, 1975 to the Attorney General from the Chairman of captioned Committee which enclosed certain requests for documents and other information from the Federal Bureau of Investigation (FEI).
+
+In response to the Committee's request for a detailed
+current organizational chart attached hereto is a document entitled
+"FBI Functional Organization Chart."
+
+This chart was prepared January 14, 1975, and since
+that time the following changes concerning the position of Assistant
+Director have been made. The Assistant Director of the Files and
+Communications Division is John J. McDermott. The Assistant
+Director of External Affairs is Donald W. Moore Jr. The Assistant
+Director of the Training Division is William M. Mooney.
+
+The various other requests contained in the Committee's
+letter of March 19, 1975, are receiving attention and response will be
+forthcoming at the earliest possible time.
+
+Enclosure
+
+1 - The Attorney General
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Legal Coun.
+Plan. & Eval.
+Spec. Inv.
+Training
+Telephone Rm.
+Director Sec'y
+MAIL ROOM [ ] TELETYPE UNIT [ ]
+NW 88608 Doctd:32989628 Page 162
+
+DRD/PVD:mjg/kjs
+(6)
+
+This document is prepared in response to your
+request and is not for dissemination outside your Committee.
+Its use is limited to official proceedings by your Committee
+and the content may not be disclosed to unauthorized
+personnel without the express approval of the FBI.
+
+ENCLOSURE
+
+69
+6 2
+16 575
+J
+J
+V
+A
+U
+R
+F
+G
+H
+K
+L
+M
+N
+O
+P
+Q
+T
+Y
+W
+E
+R
+D
+S
+C
+B
+D
+E
+F
+G
+H
+I
+J
+K
+L
+M
+N
+O
+P
+Q
+R
+S
+T
+U
+V
+W
+X
+Y
+Z
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+0
+1
+2
+3

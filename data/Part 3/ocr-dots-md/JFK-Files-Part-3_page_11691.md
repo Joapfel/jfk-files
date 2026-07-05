@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11691.png
+
+Convert to MarkdownRCMP pointed out that the above area is visited frequently by black extremist figures from the United States and admitted that they have experienced considerable difficulty in the recruitment of suitable sources in the Halifax area. RCMP requested of the Bureau another source of the caliber of the one presently operating in Canada.
+
+By memorandum dated 7/29/71 it was recommended and approved that we solicit of the field the identities of informants who may be able to travel to Canada. This project is presently being followed very closely.
+
+By memorandum dated 5/5/70 from G. C. Moore to Mr. W. C. Sullivan captioned "Racial Informant Development, Black Panther Party (BPP), Racial Matters" it was recommended and approved that two Special Agents of the San Francisco Division be assigned to work exclusively on developing a top-level informant in the BPP. By letter dated 8/17/71 San Francisco was instructed that captioned program is being discontinued. Review of this program showed that all avenues leading to the possible development of high-level BPP informants have been explored and the groundwork laid for the development of top-echelon leaders who might defect. Therefore, it was believed that it was no longer necessary to have two Special Agents assigned exclusively to this program. This will bring about a savings in manpower; however, San Francisco is under instructions to continue aggressive efforts to penetrate the top echelon of the BPP. This is being closely followed at the Seat of Government.
+
+GHETTO INFORMANTS
+
+The ghetto informant program was instituted 10/11/67 to fulfill an urgent need to develop a network of "listening posts" in the ghetto areas of our cities. A ghetto informant is an individual living or working in the ghetto area who is available to furnish information concerning conditions which may create civil unrest.

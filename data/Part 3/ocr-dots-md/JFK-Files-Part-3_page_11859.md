@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11859.png
+
+Convert to Markdownexpended before the termination of a six-month development period thus requiring additional paper work in the field and resultant supervisory work at the Bureau.
+
+It is extremely difficult to draw meaningful conclusions concerning any savings between payments under SAC authority and costs accrued under delayed SOG approval of payments on a regular basis. The informant while operating under SAC authority is in a developmental stage. It can be expected that at any given point in his development whether he continues on SAC authority or is approved for regular payments, expenditures to him will increase. It is the natural and practical order of informant development.
+
+The sooner a developing security or extremist informant can be brought under SOG control the more effective and consistent becomes his supervision. The SAC remains accountable, of course, for the informant's handling, the validity of his expenditures, and the worth of his information. Additional supervision, based on broad field needs and applied with consistency to the over-all policies of the Bureau, necessarily is furnished by SOG supervisors and officials. This amounts to far more effective field-wide supervision of these sensitive matters.
+
+Strict economy continues to be the rule in Bureau supervision of security and extremist informants. During the period 4/1/70 through 6/70 for example as a result of reviewing regular payments to informants $4392 was saved. During the period 1/1/71 through 3/1/71 $5156 was saved. More recently on 8/20/71 a letter to all offices instructed them to cut back five per cent in their total payments to security and extremist informants--a projected saving of $129,000.
+
+It is respectfully submitted that, in view of the over-all sensitivity of security and extremist informants, current procedures allowing for initial payments under SAC authority with a shift to Bureau approval of payments on a regular basis as the informant progresses and develops productivity, provide the most effective and consistent field-wide supervision for the over-all needs of the Bureau.

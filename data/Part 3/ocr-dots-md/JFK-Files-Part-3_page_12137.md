@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_12137.png
+
+Convert to Markdown-2-
+
+PSI in the Polish field.
+
+The Bureau by letter to Washington Field Office dated 7/7/70 designated
+the subject as a Bureau-approved PSI and again instructed that he be developed
+in accordance with instructions contained in Section 107, Manual of Instructions.
+
+The above comprises a summary of all correspondence to date in 134-19651
+file.
+
+JAN ADAM KLASA
+IS - PO
+OFFICE OF ORIGIN - WASHINGTON FIELD
+WFO FILE 105-92157
+BUREAU FILE 105-186986
+
+The U. S. Department of State advised the Bureau in October, 1968,
+that the subject was scheduled to be assigned to the Embassy of the Polish
+People's Republic, Washington, D. C., as Assistant Military, Naval and
+Air Attache. Subject subsequently arrived in Washington, D. C., on May 4,
+1969.
+
+By communication to WFO dated 6/20/69 the Bureau instructed that coverage
+of subject be intensified to determine the identities of any Agents he may be
+operating.
+
+By communication dated 8/4/69 WFO advised Baltimore, Chicago, Los
+Angeles and Seattle Field Offices concerning identity and background of subject,
+furnished each office with a photograph of subject, and set forth additional
+investigative leads. The same WFO communication requested Bureau authority
+to conduct active investigation of subject including Fisurs when deemed appropriate,
+following clearance with U. S. Department of State.
+
+On 9/2/69 the Bureau, with approval of U. S. Department of State, instructed
+WFO to proceed with the investigation.
+
+Subsequent to 9/2/69 WFO and those offices listed above conducted active
+investigation of subject and promptly furnished results in a form suitable for
+dissemination to the Bureau.
+
+In a progress memorandum to the Bureau dated 6/8/70, WFO advised that "PSI
+Bokinsky has agreed to attempt to contact Klasa on a social basis." This
+information is not substantiated in the PSI file (134-19651) nor was the proposal
+to use the PSI acknowledged in any communication from the Bureau.

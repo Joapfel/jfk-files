@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_11648.png
+
+Convert to Markdown# PROTEST AND TROTSKYIST GROUPS UNIT
+
+## May Day Collective (MDC)
+
+Prior to May, 1971, MDC was the hard-core youth activist group of the Peoples Coalition for Peace and Justice (PCPJ) and was the main force behind massive civil disobedience in Washington, D.C. There has been a definite split between the two groups over the question of violence which is favored by MDC. Following regional conferences in Fayetteville, Arkansas, and Washington, D.C., MDC held a national conference in Atlanta, Georgia, 8/13-17/71 to map its future course and to plan antiwar activity for the Fall of 1971. By airtel to all offices dated 7-26-71, the field was instructed to determine the existence of MDC organizations in the respective divisions and to furnish all available information to Bureau by 8-30-71 with comments regarding extent of coverage. Potential for violence by MDC was emphasized, and the field was alerted to possibility of violations of Federal laws.
+
+## Vietnam Veterans Against the War (VVAW)
+
+Letter to all offices dated 8-3-71 instructed each office to initiate a survey to determine existence of VVAW. This action was necessary in the light of increasing indication that the VVAW may be a target for infiltration by subversive groups such as the Communist Party, USA, and the Socialist Workers Party and their respective youth groups. VVAW has also been involved in aiding and financing U.S. deserters, including false identity papers and reportedly in one area has a cache of arms. VVAW has become increasingly active in the antiwar field and must be considered a prime target for infiltration.
+
+## East Coast Conspiracy to Save Lives (EASTCON)
+
+This is an extremely important investigation requiring constant supervision and review at the Seat of Government. It involves plots to blow up the tunnels, housing, heating systems servicing Government buildings and to kidnap a high Government official. Conspiracy aspects of selected Selective Service break in cases are included in the indictment as well as violations involving the contraband and issuing threatening communications statutes. The Eastcon case is the subject of a write-up in Section 4-A-4.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8/18/71
+
+FBG:plm
+
+- 12 -

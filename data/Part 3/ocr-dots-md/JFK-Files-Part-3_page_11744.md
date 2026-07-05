@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_11744.png
+
+Convert to MarkdownChicomms for the purpose of making themselves available for
+possible recruitment by Chicom Intelligence.
+
+We have a list of approximately 3500 ethnic Chinese scientists and/or technicians who have security clearances. Because of manpower limitations, we have not included other offices in this program nor have we allowed more than 50 cases of this type to be opened. It would be desirable to expand this effort to include other offices and to increase the number of individuals involved in each office to perhaps 50. Again, our object is to develop a nucleus of sources who would be of present or future value in our counterintelligence operations against the Chicomms.
+
+3. We would like to consider the use of ethnic Chinese Special Agents as well as nonethnic Chinese-speaking Special Agents who could, in an undercover capacity, be targeted against the Chicomms in Canada or against any Chicom establishment which may be located in this country in the future. Such an operation would require substantial indoctrination, direction, and development of cover employment and identity, and would be in essence a most appropriate and secure means by which to mount an operation designed to develop a defector in place.
+
+4. Since the door to travel by U. S. citizens to Red China is wide open, we should expand our efforts in this area to fully identify each traveler (other than legislators and news media types) for the purpose of considering these individuals for interviews in order to gather positive intelligence or to identify any traveler who may have been subjected to a recruitment approach by the Chicomms.
+
+5. We should consider instructing a limited number of field offices to begin efforts to develop sources who could be used in a "walk-in" program directed against the Chicomms in Canada as well as any Chicom establishment formed in this country. Here, we would not have to look toward ethnic Chinese but could selectively approach types who might be of interest to the Chicomms including military personnel because of their backgrounds in fields in which the Chicomms have expressed an interest.
+
+6. In Chinese alien cases where a hostage situation exists, we should revamp current instructions to require a reinterview of such persons one year after the initial interview
+
+NWW 88608 DocID:32989638 Page 219

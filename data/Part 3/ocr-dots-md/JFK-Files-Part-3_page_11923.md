@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11923.png
+
+Convert to Markdown# ACCOMPLISHMENTS
+
+4-E
+
+SECTION CHIEF W. A. BRANIGAN
+ESPIONAGE SECTION
+
+## 1. Persona Non Grata and other Removal Actions
+
+Boris Mikhaylovich Orekhov was a correspondent in New York City for the Soviet newspaper "Prayda" from June, 1968, to July 7, 1970. Based on the results of FBI investigation, on the latter date he was expelled after the Department of State informed the Soviet Embassy in Washington, D. C., on June 24, 1970, that Orekhov had engaged in activities incompatible with his status as a journalist. His departure from the United States was requested. Orekhov departed July 7, 1970, depriving the Soviets of the presence in the U. S. of a very active intelligence officer.
+
+In a similar case, also as a result of our investigations, on November 6, 1970, State informed the Soviets of the expulsion from the U. S. of Leonid Nikolayevich Zhegalov, a Washington, D. C., correspondent for the Soviet news agency "Tass." This action was in direct reciprocity for the expulsion from the USSR of a U. S. correspondent.
+
+In an interesting and successful counterintelligence operation, the Soviets were forced to remove Yevgeniy Yelshin, a KGB officer, from the United Nations Secretariat and send him home. Yelshin had been in contact with sources under our control in the aerospace field. In September, 1970, the "arrest" of one of our sources during a meet with Yelshin was staged. Subsequently, Yelshin was contacted by our Agents concerning his intelligence activities. Although Yelshin had not completed the term of his contract with the UN Secretariat, he returned home with his family, at Soviet expense, on 11/1/70.
+
+In a pending case, our investigation has established violation of U. S. immigration laws by an individual known to be a KGB agent. He has denied affiliation with the Soviets, but has admitted immigration fraud. INS and State have initiated action to have him dismissed from the UN Secretariat and expelled from the U. S.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+1/13/71
+JPT:pld
+4-E

@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_11480.png
+
+Convert to MarkdownThe FBI program against the New Left was the most wide-
+sweeping of all. Its targets included underground newspapers,
+students protesting various university policies, the antiwar
+Inter-University Committee for Debate on Foreign Policy, and
+several colleges and universities.
+
+The FBI tactics included the use of anonymous letters and telephone calls designed to disrupt families, friendships, careers, and organizations; the use of agents provocateurs to sow dissension and fragment groups; the dissemination of fake information about individuals to employers, credit bureaus, and creditors; the instigation of tax investigations against certain citizens for harassment purposes, alone; the investigation of the private life of group leaders for whispering to the press; and an almost endless list of equally deplorable assaults on First Amendment rights.
+
+From 1962 until his death, Dr. Martin Luther King was the target of a vicious campaign by the FBI to discredit him as the most prominent black activist in America. The full array of the Bureau's sophisticated devices of technical surveillance was turned against Dr. King. He was illegally bugged, tapped, and followed. Information on his private life was then delivered by agents of the FBI to clergymen, Members of Congress, the White House, United States Ambassadors, newsmen, the National Science Foundation, and the British Government, among others. Agents were sent to colleges to persuade them not to grant Dr. King honorary degrees.
+
+Information obtained from microphone coverage of Dr. King was hand-carried to prominent clergymen throughout the country.
+As one agent recalls:
+
+[Hoover] sent me...to talk to an Episcopalian Bishop. He instructed me to tell this Episcopalian Bishop, who had been speaking for King ...all sorts of details. It was not a pleasant assignment. But it was an order, an instruction, and I did go.... [The Bishop] led me to believe that we could have done a much more honorable thing if we had stayed in Washington and not carried that tale out there, and I'm inclined to think that he was right.

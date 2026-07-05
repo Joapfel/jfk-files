@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_11603.png
+
+Convert to Markdown# ACCOMPLISHMENTS
+
+4-E
+
+SECTION CHIEF G. C. MOORE
+EXTREMIST INTELLIGENCE SECTION
+
+The significant accomplishments of the Extremist Intelligence Section can be seen most clearly in the accomplishments through our investigative efforts as well as the accomplishments achieved through the extremist informants.
+
+Since the last inspection we have supervised the "Newkill Special." This case involves unprovoked attack on two New York City (NYC) police officers, 5/21/71, by two Negro male assailants. Both officers were shot and killed. Prior to this shooting on 5/19/71 two NYC officers were machine gunned and seriously wounded as they attempted to stop a speeding car occupied by Negro males. Anonymous letters were received by news media in NYC claiming credit for these shootings.
+
+The Director met with the President and the Attorney General regarding the killing of the two officers as this incident received nationwide publicity. The Director instructed an all-out effort be made to effect Bureau solution.
+
+Intensive investigation has been conducted to identify assailants with investigation conducted abroad and in over 40 field offices. Over 2000 people have been interviewed. The Identification Division has compared the fingerprints of over 700 persons with latent evidence and the Laboratory Division has conducted about 400 separate examinations of ballistics and other type evidence in this case.
+
+Since its inception, we have concentrated on members of the violence-prone Black Panther Party (BPP) as suspects. This has paid off since four persons were arrested in NYC on 6/5/71 while attempting an armed robbery. Two of the individuals
+
+DOMESTIC INTELLIGENCE DIVISION
+
+8/19/71
+
+JGD:acs
+
+4-E
+
+66
+
+NW-88608-DoD:32989638-Page 78

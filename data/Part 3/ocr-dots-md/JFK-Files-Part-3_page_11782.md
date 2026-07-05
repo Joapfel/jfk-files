@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_11782.png
+
+Convert to MarkdownCaseload figures
+
+| | **7/31/71** | **8/20/71** | **Change** |
+|:---|:---:|:---:|:---:|
+| **New Left Section** | | | |
+| Special Investigations - East | 1719 | 1564 | |
+| Special Investigations - West | 1495 | 1343 | |
+| New Left Groups | 879 | 812 | |
+| Subversive Individuals - New Left | 2492 | 2538 | |
+| Protest and Trotskyist Groups | 574 | 588 | |
+| Section Total | 7159 | 6845 | -314 |
+| **Internal Security Section** | | | |
+| Communist Party, USA | 548 | 272** | |
+| *International New Left and Sedition Unit | 912 | 871** | |
+| Klan and White Hate Groups Unit | 1683 | 511 | |
+| Security Informant Unit | 1466 | 869 | |
+| Subversive Individuals Unit | 2636 | 2688 | |
+| Section Total | 7245 | 5211 | -2034 |
+| **Research Section** | | | |
+| No cases assigned | | | |
+| Division Total | 29,565 | 25,417 | -4148 |
+
+*Unit now Foreign Intelligence and Pro Chicom Unit
+
+**1 Supervisor and 253 cases transferred from CPUSA Unit to Foreign Intelligence and Pro Chicom Unit 8/13/71
+
+243
+
+NWW 88608 DocId:32989638 Page 257

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_12615.png
+
+Convert to MarkdownMEMORANDUM OF UNDERSTANDING
+
+Subject: Procedures for Determining Eligibility for Access
+to Classified Information or Material on the Part
+of Employees of the Senate and House Select
+Committees on Intelligence Activities
+
+The Federal Bureau of Investigation (FBI) will conduct background investigations at the request of the appropriate Committee Chairman of applicants and employees of the respective staffs of above-mentioned Committees, so that a determination can be made as to their suitability for employment and as to their trustworthiness for access to classified information, in accordance with Executive Order 11652 and where necessary, for access to compartmented information in accordance with the standards set forth in Director of Central Intelligence Directive 1-14.
+
+The FBI will furnish a summary memorandum containing
+the results of its investigation to the appropriate Committee
+Chairman.
+
+In the case of an applicant, or employee, the Committee
+Chairman will make a determination as to the person's suitability
+for employment.
+
+No person shall be given access to any classified
+information or material unless such person has been determined
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 11/16/2016 BY SPN 7801/MRJ
+MOR-16
+
+ENCLOSURE
+
+62-116395-256

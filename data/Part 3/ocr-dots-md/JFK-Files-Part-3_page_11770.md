@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_11770.png
+
+Convert to MarkdownMemorandum to Mr. Tolson
+Re: Proposed Transfer of Supervisory Responsibility for Certain Cases from General Investigative Division to Domestic Intelligence Division
+
+ANTIRIOT LAWS
+
+Contained in Public Law 90-284 enacted 4/11/68 (Civil Rights Act of 1964) were certain new additions to Title 18, representing criminal statutes for which investigative jurisdiction has been assigned FBI. Other provisions of this Act extended and enlarged existing civil rights legislation, the investigative jurisdiction for which primarily remains in the Civil Rights Section and is not involved in the subject matter herein discussed. The three pertinent statutes are as follows:
+
+1. Section 245-b (3) of Chapter 13, Title 18, which makes it a violation for any person to use force or threat of force to wilfully injure, intimidate or interfere with any person engaged in a business affecting interstate commerce during or incident to a riot or civil disorder or attempting to perform any of these acts.
+
+2. Section 2101, Chapter 102, Title 18, makes it a violation to travel interstate or to use the mail, telegraph, telephone, radio, television or other facility of interstate commerce to incite a riot or organize, promote, encourage, participate in or carry on a riot or commit any act of violence in furtherance of a riot or aid or abet any person in inciting or participating in a riot.
+
+3. Section 231, Chapter 12, Title 18, makes it a violation to teach or demonstrate the use, application or making of a firearm or explosive or incendiary device or technique causing injury or death intending or having reason to know that same will be used in connection with a civil disorder which may interfere with commerce or with a federally protected function or the transportation in interstate commerce of such devices with similar intent or the commission of any act to interfere with any law enforcement officer or fireman engaged in official duties in connection with civil disorder or a federally protected function.
+
+The foregoing three statutes have been designated by the Bureau as having the character of Antiriot Laws and are all included in the new classification 176. No other violations are included in this character or classification. Thus the
+
+DETAILS
+CONTINUED - OVER
+
+5 3 /

@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_11657.png
+
+Convert to MarkdownDESECO PROGRAM
+
+interviews, developments and handling of Desevo sources
+are contained in Section 105 O, pages 42-44, Manual of
+Instructions.
+
+5. This program is re-evaluated on an annual basis. It was last justified by memorandum W. A. Branigan to C. D. Brennan, dated March 29, 1971. Limitations on other investigative techniques have underscored the value of this program demonstrated in the individuals developed as security informants or double agents. Selectees have enabled us to uncover and pin-point Soviet-bloc intelligence targets, identify Soviet-bloc intelligence officers and furnish information of value in considering defection approaches. During the month of March, 1971, a double agent, developed through the Desevo program, was instrumental in enabling the Bureau to identify a Soviet illegal operating in the guise of a graduate student in Salt Lake City. Direction of this program against Soviet-bloc intelligence officers will continue to be pressed to insure improvement in our coverage of Soviet-bloc intelligence operations.
+
+DOMESTIC - INTELLIGENCE DIVISION INSPECTION
+
+8/19/71
+
+LW: bkr
+
+4-H

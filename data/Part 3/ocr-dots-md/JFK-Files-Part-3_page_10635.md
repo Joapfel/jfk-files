@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_10635.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+# Memorandum
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, NEW YORK
+
+SUBJECT: COUNTERINTELLIGENCE PROGRAM
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS.
+
+DATE: 10/14/64
+
+Kebulet, 9/4/04.
+
+NY has case files on the following organizations which were listed in relet:
+
+AMERICAN NAZI PARTY (ANP) (NY-157-18)
+OO:RH
+
+Available information reflects that there is currently no ANP activity in the NYC area and the organization appears to be defunct.
+
+FIGHTING AMERICAN NATIONALISTS (FAN) (NY-157-195)
+OO:BA
+
+Available information reflects that FAN has ceased to exist as a separate organization and is merely a name used on occasion by the American Nazi Party.
+
+NATIONAL RENAISSANCE PARTY (NRP) (NY-105-612)
+OO:NY
+
+The NRP is now defunct in NYC and available information makes it appear unlikely that it will be reactivated.

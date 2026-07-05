@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_11924.png
+
+Convert to Markdown4-E
+
+Information we furnished to the Department of State apparently has prevented the return to the United States of two Polish commercial officials formerly assigned to New York City. We told State how the one, a Polish military intelligence officer, with the assistance of the other had since mid-1969 been very active in trying to purchase electronic equipment of defense significance and ship it to Poland in violation of export licensing requirements. On 3/27/70, State informed the Polish Ambassador to the U. S. that the activities of these two Poles must cease. Both left the country. We have subsequently learned through our sources that one, expected to return to U. S., has been reassigned and will not return. The other has not returned. Thus, the usefulness of two Polish agents in the U. S. was destroyed by our investigations.
+
+## 2. Double Agents
+
+One measure of our effectiveness in countering the activities of the intelligence personnel among the hundreds of communist bloc representatives in the U. S. is our ability to continue to develop and operate double agents against hostile agents. This is a matter of vital concern and continuous attention in the Espionage Section. Since the last inspection we have continued to improve our position in this regard, as the following chart shows:
+
+| Country | Active Double Agents | Potential Double Agents | Inactive Double Agents |
+|---|---|---|---|
+|  | 4/1/70 | 12/1/70 | Change |
+| Soviet | 67 | 74 | +7 |
+| Albania | 5 | 5 | 0 |
+| Bulgaria | 1 | 1 | 0 |
+| Czech | 21 | 16 | -5 |
+| East German | 3 | 3 | 0 |
+| Hungary | 5 | 6 | +1 |
+| Poland | 16 | 21 | +5 |
+| Romania | 8 | 10 | +2 |
+| Yugoslavia | 2 | 2 | 0 |
+| Totals | 128 | 138 | +10 |
+
+| 4/1 | 12/1 | Chg |
+|---|---|---|
+| 207 | 227 | +20 |
+| 0 | 0 | 0 |
+| 5 | 5 | 0 |
+| 13 | 14 | +1 |
+| 3 | 2 | -1 |
+| 5 | 3 | -2 |
+| 25 | 25 | 0 |
+| 7 | 10 | +3 |
+| 12 | 10 | -2 |
+| 277 | 296 | +19 |
+
+| 4/1 | 12/1 | Chg |
+|---|---|---|
+| 34 | 33 | -1 |
+| 0 | 0 | 0 |
+| 1 | 1 | 0 |
+| 4 | 2 | -2 |
+| 3 | 3 | 0 |
+| 5 | 5 | 0 |
+| 2 | 3 | +1 |
+| 0 | 2 | +2 |
+| 0 | 0 | 0 |
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+1/13/71
+JPT:pld
+
+
+
+NW 88608 Dvid:32989638 Page 399

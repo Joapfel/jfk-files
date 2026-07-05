@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_11602.png
+
+Convert to Markdown7. Information in the CHOWLINE and PALMETTO cases has been disseminated to Dr. Kissinger and the Attorney General. Dr. Kissinger has commended the Director and the FBI in this matter and specifically requested that he be kept informed of any additional developments
+
+VII. Soviet Information Collation System (SICS)
+
+SICS is the system in which we have utilized automatic data processing equipment to record data concerning Soviet officials in the U. S. Since the last inspection, a continuing expansion has been made in this system and we are looking to the inclusion of Satellite personnel in the near future. This is a time consuming project which holds a tremendous potential, already partially realized, for reducing administrative work and making our overall investigative operations more efficient and successful. Detailed write-up is included in Section 5-Q of the inspection report.
+
+VIII. Recovery
+
+$9,288.76 has been claimed as a recovery in the SNOOD case. This is the amount paid Internal Revenue Service as tax on income belatedly reported by subject due to action by the Bureau.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8/19/71
+EWL:pdr
+4-E
+
+65
+
+NW-88608-DocID:32889638 Page:77

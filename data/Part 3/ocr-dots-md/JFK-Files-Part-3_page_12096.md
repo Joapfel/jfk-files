@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_12096.png
+
+Convert to MarkdownRESEARCH SECTION
+
+| | Cases | Men | Average |
+| :--- | :---: | :---: | :---: |
+| Front Office | 0 | 2 | 0 |
+| Central Research Unit | 0 | 5 | 0 |
+| Racial and New Left Reporting Unit* | 0 | 4 | 0 |
+| Special Records Unit** | 0 | 2 | 0 |
+| | - | - | - |
+| | 0 | 13*** | 0 |
+
+\*Combining two units frees one SIC to handle informants in Internal Security Section.
+
+\*\*Will assume record keeping function for Security Informants.
+
+\*\*\*This low complement of Agent personnel should stand up when super clerks (4) are taken into account.

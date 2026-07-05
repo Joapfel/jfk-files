@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11966.png
+
+Convert to MarkdownSAC Letter 70-30 (D) dated 6/2/70 reiterated prior instructions of moratorium on Security Matter - Communist investigations. Recent field inspections indicated some offices needed clarification of this moratorium. The SAC Letter noted instructions concerning moratorium only applied to routine communist investigations and not those individuals belonging to such groups as the Weatherman, Progressive Labor Party, Socialist Workers Party and Young Socialist Alliance.
+
+Bureau airtel to all offices 7/16/70 noted that New Left terrorism is continuing through bombings, arsons and other forms of violence and each SAC must personally insure sufficient personnel are assigned to handle these matters as well as investigating individuals involved and those following Weatherman ideology of utilization of violent revolutionary tactics against our Government.
+
+Bureau airtel to select offices dated 8/20/70 handling Key Activists were instructed to promptly submit to the Bureau sufficient handwriting specimens of each Key Activist and the specimen is to be placed in the National Security File maintained by the Laboratory. This was done in view of the propensity for violence of these individuals and the fact a number of them are currently Bureau fugitives.
+
+SAC Letter 70-46 dated 9/1/70 captioned "New Left Movement - Violence, Internal Security - Miscellaneous (Weatherman)" refers to strategic sabotage plans of Weatherman against military and police installations and "Declaration of War" by Weatherman underground and instructs all security personnel to develop better informant coverage. This development should concern informants and sources who can furnish advance information regarding activities of Weatherman and other terrorist groups and was specifically stressed.
+
+By airtel to all offices dated 9/3/70 captioned "Attacks on Police, Extremist Activity" the field was instructed, because of increased attacks on police, that it can be expected there will also be physical attacks against the FBI and it should be insured that all Special Agent personnel are fully cognizant of this possibility. If information is received targeting police, appropriate

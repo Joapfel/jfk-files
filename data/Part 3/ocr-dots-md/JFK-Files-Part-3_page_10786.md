@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_10786.png
+
+Convert to Markdown2. During World War II (1941 - 1945)
+
+a. The FBI's Role
+
+During World War II, as prior to the war, foreign intelligence collection in this country was geared to and principally a product of our intensive efforts in the counter-intelligence field. It is also significant to note that a steady stream of foreign intelligence continued to be developed from our technical coverage of diplomatic establishments of enemy-bloc countries, as well as other sensitive countries such as Russia, Argentina, Portugal and Spain.
+
+In line with the Presidential Directive of September 6, 1939, the FBI continued to be in charge of all investigative work in matters pertaining to espionage, sabotage, counterespionage, subversive activities and violations of the neutrality laws.
+
+On January 8, 1943, the President issued another Directive in which he reiterated the previous Directive of September 6, 1939.
+
+In ordering the FBI to take charge in the foregoing areas, President Roosevelt did not define the various types of intelligence involved but placed the entire intelligence and internal security responsibilities involved under the jurisdiction of the FBI. As a matter of fact, in carrying out these responsibilities we did produce foreign intelligence in substantial quantity especially through our technical coverage of foreign diplomatic establishments.
+
+b. Office of Strategic Services
+
+The position of Colonel William J. Donovan as Coordinator of Information (COI) was created by Presidential Directive dated July 11, 1941. On July 14, 1941, President Roosevelt sent a letter to the Attorney General stating the position was created, "in order to provide a central point in the Government for the analysis of information and data which bears upon national security." The President described Donovan's duties as "assist me and the various Departments and agencies of the Government in assembling and correlating information which may be useful in the formulation of basic plans for the defense of the nation."

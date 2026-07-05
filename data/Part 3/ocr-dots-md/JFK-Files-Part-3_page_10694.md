@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_10694.png
+
+Convert to MarkdownThis klavern is the newest active klavern and has about 40 members, of which about 16 are active. They ousted one Exalted Cyclops who indicated he favored aggressive action, and several members have quit because of the views of this Exalted Cyclops. This is the only klavern in the Savannah Division believed to have an "action" group within the klavern.
+
+At a meeting on 7/27/64, the Exalted Cyclops stated CALVIN CRAIG, State Grand-Dragon, had advised them to start a military unit. They plan to have this unit trained in a secret type of training. It was indicated that in the event the Communists and Negroes attempt to take over public facilities, that the klan would take over operation of the railroads.
+
+At a meeting on 8/11/64, it was decided the military unit would be called the "Brothers of Patriots" and that they have a bank account as such. A fee is charged to join, and they are going to teach the members judo.
+
+The most effective disruptive action taken against the klan so far was the interviewing of klan members in connection with the "Bapbomb" case.
+
+It is believed the most effective counterintelligence program would be a program that would reveal to the members of this organization that their identities are known to the FBI. This would include a program of harassment by setting up "not too discreet" stake out of the meeting places or roads leading to meeting places to obtain license numbers, interview of the klan members, neighborhood investigations and inquiry at their places of employment concerning the members' activity in the klan.
+
+It is further believed that efforts should be made during the course of these inquiries to obtain knowledge concerning the individual member's personal life which might
+
+-3-

@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_10767.png
+
+Convert to MarkdownMemorandum to Mr. Belmont
+RE: AGREEMENT REACHED IN CONNECTION WITH
+THE PROPOSED REASSIGNMENT OF SUPERVISORY
+RESPONSIBILITY INVOLVING THE KU KLUX KLAN,
+OTHER HATE GROUPS, AND RACIAL MATTERS
+
+III. The Domestic Intelligence Division will assume the responsibility for formulating and carrying out disruptive counterintelligence programs against such organizations.
+
+IV. The Domestic Intelligence Division, in addition, is willing to go beyond the recommendations approved by the Director related to the above and will, with Bureau approval, develop highly placed, quality informants in certain legitimate organizations whose activities generally relate to racial matters, such as
+
+National Association for the Advancement of Colored People (NAACP)
+
+Congress of Racial Equality (CORE)
+
+Student Nonviolence Coordinating Committee (SNCC)
+
+Southern Christian Leadership Conference (SCLC) - headed by Martin Luther King
+
+White Citizens Council
+
+(Each one, of course, will be handled on a carefully selected basis and the action approved individually by the Bureau.)
+
+V. Similarly, the Domestic Intelligence Division is willing to go beyond what was originally approved and will, with Bureau authorization, proceed to establish informants and sources in Negro communities throughout the Nation for the purpose of developing intelligence information relating to the degree of racial tension; the possibility of violence erupting in the form of riots, etc.; and will disseminate this material to all interested persons inside and outside the Bureau.
+
+The organizations and objectives as set forth in paragraphs IV and V above are being made the subject of a separate memorandum inasmuch as this involves a matter of policy and will have to be acted on separately subject to approval by the Director.

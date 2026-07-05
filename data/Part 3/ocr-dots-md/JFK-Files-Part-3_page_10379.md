@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10379.png
+
+Convert to Markdown# Supplemental Agreement No. VI
+## to the Delimitations Agreement
+
+### Investigation in Areas Not Specifically Assigned
+
+It is agreed by the military subscribers to the Delimitations Agreement that the references therein in paragraphs III. 4., IV. 4., and V. 4. to "areas where the Army (Navy, Air Force) Commander has supreme jurisdiction over the armed forces stationed therein" shall be interpreted as referring to areas where the Department of the Army (Navy, Air Force) is responsible for the administrative and logistic support of the Headquarters of Commands established by the Secretary of Defense.
+
+(Approved by I.I.C. November 4, 1959)
+
+All information contained herein is unclassified
+DATE 1/18/61 BY SP-2 ARMY

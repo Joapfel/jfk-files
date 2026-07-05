@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_10857.png
+
+Convert to MarkdownJ. GENERAL FINDINGS
+
+The study conducted by the Committee has produced the following significant findings:
+
+(1) There definitely is a vast potential for collection of foreign intelligence in the U. S. available through overt and clandestine channels. Even with the available capabilities of existing agencies, there is a large reservoir of untapped sources.
+
+(2) CIA has been authorized by statute and implementing directives to collect foreign intelligence in the U. S. through overt methods and has been involved in such collection since the establishment of the Agency. This includes review of foreign language press and interviews with selected individuals such as American businessmen, aliens, and students. In addition, CIA has established an elaborate system of processing, storing, evaluating, and disseminating this information.
+
+(3) Such overt collection by CIA does not present any threat or infringement on FBI jurisdiction or operations. The present Bureau controls for such/ CIA activity are satisfactory.
+
+(4) We concluded that it would be highly undesirable for the Bureau to become responsible for overt collection of foreign intelligence in the U. S. The necessary reorganization, expansion of facilities and manpower, and heavy task of information collection and processing could place a damaging burden on the Bureau.
+
+(5) There has never been any statutory or similar provision for the clandestine development by CIA of foreign intelligence in the United States. There are instances where the FBI has received specific assignments which encompassed foreign intelligence collection in the United States (SIS operations covering entire Western Hemisphere in World War II; present operations concerning Dominican Republic). There is no statute or directive which assigns or confirms exclusive FBI jurisdiction in clandestine development.

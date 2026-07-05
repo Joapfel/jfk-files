@@ -1,0 +1,177 @@
+# JFK-Files-Part-3_page_11292.png
+
+Convert to MarkdownCLIPPED
+TELETYPE UNIT
+
+MAR 26 6 48 PM '75
+
+A
+U
+D
+G
+V
+E
+R
+T
+I
+O
+N
+E
+S
+S
+I
+L
+L
+I
+N
+G
+R
+O
+U
+D
+A
+E
+N
+D
+M
+O
+R
+P
+F
+Y
+H
+Z
+L
+J
+K
+0
+1
+2
+3
+4
+5
+6
+7
+8
+9
+:-
+_
+
+# U. S. DEPARTMENT OF LABOR AND EMPLOYMENT AGENCIES FOR THE YEAR ENDED SEPTEMBER 30, 1974
+
+THE OFFICE OF LABOR COMMISSIONER FOR THE PERIOD ENDED JUNE 30, 1974
+
+<table>
+   <thead>
+    <tr>
+     <td>DATE</td>
+     <td>VILLAGE</td>
+     <td>DEPARTMENT</td>
+     <td>OFFICE</td>
+     <td>YEAR</td>
+     <td>CITY</td>
+     <td>STATE</td>
+    </tr>
+   </thead>
+   <tbody>
+    <tr>
+     <td>1</td>
+     <td>MAY</td>
+     <td>2</td>
+     <td>1974</td>
+     <td>OF</td>
+     <td>LIFE</td>
+     <td>IS</td>
+    </tr>
+    <tr>
+     <td>2</td>
+     <td>JULY</td>
+     <td>2</td>
+     <td>1974</td>
+     <td>IN</td>
+     <td>THE</td>
+     <td>LABOR</td>
+    </tr>
+    <tr>
+     <td>3</td>
+     <td>AUGUST</td>
+     <td>2</td>
+     <td>1974</td>
+     <td>AT</td>
+     <td>THE</td>
+     <td>OFFICE</td>
+    </tr>
+    <tr>
+     <td>4</td>
+     <td>SEPTEMBER</td>
+     <td>2</td>
+     <td>1974</td>
+     <td>FOR</td>
+     <td>ANNUAL</td>
+     <td>REPORT</td>
+    </tr>
+    <tr>
+     <td>5</td>
+     <td>NOVEMBER</td>
+     <td>2</td>
+     <td>1974</td>
+     <td>ON</td>
+     <td>THE</td>
+     <td>AGENCY</td>
+    </tr>
+    <tr>
+     <td>6</td>
+     <td>OCTOBER</td>
+     <td>1</td>
+     <td>1974</td>
+     <td>TO</td>
+     <td>THE</td>
+     <td>EMPLOYEES</td>
+    </tr>
+    <tr>
+     <td>7</td>
+     <td>NOVEMBER</td>
+     <td>1</td>
+     <td>1974</td>
+     <td>BY</td>
+     <td>THE</td>
+     <td>AGENCY</td>
+    </tr>
+    <tr>
+     <td>8</td>
+     <td>DECEMBER</td>
+     <td>1</td>
+     <td>1974</td>
+     <td>OF</td>
+     <td>THE</td>
+     <td>EMPLOYEES</td>
+    </tr>
+    <tr>
+     <td>9</td>
+     <td>DECEMBER</td>
+     <td>1</td>
+     <td>1974</td>
+     <td>AND</td>
+     <td>FOR</td>
+     <td>THE</td>
+    </tr>
+    <tr>
+     <td>10</td>
+     <td>DECEMBER</td>
+     <td>1</td>
+     <td>1974</td>
+     <td>UPON</td>
+     <td>THE</td>
+     <td>FINAL</td>
+    </tr>
+   </tbody>
+  </table>
+
+<table>
+  <tr>
+    <td>1</td>
+    <td>XII</td>
+    <td>XII</td>
+    <td>XII</td>
+    <td>XII</td>
+    <

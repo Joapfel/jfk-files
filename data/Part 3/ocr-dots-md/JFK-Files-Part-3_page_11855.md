@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_11855.png
+
+Convert to MarkdownSUGGESTION MEMORANDUM
+
+RE: PAYMENTS TO SECURITY INFORMANTS
+AND CONFIDENTIAL SOURCES
+
+INSPECTOR E. S. MILLER:
+
+Present regulations allow for payments up to $400 with SAC authority on a COD basis to individuals being developed as informants on security matters. (Manual of Instructions, Section 107, page 14.) Once the individual is paid $400 and it appears he will furnish information on a regular basis, recommendation could be made to Bureau to pay him on "regular basis." Such authorization is through usage of FD-401. After the initial payments are approved, every 6 months an FD-401 is submitted requesting continuance, and, if approved, is stamped "approved" at the Bureau and returned. (Manual of Instructions, Section 107, page 15.)
+
+In view of current Government-wide economy move and the Bureau's own economy program, it is imperative that the field exercise great care and scrutiny in payments to informants to assure that payments on a "regular basis" are fully justified and are not serving as an administrative crutch and expedient in lieu of payments under SAC authority.
+
+A survey has been made of 80 files of informants who are presently being paid on a regular basis with respect to the date the informant was approved as a PSI, the date approval was given to pay him on a regular basis, and the amount paid the source under SAC authority before Bureau authority was sought to pay him on a regular basis.
+
+In the following 34 informant files authority was granted to pay the source on a regular basis before the field used the full amount that could have been paid under SAC authority, representing 42.5% of the total cases reviewed:
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+9/3/71
+
+JMM:bhg
+
+NW 88608 DocId:32989638 Page 330

@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_10622.png
+
+Convert to Markdownfact that only one new member was initiated, member is a non-organizational identifier of the KKK. Rock Division. Likewise, as a result of the KKK leaflets distributed encouraging people to write for applications they have received only two letters; and neither of the writers have become a member. The leaflet has met with complete failure in its effort to build up its membership.
+
+At this time the following are the only specific counterintelligence action being recommended:
+
+1. An anonymous letter be mailed to the National Office of John Birch Society, Belmont, Massachusetts, pointing out that the XKK is in full control of the John Birch Society Chapter in Pine Bluff. In this letter specifically mention the name of one or two of the more leading klan members who are also leading the John Birch Society in Pine Bluff.
+
+2. An anonymous letter be mailed to CHARLES D. CUTHBERTSON, Exalted Cyclops of the Pine Bluff Klavern, and a copy mailed to BILL WILLIAMS, State-Grand Dragon, with the letters to be mailed to the Post Office Box in Pine Bluff and in Texarkana, Arkansas, of the AAK. The letter should be a complaining letter from a member who was active in the past and who recently found one of the KKK leaflets in his automobile which leaflet encouraged membership. The letter would let them know why he has not rejoined; it would point out that he dropped out because of such leadership as J.E.BUTRAM, who has used the klan for personal gain as BUTRAM had a residence on his property remodeled at klavern expense and then made the klavern stop holding meetings there; that BUTRAM has now donated land for the Butram Country Club so that he can sell his surrounding land for building lots at an exorbitant price. The letter should also set forth the fact he heard BUTRAM was discharged from the Army for mental deficiency (moron). This letter should be mailed from Little Rock.
+
+Interviews of klan members and leaders in the past (for example, at the time of the assassination of President KENNEDY and on particular bombing matter cases)

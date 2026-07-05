@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_12861.png
+
+Convert to Markdownby the respective Chairman to be trustworthy and unless access to such information or material is necessary in the performance of the person's duties.
+
+Where there is a question of trustworthiness for access to classified information, the Committee Chairman may wish to have the summary memorandum furnished to the Director of Central Intelligence (DCI) by the FBI, with a request for the DCI's advice. In all instances, the Committee Chairman will make the final determination.

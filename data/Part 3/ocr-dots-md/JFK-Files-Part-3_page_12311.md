@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_12311.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: SENSTUDY 75
+62-116395
+
+instances of institution of counterintelligence activities were discussed, and it was indicated that these activities were minor as far as the overall BPP investigation was concerned.
+
+In connection with COINTELPRO, the Bureau letter to SAC, San Francisco dated 5/11/70 captioned "Counterintelligence and Special Operations" was discussed. Basically, this letter suggests San Francisco consider a proposal that through the use of documents subtly incorporating false information, attempt to give the BPP the impression that the documents were stolen by a disgruntled police employee who is sympathetic to the Panthers. This document was presented to the House of Representatives Committee on Internal Security in 1974 and was included in their publication of hearings conducted by that Committee. Messrs. Seidel and Smith wanted to know if the activities outlined in this letter had been implemented by the San Francisco or Los Angeles Offices. He was advised that this letter was not implemented as it had requested comments and recommendations of the San Francisco Office, and that Office had recommended against the proposals contained therein.
+
+Mr. Seidel asked the identity of the SAC who recommended against this proposal and was advised that the SAC there, at that time, would not necessarily have had personal knowledge of the matter. He then asked identity of supervisor who recommended against proposal and was advised this information was available in the field office. Concerning COINTELPRO in general, he inquired as to specific techniques used against the BPP and whether forgery and wiretaps had been a part of the program. He was advised that we were unable to furnish that information without extensive file review.
+
+Mr. Seidel attempted to discuss Special Operations but he was advised that the matter was not within the purview of the current meeting.
+
+Mr. Seidel explained that they would be traveling to San Francisco and intended to interrogate personnel in that Office as well as unspecified outsiders who may have been involved in COINTELPRO. Mr. Seidel stated that he had asked for the meeting with Bureau personnel to obtain background data to aid them in these

@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_11489.png
+
+Convert to MarkdownThis document is prepared in response to your request and is not for dissemination outside your Committee. I am required to official proceedings by your Committee and the control. This is a draft and is not final. It may be revised and disclosed to unauthorized personnel without the express approval of the FBI.
+
+62-116395
+
+January 29, 1976
+
+U. S. SENATE SELECT COMMITTEE TO
+STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Reference is made to SSC letter dated January 20, 1976.
+
+Item 1 of referenced letter requested access to all material furnished to the FBI "by the CIA from a source known to the FBI as 'COLGS' and who was handled as a source under the heading 'racial extremist matters.'" It was indicated in Item 1 that CIA had already given the Committee Staff access to the material in its possession relating to this source.
+
+In view of the Third Agency considerations present, this request was discussed on January 23, 1976, by a representative of this Bureau with Mr. Walter Elder of the CIA Review Staff. Mr. Elder advised that CIA had no record of "COLGS" but that it did have information concerning "CLOGS," the cryptonym for an individual who was a source of CIA. During the period 1970-1971, CIA furnished to the FBI approximately 30 memoranda containing information from "CLOGS." According to Elder, the SSC has seen everything which CIA has in its files concerning "CLOGS," including the approximate 30 memoranda which CIA
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+had furnished to the FBI. Elder expressed the preference that this Bureau respond to the referenced request by referring the SSC back to CIA.
+
+FBI files contain a single reference to "CLOGS," that being a CIA memorandum dated May 17, 1971, indicating "CLOGS" to be a CIA source.
+
+SFP:1hb/lhb ORIGINAL AND ONE COPY TO AG
+
+(8)
+
+MAIL ROOM ☐ TELETYPE UNIT ☐
+
+SEE NOTE PAGE 2
+
+ENCL: URE
+
+GPO : 1975 O - 569-920

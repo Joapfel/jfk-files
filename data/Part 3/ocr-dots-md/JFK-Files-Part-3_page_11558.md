@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11558.png
+
+Convert to Markdown(8) The White House and the Attorney General's Office are closely following this matter and all other leak cases, and in this respect the Attorney General's Office has sent numerous communications requesting certain leads be covered by the FBI. These requests must be analyzed by DID and the appropriate communications answered, which is a time-consuming administrative procedure.
+
+In regard to the last situation noted above, you are aware that the Department is reviewing for lead purposes the daily teletypes we furnish them. Thereafter, they send us a communication requesting us to conduct these leads. This must be stopped. Such a procedure is unproductive and time consuming, resulting in additional unnecessary communications to the Department. You are instructed to immediately advise the Department that the purpose of the daily teletypes is to make them cognizant of the developments in this case and that the FBI fully intends to pursue all other logical investigation based on these communications.
+
+With the importance of this case, the urgency of the problems to be resolved, the immediacy of the work to be performed, and the volume of communications received daily, there appears sufficient work at the present for nine Supervisors. However, you must constantly evaluate the work load to assure that the assigned manpower is fully justified. Also, much of the present work is exploratory, which involves researching and analyzing and thereafter assuring that the many facets are immediately and fully probed. Once these exploratory aspects are sufficiently investigated, this case will be directed toward more specific objectives which will narrow the investigative field. As this transition period is entered, immediate consideration should be given to reducing the manpower assigned to this matter. Also, it is incumbent upon you to make certain that all logical investigation is expeditiously and fully conducted in order that the Bureau will not be subjected to criticism by any person or agency.
+
+A review of this matter indicates that you should continue affording it top priority supervision and direction.
+
+Comments of Assistant Director and Section Chief Wannall requested.

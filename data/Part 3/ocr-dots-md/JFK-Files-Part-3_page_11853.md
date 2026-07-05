@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_11853.png
+
+Convert to Markdownwithin the Black Nationalist - West Unit should the cases be absorbed there with no added clerical employees. In view of the above it is felt that the Racial Intelligence Section can absorb the additional cases without an added clerk.
+
+Based on the above it can be seen that at least 7 clerical positions could be dissolved without an unreasonable burden being placed on the remaining.

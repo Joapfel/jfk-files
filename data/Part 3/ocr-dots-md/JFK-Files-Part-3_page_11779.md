@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11779.png
+
+Convert to MarkdownADDENDUM: 5-A-lc
+
+**ASSISTANT DIRECTOR C. D. BRENNAN:** In February, 1971, I issued instructions that each Section Chief submit monthly case load figures for his Section to the Branch Chiefs to be furnished to me with the Branch Chief's analysis as a basis for establishing a logical and current method of periodically assessing work loads and manpower needs within the Division. Inasmuch as it was intended these figures would serve as a guide for possible manpower changes to meet fluctuating and ever-changing problems, it was essential that figures presented be accurate and equally essential that like matters be tabulated uniformly.
+
+On August 6, 1971, I instructed that a study be made to insure consistency not only in the counting of the cases but in the presentation of the monthly reports. As a result of this study, guidelines were firmly established concerning case counts within the various Sections. Changes from prior figures principally relate to cases involving (1) security informants (2) Security Index cases (3) certain organizations and other matters requiring only periodic reports.
+
+Under the standardized procedures for case counts within the Division, informant cases, whether relating to security informants or PSIs, once initial approval by the Bureau for designation has been granted and where active day-to-day supervision is not necessary, are no longer retained in a pending status but are closed and placed on an administrative tickler to be reopened at the appropriate time to follow for the periodic justification letters required. Cases involving Security Index subjects as well as certain organizations and other matters requiring only the submission of periodic reports at no less than six month intervals, are now opened on a uniform basis 15 days after the due date of the periodic report in order that appropriate followup may be made to insure submission of report.
+
+A format was devised for the Section Chiefs to submit the monthly data required and to account for each Agent in the Section and his current assignments as well as total and average case load figures by Unit and by Section.

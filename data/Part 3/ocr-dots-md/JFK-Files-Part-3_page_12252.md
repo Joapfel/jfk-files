@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_12252.png
+
+Convert to MarkdownSTANDARD FORM NO. 1159a
+
+Form prescribed by Comptroller General U.S.
+May 1, 1935, in General Regulations No. 125.
+
+(This space may be used to further identify services required.)
+
+INSTRUCTIONS TO TRAVELERS
+
+1. This memorandum should be forwarded in accordance with administrative instructions.
+
+2. Inasmuch as the memorandum card copy of the transportation request serves a very important administrative record, care must be exercised that such copy is legible and complete in all respects when forwarded.
+
+3. Indicate above the actual services furnished where same varies from that requested.
+(See paragraph 1 of "CONDITIONS" on reverse of original request.)

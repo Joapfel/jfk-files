@@ -1,0 +1,62 @@
+# JFK-Files-Part-3_page_11271.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 26 1975
+
+TELETYPE
+
+NRO01 BU CODE
+
+4:04 PM URGENT MARCH 26, 1975 TRR
+
+TO DIRECTOR
+
+FROM BUFFALO KYYXXX(66-NEW)
+
+ATTN: BUDGET AND ACCOUNTING SECTION
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+REBUTEL DATED MARCH 24, 1975.
+
+BUFFALO DIVISION HAS TWO SUPERVISORS AND 28 SPECIAL AGENTS ASSIGNED TO INTERNAL SECURITY AND COUNTERINTELLIGENCE MATTERS BUT NOT NECESSARILY ON A FULL TIME BASIS.
+
+FOLLOWING IS A BREAKDOWN OF FIELD AGENT PERSONNEL ASSIGNED TO THESE AREAS ON FULL TIME BASIS:
+
+INTERNAL
+
+SECURITY
+
+COUNTERINTELLIGENCE
+
+SAC
+
+0
+
+0
+
+ASAC
+
+0
+
+0
+
+SUPERVISORS
+
+0
+
+0
+
+SPECIAL AGENTS
+
+6
+
+0
+
+3/10
+
+NEW 88608 DocId:32989628 Page 289
+
+All information contained within this document is classified. Do not read it without a attorney's help. The contents of this document may be used by any attorney in the state where he practices law. This document is intended for the use of the addressee only and may not be photocopied or reproduced without written permission from the copyright owner. Date: 1-17-61 BY: SPW Albert H. H.

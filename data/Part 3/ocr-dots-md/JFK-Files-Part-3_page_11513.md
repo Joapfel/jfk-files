@@ -1,0 +1,54 @@
+# JFK-Files-Part-3_page_11513.png
+
+Convert to MarkdownWilliam H. Lawrence
+314 Swiss Pine Lake Dr.
+Spruce Pine, N.C. 28777
+February 7, 1976
+
+Mr. James B. Adams
+Deputy Associate Director,
+Federal Bureau of Investigation
+Washington, D.C. 20535
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE W1/00 BY SP 2 ALM/EHL
+
+Dear Mr. Adams:
+
+RE: Criticisms of FBI By U.S. Senator,
+Robert B Morgan of North Carolina
+
+Reference my letter of January 23,1976 addressed to you and enclosing data concerning publicly uttered adverse remarks about the FBI made by U.S. Senator Robert B.Morgan(D),N.C., on January 15,1976 before the Asheville,N.C.Chamber of Commerce, and my letter of rebuttal to Senator Morgan dated January 24.
+
+Since then the "Asheville Citizen" Asheville N.C. printed a portion of my rebuttal in its January 30,1976 issue, in an article titled:"Retired Agent Questions Morgan's FBI position". A copy of this news item is enclosed.
+
+Also I've received replies from U.S. Senator Jesse Helms, (R),N.C. and from U.S.Representative, Roy A.Taylor, (D),N.C. who represents the Eleventh Congressional District and which includes the Asheville and Spruce Pine areas. I'm enclosing copies of their replies which you will find are supportive and encouraging. In fact, Mr. Taylor went out of his way to support the FBI in his remarks of January 22,1976 in the Congressional Record. Acopy of his remarks is also enclosed.
+
+Finally, on February 5, 1976 I received a reply from
+Senator Morgan, dated February 3, 1976 which was less than
+favorable. A copy of his letter is enclosed. Today I
+am replying to Mr. Morgan in the form of a letter to him
+dated February 7, a copy of which I'm enclosing for you.
+
+These efforts may prove to have been in vain- but if one convictions as I have and fails to take a stand, he is more remiss than one who is neutral for who has no convictions at all.
+
+With friends like Jesse Helms and Roy A.Taylor Let's not give up hope.
+
+10 MAR 16 1976
+
+Enclosures
+
+ENCLOSURE
+
+INITIALS ON ORIGINAL NOT RECORDED
+
+46 APR 14 1976
+
+FEB 19 1976
+
+CORRESPONDENCE
+
+84 APR 16 1976
+
+NW 88608 DocId:32989578 Page 51

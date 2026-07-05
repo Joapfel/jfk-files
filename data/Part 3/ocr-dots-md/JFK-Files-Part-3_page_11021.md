@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_11021.png
+
+Convert to MarkdownU. S. MARINE SELECT COMMITTEE TO STUDY GOVERNMENT
+OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SEC)
+
+RL: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA) BY
+DSC STAFF MEMBER
+
+dead letter office. Sullivan concurred that no return address should be used. Thus, Sullivan would probably have reason to have commented regarding the use or nonuse of a return address.
+
+On April 24, 1975, Whitson furnished by telephone to the aforementioned Bureau official the following additional information which he had not furnished to Epstein. Whitson stated it was now his recollection he had made the Miami trip either in the late Summer or early Fall of 1964 and that King was "away" at the time.
+
+FBI Records Concerning Whitson's Travel
+
+The following information is on record in the FBI concerning the travel of Whitson discussed above. On December 9, 1964, a Travel Voucher was processed for payment to Whitson the sum of $19.40 for travel during the period November 1-30, 1964. On record also is a memorandum copy of a Government Transportation Request issued November 21, 1964, to National Airlines in the sum of $107.40 for air coach travel, Washington, D. C., to Miami, Florida, and return. November 21, 1964, has been determined to have been a Saturday. There is not available in the FBI any copy of the actual voucher submitted by Whitson.
+
+NOTE: Original and one copy to the Attorney General (AG may forward the copy to James A. Wilderotter, Associate Counsel to the President). Information herein taken from two memoranda W.R. Wannall to J. B. Adams 4/23, 24/75, "Senstudy 75; Former Supervisor Lish Whitson, Assigned Intelligence Division." Voucher and GTR information from J. D. Cox, Voucher Unit, Computer Systems Division. :

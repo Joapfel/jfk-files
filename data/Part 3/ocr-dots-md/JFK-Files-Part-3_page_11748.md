@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_11748.png
+
+Convert to MarkdownSECTION CHIEF W. R. WANNALL
+NATIONALITIES INTELLIGENCE SECTION
+
+In connection with our objective of being prepared to counteract and/or neutralize the Chinese communist (Chicom) intelligence and subversion effort we expect will be mounted against this country, it is proposed that the following action be recommended for implementation immediately. In each case, a separate memorandum containing appropriate recommendation will be submitted within the next ten days.
+
+1. Initiate investigations on 300 of the over 600 individuals listed in our Chinese Universities and Graduate Schools Index. This effort would be aimed at developing quality sources we can direct against the Chicom as well as developing intelligence from among a group of well-educated Chinese aliens. Based on our initial accomplishments in this area, additional cases on the balance of more than 300 names in the above Index would be opened for the purposes indicated above.
+
+2. Initiate investigations on 500 ethnic Chinese scientists who have security clearances. This represents an expansion of our current effort which we have heretofore limited to five field offices representing a total of 50 individuals in the above category. The objective of this effort is to identify ethnic Chinese scientists who would, under Bureau direction, be willing to initiate contacts with Chicom for the purpose of making themselves available for possible recruitment by Chicom intelligence.
+
+We have a listing of over 3500 ethnic Chinese scientists who have security clearances, and opening 500 cases would be our initial attempt to expand source development in this area. Depending on the success of this effort, additional cases would be considered for opening for the purpose indicated above.
+
+3. Expand our investigations relating to United States residents who visit Communist China to include development of background information on each visitor and, except in cases where the purpose of the visit appears legitimate on its face, to consider these individuals for interview. Such expansion is the obvious follow-up to the recent lifting of restrictions on travel by U. S. citizens to Red China. Experience in the
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+FXO·dgo
+
+8/31/71
+
+NW 88608 DocId:32989638 Page 223

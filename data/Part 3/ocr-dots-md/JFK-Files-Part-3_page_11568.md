@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_11568.png
+
+Convert to MarkdownACCOMPLISHMENTS
+INTERNAL SECURITY SECTION
+
+4-E
+
+SECTION CHIEF - ARBOR W. GRAY
+
+Attached are memoranda setting out noteworthy accomplishments of the Internal Security Section since the last inspection.
+
+This Section is responsible for supervision of investigations of the Communist Party, USA, its fronts, pro-Chinese communist groups, selected Trotskyist-communist groups, Klan and white hate groups, international organizations affiliated with the world communist movement and international New Left extremist movement, individuals affiliated with these organizations and movements, as well as sedition cases. Our purpose is to gather evidence to support prosecutions of these subversive organizations and individuals under various statutes relating to the internal security of the Nation and to gather intelligence of interest to Government officials and other agencies. The Section also supervises the development and administration of security informants in basic revolutionary organizations and other subversive and New Left groups. Where appropriate, the Section directs counterintelligence operations against subversive groups and individuals in cases under our supervision.

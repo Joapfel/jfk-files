@@ -1,0 +1,73 @@
+# JFK-Files-Part-3_page_11342.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 27 1975
+
+TELETYPE
+
+NRØ15 NO CODE
+
+7:15PM URGENT MARCH 27,1975 JMF
+
+TO DIRECTOR, FBI
+
+FROM SAC, NEW ORLEANS (66-2832)
+ATTENTION: BUDGET AND ACCOUNTING SECTION
+
+SENATE SELECT COMMITTEE ON INTELIGENCE ACTIVITIES.
+
+RE BUREAU NITEL MARCH 24,1975; NEW ORLEANS TELETYPE
+MARCH 26,1975; BUTEL CALL MARCH 27,1975.
+
+THE FOLLOWING ARE CORRECTIONS TO REFERENCED NEW ORLEANS
+TELETYPE. NUMBER OF SUPERVISORS ASSIGNED TO INTERNAL SECURITY
+(IS) AND COUNTERINTELLIGENCE MATTERS, ONE; NUMBER OF AGENTS
+ASSIGNED TO IS MATTERS, TWELVE, OF WHICH SEVEN ARE ALSO
+ASSIGNED TO COUNTERINTELLIGENCE MATTERS. PERCENTAGE OF AGENT
+TIME SPENT ON IS MATTERS, 25 PERCENT AND PERCENTAGE OF AGENT
+TIME SPENT ON COUNTERINTELLIGENCE MATTERS 35 PERCENT. PERCENTAGE
+OF SUPERVISORY TIME SPENT ON IS MATTERS 25 PERCENT, AND 35
+PERCENT SPENT ON COUNTERINTELLIGENCE MATTERS.
+
+END MESSAGE.
+
+DBS FBIHQ CLR
+
+<table>
+  <tbody>
+    <tr><td>Assoc. Dir.</td></tr>
+    <tr><td>Dop.-A.D.-Adm.</td></tr>
+    <tr><td>Dep.-A.D.-Inv.</td></tr>
+    <tr><td>Asst. Dir.:</td></tr>
+    <tr><td>Admin.</td></tr>
+    <tr><td>Corp. Syst.</td></tr>
+    <tr><td>Ext. Affairs</td></tr>
+    <tr><td>Fc'd. Com.</td></tr>
+    <tr><td>Tev.</td></tr>
+    <tr><td>L</td></tr>
+    <tr><td>P.</td></tr>
+    <tr><td>Eval.</td></tr>
+    <tr><td>S.</td></tr>
+    <tr><td>pct.</td></tr>
+    <tr><td>Tra.</td></tr>
+    <tr><td>Trig.</td></tr>
+    <tr><td>Legal Coun.</td></tr>
+    <tr><td>Telephone Rm.</td></tr>
+    <tr><td>Director See's</td></tr>
+  </tbody>
+</table>
+
+# MOR16
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/17/01 BY SPZ L2 McML2G
+
+44
+
+2/16
+
+3/16
+
+2/18

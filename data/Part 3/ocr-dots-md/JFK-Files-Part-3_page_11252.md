@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_11252.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : Mr. Groover
+
+FROM : J. J. Clynick
+
+SUBJECT: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
+
+DATE: 4/8/75
+
+In order to respond to item III-C of Senator Church's letter dated 3/19/75, it was necessary to survey all field offices. This was done, the response summarized and forwarded to Legal Counsel Division by memo dated 4/3.
+
+Attached hereto are the file copies of the teletypes from the field used to compile our response. It is believed these should be filed as one item as an EBF.
+
+RECOMMENDATION:
+
+That attached be filed as an EBF.
+
+Enclosure
+
+JJC:jmb
+
+ST-112
+
+APR 10 1975
+
+#MOR16 ALL INFORMATION CONTAINED therein IS UNCLASSIFIED DATE 1/17/75 BY SR-2 ALM 1776 3-JC
+
+70 APR 16 1975
+
+NW 88608 DocId:32989628 Page 270

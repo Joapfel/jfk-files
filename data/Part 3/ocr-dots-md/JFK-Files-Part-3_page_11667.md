@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11667.png
+
+Convert to MarkdownNumerous investigations have been initiated by the field as a result of these instructions and recently four BPP leaders in Richmond or Washington, D. C., were convicted for Federal gun violations and one is awaiting trial. With the emphasis being placed on violations of Federal gun laws by black extremists, the number of convictions will increase and add to the Bureau's statistical accomplishments as well as neutralizing black extremists.
+
+Investigation disclosed in Fall of 1970 that increased campus disorders involving black students posed a definite threat to the nation's stability and indicated the need for increase in both quality and quantity of intelligence concerning Black Student Unions (BSU) and similar groups which were targets for influence and control by violence-prone BPP and other extremists. On 10/29/70 the Executive Conference approved a program to conduct discreet preliminary inquiries, limited to established sources, on BSU and similar groups, their leaders, and key activists to determine if the activities of these groups and individuals warrant further active investigation. On 11/4/70 instructions were sent to the field to implement the program authorized by the Executive Conference.
+
+The results of these discreet preliminary inquiries were analyzed and it was concluded that our responsibilities could adequately be handled by limiting our inquiries to black student groups on college campuses which have engaged in violent and lawless activities or are reported by knowledgeable sources to be moving in the direction of violence and lawlessness. As a result, field offices were instructed by letter dated 7/26/71 that, thereafter, discreet preliminary inquiries on black student groups on college campuses should be limited to those groups which have engaged in violence and/or lawless activities or are moving in the direction of violence and lawlessness. Results of any preliminary inquiries conducted through established sources only in accordance with the above provisions must be reported to the Bureau in form suitable for dissemination along with recommendations regarding whether an active investigation of the group and/or its leaders is warranted. The field was instructed that
+
+138
+
+NW 88608 DocId:32989638 Page 142

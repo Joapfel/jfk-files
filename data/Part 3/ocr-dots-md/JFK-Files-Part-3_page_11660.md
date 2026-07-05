@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_11660.png
+
+Convert to MarkdownRADIO AND TECHNICAL EQUIPMENT PURCHASED BY THE SOVIETS
+
+105-36365
+
+1. Program commenced in March, 1955, in order to have central repository for information developed in connection with investigations of Soviets in this country pertaining to radio and technical equipment purchased by them.
+
+2. Washington Field and New York Offices furnish information developed concerning these purchases on a monthly basis. Dissemination of the material is made to Department of State, Central Intelligence Agency, Army, Navy, Air Force, Atomic Energy Commission, Bureau of International Commerce, United States Department of Commerce and where pertinent, to the National Security Agency (NSA). Material submitted includes name of Soviet purchaser, date, quantity, description and cost of the items purchased. It involves maintenance of three control files; one each at Bureau, Washington Field and New York Offices. Program established to achieve following objectives: disseminate to interested Government agencies information concerning purchase of technical equipment in the United States by Soviet officials; determine whether Soviet intelligence is circumventing restrictions regarding material appearing on Department of Commerce restricted export control list; and to permit discreet markings by FBI Laboratory of certain technical equipment furnished to Soviets through overt or covert means which would permit its identification at some future time.
+
+3. Since January, 1971, Program has disclosed continuing purchases by Soviet nationals of Grundig Satellite Multiband portable radios. During 3/71 one KGB officer in Washington purchased 12 of these radios at one time. Soviet husband and wife illegal team previously in U. S. used one of these radios to receive clandestine broadcasts from USSR which contained their operating instructions. Program made it possible to secure serial numbers for possible future identification. Analysis of purchases enables Laboratory to make reasonable estimate of internal communications used at Soviet establishments and security devices being operated. Program also disclosed detailed information concerning two new antennae systems purchased by Soviets from company in Nebraska. It appears one of these will be used at new Consulate General in San Francisco when permanent location for that establishment secured. Details concerning such installations are of interest, not only to FBI Laboratory, but to State Department and NSA in connection with
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/19/71
+
+ECP:eco
+
+4-H
+
+NW 88608 DocId:32989638 Page 135

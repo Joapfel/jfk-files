@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_10867.png
+
+Convert to Markdownproducing the best results. In our opinion this can be removed by the President's advising the Secretary of State that the FBI is being authorized to develop penetrations in foreign diplomatic establishments without obtaining clearances from State. It would be understood that the Bureau would proceed in a discreet and secure manner. Periodic contact with the Secretary of State or other top State officials to discuss general developments and any potential problems will provide a mechanism for healthy coordination with State. We recognize that a source can turn "sour" and, therefore, there is the danger of potential embarrassment. However, it should be noted that our record in this regard has been outstanding over the years.
+
+Any efficient investigative agency needs sources of all categories and we are no exception. Therefore, we should continue our present program of general source development, and this would include contacts who can produce information on an occasional basis or who might be in a position to be of assistance in a particular investigation. In diplomatic establishments the reception clerk, chauffeur, the maid, can always be of assistance.
+
+However, the primary emphasis of this new program would be directed toward high quality sources, such as:
+
+1) Code clerks
+
+2) Officials who have access to files, records, or communications
+
+3) Officials or employees who are in a position to penetrate communist-bloc circles or establishments
+
+4) Members of foreign intelligence and security services.
+
+Our existing programs of seeking penetrations in communist-bloc installations naturally must continue but will require an increased effort toward production of information relating to personality data, and this should be done on a larger number of individual targets. We realize that Bloc personnel does live in a fairly insulated world, and elementary investigative techniques do not produce voluminous and highly significant data. It is therefore believed that our techniques should become more sophisticated through additional coverage on the residences of individuals

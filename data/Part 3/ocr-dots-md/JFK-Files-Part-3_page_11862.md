@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_11862.png
+
+Convert to MarkdownSUGGESTION MEMORANDUM
+SURVEY CONCERNING COMPUTERIZATION OF
+SECURITY INFORMANT INDICES
+
+INSPECTOR E. S. MILLER: During this inspection, it was noted that the Securi ty Informant Index is under the supervision of the Security Informant Unit, Internal Security Section. This Index contains certain data concerning security and potential security informants but does not include the extremist, probationary extremist, or extremist-ghetto informants. It must be maintained on a timely basis. As of 8/24/71, the Index had approximately 2026, informants. This Index is maintained by 2 GS-5 clerks, one GS-3 clerk, and 30% of the time of a GS-4 stenographer on a full time basis. This means that 3 1/3 employees are utilized to maintain this Index at an annual cost of approximately $20,000.
+
+SAC Letter 71 21 (C) dated 5/18/71 instructs the field to give a symbol number designation to all individuals being developed as any type of a Bureau source of information. This required the field to submit secure teletypes to the Bureau concerning every source under development and has resulted in a backlog of work in the Index of approximately 45 to 60 days. In each instance, the clerical staff is required to pull and alter 2 cards (FD 348) on each existing source or make 2 cards on any new sources. Subsequent communications add or delete from the original information which requires the cards to be again pulled and appropriate changes recorded.
+
+It would appear that this Index would benefit from being computerized which would result in a savings of clerical time and personnel. In addition to the informants now handled by the Index, other informant indexes could probably be computerized with a similar savings.
+
+At the time of the last inspection, the Inspector suggested that record keeping operations throughout the Division should be considered for computerizing where feasible. It is suggested that immediate steps be taken through surveys and conferences to determine if it is plausible and/or practical to computerize and expand informant indexes similar to that already done to the Securi ty. and Agitator Indexes. Consideration should be
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+9/3/71
+
+RHM:mea
+
+Nw-88608 DocId:32989638 Page 337
+
+321

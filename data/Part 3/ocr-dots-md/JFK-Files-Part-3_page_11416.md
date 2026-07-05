@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11416.png
+
+Convert to MarkdownMemorandum for Mr. Wannall
+
+RE: SENSTUDY 75
+
+A memorandum from the Chairman of the USIB Security Committee advising that arrangements had been perfected for the delivery of classified documents to the SSC and describing how such documents should be delivered.
+
+ACTION:
+
+For information and record purposes.

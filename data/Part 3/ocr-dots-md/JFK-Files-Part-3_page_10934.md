@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10934.png
+
+Convert to MarkdownIn April, 1963, we received information indicating that CIA Director John McCone was considering expansion of CIA operations in the United States -- specifically intelligence coverage and the development of sources in this country. The Director made a note on the memorandum recording this: "McCone is trying to do another 'Donovan.' If he injects himself into the U. S., the FBI gets out. Too many cooks spoil the broth."
+
+In December, 1963, the Director inquired as to the nature and extent of intelligence operations wherein CIA had established contact with a diplomat, operated him in the U. S. with our coordination, and continued to operate him upon his having departed this country. Four such cases were cited. On the memorandum, the Director noted: "I have little confidence in CIA abiding by agreements if it serves its purpose better not to do so."
+
+In January, 1964, CIA advised us it had reorganized its activities in the U. S. The Domestic Operations Division, CIA, had established field offices in this country under appropriate cover. A memorandum was prepared describing the history of CIA operations in the U.-S. and recommending action designed to protect our interests. A letter went to CIA with ground rules which the Bureau expected CIA to follow in all matters requiring coordination. The Director noted: "OK, but I hope you are not being taken in. I can't forget CIA withholding the French espionage activities in the U. S. nor the false story concerning Oswald's trip to Mexico City, only to mention two of their instances of double dealing."
+
+The New York Office, by letter 2/14/64, set forth its observations concerning a briefing given that office on the matter of CIA operations in the U. S. The Director commented: "I think this domestic operations expansion of CIA is very dangerous and will inevitably 'muddy' the waters."
+
+In May, 1964, the Bureau reconsidered its stand with respect to permitting CIA to approach sources at foreign establishments in the United States for intelligence purposes. The following policy was proposed and subsequently approved:
+
+(1) Where there was no indication a source would be leaving the United States, we would deny CIA clearance for contact until we had fully explored the person's potential for our own purposes. If we decided we had no

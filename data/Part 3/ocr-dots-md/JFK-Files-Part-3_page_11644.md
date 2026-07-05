@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_11644.png
+
+Convert to MarkdownNEW LEFT GROUPS UNIT
+STUDENTS FOR A DEMOCRATIC SOCIETY (SDS)
+WORKER STUDENT ALLIANCE (WSA)
+
+In Bureau airtels 5/24/71, 6/2/71 and 6/3/71, appropriate field offices were alerted to the SDS/WSA Summer Project and its twofold objective consisting of a massive recruitment program in 21 target cities and the fostering of a general strike, nationwide, through infiltration of industry and labor unions. Instructions were given to appropriate offices to take aggressive measures to expand their informant coverage during the SDS/WSA recruitment effort, and to develop and furnish information concerning the SDS/WSA Summer Projects in their territories. Numerous SDS/WSA members have been identified as having moved into cities other than those in which they usually operate, in connection with the SDS/WSA Summer Project...
+
+New University Conference (NUC)
+
+The NUC, composed of radical professors, graduate students and teachers, is committed to the growth of a revolutionary socialist movement in the U.S., with educational institutions and professional associations being their primary targets. In Bureau airtel 6/4/71, the attention of Chicago Division, office of origin, was directed to the fact that the NUC claimed 42 national chapters plus fifteen pre-chapter groupings, with 675 national members, and anticipated further expansion. Chicago Division was instructed to insure appro-priate leads were set out to confirm the existence of all NUC chapters and to conduct appropriate investigations in accordance with Bureau instructions relating to investigations of organizations connected with institutions of learning. It was further instructed these investigations should include information concerning the leaders and leading activists, aims and objectives and the activities of these chapters.
+
+New Left Movement Reports
+
+By airtel to SAC, Albany, and all offices dated
+10/28/68, a program was instituted to obtain a comprehensive
+study of the whole New Left movement. Offices were instructed
+to prepare summary reports on the New Left movement in their
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/18/71
+
+JNO:jlm
+
+N: 88608

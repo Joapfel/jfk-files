@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_10730.png
+
+Convert to MarkdownSurveys are being conducted at Monroe, West
+Monroe, Alexandria and Bogalusa, Louisiana, pursuant to Bureau
+authority by airtel dated 9/4/64.
+
+3) Tangible Results
+
+Tangible results of such potential and pending
+counterintelligence action will be furnished the Bureau after:
+inauguration of the above.
+
+4) Miscellaneous,
+
+A completed initial analysis will reach the
+Bureau on 10/15/84 concerning this matter.

@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_12641.png
+
+Convert to Markdownto constitute a grand jury and in the absence of any charges or allegations of a violation of law on his part, he did not insist on the presence of counsel.
+
+Seidel was advised that as a former Special Agent the writer had contacted the Bureau's Legal Counsel Division and as of this date had been advised by Mr. Paul Daly thereof that he had been cleared by the Attorney General (AG) to testify to matters relating to investigation of Martin Luther King, Jr., Southern Christian Leadership Conference (SCLC), and Stanley Levison.
+
+Seidel was advised that during his interview of the writer in Atlanta, Georgia, on 5/12/75 he had asked a question as to how long after the assassination of King did the telephone surveillance continue on the King residence. On 5/12/75 the writer responded it was his recollection this coverage continued until a short time subsequent to the assassination. Following that interview, the writer recalled that either shortly before or shortly after that case was assigned to the writer, the King family had moved from one residence to another and that continuation of the telephone surveillance from the former residence to the latter one was not authorized. Secondly, Seidel on 5/12/75 had asked when the King and SCLC cases were

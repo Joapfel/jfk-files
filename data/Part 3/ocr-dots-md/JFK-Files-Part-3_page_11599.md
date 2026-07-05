@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_11599.png
+
+Convert to MarkdownIV. Counterintelligence and Special Operations
+
+In this category, on a highly selective basis we take initiative in actions which are designed to disrupt, deter or otherwise disadvantage the operations of SBIS. We employ our own resources and whenever feasible, those of other U. S. agencies. Brief examples of activity in this category since the last inspection are set forth.
+
+A former Soviet exchange student in the U. S. reappeared as an official assigned to the Soviet United Nations Mission. During his previous visit in the U. S. he had recruited a fellow student, whom we had identified as a result of information furnished by a DIP. When the Soviet recontacted this American we were in a position to control the latter's actions. At our direction the double agent wrote a letter to the Soviet United Nations Ambassador complaining about the treatment he had received and the indiscretions committed by the Soviet. The Soviet has been reprimanded and there are indications that his assignment to the U. S. will be cut short.
+
+A Soviet defector who formally operated as a KGB officer in the USSR was recently used by us to contact a Czech professor temporarily in the U. S. as an East-West exchange participant. The professor's wife is a Soviet national who was known to our defector source as an agent for the KGB in the Soviet Union. The Czech was suspected of being affiliated with Czech intelligence. An approach was made and although the Czech couple seriously considered the proposition for defection put to them, they finally decided against such action and returned to Czechoslovakia. During our contacts some information of low level intelligence significance was developed.
+
+The Soviet Government is currently engaged in securing property in San Francisco to house the office and personnel of the Consulate General. Through conferences held with State Department we have been able to exert an
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/19/71
+
+EWL:pdr
+
+4-E

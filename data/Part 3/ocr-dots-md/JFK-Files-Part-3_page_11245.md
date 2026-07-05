@@ -1,0 +1,75 @@
+# JFK-Files-Part-3_page_11245.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+# Memorandum
+
+Assoc. Dir. ____
+Dep. AD Adm. ____
+Dep. AD In. ____
+Asst. Dir.: ____
+Admin. ____
+Comp. Syst. ____
+Ext. Affairs ____
+Files & Com. ____
+Gen. Inv. ____
+Ident. ____
+Inspection ____
+Interim ____
+Laboratory ____
+Plan. & Eval. ____
+Spec. Inv. ____
+Training ____
+Legal Coun. ____
+Telephone Rm. ____
+Director Sec'y ____
+
+TO : Mr. J. B. Adams
+
+FROM : Legal Counsel
+
+SUBJECT: SENSTUDY 75
+
+DATE: 3-12-75
+
+In attached W. O. Cregar to Mr. W. R. Wannall memorandum of 3-6-75, captioned as above, it is recommended that the Legal Counsel Division coordinate and assign responsibilities to appropriate Divisions for the collection and preparation of certain materials we can anticipate the Senate Select Committee (SSC) will soon request from the FBI.
+
+In this regard, it is suggested that all Divisions receiving requests for information in connection with testimony before this Committee respond in the same commendable and expeditious manner that they responded in connection with the preparation of the Director's Brief on his testimony before the House Subcommittee on Civil Rights and Constitutional Rights. The format of this information should generally be as follows:
+
+1 - Heading in all caps, centered, brief description of contents;
+
+2 - White, watermarked bond paper, 8 x 10 1/2";
+
+3 - At least a 2" left margin. This is essential since material will be inserted into a folder;
+
+4 - Double spaced;
+
+5 - Do not number pages;
+
+6 - Each Division will be responsible for the accuracy and completeness of the information furnished in final form. This will also include up-dating any information previously furnished;
+
+7 - Use "Mag" card typewriter (courier ball); identifying caption on the card folder should be adequate to readily identify it with the corresponding paper. In addition to the caption, card folder should also have the name of the originating Division.
+
+APR 10 1975
+
+8 - Furnish all "Mag" cards to the Legislative Matters Section, Legal Counsel Division, along with the write-up.
+
+Enc.
+1 - Mr. Callahan - Enc.
+1 - Mr. Adams - Enc.
+1 - Mr. Jenkins - Enc.
+
+CONTINUED - OVER
+
+ALL INFORMATION CONTAINED
+HEREIN IS UNCLASSIFIED
+DATE 1/8/75 BY SP 2 RN/75
+
+EX 104
+REC-23
+
+56 APR 18 (1975)
+JCF: Law (1975)
+
+ENCLASUREMENT
+
+NW 88608 DocId:32989628 Page 263

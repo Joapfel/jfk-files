@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_11645.png
+
+Convert to Markdownterritories and to follow these reports with a report each quarter, similarly captioned, showing the status of the movement and its activity during the preceding three-month period. These reports have enabled the Bureau and the submitting field offices to assess the potential dangerousness of the New Left movement, determine from one document the divisive or unifying issues within the movement and whether the activity is increasing, decreasing or continuing at the level indicated in the previous report. Since individual reports have not been required on the many small local New Left groups in each territory in lieu of adequate LHM, inclusion of pertinent data concerning these groups in the quarterly report alleviates the need for regularly submitted reports and puts the activities in a better perspective within each field division. Additionally, these reports have presented on a continuing basis a clear cut picture of the entire New Left movement which identifies its leaders, sources of funds, propaganda outlets, and shows the extent to which the New Left movement has been influenced by domestic and foreign subversive elements. This program has enabled the Bureau and the field to make a self analysis of all facets of our investigation of the New Left movement so we may expand and intensify our investigation of those phases indicating a need thereof. These reports have served as a valuable research tool at the Bureau and afford the individual field divisions an opportunity to evaluate the direction and success of their investigations in the New Left movement.
+
+## New Left Movement - Finances
+
+In February, 1970, Mr. Egil Krogh, Jr., Deputy Assistant to the President for Domestic Affairs, requested, for the President, available information concerning income sources of various revolutionary groups. Since that time, information of this nature has been gathered and transmitted periodically by memoranda to the White House, Attorney General, Deputy Attorney General, and Assistant Attorney General, Internal Security Division, after approval by the Director.
+
+## Key Activist Program
+
+The Key Activist Program, described in detail in the Special Investigations Unit - West write-up, is coordinated by the New Left Groups Unit.

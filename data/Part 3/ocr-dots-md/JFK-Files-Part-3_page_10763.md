@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_10763.png
+
+Convert to MarkdownUNITED STATES GOVERNMENT
+
+Memorandum
+
+TO : MR. TOLSON
+DATE: August 4, 1964
+FROM : J. H. GALE
+SUBJECT: PERSONNEL TRANSFERS TO EFFECT PROPOSED REASSIGNMENT OF SUPERVISORY RESPONSIBILITIES IN RACIAL MATTERS AND RACIAL INFORMANTS
+
+By memorandum J. H. Gale to Mr. Tolson 7/30/64 it was recommended, and now approved by the Director, that supervisory responsibility over Racial Matters and Racial Informants be transferred from the General Investigative Division to the Domestic Intelligence Division. In accordance with this approval, proposed realignment and distribution of personnel from the General Investigative Division to the Domestic Intelligence Division are being submitted.
+
+Inasmuch as approximately 75% of the work of this Unit is now represented in the categories being transfered to Division 5, appropriate personnel transfers consistent therewith should be made:
+
+| Category | Caseload, June, 1964 | Percent |
+|---|---|---|
+| Racial Matters | 870 | 51.5% |
+| Racial Informants | 481 | 28.5% |
+| Bombing Matters | 183 | 10.8% |
+| Federal Train Wreck Statute | 80 | 4.7% |
+| Destruction of Aircraft or Motor Vehicles | 74 | 4.5% |
+| Total | 1,688 | 100.0% |
+
+REC-143
+
+The current supervisory responsibility among the seven Agent Supervisors in this Unit, including Supervisor in Charge Joseph C. Trainor, is as follows:
+
+SA J. C. Trainor supervises classifications (other than racial informants and organizations) for Atlantic Seaboard offices north of Virginia.
+
+SEP 24 1964
+
+SA J. G. Deegan has responsibility for racial informants for all field divisions and supervises other classifications for the Virginia and Florida
+
+REMOVED BY SWD
+offices.
+
+1 - Mr. Cattlahan
+Mr. Rosen
+mj (7)
+
+1 - Mr. Mohr
+1 - Mr. Sullivan
+
+1 - Mr. Belmont
+
+<table><tr><td>SENT DIRECTOR</td></tr><tr><td>S-5-64</td></tr></table>
+
+SEE NEXT PAGE
+
+PERS REC UNIT
+
+NW 88608 DocId:32989629 Page 160
+
+<table><tbody><tr><td>Mayne</td></tr><tr><td>PW-618</td></tr></tbody></table>
+
+<table><tbody><tr><td>Tolson</td></tr><tr><td>Belmont</td></tr><tr><td>Mehr</td></tr><tr><td>Casper</td></tr><tr><td>Callahan</td></tr><tr><td>Contag</td></tr><tr><td>DeLegge</td></tr><tr><td>Evans</td></tr><tr><td>Gale</td></tr><tr><td>Rosen</td></tr><tr><td>Sullivan</td></tr><tr><td>Tavel</td></tr><tr><td>Trotter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Holmes</td></tr><tr><td>Gonell</td></tr></tbody></table>

@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_10768.png
+
+Convert to MarkdownMemorandum to Mr. Belmont
+
+RE: AGREEMENT REACHED IN CONNECTION WITH
+THE PROPOSED REASSIGNMENT OF SUPERVISORY
+RESPONSIBILITY INVOLVING THE KU KLUX KLAN,
+OTHER HATE GROUPS, AND RACIAL MATTERS
+
+VI. The Domestic Intelligence Division will follow and disseminate information concerning demonstrations, picketing activities, racial disturbances, riots and incidents relating to matters of a racial nature. Any violations of a local nature which occur during the above and are not Federal violations should be disseminated by the Domestic Intelligence Division.
+
+(However, if during the course of any of the above situations, a Federal violation is indicated, this should be immediately referred to the General Investigative Division. It will be the responsibility of the General Investigative Division to conduct any necessary investigation of the specific Federal violation which occurs. It will also have the responsibility of disseminating such information to persons entitled to receive same. Where special cases arise which are not Federal violations and an investigation is requested by the White House or Attorney General, determination will be made at that time based upon the pertinent factors involved as to which PART II Division has the responsibility.)
+
+I. The General Investigative Division will have the responsibility for the Bureau's supervision relative to the enforcement of all Civil Rights legislation. It will also have the responsibility for the supervision, accumulation of information, and dissemination of material relating to civil actions being undertaken to enforce compliance with the various elements of the Civil Rights laws.
+
+II. The General Investigative Division will have the responsibility for investigating bombings, police brutality and all other Federal violations now assigned to the General Investigative Division.
+
+III. The daily racial matters memorandum disseminated to the White House, the Attorney General, etc., which is coordinated by a representative of Mr. DeLoach's Office, will be prepared in Headquarters building. This requires the use of a stenographer who reports on duty at midnight each night in order to complete the memorandum by 8:00 a.m., in the morning. This duty should be alternated, a week at a time, between Division 5 and Division 6.

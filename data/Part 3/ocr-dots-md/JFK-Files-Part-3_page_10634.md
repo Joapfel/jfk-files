@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_10634.png
+
+Convert to MarkdownBirmingham also is considering having some racial
+informants drop remarks to or for the benefit of the leaders
+of the NSRP, etc., that will tend to cause the leaders of
+one group to retaliate in like manner against the other
+groups,
+
+If the Bureau has any material on disruptive
+tactics or results of efforts, which is not already in
+all field offices, Birmingham would be glad to receive
+it.

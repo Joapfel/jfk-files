@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_10639.png
+
+Convert to MarkdownFBI
+
+Date: 10/14/64
+
+Transmit the following in
+
+Type in plain text or code)
+
+(Priority)
+
+TO: DIRECTOR, FBI
+
+FROM: SAC, MEMPHIS
+
+SUBJECT: COUNTER INTELLIGENCE PROGRAM
+INTERNAL SECURITY
+DISRUPTION OF HATE GROUPS
+
+Relet Bureau to Atlanta, copies Memphis, 9/2/64.
+
+The Memphis Division has carefully reviewed the contents of relet, including the list of organizations designated for action pursuant to this program.
+
+None of these organizations are currently active in the territory covered by the Memphis FBI Division.
+
+Similarly, there are no so-called "action groups" known to exist or to have existed in this territory.
+
+This office will continue to be alert for possibilities and methods of implementation of this program.

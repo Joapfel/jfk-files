@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_11915.png
+
+Convert to MarkdownACCOMPLISHMENTS
+
+NEW LEFT GROUPS UNIT
+
+The work of this unit concerns Students for a Democratic Society (SDS) factions (with the exception of Weatherman), other New Left campus groups, the Key Activist program, New Left Movement reports, New Left publications, New Left informants, and the maintenance of a library of "hand-out" material on the New Left for dissemination on a high level to Government officials and responsible citizens.
+
+In 1969 Worker Student Alliance (WSA), Weatherman, and Revolutionary Youth Movement (RYM) factions of SDS split into separate groups. Accomplishments concerning Weatherman are reported elsewhere in this survey. The RYM faction of SDS is now practically defunct. Currently, the largest faction of SDS is WSA faction. WSA is dominated by the pro-Chinese, Marxist-Leninist Progressive Labor Party; and, while not as violent as Weatherman, is avowedly a revolutionary group.
+
+Our efforts to achieve informant coverage in WSA showed results when WSA held its National Convention in Chicago in December, 1970. Approximately 20 Bureau informants attended this convention, and extensive information on activities at the convention was promptly reported and disseminated. Through informants, we have encouraged factionalism in WSA. At the convention, dissident groups led by one of our sources threatened a new split in SDS/WSA which may occur in the near future. Such dissension will reduce the possibility that SDS might once again become a massive student organization as it was before its division in 1969.
+
+Through the Key Activist program, we have focused investigative attention on the leaders of the New Left movement with the aim of prosecuting these leaders under appropriate statutes, Federal or local, wherever possible.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+1/13/71
+HM:maz
+4-E
+
+NW 88608 DocId:32989638 Page 390

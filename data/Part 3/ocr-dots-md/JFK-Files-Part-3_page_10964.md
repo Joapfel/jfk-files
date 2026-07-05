@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10964.png
+
+Convert to Markdownof foreign intelligence in the United States. As a result of our internal security and counterintelligence responsibilities, we have produced a volume of foreign intelligence covertly. In addition, either at the specific request of other U. S. agencies or on our own initiative in response to national intelligence needs, we have produced such intelligence. We have done this on a selective basis and have not assumed full responsibility in this area. As indicative of this, certain agreements have been made with CIA permitting that Agency to assess and recruit after coordination with the FBI covert foreign intelligence sources in the United States (principally for use abroad). We have reserved the right to take over such sources if internal security factors are paramount. In the absence of such factors, CIA is permitted to utilize these sources for foreign intelligence purposes.
+
+(6) We concluded that the expanded development of clandestine foreign intelligence sources is essential if national security interests are to be effectively served.
+
+(7) Exploitation of foreign diplomatic targets fortifies our efforts in the internal security and counterintelligence fields. Information developed increases over-all knowledge and produces leads or ties to intelligence activity being carried out by foreign intelligence and security services.
+
+(8) The U. S. intelligence community currently does not provide an organization or a mechanism which can effectively exploit the intelligence potential in the foreign diplomatic field. There have been expressions of concern and certain limited action taken by FBI and CIA, but there has not been a well-organized or united effort and most important of all, there has been a decided lack of leadership directed toward attacking the problem and at the same time inducing an atmosphere of harmonious application of all available resources.
+
+(9) We concluded there is an excellent opportunity for the Bureau to assume leadership in this matter and in so doing, enhance national security and
+
+NWI-88608--DocID:32989629 Page 361

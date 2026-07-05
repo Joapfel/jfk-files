@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_11889.png
+
+Convert to MarkdownTable of Contents (Continued)
+
+<table><thead><tr><td></td><td>Page</td></tr></thead><tbody><tr><td>Chinese Matters</td><td>216</td></tr><tr><td>Defector Program</td><td>218</td></tr><tr><td>Maximum Utilization of Ghetto Informants</td><td>220</td></tr><tr><td>Revision of Racial Informant Status Report - Form FD-405</td><td>222</td></tr><tr><td>Supervision and Control of Security Informant Development and Coverage by Internal Security and New Left Sections</td><td>227</td></tr><tr><td>Venceremos Brigade</td><td>234</td></tr><tr><td colspan="2">SUBSTANTIVE ERROR WRITE-UPS</td></tr><tr><td>Robert P. Bokinsky<br>PSI-PO (134-19651)</td><td>241</td></tr><tr><td>Jan Adam Klasa<br>IS-PO (105-196986)</td><td></td></tr><tr><td>Eric Nelson, PSI<br>IS-R (134-19669)</td><td></td></tr><tr><td>Vladimir G. Azaryan<br>IS-R (ATC-KGB)</td><td>247</td></tr></tbody></table>

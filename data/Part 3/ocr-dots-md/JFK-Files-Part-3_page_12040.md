@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_12040.png
+
+Convert to Markdown# ADMINISTRATIVE OPERATIONS
+
+NWN 88608 DocID:32989638 Page 515

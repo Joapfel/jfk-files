@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_11549.png
+
+Convert to Markdownfrom five to seven by assigning full time from within the Section SA L. E. Belanger, and on a rotating basis one Agent from the Middle and South American Unit (B. M. Perez). Perez was replaced by SA W. W. Hamilton on 8/16/71.
+
+On 8/13/71 two additional Agents were provided from outside the Section, one on a full-time basis and one on a rotating weekly basis. The Agent assigned on a full-time basis (T. J. Seabaugh) was immediately assigned to the McLek case. The Agent assigned on the weekly rotating basis was assigned to assist on one of the regular operational desks within the Section and an Agent who had been continuously on loan with the exception of an annual leave period of 8/6-16/71 (J. P. Benedict) was assigned full time to instant matters.
+
+In summary, manpower from outside the Section have been assigned on a temporary basis on 6/23/71 (two Agents); 6/28/71 (one Agent); 7/8/71 (two Agents); and 8/13/71 (two Agents). Three of these loan Agents are now working full time on McLek case while four are assisting in covering operational desks that exist within this Section. Six Agents from within this Section are assigned full time to McLek case.
+
+5(d). From above discussion, it will be noted that this case is directed at developing evidence concerning violations of Federal statutes under which we have investigative jurisdiction and our principal efforts have been directed toward this responsibility. There are also far reaching aspects of the case which require investigative attention and because they are so diversified there is a necessity for directing efforts in the first instance along those channels which are of greatest importance. These channels relate especially to the possibility of a conspiracy, if in fact one exists, on the part of individuals to acquire and release without authorization classified material of the Executive Branch of the Government.
+
+As noted above, evidence has been developed which would support those prosecuting aspects which to date have been considered by the Department and efforts are currently underway to resolve the potential conspiracy aspects.
+
+The principal problems which have arisen with respect to supervision of this case have related to efforts on the part of Assistant Attorney General Mardian and attorneys within his Division to (1) conduct investigative activity on their own and (2) to direct our investigative activities frequently into areas tangential to the main thrust of the case. With respect to investigative efforts by Mardian, the following are cited as examples:

@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_11804.png
+
+Convert to Markdownexperience, the preparation of a case for presentation to the SACB requires the services of one Supervisor on a full-time basis. Thus, it is anticipated that the Department's action pursuant to Executive Order 11605 will substantially increase the work load of the Internal Security Section.
+
+7. In evaluating adequacy of both Special Agent and clerical personnel the following criteria were used:
+
+- case load
+- mail count
+- name checks
+- complexity of cases and supervision involved
+- deadline matters
+- special assignments
+- experienced supervisors
+
+Administrative duties assigned Supervisors in Charge (reviewing mail, conferring with employees, organizing Unit) limit to some extent the volume of case assignments handled.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+
+8/19/71
+
+SFP:ebc
+
+6-E
+
+NW 88608 DocId:32989638 Page 279

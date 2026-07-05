@@ -1,0 +1,3 @@
+# JFK-Files-Part-3_page_12020.png
+
+Convert to MarkdownHigh point in the RNA's activities occurred during a national convention in Detroit, Michigan, in March 1969, when members of the Black Legion engaged in armed confrontation with Detroit police resulting in the death of one policeman and the serious wounding of another. The RNA is currently split with dissension with two distinct factions. The Richard Henry Faction with headquarters in New Orleans, Louisiana, is the most active and militant of the two groups. The other faction is headed by Milton Henry with headquarters in Detroit, Michigan. Current plans of Richard Henry call for an intensification of RNA activities throughout the U.S.

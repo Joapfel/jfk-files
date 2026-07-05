@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_12988.png
+
+Convert to MarkdownSTANDARD FORM NO. 1169A
+
+| Form prescribed by Comptroller General U.S. | |
+| :---------------------------------------- | :--- |
+| DPD (March 20, 1964) | |
+| [REVISIONS] [REVISIONS] [REVISIONS] [REVISIONS] |
+
+## INSTRUCTIONS TO TRAVELERS
+
+1. This memorandum should be forwarded in accordance with administrative instructions.
+
+As much as the memorandum and copy of the transportation request serves a very important administrative record, care must be exercised that such copy is legible and complete in all respects when forwarded.
+
+3. Indicate above the actual services furnished where same varies from that requested. (See paragraph 1 of "CONDITIONS" on reverse of original request.)

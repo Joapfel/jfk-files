@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_11487.png
+
+Convert to MarkdownIt may be argued that we should concentrate on the reform of the intelligence agencies for the future, not on the punishment of individuals for misdeeds of the past. This is a beguiling argument. But the truth is that we can ill-afford to overlook the lawlessness of the past if we wish to avoid a repetition in the future. As two scholars from the Center for National Security Studies, Jerry J. Berman and Morton H. Halperin, noted in a recent New York Times article:
+
+> One key element in bringing the intelligence agencies under democratic control is to insure that officials of intelligence agencies are prosecuted when they violate the law. Unless there is a thorough investigation by an impartial prosecutor followed by indictments and a report, the threat of criminal penalties will not deter future abuses.
+
+I find it utterly deplorable that the President in his State of the Union message failed completely to say even a word about the need to make our intelligence agencies obey the law. As the journalist Anthony Lewis has commented, "It is easy to denounce private crime, as Mr. Ford did. But it is more important, now, for Government to commit itself to law."
+
+And so I must conclude that, in the present situation, resort to a temporary special prosecutor is both proper and necessary. Leon Jaworski, a former Special Prosecutor himself, and others in the legal community agree with this conclusion.

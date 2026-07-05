@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_11693.png
+
+Convert to Markdown4-H
+
+COUNTERINTELLIGENCE PROGRAM - BLACK EXTREMISTS
+Budfile 100-448006
+
+Counterintelligence action regarding black extremists was initiated 8/25/67 and was last justified 5/14/70. This program was a supplement to our black extremist investigative activities and involved a variety of sensitive intelligence techniques which were afforded close supervision at the Seat of Government. No action could be instituted under this program without prior Bureau authorization.
+
+To afford additional security to our sensitive
+techniques and operations, all counterintelligence programs,
+including this program, were discontinued and the field was
+so advised by airtel 4/28/71.
+
+Although this program was discontinued, the field
+was advised if exceptional instances arose wherein it was
+considered counterintelligence action is warranted, that
+recommendations should be submitted to the Bureau under the
+specific case caption involved. These recommendations will
+then be considered on an individual basis. The field was
+also reminded that prior Bureau authority is required before
+initiating any activity of a counterintelligence nature,
+
+Significant results since last inspection as a
+result of this program are set forth under "Accomplishments 4E"
+elsewhere in this report.
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8/19/71
+WHA:pjc
+
+4-H
+
+156

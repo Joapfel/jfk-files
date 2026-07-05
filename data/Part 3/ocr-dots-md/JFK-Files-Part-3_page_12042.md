@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_12042.png
+
+Convert to Markdownc. Generally a thorough background investigation is completed on each individual selected to be a potential double agent before the Bureau authorizes him to be interviewed to determine if he is receptive and willing to assist and cooperate with the Bureau. These investigations are not completed within a specified period. Several instances were noted wherein the national returned to his native country before the informant could develop suitable rapport. Review indicated several of these cases remain active although the national returned to his native country.
+
+d. After the Bureau has authorized the field office to develop the potential double agent, the field office sends in progress reports each 6 months (FD-401). In most instances only a slight social acquaintanceship is established over an extensive period. Field and SOG supervision of these cases appears to be mechanical and perfunctory and lacks imaginative, aggressive and timely direction.
+
+e. During the year 1970 there was an average of three communications per file received from the field. Most of these were semiannual reports. Communications from SOG to the field averaged less than one letter per file and in almost all instances this was a very short letter authorizing investigation and development of potential double agent. There were less than 10 cases noted where specific instructions, directions or other guidance was furnished to the field in developing these potential double agents.
+
+f. 110 of the cases were reviewed at random for the specific purpose of determining generally how long they had been pending. 4 cases had been pending prior to 1960; 3 were open in 1961; 6 in 1962; 7 in 1963; 6 in 1964; 5 in 1965; 10 in 1966; 12 in 1967; 10 in 1968; 22 in 1969; and 25 in 1970. The average case has been opened 3 1/2 years and there has been an average of one piece of outgoing correspondence from the Bureau in each file.
+
+Very little outgoing correspondence concerning instructions or directions were noted in these 110 files. For example, 5 of the files reviewed had no outgoing correspondence in them since 1967. One file was reviewed in which the last outgoing correspondence was in 1962. 65 of these 110 files did not have any outgoing correspondence in the last 12-month period (1970).
+
+Review of this program as indicated by the above observations, reveals that virtually no direction is given the program. Separate write-ups have been prepared on two individual cases where supervision has been most inadequate.

@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_11450.png
+
+Convert to MarkdownNOTE:
+
+Referenced SSC letter indicated that certain portions of Bureau memoranda and airtel may be quoted in the SSC's final report on FBI intelligence operations and that the SSC was seeking to take the testimony of persons whose memoranda and statements might be quoted in that report. The memoranda referred to in referenced SSC letter pertain to the FBI's role in the "gang war" between the BFP and the US Organization. By telephone call 2/18/76, the SSC also requested the author of SAC, Los Angeles, airtel to Director, FBI, 5/26/70, under the same caption as above memoranda. The author of this communication was determined to be Supervisor Richard W. Held, currently assigned to FBHQ. Mr. Held, who is in an official travel status until the first week of March, has been advised of the SSC's desire to interview him. By airtel, Minneapolis and Butte will be furnished copies of documents written by Mr. Neumann and Mr. Burns, respectively.

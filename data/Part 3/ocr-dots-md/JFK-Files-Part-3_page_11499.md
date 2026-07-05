@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_11499.png
+
+Convert to MarkdownMemorandum to Mr. W. R. Wannall
+
+Re: Senstudy 75
+62-116395
+
+SA Andrew J. Duffin, through Mr. Walter Elder, CIA Review Staff, on 2/10/76, determined that CIA was in fact to participate in an interview of Bauman with an SSC Staff Member in the near future. He is to be interviewed regarding his prior contact with E. Howard Hunt and Project Merry Mack, acronym for CIA's efforts to prevent any electronic penetration of their building during its construction. CIA hopes that interview will negate the necessity of Bauman having to answer SSC subpoena, as they feel it will show he will not be the "hot" witness that SSC anticipates.
+
+Subsequently, Hagerty was advised of above and that Roberts should not participate in interview, as it was an SSC interview and only concerned them and CIA.
+
+**ACTION:**
+
+None. For information.

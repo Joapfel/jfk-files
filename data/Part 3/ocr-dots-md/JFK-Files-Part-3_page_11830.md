@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_11830.png
+
+Convert to MarkdownRe: C.S. Brown to V. C. Sullivan
+ Adequacy of Human Resources Division (HRD)
+
+may feel the facts presented by Wannall are such to outweigh all other considerations. I feel it would be well for Mr. Felt to consider this request in conjunction with the manpower adjustment survey he is to initiate and I will be guided accordingly.
+
+I have initiated some new guidelines for determining Division manpower assignments and case loads. I believe those will provide a still better basis for DII to insure its manpower being most effectively used on priority matters. Mr. Felt may desire to use these guidelines immediately so a measure for his study.
+
+# RECONSIDERATION:
+
+That Mr. Felt consider the request of Wannall for a separate
+from outside DII in conjunction with his study.
+
+296
+
+296
+
+NW 88608 DocId:32989638 Page 305

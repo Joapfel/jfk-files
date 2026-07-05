@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_11547.png
+
+Convert to Markdownone group headed by Departmental attorney John Martin, analyzed all investigative results received by the Department in an effort to establish whether a case was being made. Mr. Brennan advised the Section Chief that Mr. McGrath would be in a position to furnish any information required by the Section Chief from the Internal Security Division and instructed that copies of daily teletypes received from our various offices be furnished through Mr. McGrath to the Internal Security Division as they came in.
+
+5(b). Approximately two weeks after this case was instituted, the Section Chief asked Mr. Brennan if he would brief both the Section Chief and the Section Number One Man on his concept of the magnitude of this case and its various ramifications. This was done and Mr. Brennan again emphasized the need for following all facets on a special basis.
+
+Following the conference with Departmental attorneys 7/6/71, mentioned hereinbefore, Mr. Brennan summoned Inspector D. E. Moore and Section Chief Wannall to his office and instructed that a "book" be prepared on Ellsberg covering his activities and associates during a period of a couple of years. He explained what he wanted in this book and provided for an Agent from Research Section to be assigned full time on its compilation.
+
+On 7/15/71 Mr. Brennan instructed that a copy of each teletype received at the SOG on this case be furnished to him.
+
+On 7/28/71 Mr. Brennan summoned Inspector D. E. Moore, Section Chief, Section Number One Man, and all Agents working on this case to his office for a conference. In compliance with his request, he was briefed on investigative results to date. He asked if serious consideration had been given to the possibility that Ellsberg himself was not directly involved in turning over the "McNamara Study" to "The New York Times," and instructed that we look into this phase of the matter very carefully.
+
+On 8/2/71 Mr. Brennan summoned to his office the Section Chief and Case Supervisor Wagoner for the purpose of introducing them to Mr. G. G. Liddey of the White House. He explained that Mr. Liddey was coordinating all White House interest in this matter. Mr. Liddey pointed out that the White House wanted this case handled as a "Bureau special" and that a letter from the White House to that effect would be forwarded.

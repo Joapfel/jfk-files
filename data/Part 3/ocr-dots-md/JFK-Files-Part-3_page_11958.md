@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_11958.png
+
+Convert to Markdown4-H
+
+possibly utilize sodium pentothal (truth serum) on all Klan officers and members to ferret out FBI informants. As a result, we recently furnished reliable news sources with information in belief that public exposure will deter considerably from any future enactment of these plans. It is too early to determine results of this move at this time.
+
+As a result of counterintelligence action taken through racial informants in the Knoxville Division, we were successful in having the Exalted Cyclops of Mascot Klavern #778, Mascot, Tennessee, Thomas Stipes, eliminated from this top position and were able to have him subsequently banished from the Klan. This was brought about by having our racial informants create dissension within the ranks of this Klavern.
+
+Through the use of two racial informants of our Little Rock Division, we were successful in causing the defeat of a Klansmen who was campaigning to be elected as sheriff of Jefferson County, Arkansas. This individual, Victor Calvert, Exalted Cyclops, Pine Bluff Klavern, Association of Arkansas Klans, in conducting his campaign attempted to hide his Klan affiliations because he hoped to receive a good percentage of the Negro vote in his area. Our informants were successful in discreetly letting out the word of his secret Klan membership.
+
+As a result of counterintelligence action taken, W. Melvin Sexton, Imperial Kligrapp (National Secretary) of the UKA, the largest Klan organization in the country, resigned from his position. Both Sexton and his wife, in addition to being Klan members, were employed in the National Office of the United Klans of America. This is particularly significant in that for many years Sexton had been "number one man" to Imperial Wizard Robert M. Shelton of the UKA and actually ran the UKA while Shelton was in prison following his conviction for Contempt of Congress. This resignation was brought about by our informants planting the seeds of distrust regarding Sexton and exposing the fact that Sexton had a serious drinking problem.
+
+CURRENT SUPERVISION AND JUSTIFICATION FOR CONTINUANCE
+
+The counterintelligence program requires little additional manpower since these extremists are under continuous
+
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+1/12/71
+LLA:lmj
+4-H
+
+NW 88608 DocId:32989638 Page 433

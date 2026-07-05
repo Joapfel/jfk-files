@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_10913.png
+
+Convert to MarkdownThe Dulles Commission recommended that the FBI should be made a member of the Intelligence Advisory Committee to improve coordination of domestic intelligence and counter-intelligence insofar as these matters related to the national security.
+
+While discussing the production of National Intelligence Estimates by CIA, the report noted, "There is no systematic way of tapping that domestic intelligence information, which should be chiefly in the hands of the FBI, having a bearing on broader intelligence issues and there is no regular and agreed arrangement for participation by the FBI and for the use of intelligence from domestic sources in a national estimate."
+
+National Security Council Intelligence Directive Number 7 provided that CIA shall be responsible for the exploitation, on a highly selective basis, within the United States of business concerns, other non-Governmental organizations and individuals as sources of foreign intelligence information. The report concluded the amount of foreign intelligence which can be obtained through the exploitation of non-Governmental sources in the United States is considerable and its quality could be very high if appropriate arrangements were made and discrimination was employed. It was felt the vast number of organizations, institutions and individuals having foreign interests and knowledge represented a potential source of intelligence that in many ways was superior to any other, as it was felt that they were in a position to provide information obtained from their foreign contacts and from the findings on their own people abroad.
+
+A further important source of information, the exploitation for intelligence purposes of foreign individuals and groups in the United States was also being developed. The report noted that these individuals and groups as well as political refugees and former foreign government officials were often engaged in political activity with significant international implications.
+
+CIA and other intelligence agencies had not developed coordinated and effective policies and procedures for the exploitation of intelligence in this important field. The FBI, according to the report, had a major interest in foreign

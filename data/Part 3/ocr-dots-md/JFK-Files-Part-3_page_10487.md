@@ -1,0 +1,224 @@
+# JFK-Files-Part-3_page_10487.png
+
+Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+COMMUNICATIONS SECTION
+
+MAR 26 1975
+
+NRO03 CODE JN
+
+4:07PM NITEL MARCH 26, 1975 JWD
+
+TELETYPE
+
+TO DIRECTOR, ATTENTION: BUDGET AND ACCOUNTING SECTION
+
+FROM JACKSON (100-0)
+
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES.
+
+RE BUREAU NITEL MARCH 24, 1975.
+
+SAC AND ASAC, JACKSON OFFICE, HAVE NO CASES ASSIGNED IN
+INTERNAL SECURITY AND COUNTERINTELLIGENCE FIELD. TWO
+SUPERVISORS HAVE CASES ASSIGNED AND THE PERCENTAGE OF TIME IS
+EQUIVALENT TO FORTY PERCENT OF ONE SUPERVISOR IN INTERNAL
+SECURITY AND FIFTEEN PERCENT OF ONE SUPERVISOR IN COUNTER-
+INTELLIGENCE MATTERS. THERE ARE FIFTY FIVE SPECIAL AGENTS WHO
+CONDUCT INVESTIGATIONS IN THE INTERNAL SECURITY AND COUNTER-
+INTELLIGENCE FIELD. THE PERCENTAGE OF TIME IS EQUIVALENT
+TO THREE POINT SIX TENTHS AGENTS ASSIGNED FULL TIME TO
+INTERNAL SECURITY AND ONE POINT ONE TENTH AGENTS ASSIGNED
+FULL TIME TO COUNTERINTELLIGENCE MATTERS.
+
+END
+
+DBS FBIHQ CLR
+
+<table><tr><td>Assoc. Dir.</td></tr><tr><td>Dep.-A.D.-Adm.</td></tr><tr><td>Dep.-A D.-Inv.</td></tr><tr><td>Ast. Dir.:</td></tr><tr><td>Al.mn.</td></tr><tr><td>Cup. Stct.</td></tr><tr><td>Ext. Affairs</td></tr><tr><td>Fk. & Com.</td></tr><tr><td>Gd. Inv.</td></tr><tr><td>Ident.</td></tr><tr><td>In scu n.</td></tr><tr><td>Iacl.</td></tr><tr><td>Lab. rty</td></tr><tr><td>Plan. & Eval.</td></tr><tr><td>Spc. Inv.</td></tr><tr><td>Tr inv %</td></tr><tr><td>Legal Cdn.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director Sec'y</td></tr></table>
+
+#mc/6
+THE INFORMATION CONTAINED
+WAS UNCLASSIFIED
+BY SPZ Arm
+DATE 1/12/61
+
+3/28
+
+EX 52 ARM
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/28
+
+3/

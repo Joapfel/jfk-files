@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_11554.png
+
+Convert to MarkdownADDENDUM
+
+INSPECTOR E. S. MILLER:
+(R. E. White:bhg, 9/7/71)
+
+This case involves the publishing of parts
+of the "McNamara Study" in June, 1971,
+by "The New York Times," The evidence
+to date strongly indicates Daniel Ellsberg is responsible for furnishing the
+classified data to representatives of this newspaper, and he has been indicted
+by a Federal Grand Jury for the unauthorized possession and conversion of
+these documents. This is the case simply stated; however, this matter is
+far from being so simple. From its inception, this case has been complicated
+by the enormity of the work to be completed and problems inherent in this
+unusual investigation.
+
+In regard to the amount of work involved, a survey was made
+to establish how many communications were dated during the period of a
+single week (Saturdays and Sundays included). As a result of this survey,
+the following represents the number of communications dated during the
+weeks noted below:
+
+| Date      | Teletypes INCOMING | Airtels INCOMING | Reports INCOMING | Letters INCOMING |
+|-----------|-------------------|-----------------|-----------------|------------------|
+| 7/11-17/71 | 107               | 21              | 5                | 2                 |
+| 8/1-7/71   | 81                | 26              | 5                | 3                 |
+| 8/8-14/71  | 82                | 24              | 4                | 2                 |
+
+| Date | Teletypes | OUTGOING Airtels | OUTGOING Letters |
+|---|---|---|---|
+| 7/11-17/71 | 8 | 4 | 8 |
+| 8/1-7/71 | 14 | 0 | 8 |
+| 8/8-14/71 | 19 | 3 | 10 |
+| **INTRA - SOG** |  |  |  |
+| Memo |  |  |  |
+| **15** |  |  |  |
+
+7/11-17/71
+8/1-7/71
+8/8-14/71
+
+7
+7
+15
+
+17
+
+N \\"

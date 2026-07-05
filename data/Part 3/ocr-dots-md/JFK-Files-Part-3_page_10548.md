@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_10548.png
+
+Convert to MarkdownRECEIVED
+TELETYPE UNIT
+
+FEB 2 PM '75
+
+RECEIVED
+TYPE UNIT
+
+Wed, Feb 10 1975
+
+62-116395-5Lp

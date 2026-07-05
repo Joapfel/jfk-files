@@ -1,0 +1,67 @@
+# JFK-Files-Part-3_page_10578.png
+
+Convert to Markdown2 - Legal Counsel Division
+(1-Mr. Farrington)
+1 - Mr. W. R. Wannall
+1 - Mr. W. O. Cregar
+
+April 8, 1975
+
+UNITED STATES SENATE SELECT COMMITTEE
+TO STUDY GOVERNMENTAL OPERATIONS WITH
+RESPECT TO INTELLIGENCE ACTIVITIES
+
+Reference is made to letter dated March 19, 1975,
+to the Attorney General from the Chairman of captioned
+Committee, which enclosed certain requests for documents
+and other information from the Federal Bureau of Investiga-
+tion (FBI).
+
+One of the requests contained in referenced letter
+was for a list of names and titles of all Intelligence
+Division personnel at FBI Headquarters down to and including
+unit chiefs, together with a number of personnel below the
+level of unit chief categorized by unit. At a meeting on
+April 1, 1975, Inspector John B. Hotis and Special Agent
+Paul V. Daly discussed this request with Mr. William Miller,
+Staff Director of the Senate Select Committee. It was
+agreed that the request as stated would be modified and that
+the FBI would prepare a list of personnel in the Intelligence
+Division down to the level of unit chief, with names included,
+which would be made available for review by appropriately
+cleared personnel of the committee staff at FBI Headquarters.
+
+This is to advise that the list has been prepared
+and is available for review under the above conditions.
+
+1 - The Attorney General
+
+EWL:jvl
+
+(7)
+
+Assoc. Dir.
+Dep. AD Adm.
+Dep. AD Inv.
+Asst. Dir.:
+Admin.
+Comp. Syst.
+Ext. Affairs
+Files & Com.
+Gen. Inv.
+Ident.
+Inspection
+Intell.
+Laboratory
+Plan. & Eval.
+Spec. Inv.
+Training
+Legal Coun.
+Telephone Rm.
+Director Sec'y
+
+MAIL ROOM [ ]
+
+TELETYPE UNIT [ ]
+
+GPO 954-545

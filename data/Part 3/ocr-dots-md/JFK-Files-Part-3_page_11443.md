@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_11443.png
+
+Convert to MarkdownRE: U.S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+
+Airtel from SAC, Birmingham, to Director, FBI,
+dated June 14, 1967. (157-9-8-107)
+
+Airtel from Director, FBI, to SACs, Charlotte,
+Atlanta and Birmingham, dated June 20, 1967. (157-9-8-110)
+
+Airtel from SAC, Charlotte, to Director, FBI,
+dated June 14, 1967. (157-9-8-110)
+
+Airtel from SAC, Charlotte, to Director, FBI,
+dated June 28, 1967. (157-9-8-115)
+
+Airtel from SAC, Charlotte, to Director, FBI,
+dated June 23, 1967. (157-9-8-113)
+
+Airtel from Director, FBI, to SACs, Atlanta
+and Charlotte, dated June 29, 1967. (157-9-8-114)
+
+Airtel from Director, FBI, to SAC, Charlotte,
+dated August 25, 1967. (157-9-8-126)
+
+Airtel from SAC, Charlotte, to Director, FBI,
+dated August 22, 1967. (157-9-8-126)
+
+Memorandum from C. D. Brennan to Mr. W. C. Sullivan,
+dated August 24, 1967. (157-9-8-127)
+
+Airtel from SAC, Charlotte, to Director, FBI,
+dated September 13, 1967. (157-9-8-128)
+
+All of the above communications are captioned
+"Counterintelligence Program, Internal Security, Disruption
+of Hate Groups (United Klans of America, Inc., North Carolina)."

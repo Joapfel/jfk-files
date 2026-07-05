@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_11833.png
+
+Convert to MarkdownRetyped page of memo W. R. Wannall to C. D. Brennan dated 8/12/71 re: same subject
+
+# Memorandum to Mr. C. D. Bromham
+RE: FOREIGN Liaison Desk (FLD)
+NATIONALITIES INTELLIGENCE SECTION
+DOMESTIC INTELLIGENLE DIVISION
+REQUEST FOR ADDITIONAL PERSONNEL
+
+ADDENDUM: BY D. E. MOORE
+
+DR1:aeb 8/14/71
+
+Pursuant to your request, this is to advise that there are two supervisors in the Domestic Intelligence Division with Legal Attache experience, Robert A. Bormingham, who is now assigned to the FLD, and Jessie R. Hagy. Hagy was assigned to this desk but is now assigned to the Kilsberg Special. Both Bormingham and Hagy speak Spanish.
+
+There are 20 other supervisors in the division with language ability. None speak German and only one, John H. Quelletts, speaks French. The language ability of the others are in Russian, Japanese, Italian, Hungarian, Polish, Bulgarisn, Albanian, Portuguese, Hungarian, Yiddish and Chinese.

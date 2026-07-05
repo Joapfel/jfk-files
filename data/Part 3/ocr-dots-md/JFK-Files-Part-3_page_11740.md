@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_11740.png
+
+Convert to Markdown2. Restrictions on travel of U. S. citizens to Red China have been lifted entirely, and there is presently under study by Department of State and the Attorney General a recommendation that the prohibition on travel of permanent resident aliens to Red China also be lifted.
+
+While the Chicoms have not allowed wholesale entry of Occidentals into their country, recent events suggest they are slowly but surely revising policy to permit more Westerners to visit the mainland. We are aware that the Chicomms have openly supported revolutionaries who operate in the U. S., and the desirability of personal contact with such types as well as with others who would work for the Chicomms is obvious. The new United States policy regarding travel of U. S. citizens to Red China will most assuredly prompt overt travel by individuals of Chicom persuasion as well as by persons who could well be subjected to an intelligence recruitment approach albeit unwittingly. While this area may not immediately present problems of the magnitude expected in other areas involving the Chicomms, we must realistically consider that U. S. citizens traveling to Red China deserve a careful look from an investigative standpoint, either as potential sources, one-time interviews for intelligence purposes, or as individuals who may have been recruited by the Chicomms during their visit to Red China.
+
+With regard to the possibility that restrictions on travel of resident aliens to Red China will be lifted soon, there are in the United States many thousands of Chinese aliens having permanent resident status, most of whom have family members or close relatives residing on the mainland. If travel restrictions on these individuals are lifted, we are faced with an even greater danger of having Chicom-recruited individuals returning here. On its face, such a situation would pose an enormous investigative problem for the Bureau.
+
+3. Within the last few weeks, Secretary of State Rogers announced U. S. policy as regards admission of Communist China to the United Nations (UN). Simply stated, Administration policy is to not oppose UN membership for the Chicomms while not agreeing to the ouster of Nationalist China (Taiwan) from the UN. There has been much talk of a "two China policy," but this is incidental to the real problem we face. With the removal of U. S. opposition, it is likely, Red China
+
+NWW 88608 DocId:32989638 Page 215
+
+202

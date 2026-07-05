@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_11624.png
+
+Convert to Markdown# SURVEYS, PROJECTS AND/OR INTENSIFICATION PROGRAMS 4-H
+
+INSPECTOR E. S. MILLER:
+
+You are requested to furnish information regarding various surveys, projects and/or programs in effect in your Division. This information should include identity of the project or program, background and date of inception, scope and desired objectives, positive results achieved since last inspection, extent and nature of current supervision, current justification for continuance, and frequency of evaluation and date of last justification. Identify any surveys, projects or programs you have in operation that are not set forth in my request. In addition, identify any surveys, projects and programs completed or discontinued since the last inspection. Identify only investigative-type matters in this category.
+
+Each of these projects or programs should be separately captioned and prepared in such manner that your comments regarding each topic are separate from comments on any other topic. Your comments are specifically requested on the following topics and any new programs instituted since the last inspection or other topics not included herein you may wish to comment on:
+
+1. Security Index Program.
+
+2. Security Informants.
+
+3. Extremist Matters. (Black extremist groups)
+
+4. Extremist Informants.
+
+5. White Extremist Groups.
+
+6. Technical and Microphone Surveillances.
+
+7. Counterintelligence.
+
+8. Communist Infiltration of Extremist Groups.
+
+9. New Left Movement.
+
+10. Espionage.
+
+11. Any other program deemed pertinent.
+
+Comments of Assistant Director requested.
+
+ASSISTANT DIRECTOR C. D. BRENNAN: Attached are individual write-ups from each of the Sections concerning the
+
+(JAS:mls 8/20/71)
+
+above.
+DOMESTIC INTELLIGENCE DIVISION INSPECTION
+8/17/71
+ESM:wmj
+4-H

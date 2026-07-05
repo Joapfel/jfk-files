@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_11692.png
+
+Convert to MarkdownSince 1967 this program has been significantly
+modified in that this vast network of informants have been
+changed from listening posts to individuals who are actively
+seeking extremist information as well as information concerning
+violations of Federal and local statutes.
+
+We have noted numerous incidents where ghetto
+informants are being converted by the field to regular
+extremist informants in that they have been graduated into
+positions where they can report on a regular basis concerning
+the activities of individual extremists and/or extremist
+organizations. As a valuable by-product we are also achieving
+criminal statistics through contacts with our ghetto informants.
+This program was justified by memorandum dated 7/4/71 from
+G. C. Moore to Mr. C. D. Brennan captioned "Ghetto Informant
+Program, Racial Matters" and is scheduled to be rejustified
+in July, 1972.

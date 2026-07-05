@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_11951.png
+
+Convert to MarkdownSwiss Police asked Bureau assistance in establishing the location of Joseph Gargy, w.a., who had secured more than $400,000 in an armed robbery of a jewelry store in Zurich. The loot was recovered in Italy, and investigation under the Foreign Police Cooperation character resulted in the location of Gargy in the United States. We arranged for his arrest by other authorities so that he might be held for extradition.
+
+During the calendar year 1970, Agents on the Foreign Liaison Desk handled 822 foreign visitors. These included not only special tours of Bureau facilities but also, in many instances, special conferences with Bureau officials, including the Director, and other courtesies for these contacts of our Legal Attache personnel.
