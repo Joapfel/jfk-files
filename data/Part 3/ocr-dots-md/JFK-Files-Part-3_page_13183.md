@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_13183.png
+
+Convert to MarkdownMM 92-1047
+
+MART stated that during the past several years, he has operated Alfie's Sundries which is located at 1664 Alton Road, Miami Beach, Florida. He also admits that during the past years he has conducted a small intrastate bookmaking operation. Most of the business is conducted by a paid clerk who has operated either at the sundries store or in another location. He reflected that due to his money interests, he does not manage the day to day operation of his bookmaking business although he is the financial backer of same.
+
+MART stated that sometime during the spring of 1963, a line service came to the Miami area under the name of Multiple Sports News Service (MSNS). This outfit was headed by FRANK "LEFTY" ROSENTHAL. He was assisted in this venture by STANLEY GREEN, who acted as a clerk and pick-up man. He indicated that MSNS disseminated line information on collegiate and professional football, professional baseball and collegiate and professional basketball. In addition, they would supply player information and up-to-date scores. The latter was possible in view of a Western Union sports sticker which was installed in the offices of MSNS. MART stated that he was assigned a code number in which he or his clerk could use in obtaining line information. The cost of this service varied from sport to sport though he feels that $50 was probably the average price he paid per week.
+
+MART said that in addition to the line service, MSNS also published a weekly sports journal. This journal was put out on a weekly basis and consisted of the schedule for the coming week of sports activity whether it be football, baseball or basketball. As a service to MSNS, Alfies Sundries would sell the sheets on their stand for 35 cents although they paid 23 cents a copy from the publisher. Normally they would get 70 to 100 sheets a week for local dissemination.
+
+In MART's opinion, MSNS did have mob or syndicate backing at the time they started in 1963. He indicated that - 4 -
+
+NW 88608 DocId:32328335 Page 22

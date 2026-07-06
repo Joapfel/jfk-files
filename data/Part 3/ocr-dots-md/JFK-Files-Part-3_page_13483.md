@@ -1,0 +1,81 @@
+# JFK-Files-Part-3_page_13483.png
+
+Convert to MarkdownTOP SECRET
+
+During the Eisenhower Administration did you ever hear any
+discussion of what was known as an Executive Action Capability
+which might be defined as a capability to assassinate foreign
+political leaders?
+
+Have you ever heard that expression?
+
+MR. GRAY: I don't remember ever hearing that expression until we talked this morning. I mean, I don't remember while I was in government hearing this expression.
+
+MR. BELIN: You never heard the phrase until I asked you the first question in our interview this morning, is that correct?
+
+MR. GRAY: That is correct.
+
+MR. BELIN: While you were working with President
+Eisenhower, did you ever hear any discussion of any operational
+plan to try and assassinate any foreign leaders, and specifically
+Castro or Trujillo?
+
+MR. GRAY: I would like if I may, Mr. Chairman, to not answer that yes or no because it is a complicated question. I would suppose if one were serving in government, and he would put the national security interests ahead of most everything else, he would not fail to think about assassination if this were a vital necessity to the national security. I think you would consider anything, and I have no doubt that at various times and at all levels, without the knowledge of any President, people have talked about assassination. But I know of no plan,
+
+TOP SECRET
+
+smn
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL

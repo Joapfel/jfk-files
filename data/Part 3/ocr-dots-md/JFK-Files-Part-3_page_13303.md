@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_13303.png
+
+Convert to MarkdownSECRET / SENSITIVE
+
+P. 10
+
+Was J. Walton Moore connected with CIA? Was he connected
+with the Oswald case?
+
+Answer:
+
+Mr. J. Walton Moore was employed by CIA in the Contact Division office in Dallas during the early 1960's. His only contact with the Oswald case prior to the assassination is recorded in his 1 May 1964 memorandum to the Acting Chief, Contact Division, attached at Tab 8 (a typed version of the document is also attached because of the poor legibility of the original). He may have been involved in the Agency's effort to support the Warren Commission during the Commission's investigations. Mr. Moore has stated that he was never asked by Mr. de Mohrenscchildt for advice concerning Oswald. We find no indication that there was ever any contact between Oswald and Mr. Moore. :

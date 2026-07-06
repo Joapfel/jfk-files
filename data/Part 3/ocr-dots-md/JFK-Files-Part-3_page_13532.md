@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_13532.png
+
+Convert to Markdowncb 19
+
+TOP SECRET
+
+2321
+
+MR. BISSELL: My recollection is that on the occasion of this visit of his to Washington he did urge that some military or equipment or guns or other devices be made available to the internal dissidents. I have a dim recollection that this was to include one or more rifles with telescopic sights. I wouldn't have remembered the number unless you had mentioned it from the records.
+
+MR. GRAY: The records also reflect that at the end of June or the beginning of July you approved of the furnishing of such rifles to the Dominican dissidents on the basis of a memorandum from Colonel King, who was then Chief of the Western Hemisphere Division, stating he had received authorization from Mr. Rubottom, who was then Assistant Secretary of State. Do you recall such approval?
+
+MR. BISSELL: This is all consistent with my recollection.
+
+MR. GRAY: Would you yourself be involved in any negotiations with the Department of State as a normal matter?
+
+MR. BISSELL: As a normal matter I would not have been involved with meetings at the Assistant Secretary of State level. I would have been involved if and when this matter was discussed in the Special Group.
+
+MR. GRAY: And do you recall, do you have any recollection of whether or not you were involved in any discussions involving the furnishing of these rifles?
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWW 78141 DocId:32201382
+Page 139

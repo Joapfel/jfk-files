@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_13393.png
+
+Convert to MarkdownOLSEN: Thank you very much, Frank. We appreciate it very much. And, Mr. Navarro, the same goes for you. We appreciate your coming and for all the help you've been to the Commission.
+
+STURGIS: Thank you very much.

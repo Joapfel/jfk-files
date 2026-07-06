@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13085.png
+
+Convert to Markdownd. Have any Special Service Staff files ever been transferred to IGRS? If so, please specify the name of the individual, group, or organization upon which the file was maintained and the date it was transferred to IGRS.
+
+19. With regard to the recent suspension of IGRS activities on January 22, 1975, pending an internal review of its operations, please answer the following:
+
+a. To what specific duties have personnel assigned to IGRS been reassigned pending the present Internal Revenue Service review of IGRS? Please furnish the names of the personnel reassigned and the offices and units to which they have been re-assigned.
+
+b. Please furnish the name of the IRS official who is charged with the primary responsibility for conducting the study of IGRS.
+
+c. In what manner are IRS intelligence files being compiled and maintained pending completion of the study?
+
+20. What is the relationship between the Intelligence Division of the Internal Revenue Service and Organized Crime Strike Forces?
+
+21. On how many strike forces do IRS agents participate? Please identify the strike forces.
+
+22. How many agents participate on each such strike force?
+
+23. Has the involvement of IRS intelligence personnel on such strike forces been confined to investigation of tax-related matters? If not, please indicate the manner and extent of IRS involvement in non-tax-related actions of the strike forces. In this regard, provide the Committee with detailed summaries of IRS participation on strike forces which did not involve or were unrelated to enforcement of tax-related matters.
+
+24. What intelligence gathering, compiling, and storage systems has the Internal Revenue Service maintained in addition to IGRS?

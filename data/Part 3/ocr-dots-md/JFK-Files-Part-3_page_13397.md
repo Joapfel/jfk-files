@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_13397.png
+
+Convert to MarkdownThe Department of State
+has no objection to the
+release or declassification
+of this document from
+page 290 through page 2263,
+Received on August 11, 1994
+
+IM/FPC/HR
+Dept. of State

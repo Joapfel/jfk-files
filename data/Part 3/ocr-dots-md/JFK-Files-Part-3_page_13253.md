@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_13253.png
+
+Convert to MarkdownTOP SECRET
+
+1 MR. ROETHE: At hose request were you trying to recruit
+2 these gentlemen?
+3
+4 MR. STURGIS: Remember Embassy told me, please try to
+recruit agents for them.
+5
+6
+7 MR. STURGIS: To provide agents for the American
+Embassy.
+8
+9
+10 MR. ROETHE: You were not recruiting them especially
+for assassination attempt?
+11
+12
+13 MR. STURGIS: No. Now, Camelo gave me enough informa-
+tion that night where I brok into the Chief of the Army head-
+quarters -- he was Chief of the Army. I broke into their files,
+and I did photograph and steal documents.
+14
+15
+16
+17 MR. OLSEN: What did you do with those documents?
+MR. STURGIS: I turned them over to the others.
+MR. OLSEN: To Colonel Nichols?
+18
+19
+20
+21
+22 MR. STURGIS: Yes.
+23
+24 MR. ROETHE: Were you operating here now for Colonel
+Nichols, or do you know if you were operating for CIA? Who was
+the creator of this policy, if you know, Colonel Nichols as a
+diplomat? Was he a diplomat at that time?
+25
+26
+27
+28
+MR. STURGIS: Colonel Nichols was the American Military
+Air Attache, which could be a cover for the CIA.
+29
+30
+31
+32
+MR. OLSEN: You don't know if he was CIA or not?
+
+NW 78141
+DocId:32201338 Page 10

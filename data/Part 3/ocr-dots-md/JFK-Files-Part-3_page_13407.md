@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_13407.png
+
+Convert to Markdownamt 8
+
+2196
+
+me and said the North Koreans are going to attack. On that evening, I was having dinner with Judge Alsop and Mr. Pace and Justice Frankfurter, and I certainly would not have been out having dinner if I knew that an attack was imminent.
+
+Indeed, Mr. John Foster Dulles, who was in Tokyo at the time, said it was not until the Tuesday after the Sunday of the attack that the MacArthur Headquarters accepted that it was anything more than a border incident, and so I think we tend to multiply alleged predictions, partly to cover your trail in case something happens, and I think this is something that policy officers have to get used to, and on which they have to make some discriminating judgments.
+
+And it emphasizes the importance of multiple sources of information.
+
+Now, when I was a Special Assistant to Judge Patterson, the Secretary of War, I personally supported his efforts to combine all of the intelligence agencies into a single agency and put them altogether in one organization. I since have changed my mind radically on that because I think it is very important that you have not competitive sources of information but diverse sources of information. One of the several reasons for the tragic mistake in the Bay of Pigs was that those who proposing the operation were the same people who were furnishing the information on which judgments were to be made. And I had a specific directive from the President not to consult my own
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWO 78141
+DocId:32201382 Page 14

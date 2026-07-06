@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_13184.png
+
+Convert to Markdownno force was used in obtaining subscribers to their service but the word was out among the bookmaking fraternity that it was the thing to do. He feels that during the past year MSNS has lost their affiliation with the syndicate and now is operating independent of any organized authority.
+
+MART said that during the current 1967 major league baseball season, he paid $50 a week for the line service. Normally the $50 would be paid in cash by one of his employees working at Alfies Sundries to STANLEY GREEN. GREEN's normal pick-up day was either Monday or Tuesday.
+
+MART said that the baseball line during the current season was normally disseminated the first time around 11:30 a.m. to noon. During the week of May 15, 1967, the line was coming out around 1 p.m. MART stated that he personally complained to GREEN about this late dissemination and GREEN told him that the delay was necessary in view of the fact that there were fewer customers taking the service. MART said that due to the late time of dissemination, he instructed his bookmaking clerk on May 19, 1967, not to call MSNS over the weekend for their line information.
+
+On May 23 or May 24, 1967, STANLEY GREEN came to Alfies Sundries and demanded all the weekly sports journals that were in the rack. GREEN indicated that MSNS was going out of business as to both the dissemination of the line and the publication of their sports journals.
+
+Several days after GREEN's visit to Alfies Sundries, FRANK ROSENTHAL came into the sundries and spoke personally with MART. In their conversation, MART told ROSENTHAL that he did not think it was right for MSNS to all of a sudden pull out their publications or in fact stop disseminating the line. MART also told ROSENTHAL that he was due a refund for services that had not been rendered. ROSENTHAL seemingly agreed and said he would consult STANLEY GREEN as to the amount of the refund.

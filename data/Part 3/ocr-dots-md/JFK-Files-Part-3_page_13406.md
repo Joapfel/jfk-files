@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_13406.png
+
+Convert to MarkdownTOP SECRET
+
+2195
+
+interview last night that you thought the syndrome of avoiding another Pearl Harbor might have contributed to trying to collect a tremendous amount of information, and you gave as an example the attack on South Korea by North Korea.
+
+MR. RUSK: Yes.
+
+Our intelligence did not predict Pearl Harbor, but they certainly predicted the Roberts Commission. And I think that that experience has infected to some extent the intelligence community.
+
+Now, I once wrote Mr. Schlesinger a little note about this and one or two other matters when he became Director of CIA. One of the nightmares of people in the intelligence community is to have something serious happen which they have not predicted, and so one of the results of that is that policy offices get a continual flow of possibilities, 90 or 95 percent of which never happen at all, and the policy officer has the problem then of trying to sort out which is for real and which is not. And that is, sometimes, very difficult.
+
+In the case of Korea, after the North Korean attack was launched, people went back through thousands of bits of information. They came out with a handful, six or eight pieces on the basis of which some of them said oh, yes, you see, we knew this was coming. Well, no one picked up the phone and called me. I was Assistant Secretary of State for Far Eastern Affairs at that time, and no one picked up the phone and called
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+W A R D & PAUL
+
+amt 7
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+NW 78141
+
+DocId:32201382 Page 13

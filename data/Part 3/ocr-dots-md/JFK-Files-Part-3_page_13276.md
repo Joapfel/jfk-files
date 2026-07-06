@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_13276.png
+
+Convert to MarkdownDecember 6, 1963
+
+Memorandum for Mr. James Angleton
+Subject Letter from Mr. (Jose Colon)
+
+Please see enclosed letter from Jose Colon. Over the phone he told me that he had some information, rather vague, about some plot of air force officers to "impeach" President Kennedy, including an Air Force officer who had been attache in Czechoslovakia. I told him that such information should be brought to the attention of the FBI. He promised to do it but whether he will or not, I do not know.
+
+I can only judge by telephone conversation in that he talked quite sanely but very vaguely.
+
+AWD
+
+Enclosure
+
+awd:mk
+1 - chr
+1 - Commission file
+
+CIA HAS NO OBJECTION TO DECLASSIFICATION A RELEASE OF THIS DOCUMENT AS SANITIZED
+
+JC Aug 74
+
+(3)

@@ -1,0 +1,46 @@
+# JFK-Files-Part-3_page_13666.png
+
+Convert to MarkdownTOP SECRET
+
+1 him.
+
+2 Mr. Johnston. Let me ask you, is it correct you did
+3 promise him at this meeting that you would drop rifles with
+4 telescopic sights for him in Cuba?
+
+5 AMLASH Case Officer. That's right.
+
+6 Mr. Johnston. Was there any mention of paying him money
+7 to support his coup plans?
+
+8 AMLASH Case Officer. He had never really asked for
+9 money. In promising him full support for the coup, if money
+10 was required I presume that could be conjecture that he could
+11 get that also, but he did not specifically ask for money.
+
+12 Mr. Johnston. Was there discussion of his escape in
+13 the event he assassinated Castro or killed Castro but did not
+14 pull off the coup?
+
+15 AMLASH Case Officer. At the last meeting I don't believe
+16 that was discussed.
+
+17 Mr. Johnston. At your prior meeting?
+
+18 AMLASH Case Officer. If it was, it was touched upon,
+19 but as I recall, and this is from reading the file afterward.
+20 where this was discussed was a year later when he was in contact
+21 with the exile group. I think it was with the exile group that
+22 he was then concerned about, how do I get out if something
+23 goes wrong and we can't pull the coup.
+
+24 But we did not at the 22 November meeting, I don't believe
+25 we discussed that. In fact, I'm sure we didn't discuss it.
+
+TOP SECRET
+
+76001 Ward & Paul
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW-83608-Dated 12/20/03 Page 50

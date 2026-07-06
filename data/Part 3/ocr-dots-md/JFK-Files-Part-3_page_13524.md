@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_13524.png
+
+Convert to Markdowncb 11
+
+TOP SECRET
+
+2313
+
+1 MR. CORBIN: I believe you testified that you discussed
+2 the establishment of the executive action capability with either
+3 Mr. Bundy or Mr. Rostow. Did I understand that correctly?
+
+4 MR. BISSELL: Correct.
+
+5 MR. CORBIN: Who was it that first raised this subject,
+6 as you recall it?
+
+7 MR. BISSELL: I can't -- I have no recollection of
+8 who first raised it. My belief is that this would have come
+9 up as a subject very probably in conversations between myself
+10 and Mr. Rostow, and the reason I give that as my belief is that
+11 I had on a number of occasions discussed with Mr. Rostow the
+12 various kinds, various kinds of capabilities, and especially
+13 unconventional ones that the Agency should or might develop.
+14 At a somewhat later stage, for instance, he asked me and I
+15 asked for a small interdepartmental group to examine the ways
+16 of improving our military capabilities, and his thinking ran
+17 along the lines of developing these tools of action. And I
+18 think, therefore, that it is very probable that this came up
+19 in conversations with him, but which one of us would have
+20 coined the phrase, for instance, I don't know.
+
+21 MR. CORBIN: So far as you recall it, were there any
+22 plans for such a capability being developed at the Agency when
+23 you had your first conversation with him?
+
+24 MR. BISSELL: Oh, I'm reasonably certain the answer
+25 is negative to that.
+
+TOP SECRET

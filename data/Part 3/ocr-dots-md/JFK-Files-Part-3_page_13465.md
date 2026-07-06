@@ -1,0 +1,68 @@
+# JFK-Files-Part-3_page_13465.png
+
+Convert to Markdown1 in to institute some privacy in the mails. I will try and get
+2 some citations on that for the staff to look at. But this is
+3 not new in our history.
+
+4 MR. GRISWOLD: I was not thinking of publications, but
+5 of letters. Did copies of such letters ever come to you in
+6 intelligence reports?
+
+7 MR. RUSK: No. It wouldn't come to me in that form,
+8 sir. Normally it would come to me as a piece of information,
+9 and it would normally have some introductory phrase, and this
+10 was for the purpose, I suppose, of protecting sources, some
+11 introductory phrase saying usually reliable sources, or something
+12 of that sort.
+
+13 Then if I wanted to prick up my ears and ask about
+14 the source for a particular item, I could do so and I would be
+15 told. I don't recall any instance, any information that came
+16 out of this mail that ever caused me to ask for a source, and
+17 it turned out to be opening mail.
+
+18 MR. BELIN: Mr. Kirkland, do you have any questions?
+
+19 MR. KIRKLAND: I have a couple, Mr. Secretary.
+
+20 Do you recall any constant, repeated concern by
+21 President Johnson to find out foreign sources of support for
+22 the domestic dissident groups, that this was an issue that he
+23 was continually concerned with?
+
+24 MR. RUSK: Well, we were interested in that point. I
+25 think that we were inclined to assume that it was occurring,
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+N/W 78141
+
+DocId:32201382 Page 72
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

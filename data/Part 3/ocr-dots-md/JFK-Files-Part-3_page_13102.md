@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_13102.png
+
+Convert to MarkdownHonorable Ronald V. Dellums
+
+As I have already indicated, the FBI does not conduct "political" investigations, nor do we conduct "political surveillances." We do, of course, have a responsibility for conducting domestic intelligence investigations authorized under legislative enactments, Presidential Directives and instructions of the Attorney General. These matters relate to espionage, sabotage, treason, sedition, and other activities involving the internal security of the United States. The policies relating to such investigations are not made on an ad hoc basis by individual Agents or individual offices, but conform with broad policy applicable to all offices.
+
+The FBI offers a variety of courses of instruction for law enforcement personnel throughout the United States, including such subjects as anti-sniper and survival training and special weapons and tactics, commonly known as "SWAT". The basic purpose of this training is to provide well prepared teams capable of resolving highly dangerous situations with a minimum of risk to innocent bystanders, the law enforcement personnel involved and the subjects of the investigation.
+
+Enclosed is a newsclipping describing some of the training of our own personnel in this field. The article appeared on June 1, 1975, in the "Washington Star News."
+
+Enclosure
+
+NOTE: The information concerning the Special Agents assigned to the Berkeley, California, Resident Agency was furnished by ASAC Druken, San Francisco.

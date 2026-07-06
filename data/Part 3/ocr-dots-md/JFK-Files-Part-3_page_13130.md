@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13130.png
+
+Convert to MarkdownSECRET
+
+PSI Elio Quintero (protect identity) (97-4313), 153 N.E. 44th Street, Miami, advised on 7/29/60 that he had been serving in a liaison capacity with the MRR and prospective defectee pilots of Cuban airlines. His operations were directed by Dr. Manuel Artime Buesa, an ex-Lieutenant of the Cuban Revolutionary Army who now was serving as Secretary General of the MRR. Quintero was in daily telephonic contact with Salvador Aldereguia and Antonio Bascaro, two members of the Cuban Revolutionary Army who were in exile in the Dutch West Indies, and through Artime was attempting to arrange for their admission into the US.
+
+97-4313-3 p.3
+(6,33)
+
+Carlos Rodriguez, a Cuban national living in NYC as of August, 1960, reportedly said that he was affiliated with the "MRR - Camilo Cienfuegos", and claimed to be in close contact with the "real MRR" in Cuba. He said that Manuel Artime was not entirely sound, but that the movement in Cuba now was well organized and beginning to show signs of progress. (CIA, 9/1/60)
+
+105-91331-1 p.2
+(41)
+
+[In July, 1960 there was dissension in the MRR leadership which consisted of Ricardo Lorie, Higinio "Nino" Diaz, Antonio Michel Yabor and Manuel Artime Buesa. Artime, who represented the MRR on the FRD Executive Committee, reportedly was aligned with the political group of Manuel Antonio de Varona, Aurelio Sanchez Arango and Justo Carrillo. The dissident group, Lorie, Diaz and Yabor, who were not accepted by the FRD, aligned themselves with the Liberation Alliance which was formed in Miami on 8/7/60, and claimed they were the true MRR organization. A paid political announcement in the 8/2/60 issue of the "Diario Las Americas" stated that Jose Ignacio Rasco Bermudez, a secretary of the FRD Executive Committee, certified that the only MRR duly accredited representative of that organization to the FRD was Manuel Artime. The National Board of the MRR in Cuba, backed by the FRD, reportedly approved the reorganization of the MRR and Artime's expulsion of Lorie, Diaz and Yabor On 8/16/60, CIA, Miami (protect identity), advised that Artime and
+
+(continued)
+
+SECRET
+
+-10-

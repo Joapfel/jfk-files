@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_13475.png
+
+Convert to Markdownamt 38
+
+1 Harding Jackson, and C.D. Jackson was a member of the Committee, Phone (Area 202) 544-6000
+
+2 and one of the principal staff members was Wayne Jackson, and
+
+3 so it got to be known as the Jackson Committee, but it was a
+
+4 Committee set up to study the Cold War, and what we should do
+
+5 about it by President Eisenhower.
+
+6 In 1955 -- well, in the meantime, in 1950, I had gone
+
+7 to the University of North Carolina to preside there. I came
+
+8 back here in 1955 as Assistant Secretary of Defense for
+
+9 International Security Affairs. In 1956, I became a Director
+
+10 of the Office of Defense Mobilization. In 1958, I became
+
+11 Special Assistant to the President for National Security
+
+12 Affairs.
+
+13 And I may say that when this was done, this was my
+
+14 office.
+
+15 MR. BELIN: This was in 1956 as Director of ODM
+
+16 or 1958-59?
+
+17 MR. GRAY: In 1958, my office, I had to go down to
+
+18 the corner of the building, and I have forgotten which floor,
+
+19 and I have been into this building so many times.
+
+20 MR. BELIN: So the Vice President's Conference Room
+
+21 is where you once sat?
+
+22 MR. GRAY: That's right.
+
+23 And then in 1961 I became a member of the President's
+
+24 Foreign Intelligence Advisory Board, appointed by President
+
+25 Kennedy and reappointed by successive Presidents, although I
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+N\W 78141
+
+DocId:32201382 Page 82

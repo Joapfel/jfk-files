@@ -1,0 +1,55 @@
+# JFK-Files-Part-3_page_13640.png
+
+Convert to MarkdownTOP SECRET
+
+1 AMLASH Case Officer. No.
+
+2 Mr. Wallach. Did he have any reason to believe that Robert Kennedy had been involved with any of the sabotage operations as contrasted with any assassination attempts?
+
+3
+4
+
+5 AMLASH Case Officer. If he knew, he never mentioned it to me. We never discussed that.
+
+6
+
+7 Mr. Wallach. In other words, you didn't say to him, how did you know that Robert Kennedy -- or why did you pick Robert Kennedy.
+
+8
+9
+
+10 AMLASH Case Officer. No, not at all. I mean, it's a perfectly, I think, logical name to have been mentioned at that time, because by him, since he was the President's brother and since he was the Attorney General, he wanted somebody high in the Government; at one time he had mentioned the President, you know, I want to talk to the President.
+
+11
+12
+13
+14
+15
+
+16 Mr. Wallach. It seems strange to me he didn't pick the Secretary of State or someone like that.
+
+17
+
+18 AMLASH Case Officer. No.
+
+19 Mr. Wallach. What I'm trying to get at--
+
+20 AMLASH Case Officer. He wanted somebody directly to the President. In other words, he wanted the assurances from the highest authority, again, from the President of the United States.
+
+21
+22
+23
+
+24 Mr. Wallach. What I'm trying to get at is we, from our examination of the alleged assassination attempts, have also
+
+25
+
+TOP SECRET
+
+7600010736
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW408800A0010E0D3242840A0A000A00E021

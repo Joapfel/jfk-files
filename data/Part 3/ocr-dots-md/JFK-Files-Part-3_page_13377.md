@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13377.png
+
+Convert to MarkdownSTURGIS: Yes, sir. Mr. Sam Jenis and myself discussed an operation that I participated in, in 1968.
+
+OLSEN: And when did you discuss this with Mr. Jenis?
+
+STURGIS: It was in 1967 that I discussed this with Sam.
+
+OLSEN: And what was that discussion; would you tell us about it.
+
+STURGIS: To do a commando-type operation into Cuba for the purpose of releasing political prisoners in some of the concentration camps in the south part of Cuba.
+
+OLSEN: Did you conduct that kind of an operation?
+
+STURGIS: Yes, sir. I prepared for that operation in 1967 by going with Geraldine Sharma (?sp), who at one time worked as an agent for the United States Government, went to Caracas, Venezuela, where both of us had meetings with President Leon of Venezuela.
+
+OLSEN: And was this operation paid for by Jenis?
+
+STURGIS: No, sir. Money was obtained through certain private sources, approximately $5,000, for this particular trip. While I was in Venezuela, I was in touch with the local Cuban colony there, one was the medical committee which the doctor was in charge of--at the present time I forget what his name is--also, the Venezuelan labor movement, I was in touch with there who was supposedly to support when the operation did in fact come off to support the operation.
+
+OLSEN: Did you have any reason to believe that this was an activity sponsored by, directed by, organized by, the Central Intelligence Agency?

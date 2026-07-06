@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_13664.png
+
+Convert to Markdown1 recall specifically is whether it was broken, thrown away or --
+2 Mr. Wallach. Why do you believe he wouldn't have taken
+3 it with him?
+4 AMLASH Case Officer. He said he wouldn't. I specifically
+5 remember this. He says, and then later on he says, I'm not
+6 going to take any compromising material back with me.
+7 This would have been a piece of compromising material.
+8 He did not like the pen. The only point probably that we made
+9 with him is that we were willing to consider, because he knew
+10 our opposition to something like this, that we were even willing
+11 to consider showing him something that -- whether he could
+12 again defend himself.
+13 He did not think it was a good idea.
+14 Senator Schweiker. What kind of weapon or substance
+15 could he get that would not compromise him? I'm a little
+16 confused. He wanted something to defend himself, but he
+17 doesn't want anything that will compromise him.
+18 Unless you have a disappearing weapon, what could he
+19 possibly get that would not compromise him to take back?
+20 AMLASH Case Officer. Well, we were talking also about
+21 caches inside Cuba at that time, so it could have been dropped
+22 to him inside Cuba. He didn't exactly have to take it back
+23 with him.
+24 In other words, here again, the whole idea of this was
+25 not to give him something there that he would be able to take
+
+TOP SECRET
+
+76001003 WARD & PAUL
+410 E. Market Street, SE, Washington, D.C. 20003
+
+gsh 19
+
+TOP SECRET
+
+NVWetReqsDLSwP0EzHsWHHdKxGpCv

@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_13425.png
+
+Convert to Markdown1 wanted to go in the direction of Diem must go kind of thinking, 2
+and we pulled back on it. Now, we did make an effort in the 3
+months immediately following that, to try to persuade President 4
+Diem to get his brother Nhu, and Madame Nhu, out of the country. 5
+We told the President to send him as Ambassador to Washington, or 6
+Paris, or give him any kind of a job that would get him out of 7
+the country, because it was his brother, we felt, who was the 8
+principal motivator and executor of policies which were rapidly 9
+alienating the Buddhists, the military, and the students, and 10
+we felt that Brother Nhu was going to bring President Diem down. 11
+
+I do recall very specifically that Ambassador Henry 12
+Cabot Lodge had instructions that if a coup should develop, 13
+that he should do his best to insure President Diem's personal 14
+safety, and, indeed, I understand that on the morning of the day 15
+that it was clear that the military we moving, he called up 16
+Diem and suggested some arrangements to Diem that would insure 17
+his personal safety. Diem refused those suggestions and tried 18
+to get off into another part of the country where he thought he 19
+had some forces that might be loyal to him, and on the way was 20
+captured and killed. 21
+
+MR. BELIN: Is it your testimony, then, that you don't 22
+know of any action by this government, or any agency of the 23
+government which contributed, directly contributed to the death 24
+of Diem? 25
+
+MR. RUSK: It was not the policy of the United States 25
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+11 Phone (Area 202) 544-6000
+
+AMT
+
+nm 1 fls
+
+amt
+
+NW 78141
+DocId:32201382 Page 32
+
+# TOP SECRET
+
+2214

@@ -1,0 +1,59 @@
+# JFK-Files-Part-3_page_13633.png
+
+Convert to Markdown7600010731
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET
+
+1 believe there's some cutoff here. I realize the uniqueness and broadness of his support earlier, but it would just seem to me that at some point he really had to weed out, not necessarily weed out or be suspect of anti-Communist officers who had too high decision making in his government, would he not, or am I missing something?
+
+2
+3
+4
+5
+6
+
+7 AMLASH Case Officer. No, not really, because out of this group that was mentioned, and with whom he himself discussed the need in the early '60s to keep, say, the Communists out, some of those officers are still in his government today.
+
+8
+9
+10
+
+Now, they may have changed, or Castro may have changed, but he didn't purge all this group of officers. Maybe he won them over, and if they are still there, evidently he has some confidence in them.
+
+11
+12
+13
+14
+
+Mr. Johnston. According to the file, there was a meeting on October 5th, apparently, in Paris, and I'm not sure that you were the case officer at that meeting, and the cable from Paris sets the tone of that meeting as AMLASH apparently was trying to get things off his chest in talking to you.
+
+15
+16
+17
+18
+19
+
+Were you the case officer at that meeting?
+
+20
+
+21
+
+AMLASH Case Officer. I was the case officer during that period of time.
+
+22
+23
+
+Go into a little of the detail because we did talk about these problems.
+
+24
+
+Mr. Johnston. There appeared from the file two meetings
+
+25
+
+# TOP SECRET

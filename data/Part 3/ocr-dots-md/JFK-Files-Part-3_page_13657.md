@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_13657.png
+
+Convert to MarkdownTOP SECRET
+
+760010813
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+sh 12
+
+Phone (Area Code) 202-356-0000
+
+Mr. Wallach. A pen with a hypodermic needle would protect himself?
+
+AMLASH Case Officer. He put himself in a situation and asked us the question. He said I may be confronted by Castro or by Raoul or by one or the other of Castro's people in a meeting in which I am not armed, and I may be confronted with an accusation of plotting against the regime.
+
+And at that time he said this would be before we are ready to move in formenting the coup, and he said, I would like to have something with which I can protect myself at that time.
+
+In fact, the words that I think I mentioned here before was, if I fall, I don't want to be the only one going down.
+
+So he was seeing himself in a situation of going back into Cuba, of being in a meeting in which he could have been, because again, of the relationships. Fidel Castro himself or Raoul Castro could confront him in their office, accuse him.
+
+Mr. Wallach. Couldn't he use that pen offensively and not defensively?
+
+AMLASH Case Officer. Yes, he could have. He was not at that time talking about using it offensively and we weren't discussing the offensive use of that pen.
+
+Senator Schweiker. Following up the point that I switched away from as to whether Cuban intelligence might have been trailing him or following him or observing what you were doing with him, we have some knowledge, I gather, from a summary.
+
+TOP SECRET

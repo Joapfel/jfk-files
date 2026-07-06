@@ -1,0 +1,46 @@
+# JFK-Files-Part-3_page_13684.png
+
+Convert to MarkdownTOP SECRET
+
+65
+
+ash
+
+9 Phone (Area 202) 844-6000
+
+1 with him inside Cuba and this was one of the subjects that
+2 were discussed at the last meeting, communications. So that
+3 is not a new subject matter. That is definitely part of the
+4 subject matter that was discussed at the last meeting, which
+5 was communications with him.
+6
+7 Mr. Johnston. And it's your testimony that this report
+8 as it exists in that file is exactly the report that you prepared
+on November 25th?
+9 AMLASH Case Officer. Yes..
+10 Mr. Johnston. You'll note that the report does not
+11 mention the pen device or AMLASH's reaction to your giving it
+to him.
+12
+13 AMLASH Case Officer. That's right.
+14 Mr. Johnston. You left that out of your original report.
+15 You did not make a written report on --
+16 AMLASH Case Officer. I did not make a written report
+on that.
+17
+18 Mr. Johnston. Why was that?
+19 AMLASH Case Officer. Probably because Fitzgerald said
+not to.
+20
+21 Mr. Johnston. Do you recall Fitzgerald saying not to?
+22 AMLASH Case Officer. I don't recall it, but that's
+certainly what I'd have to assume.
+23
+24 In other words, don't include that part of it.
+25 Mr. Johnston. Should it have gone in there in a normal
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+760000001010

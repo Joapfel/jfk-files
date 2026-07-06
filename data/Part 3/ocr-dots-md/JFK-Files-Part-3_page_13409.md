@@ -1,0 +1,91 @@
+# JFK-Files-Part-3_page_13409.png
+
+Convert to Markdownamt 10
+
+2198
+
+gathering has to do with getting materials that are in the
+public sector, publications from all over the world including
+the Soviet Union and the People's Republic of China, and the
+sheer management analysis of the information that is available
+in the public sector is a massive problem.
+
+Now, the processes by which that mass is reduced to
+some estimates or judgments are very important. To some extent,
+policy officers are the prisoners of the information they have
+available to them, and policy officers should be in a pretty
+sceptical frame of mind about decisions. I mean about judgments
+of that sort.
+
+Very often we try to get information that is not
+present in the real world, and we ought to, I think, be a little
+more candid in saying to ourselves that we don't know, but if
+you want our guess, here's our guess.
+
+For example, on a certain Tuesday evening in August,
+1968, Russian forces went into Czechoslovakia. We thought later
+that we had learned that the Russians had made that decision on
+the preceeding Saturday night, three days earlier, Sunday,
+Monday, Tuesday.
+
+Now, if we had asked our intelligence community before
+that Saturday night whether or not the Russians were going into
+Czechoslovakia, there is no way they could know, because the
+Russians didn't know. I mean, I used to smile occasionally at
+the enormous effort made by foreign people, foreign governments,
+
+TOP SECRET
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+NW 78141
+
+DocId:32201382 Page 16

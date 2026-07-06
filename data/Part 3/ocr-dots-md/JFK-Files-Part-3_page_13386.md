@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_13386.png
+
+Convert to MarkdownSTURGIS: Well, no sir. No, sir, the whole venture was not scrapped. Because of the damage to the boat, because the rendezvous was on the second day--was late in rendezvousing with the other boat which did not show up, I proceeded off the coast of Belize, which is the capital of British Honduras; I put the men ashore, and the guns and equipment ashore in a small atoll. I proceeded with a skeleton crew to go into Belize to fix the damages of the boat. While we were in Belize two hours, the authorities there came aboard and took us to their headquarters for questioning.
+
+OLSEN: Was this Mexican authorities?
+
+STURGIS: No, sir. This was British Honduras --
+OLSEN: Honduras authorities?
+
+STURGIS: Yes, sir. This was the British authorities. We were interrogated; at least, I was interrogated by the Chief of Intelligence there wanting to know what we were doing in the area, and so forth. We were immediately arrested; they somehow found out--not through me--but found out that the men and guns were put ashore on an atoll. They went out with airplanes and ships, got the men off the atoll, came in. We stayed there approximately 9, 10, 11 days -- I forget offhand -- went to trial, deported out of Belize to the Miami area. I was contacted by the American Consul there. He was very irate. There were a lot of newspaper articles that we came in from Guatemala to invade Belize. I assured the authorities in Belize--the Chief of Intelligence, that that was not the case. If you remember, or you may not remember, there was some talk of friction between Guatemala and the British Honduras because
+
+NW 78141
+DocId:32201373 Page 50

@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13229.png
+
+Convert to MarkdownSECRET
+
+SENSITIVE
+
+- 12 -
+
+BOX 4: MISCELLANEOUS
+
+From the listing of files contained, nothing appeared likely
+to contain relevant information. Therefore, the files in this
+box were not examined.
+
+SECRET
+
+SENSITIVE
+
+NW 78141
+
+DocId:32201331 Page 14

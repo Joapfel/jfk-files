@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_13616.png
+
+Convert to MarkdownSerial: N9022
+
+In addition, this Agency is authorized by law to protect certain
+information concerning its activities. Title 5 U.S.C. 552(b)(3), exempts
+matters that are specifically exempted from disclosure by statute. The
+applicable statutes in this case are 18 U.S.C. 798, 50 U.S.C. 402 note
+(Public Law 86-36), and 50 U.S.C. 403(d)(3). DoD Directive 5400.7, Sections
+III and VI.C.3, specifically recognizes this exemption.
+
+As the deleted items constitute a partial denial of your request, you
+are hereby advised of this Agency's appeal procedures.
+
+Any person denied access to records, or parts thereof, may, within 30
+days after notification of the denial, file an appeal to the NSA/CSS Freedom
+of Information Act Appeal Authority. The appeal shall be in writing addressed
+to the NSA/CSS FOIA Appeal Authority, National Security Agency, Fort George
+G. Meade, MD 20755. The appeal shall reference the initial denial of access
+and shall contain, in sufficient detail and particularity, the grounds upon
+which the requester believes release of the information is required. The
+NSA/CSS Appeal Authority shall respond to the appeal within 20 working days
+after receipt.
+
+Please be advised that records originated by the Congress of the United
+States are not subject to the Freedom of Information Act.
+
+Encls:
+
+a/s
+
+cc: L221 (less encls)
+U " "
+Q32 RP (less encls)
+LAC
+CONCUR: U
+
+M/R: Classified portions of the records were bracketed by M. Levin and P. Dinwoodie on 26 Feb 1981.
+
+L. Figallo, Q324, 3085s, 9 March 1981, dd

@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13688.png
+
+Convert to MarkdownTOP SECRET
+
+AMLASH Case Officer. Yes, that's right.
+
+Mr. Johnston. Does that refresh your recollection about whether or not you gave him the speech?
+
+AMLASH Case Officer. No, because at that time it could have already been printed in the Paris newspaper and he could very well have read it in one of the Parisian newspapers. But again, I could have had a copy of a newspaper clipping of the speech with me.
+
+Mr. Johnston. But in the least does that refresh your recollection that you told AMLASH that Fitzgerald helped prepare the speech?
+
+AMLASH Case Officer. Yes, Fitzgerald told me that we
+
+TOP SECRET

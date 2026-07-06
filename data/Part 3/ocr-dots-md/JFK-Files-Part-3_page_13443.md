@@ -1,0 +1,80 @@
+# JFK-Files-Part-3_page_13443.png
+
+Convert to Markdown2232
+
+# TOP SECRET
+
+Allen Dulles. But I would be surprised and disappointed if President Kennedy, for example, had any kind of understanding with Mr. Dulles that very much affected our foreign policy without the knowledge of the Secretary of State. I can't swear that that was not so, obviously, because we are talking about a negative here. But I didn't get the impression that such a channel was operating.
+
+MR. BELIN: Were there some meetings that Allen Dulles might have had with President Kennedy that you did not know about?
+
+MR. RUSK: Oh, I am sure he dropped in on him occasionally for some additional briefings on different situations, and I am sure, I know that J. Edgar Hoover used to go into see the President, or the two Presidents that I served, occasionally on his own to report on various things. So the answer to that is yes.
+
+MR. BELIN: To follow up with J. Edgar Hoover, one comment you made concerning a maximum term of service, I believe in our discussions last night you said that one of the major concerns you had was the possibility that if an agency like the FBI or CIA would be able to terrorize others, including possibly members of Congress.
+
+MR. RUSK: Well, again I am not sure I am right on this, but I have developed over the years a strong aversion to monopoly of sources of information on important matters. And I
+
+~~TOP SECRET~~
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+amt 6
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 78141
+DocId:32201382 Page 50

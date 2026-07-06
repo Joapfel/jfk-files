@@ -1,0 +1,297 @@
+# JFK-Files-Part-3_page_13244.png
+
+Convert to MarkdownJFK ASSASSINATION SYSTEM
+
+IDENTIFICATION FORM
+
+AGENCY INFORMATION
+
+AGENCY : HPSCI
+RECORD NUMBER : 135-10001-10253
+RECORDS SERIES :
+
+CIA HAS NO OBJECTION TO
+DECLASSIFICATION AND/OR
+RELEASE OF CIA INFORMATION
+IN THIS DOCUMENT AS SANITIZED
+
+AGENCY FILE NUMBER :
+
+DOCUMENT INFORMATION
+
+ORIGINATOR : ROCK
+FROM :
+TO :
+TITLE :
+
+DATE : 04/03/75
+PAGES : 22
+
+SUBJECTS :
+
+TRANSCRIPT OF DEPOSITION OF FRANK STURGIS BY ROBERT B. OLSEN AND JAMES N. ROETHE (PAGES 73 THROUGH 152 ONLY).
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : T
+RESTRICTIONS : OPEN IN FULL Postponed
+CURRENT STATUS : O
+DATE OF LAST REVIEW : 09/14/94
+
+OPENING CRITERIA :
+
+COMMENTS :
+
+<table>
+  <tr>
+    <td>2025 Release under the President John F. Kennedy Assassination Records Collection Act of<br/>1992</td>
+  </tr>
+</table>
+
+[R] - ITEM IS RESTRICTED
+
+NW 78141
+DocId:32201338 Page 1
+
+Date:09/14/94
+
+Page:1
+
+6/17
+8/14/98
+1/30
+
+5/17
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14/98
+
+1/30
+
+6/17
+
+8/14

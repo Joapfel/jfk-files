@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_13516.png
+
+Convert to Markdowncb 3
+
+1 could precisely and tightly control it.
+
+2 MR. BELIN: Did you ever call Mr. William Harvey, who was a CIA man to eventually take over this operation within the latter part of '61 or early '62?
+
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+MR. BISSELL: Now, I did ask Mr. Harvey to take over a part of our reviving efforts against Castro and the Castro Administration. I probably urged him to look into this plan that was by that -- that had been active or that had been the subject of active attention nearly a year before. I have no recollection of authorizing him to revive it, except to look at it as a plan, or to proceed with any action along those lines.
+
+MR. BELIN: Do you have any personal recollection as to whether or not the pills or pills of any kind, poison pills were ever delivered into Cuba?
+
+MR. BISSELL: I do not have any recollection of that.
+
+MR. BELIN: One way or the other?
+
+MR. BISSELL: One way or the other.
+
+MR. BELIN: Do you have any recollection on any other facts relating to this matter?
+
+MR. BISSELL: I don't believe so.
+
+MR. BELIN: Now, I want to turn to the question of Trujillo. Do you want to take over the questioning on Trujillo, Mr. Gray.
+
+MR. GRAY: Yes, if it's all right.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+N.W. 78141 DocId:32201382

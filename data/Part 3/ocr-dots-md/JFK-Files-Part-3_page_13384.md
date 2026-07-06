@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_13384.png
+
+Convert to Markdownsupposed with the assistance of this ship -- was supposed to hijack
+a Russian vessel, and in hijacking this Russian vessel, I was supposed
+to go off the coast of Venezuela, receive assistance from the local
+Cuban colony there, plus the officials that I was in touch with of
+the Venezuelan LaborParty, to assist and use the hostages and the ship
+to approach the Cuban Government for the release of Cuban political
+prisoners. It was a known fact at that time that Fidel would not
+release the prisoners. That would be a propaganda victory, in one
+aspect to this operation. But the main overall idea was that when
+Fidel refused to release the prisoners, it was then going to be where
+we were going to ask for the release of the USS PUEBLO and the
+American crew that was captured and being held by the North Koreans.
+This was to create -- the capture of this Russian vessel was to create
+an international incident, possibly put world pressure on the Russians
+to release the American crew members and the USS PUEBLO.
+
+OLSEN: Did that ever take place -- did you ever meet that ship
+off the Mexican coast?
+
+STURGIS: No, sir. I went off the Mexican coast; I went into a
+small town called Progresso (?sp); at the time in 1968, Mr. Jack Stuart
+was the Station Chief -- CIA Station Chief in Merida, Mexico. I did
+rent--lease--a boat in Progresso, Mexico; I went off the coast with this
+boat; I gave a written document to the captain of the boat that if this
+boat and the crew and myself and the members of the group were captured
+either by any foreign government, that he would have a document signed
+
+NW 78141
+DocId:32201373 Page 48

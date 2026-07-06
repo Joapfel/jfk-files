@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_13433.png
+
+Convert to Markdown1. nuclear secrets which that Joint Committee has not had discussed
+2. with them. And I do not recall at the moment any significant
+3. leak that ever came out of that Committee.
+4. Now, if the Congress itself would approach this matter
+5. of oversight of the CIA in that mood and spirit, and recognize
+6. that you cannot have a CIA involved in espionage and counter-
+7. espionage and an occasional political operation somewhere, and
+8. have it shouted from the rooftops, then I think some Congressional
+9. oversight could be useful.
+
+10. I personally, but I am biased because I am an Executive
+11. Branch man, I personally would prefer ex post facto assessment
+12. rather than pre-consultation with regard to whether or not a
+13. particular thing should be done, because that could raise the
+14. question of who makes the decision. You might get, you might
+15. get a steady stream of alleged confrontations between a President
+16. and some group in the Congress that could cause great difficulty.
+
+17. Could I go off the record just a second?
+
+18. (Discussion off the record.)
+
+19. MR. RUSK: The Congress is the representative branch
+20. of the government only for those functions given to the Congress
+21. under the Constitution. The President is the representative
+22. branch of the government with respect to the duties assigned to
+23. the President, and so I see no particular reason why we have to
+24. say that the Congress has to participate in everything, nor is
+25. the Congress particularly willing to do it. For example, on
+
+TOP SECRET
+
+2222
+
+Ward & Paul
+
+410 First Street, S.E., Washington, D.C. 20003
+
+N.W 78141
+
+DocId:32201382 Page 40

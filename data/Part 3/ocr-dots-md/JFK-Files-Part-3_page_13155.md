@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_13155.png
+
+Convert to MarkdownCONFIDENTIAL
+
+| | |
+| :--- | :--- |
+| **DESTROY** I 109-584-A Miami News | 8/7/63 |
+| **DESTROY** I -A Miami Herald | 9/8/63 |
+| **DESTROY** I -A Press Release - Intellis Lewis Jr. collection No NEWS PAPER OR DATE GIVEN 5/22/64 (DATE ON CARD: 5/28/64) (Note: 1/20/69 to 1/27/69) | |
+| **DESTROY** I 109-636-3 | |
+| **DESTROY** I 109-652-4 | |
+| **DESTROY** DI 113-7-210-314 | |
+| **DESTROY** I -429 | |
+| **DESTROY** I 134-14424-1 p. 3 | |
+
+CONFIDENTIAL
+
+65

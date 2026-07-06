@@ -1,0 +1,63 @@
+# JFK-Files-Part-3_page_13492.png
+
+to the President for intelligence affairs, and he could then represent the President across the board, and perhaps have greater success and leadership.
+
+But I urge that you bear in mind the realities of the situation where one Agency simply cannot instruct another Agency under certain circumstances.
+
+MR. BELIN: Do you have any opinion as to whether or
+
+# TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25

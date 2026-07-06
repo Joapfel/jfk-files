@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_13514.png
+
+Convert to MarkdownTOP SECRET
+
+2303
+
+MR. BELIN: Again, I will ask with regard to this aspect of your testimony the same question I asked you concerning the executive action capabilities. Did you have an opinion as to whether or not what you refer to as this encouragement had any authorization from the President or that the President in any manner knew about this?
+
+MR. BISSELL: I had no direct reason to believe that he did, but I will make the same answer, that I had a high degree of confidence that the gentlemen I was talking to in the White House, whom I have identified, would not have given such encouragement unless they were confident that it would meet with the President's approval.
+
+MR. BELIN: Did you ever have any discussions with anyone in the Eisenhower Administration concerning any possible plan to assassinate Castro?
+
+MR. BISSELL: I have no clear recollection of such a discussion, but there could have been.
+
+MR. BELIN: Do you have any recollection, if it could have been, with whom that discussion might have taken place?
+
+MR. BISSELL: I would suppose that it would have been with Gordon Gray.
+
+MR. BELIN: If it occurred?
+
+MR. BISSELL: If it occurred, but the balance of my recollection is that it did not occur.
+
+MR. BELIN: Do you know whether or not during the last
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWI 78141 Docld:32201382
+Page 121

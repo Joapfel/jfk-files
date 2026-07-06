@@ -1,0 +1,68 @@
+# JFK-Files-Part-3_page_13463.png
+
+Convert to MarkdownTOP SECRET
+
+2252
+
+that as soon as you hit the boundary of the United States you
+transfer the whole business from one operation to another,
+because I think you run into a good deal of trouble that way.
+
+It is true that there was some lack of effective
+cooperation between the CIA and the FBI at times, and this is
+partly a matter of personality, and is one of the reasons that
+I feel that these people ought to be on terms not to exceed
+eight years. I testified to Senator Muskie's Subcommittee that
+talking to J. Edgar Hoover was about like talking to President
+DeGaulle, and, you know, there is only one DeGaulle and there
+is only one J. Edgar Hoover, so I anticipate this problem is
+not going to be repeated any time soon.
+
+But, I do think that there ought to be a close
+working relationship.
+
+Now bear in mind, gentlemen, that there is a very
+lively and active exchange of information between different
+elements of the intelligence community, and I have no doubt
+that other agencies have built up files which include a lot of
+raw data from the FBI, even though it was not in that agency's
+principal charter to have, or to collect, that kind of
+information. For example, in the State Department where 95
+percent of our jobs, at least, are rated as sensitive, there
+is investigation of applicants, many of whom are not hired.
+There is investigation of officers on the job. That is
+renewed, I think, every five years to bring their security
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+NW 78141
+
+DocId:32201382 Page 70

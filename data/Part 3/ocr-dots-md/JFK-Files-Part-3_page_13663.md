@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_13663.png
+
+Convert to MarkdownTOP SECRET
+
+760091CRAJ
+
+ward & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+the speech.
+
+Mr. Johnston. You have testified a great deal about the
+poison pen or the pen device and my only question is what is
+your best recollection about what happened to the pen? Did
+he take it with him? Did you take it with you when you left
+the meeting?
+
+AMLASH Case Officer. Again, as I mentioned to you the
+last time, I don't remember specifically if I kept the pen and
+threw it away or if he kept it.
+
+What I do remember was his reaction when I showed him
+the pen. I can't today tell you for sure that he kept the
+pen.
+
+Mr. Johnston. It seems to me that's rather compromising
+evidence, if he kept the pen and you recall that. It's also
+such compromising evidence -- I have difficulty believing you
+would have thrown it away.
+
+AMLASH Case Officer. Yes, because it was compromising
+evidence. I had carried it one way. I mean I wasn't going to
+carry it back. It was nothing but a Papermate pen in which
+a hypodermic needle had been inserted.
+
+In other words, it wasn't a $10,000 piece of equipment
+or anything like this.
+
+Mr. Johnston. I agree, but it's a very compromising
+piece of evidence to have around.
+
+AMLASH Case Officer. That's right. But what I can't
+
+TOP SECRET
+
+NW-88-08L.indd   11:52:28AM   Page 47A

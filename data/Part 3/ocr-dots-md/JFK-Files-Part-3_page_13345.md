@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13345.png
+
+Convert to MarkdownSTURGIS: Well, there is a very thin line here. I have discussed assassinations of several top Cuban political and military leaders with the Havana Station.
+
+with
+
+OLSEN: When you say/the Havana Station, who in the Havana Station?
+
+STURGIS: Well, with the United States Embassy, Colonel Nichols.
+
+OLSEN: This was while you were still in Cuba?--
+
+STURGIS: Yes, sir.
+
+OLSEN: Before leaving there in June 1959?
+
+STURGIS: Yes, sir. That's in the first part of January and February of 1959.
+
+OLSEN: Well, these were all discussed with us yesterday on the record when you described to us the discussions that took place among officials of the Cuban Air Force and Cuban Army about plans to assassinate Fidel Castro, Raúl Castro, and Che Guevara?
+
+STURGIS: Yes, sir.
+
+OLSEN: And people of their entourage.
+
+STURGIS: Yes, sir..
+
+OLSEN: And you described yesterday some exercises that were worked up, plans that were drawn up with respect to possible places to perform the assassinations?
+
+STURGIS: Yes, sir.
+
+OLSEN: And then you described to us yesterday the fact that Colonel Nichols had on the occasions when you had discussed it with him --- Colonel Nichols had urged you to hold off on any such assassinations.
+
+STURGIS: Right.

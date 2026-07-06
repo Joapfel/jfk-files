@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_13590.png
+
+Convert to MarkdownTOP SECRET
+
+2379
+
+1 case I think looked at approximately 20 of the offices in some
+2 more detail out of approximately 50 offices, and that means that
+3 30 were not looked at in closer detail other than what was
+4 in the written material. But he would give in to a fair amount
+5 of detail to a lot of the offices which would be relatively
+6 uncontroversial in terms of the resource requirements.
+7
+8 MR. BELIN: Are the hearings held on these areas,
+or are the written questions relied on exclusively?
+9
+10
+11 MR. DONOHUE: No, the written questions would serve
+as a base for then holding a hearing, and I think in the case
+last year, the examiner indicated he spent approximately 75
+12 to 80 hours in oral hearings, using the response he got in
+13 the written questions, plus the budget material, to elicit
+14 further information to serve as a basis for his recommendation
+15 to me, and ultimately to the Director on the level of resources
+16 that the CIA would require for 1976.
+17
+18
+19
+20
+MR. SHANNON: Of the people participating in these
+hearings, they would be representatives from the administrative
+part of the CIA and perhaps the Deputy Director or one of the
+top level officials?
+21
+22
+23
+24
+25
+MR. DONOHUE: Particularly in the case of 1976, in
+fact, I accompanied the examiner for an initial session with three
+of the four major directorates in the CIA, and I think each
+of those sessions ran about two hours with Mr. Procter, Mr.
+Nelson, and Mr. Duckett. There was an additional session held with
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+W A R D . & P A U L
+
+Phone (Area 202) 544-6000
+
+DW 78141 DocID:32201382

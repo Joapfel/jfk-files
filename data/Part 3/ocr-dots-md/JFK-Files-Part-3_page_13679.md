@@ -1,0 +1,94 @@
+# JFK-Files-Part-3_page_13679.png
+
+Convert to MarkdownTOP SECRET
+
+60
+
+AMLASH Case Officer. None whatsoever that I can remember.
+
+Mr. Johnston. No discussion between you and Fitzgerald
+at all about any connection?
+
+AMLASH Case Officer. No, not that I can recall.
+
+Mr. Johnston. When you say not that you can recall, are
+you saying that it's possible but you don't recall it, or are
+you certain, fairly certain to the best of your recollection?
+
+AMLASH Case Officer. I'm fairly certain to the best
+of my knowledge that there was no connection between the AMLASH
+in other words, that we discussed it, we discussed the Kennedy
+assassination. I'm sure we did. I mean who wasn't discussing
+the Kennedy assassination at that time. That we tied the
+Kennedy assassination in with AMLASH, I don't recall any kind
+of conversation of that nature.
+
+Mr. Johnston. On November 23rd and November 24th and
+November 25th?
+
+AMLASH Case Officer. Right.
+
+Mr. Johnston. All right. Let me point you to one of
+the documents we wanted to ask you about and it is a contact
+report dated 25 November, and let me just show that to you.
+
+Is that a document -- let me state for the record what
+it is.
+
+It's the original, apparently copy, of the November 25th
+contact report of the November 22nd meeting.
+
+Did you prepare that contact report?
+
+TOP SECRET
+
+765 NOLAN LINES 4
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (202) 544-6000
+
+6
+5
+4
+3
+2
+1
+0
+9
+8
+7
+6
+5
+4
+3
+2
+1
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25

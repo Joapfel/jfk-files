@@ -1,0 +1,70 @@
+# JFK-Files-Part-3_page_13583.png
+
+Convert to MarkdownTOP SECRET
+
+2372
+
+itself, we would look in terms of covert action projects
+to the 40 Committee, with an indication of Presidential approval
+and since I have been head of the unit in 1973, I think we have
+had indications in every covert action project of Presidential
+approval of that covert action project. We would make an
+independent financial assessment as to whether the dollar amount
+requested by the Agency to carry out that covert action
+project was reasonable, and that would amount to a fair amount
+of detailed review of each request to use the contingency
+reserve for covert action projects. We would hold a hearing,
+based at the time of the request on the facts and information as
+to the financial cost of that particular project, and do that in
+a fair amount of detail.
+
+That does not mean getting down to every last dollar
+or person involved, but it does amount to looking on an aggregate
+basis as to whether this is a reasonable amount, and can they
+provide, just can the Agency provide justification for that
+need?
+
+MR. KIRKLAND: Well, in point of fact, since future
+contingency or future covert operations by their nature cannot
+be budgeted in advance, and usually must be initiated out of
+the contingency fund, in the OMB, you would get a look at each
+of these projects for all practical purposes at their inception,
+wouldn't you?
+
+MR. DONOHUE: Yes, sir. We would.
+
+TOP SECRET
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+W A R D & P A U L
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area 202) 544-6000
+
+Doctd:32201382

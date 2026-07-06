@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_13556.png
+
+Convert to MarkdownTOP SECRET
+
+2345
+
+1 men from all walks of life, and because it was such a new
+2 organization at that time, most of its officers and all of its
+3 senior people had had some other kind of professional experience
+4 and accomplishment before they came into the organization.
+
+5 It had quite a scattering of men who had had military
+6 experience, it had some professionals like myself, it had
+7 lawyers, and Helms himself, before his OSS period, had been a
+8 journalist, and it had a wide range of skills. I do not mean
+9 those skills were important to be used. I never used economics
+10 in the Agency, and Helms I don't think ever used journalism, but
+11 my point is I think when it is engaging in the kind of business
+12 it is, it is better to have a variety of backgrounds, and not
+13 to have more than perhaps half of its personnel men who were
+14 in there for lifelong careers.
+
+15 This relates to my remarks about official cover and
+16 its overuse. The pattern that I think was developing by the
+17 end of, by the beginning of the '60s in the clandestine service
+18 was that people more and more, its members thought of their
+19 careers as a little different in kind, and a little removed
+20 from Foreign Service careers. They expected to spend a life
+21 doing tours of duty in every case under official cover, and
+22 usually identified to the host government. And in short, to
+23 follow much the same career pattern as the Foreign Service.
+24
+
+25 I believe that this is not consistent really with the
+maintenance of the state of mind that ought to animate the
+
+TOP SECRET

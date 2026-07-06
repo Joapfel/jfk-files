@@ -1,0 +1,61 @@
+# JFK-Files-Part-3_page_13337.png
+
+Convert to MarkdownDate:09/21/94
+
+JFK ASSASSINATION SYSTEM
+
+IDENTIFICATION FORM
+
+AGENCY INFORMATION
+
+AGENCY : HPSCI
+RECORD NUMBER : 135-10001-10288
+
+RECORDS SERIES :
+
+AGENCY FILE NUMBER :
+
+DOCUMENT INFORMATION
+
+ORIGINATOR : ROCK
+FROM :
+TO :
+TITLE :
+
+DATE : 04/04/75
+PAGES : 55
+
+SUBJECTS :
+
+TRANSCRIPT: MEMORANDUM OF DEPOSITION FOR THE RECORD. PARTICIPANTS:
+FRANK STURGIS, WILFREDO NAVARRO, ROBERT B. OLSEN, JAMES N. ROETHE.
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : T
+RESTRICTIONS : OPEN IN FULL
+CURRENT STATUS : O
+DATE OF LAST REVIEW : 09/21/94
+
+OPENING CRITERIA :
+
+COMMENTS :
+
+Contained in file entitled, "President's Commission 4/4/75"
+"O/R-III (D)"
+
+<table>
+   <tr>
+    <td>2025 Release under the President</td>
+   </tr>
+   <tr>
+    <td>John F. Kennedy Assassination</td>
+   </tr>
+   <tr>
+    <td>Records Collection Act of 1992</td>
+   </tr>
+  </table>
+
+[R] - ITEM IS RESTRICTED
+
+NW 78141
+DocId:32201373 Page 1

@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_13285.png
+
+Convert to Markdown5. Would it be possible and desirable to add to Chapter II a description, second by second - taken from the frames of Zapručis photos? This, if well done, would be a most dramatic method of describing the action. I don't think we have given enough use to these photos.
+
+6. Has there been any follow-up on the letters to the Militant - mentioned to us by Isaac Don Levine - that possibly were written by Oswald?
+
+7. Is there any section of the report which deals with the protection of the President and Vice President when abroad? Should we not deal with this briefly?
+
+AWD
+
+| awd:mk | 
+| --- | 
+| l - chr | 
+| l - Pres Com - official corres |

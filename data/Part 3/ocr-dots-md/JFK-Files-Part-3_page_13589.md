@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13589.png
+
+Convert to MarkdownTOP SECRET
+
+2378
+
+1. intensive review on the part of OMB of the budget of CIA and
+2. in this particular case, fulfilling of a function somewhat
+3. beyond the scope of the normal budget examiner while looking at
+4. the personnel structure of the Agency, the rates of promotion,
+5. the average grade structure, the number of supergrades, the number
+6. of executive pay levels involved, the financing of the retirement
+7. system primarily here, because the Central Intelligence Agency
+8. system is not part of the Civil Service Commission and is now
+9. not reviewed by the Civil Service Commission as a government
+10. personnel system, so OMB does perform somewhat an additional role
+11. there.
+12. Let me mention one other question here just to show
+13. you the amount of detail. Breakdown of personnel, full-time
+14. permanent, temporary part-time, and indigenous or local by
+15. station overseas for 1974 and 1975 and 1976.
+16. MR. BELIN: What number of examiners or analysts
+17. do you have in connection with your review?
+18. MR. DONOHUE: One examiner, full time, plus my
+19. own staff time that I would use in supervision of that exam.
+20. MR. KIRKLAND: He works exclusively on CIA?
+21. MR. DONOHUE: That's correct.
+22. MR. BELIN: What choice of portions of the budget or
+23. offices is made for the closest scrutiny apart from the size?
+24. MR. DONOHUE: Well, I gave you some criteria earlier
+25. for what his choice might be motivated by. He in this particular
+
+TOP SECRET

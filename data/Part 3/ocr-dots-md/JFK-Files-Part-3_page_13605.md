@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13605.png
+
+Convert to Markdowncb 14
+
+2394
+
+TOP SECRET
+
+1 members of the intelligence community.
+
+2 MR. BELIN: Because of the time limitations, I am going to turn to another area, and that is whether or not since the CIA is not subject to the General Accounting Office, and it is not subject to thorough Congressional review, do you believe that OMB's oversight role should be expanded either in concept or in staff so that there might be a better opportunity to reduce any improper activity?
+
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+MR. DONOHUE: I think that the chance there of an enlarged OMB staff, in fact, discovering illegal or improper activities with an agency that is extremely adept at hiding things if it wishes would really be impossible. I don't think, with one examiner presently on the budget, and review of that agency that two, three, five would essentially make a difference, and it would essentially require a large number of people to, in fact, do this type of audit function that CNO does for the question of improper activities to really arise in order to get into that in such detail, at least as a guarantee, an expanded OMB staff could not provide that guarantee unless it essentially changed its function to one of audit, and even in that case it would be a post-audit function. It would be one that would discover illegal activities committees perhaps two or three years ago, and not activities currently under commission. I do not believe OMB could easily accept any additional responsibility in the area of audit. It is just beyond its charter. It is out
+
+TOP SECRET

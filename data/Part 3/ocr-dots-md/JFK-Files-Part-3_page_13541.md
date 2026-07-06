@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_13541.png
+
+Convert to Markdowncb 28
+
+1 position to pouch the weapons that were actually shipped in
+2 the spring of 1961?
+3 MR. BISSELL: I don't know whether they did or not.
+4 As you have just heard, there is the indication that this was
+5 cleared with the State Department, and I have said that the
+6 normal procedure would be that everything cleared with the
+7 State Department and the Special Group at least would have
+8 been informed of this at its next meeting, and presumably,
+9 therefore, it accepted that, or at any rate did not reverse
+10 the agreed upon position between the Agency and the State
+11 Department.
+12 MR. BELIN: Who were the members of the Special
+13 Group, in summary, if you remember?
+14 MR. BISSELL: I will have to have the date again.
+15 MR. BELIN: Into the spring of '61.
+16 MR. BISSELL: Well, by this time the Special Group
+17 would normally have included Bundy or Rostow, and at the begin-
+18 ing, at some date about mid-'61 I believe that General Maxwell
+19 Taylor, as the President's Military Adviser, sat in on most of
+20 the meetings. It would have included probably the Undersecre-
+21 tary of State, and the Deputy Secretary of Defense and the
+22 Director of CIA.
+23 MR. BELIN: And you mention the fact that in the fall
+24 of 1960 when this was first discussed, that at that time Mr.
+25 Gray was on the Special Group?
+
+TOP SECRET
+
+NW 78141 DocId:32201382
+Page 148

@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13621.png
+
+Convert to MarkdownTOP SECRET
+
+P R O C E E D I N G S
+
+Senator Schweiker. Will you stand and raise your right hand.
+
+Do you solemnly swear the testimony you are about to give is the truth, the whole truth, and nothing but the truth, so help you God?
+
+AMLASH Case Officer. I do.
+
+Mr. Johnston. First of all, sir, we'll start with some procedural matters. I'm not going to ask you to state your name for the record because we have agreed before beginning here today that you would testify under an alias so as not to jeopardize your ongoing activities.
+
+Is that the way you understand our agreement?

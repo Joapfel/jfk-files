@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_13287.png
+
+Convert to MarkdownSECRET
+CENTRAL INTELLIGENCE AGENCY
+OFFICE OF THE DIRECTOR
+
+29 April 1975
+
+Mr. Robert B. Olsen
+Senior Counsel
+Commission on CIA Activities
+Within the United States
+
+Dear Mr. Olsen:
+
+I am attaching, in answer to your request, CIA comments on certain questions raised by Mr. Paul Hoch.
+
+I am advised that the references to HTLINGUAL (mail opening) material on pages 15 and 17 of our summary memo on the right side of the folder involved material which by our lights was innocuous, but which we made available to the FBI.
+
+Let us know if there are any details you may wish to pursue. Our check, meanwhile, continues.
+
+E. H. Knoche
+Assistant to the Director
+
+<table><tr><td>Classified by</td><td colspan="3">14359</td></tr><tr><td colspan="4">Exempt from general declassification schedule of E.O. 11652 exemption schedule 5D (1), (2), (3)</td></tr><tr><td colspan="4">Automatically declassified on Date Impossible to Determine</td></tr></table>
+
+SECRET
+
+CIA HAS NO OBJECTION TO DECLASSIFICATION AND/OR RELEASE OF THIS DOCUMENT AS SANITIZED
+
+11-8-94
+
+(1)(2)
+
+(30 pages)
+
+NW 78141
+
+DocId:32201361 Page 2

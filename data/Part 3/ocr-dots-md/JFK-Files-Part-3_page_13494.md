@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_13494.png
+
+Convert to Markdown# TOP SECRET
+
+2283
+
+who is not. I know, I happen to personally think that Allen Dulles was a fine intelligence officer. It was not his career, but he had been in it during the war, and successfully in it. He was more intelligence officer than administrator, but all in all, he served his country well in that post. But this is an issue which I don't really think there is any question about whether it be a civilian. The real question is whether you are going to have a policy or sort of play it by ear when the time comes to make a change.
+
+MR. BELIN: Do you have an opinion concerning whether or not there should be amendments to the statutory charter of the Agency?
+
+MR. GRAY: The statutory charter, as I understand it, and that was written before I came to Washington so I was not involved, but as I understand it, it was purposely written in somewhat vague terms to take care of situations that necessarily would be vague in and of themselves. I would see no objection to making it crystal clear, if people find it necessary, that the responsibilities of the Central Intelligence Agency are not in the domestic field, and do not involve domestic institutions or American citizens except insofar as the question of foreign intelligence activities becomes involved.
+
+The trouble with trying to spell out the precise functions of the CIA and FBI, for example, this problem gets to be a very complicated one because there are a lot of grey areas,
+
+TOP SECRET
+
+smn
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 78141 DocId:32201382 Page 101

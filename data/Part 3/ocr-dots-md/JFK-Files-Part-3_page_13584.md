@@ -1,0 +1,84 @@
+# JFK-Files-Part-3_page_13584.png
+
+Convert to MarkdownTOP SECRET
+
+2373
+
+MR. LEMNITZER: I had in mind particularly the recovery of the Russian submarine and the large expenditure that was involved. How was that handled, for example?
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+MR. DONOHUE: Do you want me to answer, David?
+MR. BELIN: I will ask you this question because the
+Witness is concerned about secrecy agreements that he has
+signed pertaining to certain projects.
+
+Is there any large project that involved an expenditure
+of more than $10 million by the Agency in any one year that was
+not audited or reviewed by OMB?
+
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+MR. DONOHUE: It would not be audited.
+MR. BELIN: I used the word audit incorrectly because
+you do not audit. That was not carefully reviewed by the OMB?
+
+MR. DONOHUE: I do not know of any large project of
+that magnitude that we would not be aware of. I will be glad
+to go off the record and answer the question.
+
+MR. GRISWOLD: You couldn't get that out of a $50
+million contingency fund.
+
+24
+
+MR. DONOHUE: That is correct.
+
+20
+21
+22
+23
+24
+25
+MR. BELIN: Why don't we go off the record because
+of your concern with regard to the secrecy agreements that you
+yourself are signing, Mr. Donohue.
+
+Can we go off the record for a minute?
+
+(Discussion off the record.)
+
+MR. BELIN: Let me get back on the record here.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+SM'N
+
+Sd
+
+DocId:32201382

@@ -1,0 +1,20 @@
+# JFK-Files-Part-3_page_13278.png
+
+Convert to Markdownon stationery of the Senate Judiciary Committee and makes certain allegations bearing on the Commission's work. I do not know the writer and I have merely acknowledged the letter and stated I was referring it to the Commission. It may require no further answer.
+
+Here are one or two additional thoughts
+
+I have,
+
+(a) that we study the use made of post office boxes in connection with Oswald's activities and crimes and also ascertain the terms and conditions under which post office boxes can be rented, and whether there are uniform regulations or whether it is left more or less to the whim of local postmasters. Oswald's ability to hire a post office in a fictitious name and to use it for the receipt of firearms seems to have facilitated his criminal activities. Later the Commission might possibly wish to make some suggestions on this subject.
+
+(b) I should be glad to see the conclusions of the recent report outlined a few days ago in The New York Times giving arguments for the shifting of the Narcotics Bureau from the Treasury Department.
+
+(c) Do we have an adequate study by the State Department of their policy, of any legislation affecting it, with regard to the terms and conditions of the registration of undesirables? I assume that an American citizen who has not forfeited his rights as such has an undeniable right to return to the United States, but I am not clear whether this is under law or merely established practice.
+
+(d) Do we have any recent study available as to the extent to which, under the Constitution, the rights of citizens (or residents?) to acquire and retain firearms - apart from the question of legislation with regard to the bearing of concealed arms?
+
+Someone asserted to me the other day that tax
+
+NW 78141
+DocId:32201340 Page 12

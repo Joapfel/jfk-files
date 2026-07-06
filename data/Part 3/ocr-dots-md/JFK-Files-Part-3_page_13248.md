@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_13248.png
+
+Convert to MarkdownTOP SECRET
+
+And I told them, well, in war innocent people do get killed. If you are going to assassinate the man, the best place to do it is at the front gate when he approaches, and to just, if there is seven or eight jeeps, just to give everyone in all of the seven or eight jeeps, whether they are pro or anti -- if you are going to go ahead and kill him, people are going to get hurt.
+
+MR. OLSEN: I didn't understand whether you answered my question as to whether or not you had discussed in advance with Colonel Nichols.
+
+MR. STURGIS: No sir, after the meeting with the different military commanders, I reported to Nichols the type of discussions that were made at those meetings.
+
+MR. OLSEN: And what was Colonel Nichol's response?
+
+MR. STURGIS: Can we go off the record?
+
+MR. OLSEN: If you want.
+
+MR. STURGIS: Let's go off the record.
+
+He told me to stand by, don't do anything, stand by, stall.
+
+MR. OLSEN: And did you then stand by and stall?
+
+MR. STURGIS: Yes sir, I not only stood by, but then I proceeded to do these exercises without asking Colonel Nichols, I did those on my own, to prepare a special group of men to set this up.
+
+MR. OLSEN: You prepared the exercise. Did you ever
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+
+NW 781412
+DocId:32201338 Page 5

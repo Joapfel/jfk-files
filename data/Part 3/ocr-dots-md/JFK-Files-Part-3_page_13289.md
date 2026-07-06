@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_13289.png
+
+Convert to MarkdownSECRET/Sensitive
+
+We are not competent to comment on Mr. Hoch's questions or allegations concerning other Government agencies or the Commission. He has raised a number of points concerning CIA that we address below. Before doing so, however, a few words are in order concerning the set of mind with which Mr. Hoch seems to have approached this matter.
+
+On page 11 of his memorandum, Mr. Hoch quotes Mr. James Angleton as having made the following remark to Mr. Seymour Hersh when asked by the latter about alleged CIA wrong-doing and domestic activities: "A mansion has many rooms and there were many things going on during the period of the [anti-war] bombings. I'm not privy to who struck John." Mr. Hoch then expresses puzzlement over this latter statement. He notes that "who struck John" may be a literary allusion or cliche unfamiliar to him and goes on to say:
+
+> It may have been a reference to some other John-- e.g., Mitchell. Also, it is conceivable that "Who struck John" was some sort of code name for the CIA study of the Kennedy assassination. Angleton should be asked to explain that statement, and whether he is aware of any CIA investigations of Oswald or the assassination, particularly any which may have reached conclusions different from the Warren Commission's. Regardless of what Angleton now says he meant by his comment, an intended reference to John Kennedy seems as likely as any other explanation.
+
+SECRET/Sensitive
+
+NW 78141
+DocID:32201361 Page 4

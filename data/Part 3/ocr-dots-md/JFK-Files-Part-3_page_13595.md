@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_13595.png
+
+Convert to Markdowncb
+
+TOP SECRET
+
+2384
+
+1. bill, well, they would be operating under a continuing resolution
+2. prior to the completion of the appropriations action, but they
+3. would be transferred first from the GOD account to a separate
+4. account in the Treasury, and secondly an apportionment of those
+5. funds to the CIA for actual expenditures. Those numbers might
+6. differ primarily on the basis of if funds were identified for
+7. contingency reserve the appropriation amount, that amount trans-
+8. ferred, and apportioned, the amount appropriated would always
+9. be transferred into this special Treasury account, and the
+10. amount apportioned might vary depending upon the amount
+11. identified for holding within a contingency and subsequently
+12. released.
+
+HR. DELIN: Is there any other way in which funds
+are made available to the Agency?
+
+MR. DOUOHUE: Yes. The major other additional way,
+of course, is transfers under the Economy Act provisions.
+Well, I am not an expert on the Economy Act, but it essentially
+provides the funds to be transferred to an agency where it can
+perform a service with economy to another government agency,
+and has a unique capability, or a unique ability or can provide
+common service to a number of government agencies, and those
+transfers would be made in this case to CIW. One of the
+largest as cited here would be those from the National Reconnaissance
+Office in charge of satellite development where CIA acts as a
+developer, and procurer of some of that equipment, and fairly
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+TOP SECRET

@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_13302.png
+
+Convert to MarkdownSECRET/Sensitive
+
+P. 9
+
+Did Dr. Alexis Davison who served in the U. S. Embassy in Moscow when Oswald was there have any contact with Oswald of a non-medical nature? As Assistant Air Attache, did Davison coordinate intelligence activities with the CIA station? What was his connection with the Penkovsky case?
+
+Answer:
+
+A search of our files has revealed no CIA knowledge of the contact between Dr. Davison and Oswald during the latter's stay in the Soviet Union. At the time of Dr. Davison's assignment to Moscow, the CIA station chief was not charged with the function of coordinating the intelligence activities of the service attaches there. Dr. Davison's connection with the Penkovsky case and with CIA is described in Tab 7.
+
+SECRET / SENSITIVE
+
+NW 78141
+DocId:32201361 Page 17

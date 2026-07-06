@@ -1,0 +1,73 @@
+# JFK-Files-Part-3_page_13505.png
+
+Convert to MarkdownThank you, sir.
+
+MR. GRAY: Right.
+
+(Whereupon, at 1:12 o'clock p.m., the hearing was recessed to reconvene at 2:30 o'clock the same day.)
+
+TOP SECRET
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+SMN
+
+2294
+
+smn
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+DocId:32201382
+
+NW 78141 Page 112

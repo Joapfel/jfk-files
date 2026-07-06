@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_13372.png
+
+Convert to MarkdownSTURGIS: What happened, sir, as I remember calling him up late at night at the NEW YORK TIMES--this is after I spoke with Andrew St. George on the telephone and I called Andrew St. George every name in the book and Andrew told me "Well, Frank, I don't know how Seymour Hersh got this information "--because I accused Andrew St. George of making these lies that was supposedly part of his outline. I pinned him down good. "Did you put these lies in the outline; because if you did, that is not for me, and that is no good and I will not sign a contract with you; you are a son-of-a-bitch, you're a liar, and I have no confidence; it's the end of you with me in writing any type of book because you cannot be trusted. You are a liar." He says "Frank, look, I made an outline" this and that and "I did not give it to Seymour Hersh. What happened I gave it to one of the publishing companies and somehow Seymour Hersh did get this outline. He stole the outline. I am thinking right now whether or not I should sue the NEW YORK TIMES and Seymour Hers h. That's what I should do, I--
+
+ROETHE: You're quoting Andrew St. George?
+
+STURGIS: Andrew St. George. For stealing. Well I says "If you don't sue him, I may go ahead and sue him for printing this shit that you have--and I may include you because I did not tell you all this bullshit. Where did you get this?"
+
+OLSEN: What were the things in particular that you were angry about--the lies that/are appearing in the paper about you? Do you remember which particular items aroused you the most?

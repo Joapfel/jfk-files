@@ -1,0 +1,11 @@
+# JFK-Files-Part-3_page_13301.png
+
+Convert to MarkdownSECRET/SENSITIVE
+
+P. 9
+
+What was the purpose of a CIA-State study concerning defectors in general in 1960?
+
+Answer:
+
+There was no formal "study," but there was inter-agency preoccupation and exchange of information caused by the fact that there had been 13 U. S. defectors, including Oswald, between 1958 and 1960. Among the 13, there were five ascertained KGB agents: Davis, Dutkaniez, Martin, Mitchell, and Sloboda.

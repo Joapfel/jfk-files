@@ -1,0 +1,64 @@
+# JFK-Files-Part-3_page_13476.png
+
+Convert to Markdownam
+
+1 think it is fair to say that the present President has taken
+no action with respect to this Board.
+
+2
+
+MR. BELIN: Basically you have been a member of the
+PFIA, since 1961, is that correct?
+
+4
+
+5 MR. GRAY: Yes, since May. I looked it up this morning and I thought it was earlier, but it turns out to have been May 6, 1961.
+
+7
+
+8 MR. BELIN: And you were a member of the National Security--
+
+9
+
+10 MR. GRAY: 16 May, excuse me.
+
+11 MR. BELIN: And you were a member of the National Security Council until the 1949 amendments to the Act, I believe. Is that accurate?
+
+12
+
+13
+
+end
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+TOP SECRET
+
+2265
+
+# TOP SECRET
+
+NW 78141
+DocId:32201382 Page 83

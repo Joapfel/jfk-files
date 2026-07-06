@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_13502.png
+
+Convert to Markdownsmn
+
+TOP SECRET
+
+2291
+
+of the Commission?
+
+MR. LEMNITZER: Under whose direction would this new
+function outside be?
+
+MR. GRAY: I would leave it under the Director of the
+Central Intelligence Agency.
+
+CHAIRMAN ROCKEFELLER: Could I ask, Mr. Gray, whether when he analyzed some of the statements that the FIAB had corrected, that were misleading, that came from CIA to the President, whether he has ever given consideration of whether FIAB has ever investigated the possibility of double agents in CIA being responsible for misleading information?
+
+MR. GRAY: You mean whether I feel that some of these things --
+lead, or whether it was just caution?
+
+MR. GRAY: I think the latter, Mr. Chairman. I think we would be very foolish to assume that the Agency has not been penetrated. I think it would be a foolish assumption. After all, they are the number one target for the Soviet Union. But my guess is that they have not penetrated at the top among the people who actually have been writing these estimates.
+
+Are you asking for my opinion? That is my opinion:
+
+But I think you would be making a mistake to assume that the great preoccupation of Mr. Angleton, who left the Agency, about penetration of the Agency, his preoccupation I think was not
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+N.W. 78141 Docld:32201382

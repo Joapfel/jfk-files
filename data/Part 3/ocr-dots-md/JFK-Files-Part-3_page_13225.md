@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_13225.png
+
+Convert to MarkdownSECRET
+
+SENSITIVE
+
+- 8 -
+
+File: April 3, 1964 - May 20, 1964
+(19) - April 7, 1964: Meeting of DCI, President, and others are Cuba Covert Action.
+Here DCI advocates strong program to obtain overall objective set forth in a paper of June 8, 1963: "The ultimate objective of this policy would be to encourage dissident elements in the military and other power centers of the regime to bring about the eventual liquidation of the Castro/communist entourage and the elimination of the Soviet presence from Cuba." (emphasis added)
+[OBTAIN COPY]
+
+File: May 21, 1964 - October 5, 1964
+September 30, 1964: Meeting of "DCI; President; et al" to discuss "Warren Commission Report - (to set up Presidential Committee)" - No memo indicated to have been prepared.
+
+File: October 6, 1964 - December 28, 1964
+Nothing Relevant.
+
+BOX 1: 303 COMMITTEE, COUNTERINSURGENCY, SPECIAL GROUP, CHRONO (1962)
+
+File: 303 - January - December, 1963
+
+Several sets of minutes have the following notations after paragraphs dealing with Cuban operations: "See special minutes for additional items." - No such "special minutes" appear to be contained in this file.* However, this same notation appeared in connection with other subjects.
+
+This file contains several discussions of the Haitian problem. Although it's clear the participants would like to be rid of Duvalier, there is no mention of assassination.
+
+Nothing else relevant.
+
+File: January - December, 1964
+
+Contains discussion of Haitian problem, and CIA agreed to "explore methods of dealing with the Duvalier problem in the immediate future." (May 12, 1964)
+
+*Other than certain memoranda prepared by McCone.
+
+SECRET SENSITIVE

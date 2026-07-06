@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_13081.png
+
+Convert to MarkdownFIRST INTERROGATORIES TO THE
+INTERNAL REVENUE SERVICE
+
+Please provide full, explanatory answers to the questions set forth below. As used in these questions, the following terms shall have the meaning set forth below:
+
+"Documents" Memoranda, letters, notes, files, photographs, tape recordings or other electronic recordings, computer memories capable of being rendered readable, all papers containing printed language, and all other documents. Any document containing any writing which causes it to differ in any respect from any otherwise similar document shall be deemed a separate document.
+
+"Relating to" Relating in whole or in part to.
+
+"Federal agency" All federal agencies and the Executive Branch.
+
+1. Regarding the February 7, 1975, official press release of the Internal Revenue Service and the answer of Commissioner Alexander to the first question posed by Senator Joseph Montoya in his letter of January 29, 1975, please answer the following:
+
+a. At whose direction did William A. Kolar convene a study group to study the feasibility of a formal, uniform Intelligence Gathering and Retrieval System (IGRS)?
+
+b. Who were the participants in the meeting of the study group?
+
+c. Please explain the relationship between each participant and the IRS.
+
+d. Please describe in detail the various alternative systems of implementation of IGRS tested in the
+
+ENCLOSURE
+
+62-116395-241
+
+NW 88614 DocId:32989606 Page 198

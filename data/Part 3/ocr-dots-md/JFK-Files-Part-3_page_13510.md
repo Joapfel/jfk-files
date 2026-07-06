@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_13510.png
+
+Convert to Markdownsmn
+
+TOP SECRET
+
+2299
+
+1. action capability, did you ever or were you ever aware of any
+2. development of plans inside of the Agency with a specific plan
+3. or goal of the assassination of any particular foreign leader?
+4. MR. BISSELL: Yes, I was aware of investigation and
+5. planning to that end.
+6. MR. BELIN: Will you please enumerate before the
+7. Commission which foreign leader or leaders were involved?
+8. MR. BISSELL: There were three cases I remember. One
+9. of them would have involved Sukarno, the second would have
+10. involved Lumumba, and the third did involve Castro. I am not
+11. giving that order chronologically, I don't remember what the
+12. chronology was, but those are the three cases I remember.
+13. MR. BELIN: Could you please state for the Commission
+14. your entire knowledge with regard to the Sukarno matter?
+15. MR. BISSELL: There was planning of such a possibility.
+16. I believe this was initiated in the Far Eastern Division of the
+17. CIA. The planning progressed as far as the identification of
+18. an asset whom it was felt might be recruited for this purpose.
+19. The plan was never reached, was never perfected to the point
+20. where it seemed feasible. The difficulty concerned the possibility
+21. of creating a situation in which the potential agent would have
+22. access to the target, and because the plan never reached that
+23. stage, it was never, so far as I am aware, discussed outside
+24. of the Agency with a view to obtaining approval or authorization.
+25. MR. BELIN: So far as your concern with the Agency,
+
+TOP SECRET
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+DocId:32201382

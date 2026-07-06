@@ -1,0 +1,47 @@
+# JFK-Files-Part-3_page_13421.png
+
+Convert to Markdownamt 23
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+MR. BELIN: Secretary Rusk, I want to turn to another area now concerning the allegations of assassination of foreign leaders.
+
+Were you ever aware of any plans or proposals to assassinate any foreign leaders?
+
+MR. RUSK: No proposal ever came to me seeking my approval for a plan to kill anybody. Now, those are not chosen words. I mean, no proposal ever came before me, period, involving the assassination of a foreign leader, period. Excuse me.
+
+MR. BELIN: Go ahead.
+
+MR. RUSK: On one occasion, the late great Ambassador Llewellyn Thompson, who was then, I believe our representative on the 303 Committee, I think it was named during that period, came in and more or less in a jocular frame of mind said that he had heard that somebody down the line, and he had not identified the person or the agency, was talking about the possible assassination effort, and I made it absolutely clear to him, and he fully agreed, that political assassination was contrary to the most elementary notions of American foreign policy, and that if we go down that trail, we are in the law of the jungle, and it would be out of control. That was my personal attitude throughout the period.
+
+On one other occasion the matter came up in an indirect form which could be, I think, coverted by gossip into
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET

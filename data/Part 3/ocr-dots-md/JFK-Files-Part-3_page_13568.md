@@ -1,0 +1,46 @@
+# JFK-Files-Part-3_page_13568.png
+
+Convert to Markdown# TOP SECRET
+
+1. that it would overwhelm the Executive office. That is what
+2. happened in the OMB as the character of what Federal Government
+3. is doing has changed, which is that we have moved away from
+4. 45 people looking at 170 VA hospitals and trying to know ourselves
+5. whether what they were doing in each of those hospitals was right
+6. or not. We have moved back into a position where we are really
+7. testing, we are testing the general concept of a Veterans
+8. health care program against the general concept of health
+9. insurance, or we are looking at what is going on in the private
+10. sector, and we are dealing at a much more abstract level than
+11. we were 25 or 30 years ago, by necessity.
+
+Our office would have to be, I would say 2000, if we
+were to begin to approach a more detailed audit kind of an
+approach to our work.
+
+CHAIRMAN ROCKEFELLER: And is GAO moving into that
+vacuum?
+
+MR. O'NEILL: Somewhat, yes, although the character
+of their operation from my point of view has changed quite a
+bit in the last ten or fifteen years. Ten or fifteen years
+ago they were very much of an accounting mind. They made sure
+that the numbers all added up, and that people had not defrauded
+the Federal Government. I do not think they ever told anybody
+very much interesting about what was going on, about whether it
+was useful or not, but over the last especially five years, I
+think they have changed their focus so that they have become
+
+TOP SECRET
+
+smn
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Ward & Paul
+
+Phone (Area 202) 544-6000
+
+12357
+
+DocID:32201382

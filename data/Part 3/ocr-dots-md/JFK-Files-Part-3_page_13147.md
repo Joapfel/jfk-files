@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_13147.png
+
+Convert to Markdown(continued)
+
+SECRET
+
+in Costa Rica involving Artime had discredited the anti-Castro move-
+ment, which might result in the withdrawal of support of Cuban exiles
+by the American people and the US Government. (No source given).
+
+Add. info.
+
+109-584-4114 p.3,4,8
+(18,63)
+
+Robert Dennis Arrington (105-96912) of Los Angeles, a US citizen, who had entered Nicaragua on 12/8/64, was arrested by Nicaraguan officials on 12/17/64 for alleged possession of illegal arms and plotting the overthrow of the Nicaraguan Government. He had come to the attention of Nicaraguan authorities when he tried to make contact in Managua with anti-Castro Cubans in an attempt to interest them in buying the arms he was carrying. In Managua, at the Gran Hotel (date not indicated) Arrington met an unnamed Cuban who promised to take him to see Manuel Artime who was expected momentarily; however, this Cuban never came back to see Arrington.
+
+Foregoing information on Artime is covered in the following references:
+
+| REFERENCE | SEARCH SLIP PAGE NUMBER |
+|---|---|
+| 97-4948-7 p.12 | (34) |
+| 105-81431-12 p.12 | (37) |
+| 105-96912-9 p.9 | (44) |
+
+On 12/1/64, MM 639-S advised that the MRR (97-4133) con-
+tinued to be headed by Manuel Artime Buesa, a Cuban exile doctor who
+traveled continuously in the US, Central America and the Caribbean.
+
+On 12/10/64, MM 639-S advised that different Cuban exile leaders continued to claim that Artime and the MRR were making a living
+
+(continued)
+
+SECRET
+
+NWW 88608 DocID:32303569 Page 19

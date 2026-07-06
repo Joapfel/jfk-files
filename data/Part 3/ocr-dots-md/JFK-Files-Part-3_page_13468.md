@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13468.png
+
+Convert to Markdownamt 31
+
+2257
+
+1. ought to look for people of the highest competence and the
+2. strongest characters to take these jobs of responsibility,
+3. and then we will have to rely upon them. I do not see any way
+4. in which you can guarantee that there would not be mistakes
+5. and failures and occasional stepping across the bounds.
+6. MR. CONNOR: Mr. Secretary, would you comment on the
+7. obedience of a Cabinet official or highly placed Federal
+8. official who was ordered by the President to do something that
+9. violates the law clearly or is unconstitutional?
+10. MR. RUSK: No, no. I was once instructed by
+11. President Kennedy to make an expenditure which my lawyers told
+12. me was unlawful, that the money was not for that kind of
+13. purpose, and I spoke to the Attorney General about it and said
+14. what do I do. And I think his reply was well, if you go to
+15. prison, your salary will continue while you are in prison.
+16. Well, that was not very helpful. But anyhow, I
+17. refused to make the expenditure and told the President why, and
+18. he did not pursue it.
+19. No, I think that there can come a time when if a
+20. President persisted then the Cabinet officer would have to
+21. resign, if that is what the President wanted to do.
+22. MR. CONNOR: I agree with that interpretation.
+23. MR. BELIN: I also think you commented that things
+24. sometimes don't go right anywhere else either, including the
+25. law as well as business and labor, and so we can't always expect
+
+TOP SECRET

@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_13607.png
+
+Convert to Markdowncb 16
+
+2396
+
+TOP SECRET
+
+project or each individual office, but we could provide some
+limitations within four, five, possibly as many as ten categories
+where they would then have to seek our approval for reprogramming
+actions. That would help us in giving a closer review of
+CIA on its reprogramming actions at the same time.
+
+These are things that could involve some additional
+paperwork. I don't think they have, would have much prospect
+for really providing a guarantee against illegal or improper
+activities.
+
+MR. BELIN: Any questions by any members of the
+Commission?
+
+MR. CONNOR: No.
+
+MR. BELIN: Any other comments that you want to make,
+Mr. Donohue, for the record?
+
+MR. DONOHUE: No. I think I've probably covered it
+as well as I can, in fact.
+
+MR. BELIN: Well thank you very much for coming here.
+
+MR. DONOHUE: Thank you.
+
+(Whereupon, at 6:40 o'clock p.m. the Committee was
+recessed.)
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW 78141 DocId:32201382
+Page 214

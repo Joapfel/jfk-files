@@ -1,0 +1,41 @@
+# JFK-Files-Part-3_page_13449.png
+
+Convert to Markdownamnt
+
+2238
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+17
+18
+19
+20
+21
+22
+23
+24
+25
+
+activities, because I was a student in Germany and watched the storm troopers take the public platforms and the streets away from the democratic parties of Germany. And I would have been delighted in those days if there had been CIA's in Britain and France and the United States that could have come in there and found ways to help the democratic parties of Germany, and the failure to do so resulted in 50 million people being killed.
+
+So I feel very strongly that although we ought to, that a President, Secretary of State, and Secretary of Defense must keep this sort of thing very much under control and take responsibility for it, that we must have this capability.
+
+MR. BELIN: Do you have any observations concerning the effectiveness or any possible changes in the President's Foreign Intelligence Advisory Board as an oversight vehicle or a related vehicle to CIA?
+
+MR. RUSK: Well, I don't want to do a disservice to people who have rendered dedicated service. I have had the impression over the years the Foreign Intelligence Advisory Board gets to be more gung-ho than anybody else, and that sometimes some of these things are urged by the Foreign Intelligence Advisory Board which operationally may not make much sense. So I think that it is all right to have then advise, but they should not be permitted to make the decisions or to influence the decisions unduly.
+
+TOP SECRET

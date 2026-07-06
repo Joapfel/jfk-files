@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_13247.png
+
+Convert to Markdown1 bunch with him when they came to the Air Force, even with
+2 General Bayo. And I felt that if I would get the nod to assas-
+5 sinate them, I could do it within 30 seconds, high tail it and
+6 everything.
+7
+
+MR. OLSEN: Was there something that you had drawn
+up in the way of exercise as the result of the discussions with
+the other Air Force officials?
+8
+
+MR. STURGIS: The Air Force and Army officials. This
+information was given to the American Embassy. I again did
+these exercises to try to get a diversion that if I would get
+the nod to do the execution, that I would have some means of
+diversionary tactics to draw attention away from the people who
+did the execution, and that I was there with my people to prevent
+it because of the security.
+14
+
+MR. OLSEN: Did you discuss these plans in advance with
+Colonel Nichols?
+
+MR. STURGIS: No sir. At the very -- I would say about
+six weeks of the revolution was over with there was a great deal
+of discontent among many of the top ranking military officers.
+
+I knew these people personally, I was in with them at those
+meetings and various places, and that they discussed, we all
+discussed the assassination then. And some said, well, there
+are some officers that will be with the group, Fidel and Raoul
+and Che, that were not really with them. So they were split
+on the idea of assassinating them. So they asked my opinion.
+
+25
+
+NW 78141
+DocId:32201338

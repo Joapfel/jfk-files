@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_13656.png
+
+Convert to MarkdownTOP SECRET
+
+gsh 11
+
+Why were you not willing to discuss with AMLASH the
+assassination of Castro?
+
+AMLASH. Case Officer. We?
+
+Mr. Wallach. You have told us —
+
+AMLASH Case Officer. We were very reluctant to discuss
+the subject.
+
+Mr. Wallach. Why?
+
+AMLASH Case Office. I guess we didn't want to get involved
+in assassinations.
+
+Mr. Wallach. But you had them before this.
+
+AMLASH Case Officer. I didn't know this, and certainly
+in this operation the objective of this operation was not to
+go in and assassinate Castro but a much bigger type of program.
+
+Mr. Wallach. But that was the first step, or at least
+the potential first step.
+
+AMLASH Case Officer. He was convinced that was the only
+first step. AMLASH. We weren't convinced that it had to be,
+at that time that it had to be the first step, and that's why
+we didn't want to discuss and we didn't discuss and we were
+reluctant to discuss this subject with him.
+
+Mr. Wallach. At the late October meeting I think you
+said before that — what did you request that led to the giving
+him of the pen, the hypodermic needle?
+
+AMLASH Case Officer. The pen he requested was something
+with which to protect himself now.
+
+7600000000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+TOP SECRET
+
+NW-60010-HOARD-K-242503-Page 20

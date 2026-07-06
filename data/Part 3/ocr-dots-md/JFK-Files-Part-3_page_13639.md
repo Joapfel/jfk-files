@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_13639.png
+
+Convert to MarkdownPhone (Area 202) 546-6000
+
+WARD & PAUL
+
+7600010735
+
+410 First Street, S.E., Washington, D.C. 20003
+
+and I don't want to go through your previous testimony again,
+but basically are we correct in understanding that out of the
+discussions at Langley came a decision to go to Paris with
+Mr. Fitzgerald representing himself as a personal representative
+of Robert Kennedy?
+
+AMLASH Case Officer. That's right.
+
+Mr. Johnston. Then you met on October 29, according to
+the file, with AMLASH, Mr. Fitzgerald, in Paris.
+
+Is that correct?
+
+AMLASH Case Officer. Excuse me. Can I go off the record?
+
+(Discussion off the record.)
+
+Mr. Wallach. I think you stated that AMLASH said that he
+would like to meet with one of the U.S. leaders such as
+Robert Kennedy?
+
+AMLASH Case Officer. A high representative in the U.S.
+Government.
+
+Mr. Wallach. Did he mention any other names that you recall?
+
+AMLASH Case Officer. No, not that I recall.
+
+Mr. Wallach. Just Robert Kennedy?
+
+AMLASH Case Officer. Such as Robert Kennedy.
+
+Mr. Wallach. Did AMLASH, to the best of your knowledge,
+from what he told you, know about any prior assassination
+attempts that had been run by the U.S.?
+
+TOP SECRET
+
+20
+
+TOP SECRET

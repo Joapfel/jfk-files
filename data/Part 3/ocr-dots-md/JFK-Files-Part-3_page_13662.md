@@ -1,0 +1,58 @@
+# JFK-Files-Part-3_page_13662.png
+
+Convert to Markdown# TOP SECRET
+
+7600010813
+
+gs17
+
+that we did.
+
+2
+Mr. Johnston. Let me go back to the November 22nd meeting.
+3
+
+4
+As you recall, after you met AMLASH there, did you give him the newspaper article about the Kennedy speech?
+
+6
+AMLASH Case Officer. I don't recall. I may have shown him the article. To the best of my recollection, we talked about the speech and he had, I think, at that time, the article had already appeared in the French newspaper and he had read it.
+9
+
+10
+Mr. Johnston. What did you tell him about the article?
+
+11
+AMLASH Case Officer. Well, he liked the article. It was one in which I think the Administration, as I vaguely recall, was taking a rather positive stand.
+
+14
+Mr. Johnston. Was this Kennedy's speech before the Inter-American Press Association in Miami on November 18th?
+15
+
+16
+AMLASH Case Officer. I believe so.
+
+17
+Mr. Johnston. I have an extract from that.
+
+18
+AMLASH Case Officer. I'm not 100 percent certain, but I think it was,
+19
+
+20
+Mr. Johnston. There's an indication that you told him that Fitzgerald helped to write the speech.
+21
+
+22
+Do you recall doing that?
+
+23
+AMLASH Case Officer. I could have.
+
+24
+Mr. Johnston. Do you recall specifically?
+25
+
+AMLASH Case Officer. Specifically, no, but we did discuss
+
+TOP SECRET

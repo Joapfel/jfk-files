@@ -1,0 +1,10 @@
+# JFK-Files-Part-3_page_13290.png
+
+Convert to MarkdownMr. Hoch's willingness to attribute sinister implications to such a common phrase is both humorous and revealing. It belies the impression of reasonably objective scholarship he has sought to project in his memorandum.
+
+The following questions are paraphrases of points concerning CIA raised by Mr. Hoch. They are keyed to the page on which the substance with which they deal appears in his memorandum.
+
+SECRET / SENSITIVE
+
+NW 78141
+DocId:32201361 Page 5

@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_13558.png
+
+Convert to Markdownsmn
+
+TOP SECRET
+
+2347
+
+for Progress, and he also asked me to do a paper for him, that
+is, for the President, which I did do, on the question of what
+lessons from the Marshall Plan might have been applicable to the
+Alliance for Progress.
+
+On another more lighthearted occasion, he got me to
+come over to the White House to give him some advice on cruising
+on the Maine coast. And the final time, I think, I suppose the
+final time I saw him, which couldn't have been but very shortly
+before his death, was the award of a medal. I think I can
+honestly say that the relationship was an extremely friendly
+one in my case, and as far as I could judge, mutually so. I had
+quite a number of contacts with him in the roughly eight months
+that I was still in the Agency after the Bay of Pigs, and I can
+say the same of that period.
+
+And finally, for the record, I perhaps should say
+that shortly before I did finally leave the Agency, John McCone,
+with the President's knowledge and concurrence, and also that
+of the then Attorney General, asked me to stay on in the Agency,
+but in a somewhat different position than that of the DDP. I
+thought it was wiser for me to leave.
+
+MR. LEMNITZER: I have a question. Don't you believe
+that in carrying on the covert operation of the magnitude of
+the Bay of Pigs, that compartmentation was one of the weaknesses
+compartmentation in a clandestine operation to maintain cover
+and security was absolutely essential, but on the other hand, on
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL

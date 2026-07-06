@@ -1,0 +1,45 @@
+# JFK-Files-Part-3_page_13625.png
+
+Convert to Markdown1. meet to coordinate. They do coordination of their work?
+2. AMLASH Case Officer. I don't know. I wasn't involved
+3. in that part of it.
+4. Mr. Johnston. Was SAS targeted directly at Cuba, or
+5. were there other countries under its jurisdiction?
+
+6. AMLASH Case Officer. No. SAS was strictly a task force
+7. set up to deal with the Cuban problem.
+
+8. Mr. Johnston. And finally on this general matter, who
+9. did -- who gave the counterintelligence support for SAS operations?
+
+10. AMLASH Case Officer. We had a Counterintelligence Branch
+11. within SAS.
+
+12. Mr. Johnston. Who headed that in the fall of '63?
+
+13. AMLASH Case Officer. I don't recall. There was a change.
+14. I don't recall the name.
+
+15. Mr. Johnston. Let me -- as I stated earlier, you of
+16. course have testified before, and I have before me the
+17. transcript and I'm not proposing really to trap you in any nature
+18. with this transcript. However, there are some things that were
+19. not asked before that I would like to clarify.
+
+20. First of all, how and why was AMLASH first contacted to
+21. set up the September meeting that you attended?
+
+22. AMLASH Case Officer. He had been contacted the year before
+23. in Helsinki, and we found out at that time that he was coming
+24. out to a sporting event in the Western Hemisphere, so we went
+25. down and contacted him.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+7600103731
+
+WARD & PAUL
+
+Phone (Area 202) 546-6000

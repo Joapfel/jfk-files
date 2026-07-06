@@ -1,0 +1,54 @@
+# JFK-Files-Part-3_page_13591.png
+
+Convert to MarkdownTOP SECRET
+
+2380
+
+Mr. Blake, who is in charge of the administrative side, but
+these were really introductory to provide a total scope of each
+directorate's activities, followed by the 80 hours of hearings
+that he had, with usually representatives from the individual
+offices, whatever side they be in, operations side, or the
+intelligence production side or support side, and would request,
+or those people would be present for testimony, or not testimony,
+hearings on justifications for the budget.
+
+and 5b
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+# TOP SECRET

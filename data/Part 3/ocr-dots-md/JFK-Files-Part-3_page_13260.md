@@ -1,0 +1,85 @@
+# JFK-Files-Part-3_page_13260.png
+
+Convert to Markdown1
+
+But the thing is, would you be interested?
+
+2
+
+And I said; yes, I would be.
+
+3
+
+MR. OLSEN: Did he talk to you about a sum of
+
+4 money?
+
+5
+
+6
+
+7
+
+8
+
+9
+
+MR. STURGIS: No, no money was -- the discussion
+of money was not involved in it, because I would not do any-
+thing for money. And he knows better than to ask me, unless
+it would be, Frank, what do you need for your expenses?
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Was it Fidel Castro?
+
+MR. STURGIS: No. I don't know. What happened was
+that I had another meeting with him, and he said he would
+contact his Chief, and he would -- and he told me to contact
+him later on, and I think he gave me a certain day to contact
+him, and. I said OK. You must remember that,how I know this
+man as an agent, because he does the same things as I do,
+in his wife, he types away, or at least,.he has a wife who
+types away, he makes all the reports, and stacks them in a
+file cabinet. I have heard him talk to his case officer on
+the telephone.. And to me that was very stupid of him in doing
+that even to me who was his friend. That is a stupid way of
+doing things. Because he did not suspect that I was in touch
+with Sam, he cannot know. And the only time that he suspected
+that I had anything to do with CIA is when we were in prison,
+and the man on the television said, yes, he used to work for the
+
+N\W 78141
+Docld:32201338 Page 17
+
+TOP SECRET

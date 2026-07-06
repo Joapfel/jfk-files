@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_13508.png
+
+Convert to Markdownsmn
+
+TOP SECRET
+
+2297
+
+MR. BISSELL: Until February of 1962, if memory serves,
+
+MR. BELIN: And after leaving the Agency, then what
+
+did you do?
+
+MR. BISSELL: I joined the staff of United Aircraft
+Corporation in East Hartford, where I had a very unrevealing
+title of Director of Marketing and Economic Planning. It really
+was a corporate planning responsibility.
+
+MR. BELIN: Wasn't that 1964?
+
+MR. BISSELL: Yes.
+
+MR. BELIN: Before that you worked for the Institute of --
+-- 
+
+MR. BISSELL: Yes. I'm sorry. I skipped over two
+years as President of the Institute for Defense Analysis. It
+is to that that I moved directly from the CIA.
+
+MR. BELIN: And you retired from the United Aircraft
+in 1974?
+
+MR. BISSELL: That's correct.
+
+MR. BELIN: Mr. Bissell, during the time that you
+were with the Agency, did you ever have any discussions with
+anyone in the White House concerning the planning of what was
+called an Executive Action Capability, which was defined in
+substance as a capability of the Agency carrying out assassina-
+tions, if required?
+
+MR. BISSELL: My recollection of this is far from
+clear. But I am satisfied that very early in the Kennedy
+Administration I did participate in such conversations.
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+Phone (Area 202) 544-6000
+
+NWI 78141 Doicld:32201382
+Page 115

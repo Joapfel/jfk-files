@@ -1,0 +1,38 @@
+# JFK-Files-Part-3_page_13554.png
+
+Convert to Markdown# TOP SECRET
+
+2343
+
+that could have been avoided under any circumstances, but it
+was also a military failure, and it seems to me perfectly clearcut
+that that is the case.
+
+My reference to that was to contrast this with, for
+instance, the by now much publicized support to the Student
+Association and support to labor groups overseas. These operations,
+in my opinion, were tested by what they accomplished up to the
+point of compromise, and could perhaps still have accomplished,
+were brilliant. ly successful, and what destroyed those operations
+was purely and simply compromise.
+
+I also happen to think that they became, that they are
+examples, although perhaps I have not looked into them enough
+to be confident of this opinion, but I am afraid I think they
+became examples of very sloppy procedures. I think that anyone
+who had looked by the early '60s at that set of operations,
+coldly, and somewhat at arm's length from the standpoint of
+security would have said that they are absolutely doomed to
+compromise, and quite soon if major changes were not made.
+
+After all, the very fact that, for instance, in the
+Student Organization you had new officers every year, and most
+of the officers were knowledgeable of the source of funding,
+well, it was absolutely inevitable that that would be brought
+up before long, and indeed, a state of mind had developed, I
+think, that it really would not do much harm if it were blown.
+I think that state of mind was perhaps perfectly proper with
+
+TOP SECRET
+
+smn2

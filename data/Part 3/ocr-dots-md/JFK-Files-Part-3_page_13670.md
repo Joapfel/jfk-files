@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_13670.png
+
+Convert to MarkdownTOP SECRET
+
+that part of it, Senator. Again, only from the record that I
+read afterwards, I think a couple of drops were made to him.
+In fact, the next year or something like that.
+
+Mr. Johnston. I'm not sure exactly what was left or
+what he received or what was available.
+
+AMLASH Case Officer. And I don't know if he ever picked them up. I don't think we know that.
+
+Mr. Wallach. Why did he tell you he wanted the rifles with telescopic sights?
+
+AMLASH Case Officer. Well, he wanted grenades and he wanted dynamite too to storm the headquarters later on. We said, well, look, could you expand this somewhat too, and he was talking about, well, yes, and we should probably attack the radio station at the same time. It was a matter of attacking a building, whether it was a radio station or whatever it was, in order to, in his mind, he was probably thinking of attacking the headquarters, Castro's headquarters.
+
+Mr. Johnston. Let me refresh your recollection. In your previous testimony with the Select Committee on page 114 you stated:
+
+"When we came out of that meeting we heard the news of President Kennedy's assassination and I received a cable after that which I thought that this was probably the reason the whole operation was being re-assessed.
+
+AMLASH Case Officer. That was strictly my thought at that
+
+TOP SECRET
+
+76000WUICBC5
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL

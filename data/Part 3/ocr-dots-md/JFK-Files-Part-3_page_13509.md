@@ -1,0 +1,84 @@
+# JFK-Files-Part-3_page_13509.png
+
+Convert to Markdown1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+# TOP SECRET
+
+2298
+
+MR. BELIN: And do you have any recollection of with whom you might have participated?
+
+MR. BISSELL: I am almost certain it was either Walt Rostow or McGeorge Bundy, or probably the former, and possibly both.
+
+MR. BELIN: Do you remember specifically what, if anything, was discussed in any of those conversations?
+
+MR. BISSELL: My recollection, which isn't too specific, is that this was a discussion of the desirability of developing such a capability within the CIA that presumably would be a small, special unit, and highly compartmented from the rest of the organization.
+
+MR. BELIN: Did you have any feeling as to whether or not this was done with or without the knowledge or consent of the President?
+
+MR. BISSELL: I had no specific feeling on that point, but I had a great deal of confidence that the two gentlemen whose names I have mentioned, would not have discussed this, discussed with me or encouraged any course of action that they were not confident the President would approve.
+
+MR. BELIN: Did you ever have any such discussions with any official in the Eisenhower Administration?
+
+MR. BISSELL: Not to my recollection, and I think I am almost sure that I did not.
+
+MR. BELIN: Now, apart from discussions of an executive
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+SMN
+
+NW 78141 DocId:32201382
+Page 116

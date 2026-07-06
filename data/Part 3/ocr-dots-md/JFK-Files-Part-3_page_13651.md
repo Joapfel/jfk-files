@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_13651.png
+
+Convert to Markdown# TOP SECRET
+
+760010807
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Mr. Johnston. And that AMLASH would have understood that
+that was what you were going to give him, some or all of the
+things discussed at the October 29th meeting.
+
+AMLASH Case Officer. To see what could be given to him,
+not if it was or anything like this because Paris didn't know
+what we were prepared to tell him at the 22 November meeting.
+
+Mr. Johnston. As you said before, you were at Langley
+on the 20th. There's a cable indicating you left Washington
+arriving in Paris on the morning of November 22nd.
+
+Is that your recollection?
+
+AMLASH Case Officer. Yes.
+
+Mr. Johnston. Did anyone go with you from Washington
+to Paris?
+
+AMLASH Case Officer. No.
+
+Mr. Johnston. Mr. Fitzgerald was where at the time?
+
+AMLASH Case Officer. At Langley. He was present at the
+meeting, at the late October meeting, not at the 22 November
+meeting.
+
+Mr. Johnston. Okay. Let's go then to the November 22nd
+meeting. You previously testified as you recall it was late
+afternoon or evening because it was dark when you came out.
+
+AMLASH Case Officer. That's right.
+
+Mr. Johnston. Where was it held? What kind of place
+was it held?
+
+AMLASH Case Officer. I don't recall that we used a safe
+
+TOP SECRET
+
+NW4860611001242006&Pages68

@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_13533.png
+
+Convert to MarkdownTOP SECRET
+
+2322.
+
+MR. BISSELL: I don't remember that.
+
+MR. GRAY: Now, the records pretty much petered out at this point. They don't show that either this plan was killed or that the rifles were actually sent. It could not be developed whether they were or not. Do you have any recollection of why that change of course might have taken place?
+
+MR. BISSELL: None whatsoever.
+
+MR. GRAY: At the beginning of '60 and '61 you presented a proposal to the Special Group to work with the internal dissidents, and at the same time work with exile groups for paramilitary capability and things of that sort, am I correct?
+
+MR. BISSELL: Correct.
+
+MR. GRAY: At the January 12, 1961 meeting, at the instance of Department of State, the Special Group, which approved these covert operations, approved the provisions to the Dominican internal dissidents of limited supplies of small arms and some explosive devices, some explosives, I believe, do you have any recollection on that?
+
+MR. BISSELL: Such as it is, it would confirm what you state.
+
+MR. GRAY: In your opinion, when they approved the provision of small arms, were they talking about assassination weapons, or were they talking about guerrilla supplies and things of that nature?
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+W A R D & P A U L
+
+N W 78141 DocId:32201382
+
+Page 140

@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_13629.png
+
+Convert to MarkdownTOP SECRET
+
+10
+
+AMLASH Case Officer. I don't specifically recall today that I would have known about it. I presume if we had it in file, that I was working with it, that I would have seen it.
+
+Mr. Johnston. Do you have any information about any recollection about something on this order?
+
+AMLASH Case Officer. No.
+
+Mr. Johnston. And assume that at least the portion I quoted seems to reflect on the Cubans' view of AMLASH's activities in Paris.
+
+AMLASH Case Officer. Yes, it may have. As I recall, I think that he was also at that time -- I may be wrong, and we would have to go back to the files to check, but he was rather outspoken to some of his closer friends in the fact that he was no longer happy with the revolution, with Castro.
+
+Mr. Johnston. I don't want to dwell on this, if you don't have a recollection, but this conversation seems to indicate that the employees in the [Cuban-embassy] think that AMLASH is there on a top secret mission.
+
+AMLASH Case Officer. Probably so because of his independent way of comportment. He didn't answer to anybody.
+
+Senator Schweiker. What was his role in government at that point?
+
+AMLASH Case Officer. He was -- excuse me, this must have been '63. He was a personal representative of Castro to the games, first in Brazil, and I don't think he had a specific
+
+TOP SECRET
+
+7 6 0 c u 1 3 7 9 11
+WARD A PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW-88005-DocID:32423405 Page 19
+
+MSR

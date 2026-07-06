@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_13576.png
+
+Convert to MarkdownTOP SECRET
+
+there have been occasions when a Secretary or a comptroller would come to me and say we think we have got a problem here that you should know about. I cannot think of fraud problems, but undesirable practices problems, for example, yes.
+
+MR. BELIN: Any other questions of this witness before we go to Mr. Donohue?
+
+Thank you very much, sir.
+
+MR. O'NEILL: Okay.
+
+CHAIRMAN ROCKEFELLER: Thanks a lot, Paul.
+
+TESTIMONY OF ARNOLD E. DONOHUE
+
+CHAIRMAN ROCKEFELLER: Are you the one gentleman who is responsible for CIA in OMB?
+
+MR. DONOHUE: No, Mr. Vice President. I head a staff of five professionals who review the budgets of the intelligence community, one of which --
+
+CHAIRMAN ROCKEFELLER: The whole community?
+
+MR. DONOHUE: Right, one of which individuals is assigned to the Central Intelligence Agency, and that has been practiced for I believe the last 13 years.
+
+MR. GRISWOLD: Can you speak up, please?
+
+MR. DONOHUE: Sure. Excuse me.
+
+MR. BELIN: Could you please state your name for the record?
+
+MR. DONOHUE: Arnold E. Donohue.
+
+MR. BELIN: You are with OMB?
+
+TOP SECRET
+
+CIA HAS NO OBJECTION TO DECLASSIFICATION AND/OR RELEASE OF THIS DOCUMENT AS SANITIZED 16-8-94
+
+sthe testimony of Arnold Donohue, OMB official in charge of the CIA budget, before the Rockefeller Commission, 21 APR 75
+
+410 First Street, S.E., Washington, D.C. 20003
+
+WARD & PAUL
+
+smn
+
+2365
+
+DocId:32201382
+
+Page 183

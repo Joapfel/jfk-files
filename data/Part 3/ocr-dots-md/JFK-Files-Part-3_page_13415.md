@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13415.png
+
+Convert to Markdownamt 16
+
+Phone (Area 202) 544-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+2204
+
+different elements within a population, and they do have contacts with dissident groups here and there. Sometimes people in our embassies, mostly CIA people, but sometimes on the diplomatic side, get inquiries from dissident groups and various countries as to what the attitude towards the United States would be in the event of a coup d'etat.
+
+I tried to get the word established that we would not respond to any such inquiries, partly as a practical matter, because I suspected that many of these were from provocateurs of the governments involved and they were trying to find out what our answer would be to such a question. But I had no doubts the CIA was in touch with dissident groups, and may have at times been buying information from them. But that does not translate in my mind to their calling the shots of it or becoming the boss or directing a coup d'etat.
+
+MR. BELIN: In your experience as Secretary of State, were you aware of the practices of other governments and their intelligence, both in this country and abroad?
+
+MR. RUSK: Yes. To a very considerable extent. Of course, you always suspect there are practices that you haven't caught up with, but there is a mean, dirty, unsavory, back alley struggle going on in the world in which a good many governments participate, some of them close friends of ours, and most of them, including targets in the United States, because the position of the United States in world affairs is such that
+
+TOP SECRET

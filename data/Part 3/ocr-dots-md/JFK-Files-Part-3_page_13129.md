@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_13129.png
+
+Convert to MarkdownJFK Assassination System
+Identification Form
+
+Date: 4/28/201
+
+Agency Information
+
+AGENCY : FBI
+
+RECORD NUMBER : 124-10284-10081
+
+RECORD SERIES : HQ
+
+AGENCY FILE NUMBER : CR 105-85440-28
+
+Document Information
+
+<table><tr><td>Released under the John F. Kennedy Assassination Records Collection Act of 1992 (44 USC 2107 Note). Case#: NW 88608 Date: 03-18-2025</td></tr></table>
+
+ORIGINATOR : FBI
+
+FROM : DIRECTOR, FBI
+
+TO :
+
+TITLE :
+
+DATE : 08/11/1967
+
+PAGES : 185
+
+SUBJECTS :
+
+MAB, ASSOC, CUBAN EXILES, MIL ACT, ACA
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+
+CLASSIFICATION : Secret
+
+RESTRICTIONS : 1A; 1B; 1C; 4
+
+CURRENT STATUS : Redact
+
+DATE OF LAST REVIEW : 09/03/1998
+
+OPENING CRITERIA : APPROVAL OF CIA, INDEFINITE
+
+COMMENTS : INC S/S, ADMIN PAGE
