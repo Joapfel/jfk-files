@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_14161.png
+
+Convert to Markdown69. 8/29/62 - CIA's President's Checklist contained the report that:
+
+> "There is no sign of a let-up in the movement of Soviet equipment and personnel into Cuba,"
+
+> "By latest count, there have during the past six weeks been some 80 voyages to Cuban ports by Bloc vessels and 20-35 by ships under Communist charter."
+
+> "We note that deliveries of industrial equipment, foodstuffs, and other nonmilitary items are being made largely on chartered Western ships, probably because so many Soviet ships are involved in hauling military gear." (Source: CIA Chronology, 11/7/62)
+
+70. 8/30/62 - At a meeting of the Special Group, General Lemnitzer told the Group of his discussion with General Carter who had on 8/27 asked General Lemnitzer about the possibility of low-level photography using F-101 or F8U aircraft. The Special Group agreed to take cognizance of the matter and "reopen it when specific targets and information needs could be identified." (Source: CIA Chronology, 11/7/62)
+
+71. 8/30/62 - A draft prepared by the JCS on 8/30 in response to NSAM 181 of 8/23/62 presented to the White House "a study of the advantages and disadvantages of action to liberate Cuba by blockade or invasion or other action in the context of aggravated Berlin crisis". The following are selected highlights from the draft:
+
+In NSAM 109 of 10/23/61, the President described the four phases into which he expected progressive U.S. and Allied military action to fall, in meeting and countering Soviet/GDR measures to force the Western powers out of Berlin.
+
+"The JCS are of the opinion that positive action of oppose communist agression in any geographical area will be evidence of the determination of the United States and will influence the Berlin decision. However, they consider that actions outside of Germany should be complementary to, and not substituted for, actions to be taken in Central Europe to maintain our rights in Berlin and prevent denial of access."
+
+"The Joint Chiefs of Staff have stated repeatedly that the United States cannot tolerate the permanent existence of a communist government in Cuba and that the requirement to remove the communist government from Cuba is made apparent by Castro's constantly increasing capabilities."
+
+"Conclusions": (a) a blockade would be an act of war (b) the undertaking of the liberation of Cuba by invasion during a period of aggravated crisis in Berlin is militarily sound -- contingent upon the call-of of substantial additional forces to active duty and a firm preparedness to execute full mobilization if necessary, and
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+NW88132
+
+Doctd:34671886 Page 47

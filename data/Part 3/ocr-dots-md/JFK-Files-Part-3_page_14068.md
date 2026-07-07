@@ -1,0 +1,52 @@
+# JFK-Files-Part-3_page_14068.png
+
+Convert to Markdownand storable high energy propellant fuel.
+
+As for Soviet MRBM's and IRBM's, Mr. Cline said that there are over
+700 launchers, mostly in the Western USSR; deployment is almost complete;
+and there is evidence of some hardening (four silos have been discovered).
+
+Mr. Cline said that it is not certain as to how much the USSR intends
+to invest in the development of an anti-missile missile. Satellite photography
+is the key. A March 1964 photo of Leningrad shows 5 distinctive bays at launch
+sites, but it is indicated that the USSR probably suspended construction in 1963.
+
+In further emphasis on the importance of special search satellite
+photography, Mr. Cline said that a GAMBIT mission has not yet been run over a
+huge mystery structure recently revealed in photography of Moscow.
+
+Mr. Cline reported that yesterday the Soviets had launched a space probe
+to Venus, the time of arrival estimated as July 22.
+
+Concerning the recent release of the CIA estimate on the Soviet economy,
+Mr. Cline said that despite the welter of denials and counterattacks by the
+USSR, the CIA has indications that its estimate was correct. The first "Pravda"
+blast contained statistics confirming the CIA's estimate of a 3 per cent gain
+in the Soviet GNP. The next issue of Pravda omitted these statistics.
+
+As for the Sino-Soviet conflict, Mr. Cline stated that this deep and
+bitter struggle reflects opposing national interests and policy views, and is
+a contest for dominance which is nearing the breaking point. The anti-Soviet
+vituperation coming out of Communist China is unprecedented. CIA's clandestine
+reporting indicates that the Chicomы are attempting to subvert Soviet leadership
+around the world, and to discredit Khrushchev in the USSR. Exchanges of secret
+Party letters indicate that a Sino-Soviet break must come. The basis of the
+dispute seems to be the failure of the USSR to provide the economic and military
+support which China needed in order to enlarge its industrial capacity. Public
+exchanges of insults, and intelligence from various sources, shows that the
+breach began in 1960 from differences of policy with regard to degree of risk
+of war which should be acceptable to Communism in its actions affecting the West.
+Also there is a lot of prejudice against China in the Soviet military. Mr. Cline
+does not think that Sino-Soviet differences can be resolved so long as Mao and
+Khrushchev are in positions of leadership.
+
+With regard to Indian border action by the Chinese Communists, Mr. Cline
+thought that this move was for the purpose of getting control of a part of the
+route for a transcontinental railroad,
+
+In Vietnam. Mr. Cline said, the U. S. mission has given General Khanh
+a breathing spell to get a grip on the political and military machine. There
+is a little more confidence within the South Vietnam government. The Viet Cong
+has not launched attacks on the larger scale expected when Khanh took over, but
+guerrilla activities have increased and 3 province chiefs have been killed or
+kidnapped in the last few weeks. In North Vietnam, recent intelligence indicates,

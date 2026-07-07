@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_13968.png
+
+Convert to Markdown# TOP SECRET
+
+Rec. #36:
+
+That the U. S. Intelligence Board evaluate
+the intelligence potential of the "Big
+Dish" moon-reflector project, and that there-
+after the Secretary of Defense reach an early
+decision as to the future of this project.
+
+Board Report of August 1, 1962
+
+Rec. 37:
+
+Based on a review of intelligence disclosures in a New York Times article by Hanson Baldwin, the Board recommended that: (1) the President emphasize to Government officials his concern about such disclosures and his intention in this case to identify and take action against the source of Government leaks to the newspaper writer; (2) the President take drastic action against the offender if identified by the FBI, or against the heads of offices from which the leak emanated; (3) the Departments of State and Defense and the CIA require their personnel to make memoranda of record on talks with the press, and to clear such contacts in advance with departmental Public Relations Officers; (4) those responsible for protecting intel- ligence data and techniques identify selected areas of sensitive data requiring special handling; (5) ways be sought to reduce the number of persons involved in preparing highly sensitive intel- ligence estimates; (6) the DCI and the Director of the Defense Intelligence Agency be provided with the investigative capability to run down leaks of sensitive intelligence data; (7) a confidential policy be established within the Executive Branch as to the degree of disclosure of intelligence data to be made to Congressional Committees; (8) a re-study be made of possible proposals for legislation to protect official secrets; and (9) a review be made of Government policy and procedures with a view to declassifying non- sensitive information and thereby strengthening programs for the safeguarding of sensitive data.
+
+TOP SECRET
+
+NWW 185
+Docld:2492
+Page 20
+NW 88192
+Docld:34671877 Page 27

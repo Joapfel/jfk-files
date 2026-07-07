@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_13956.png
+
+Convert to Markdown# TOP SECRET
+
+Rec. #16:
+
+That, because the need for intelligence on Soviet nuclear and missile capabilities is more urgent than the current need for geodetic and mapping information, urgent action be taken as follows: (1) the scheduling of as many additional CORONA shots as possible in the coming months, with postponement of ARGON shots, if necessary; (2) the THOR-CORONA system to be relied upon as the photographic reconnaissance "work horse" while other systems are in the developmental stage; (3) a sufficient number of CORONA systems be made available to meet basic needs, either by ordering long lead-time items beyond the present CORONA system, or by ordering additional CORONA systems until advanced systems are improved; and (4) steps be taken to ensure launch pad availability to permit future CORONA flights for quasi-tactical objectives.
+
+(Subsequently, based on information obtained in the course of its continuing review of the National Reconnaissance Program, the Board submitted to the Special Assistant to the President for National Security Affairs a report dated July 5, 1963, in which the Board: (1) noted a significant series of failures which had occurred in photographic reconnaissance satellite missions, because of malfunctions of booster and other systems; and (2) suggested that the President's office appropriately re-emphasize the urgent need for achieving and maintaining a dependable and continuing photographic reconnaissance satellite capability -- lest our Government be denied vitally-needed intelligence essential to our intelligence-estimating and policy-formulating processes relative to the Sino-Soviet bloc.)
+
+Rec. #17:
+
+That the Special NSC 5412/2 Group re-evaluate and make recommendations to the President on the desirability and feasibility of conducting (under special security safeguards) U-2 photographic reconnaissance missions over selected areas of the China mainland.
+
+TOP SECRET
+
+- 6 -

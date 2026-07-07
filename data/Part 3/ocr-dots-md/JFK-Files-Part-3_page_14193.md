@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_14193.png
+
+Convert to Markdown147. 10/10/62 - On this date CIA received Navy photographs taken of the Soviet ship Kasimov off Cuba, showing clearly identifiable IL-28 crates which later showed up in U-2 photography of 10/17 at San Julian airfield -- "along with a number of others which must have come in on unphotographed ships." (Source: CIA Chronology, 11/7/62)
+
+148. 10/10/62 - The DCI briefed the CIA Subcommittee of the House Appropriations Committee "on the buildup, including the IL-28s. He also commented on MRBMs essentially along the lines of his cables from Nice, adding that there were many experts who did not believe the Soviets would make such a move, but that he differed with them. He told the Subcommittee that he had authority for an overflight in the next day or so." (Source: CIA Chronology, 11/7/62)
+
+149. 10/10/62 - On the floor of the U.S. Senate, Senator Keating declared that:
+
+"Construction has begun on at least a half dozen launching sites for intermediate range tactical missiles. Intelligence authorities must have advised the President and top Government officials of this fact, and they must now have been told that ground-to-ground missiles can be operational from the island of Cuba within 6 months."
+
+"My own sources on the Cuban situation, which have been 100 percent reliable, have substantiated this report completely."
+
+"The fact of the matter is, according to my reliable sources, that six launching sites are under construction - pads which will have the power to hurl rockets into the American heartland and as far as the Panama Canal Zone."
+
+(Source: Congressional Record)
+
+150. 10/11/62 - On this date CIA reported in the President's Checklist the information from Navy photography of 10/10 showing IL-28 crates on the Soviet ship Kasimov off Cuba. (Source: CIA Chronology, 11/7/62)
+
+151. 10/11/62 - On this date General Carter said to Senator Saltonstall "much the same thing" that the DCI had said on the preceding day to the CIA Appropriations Subcommittee of the House, i.e., that he differed with experts who were of the view that the Soviets would not place MRBMs in Cuba. (Source: CIA Chronology, 11/7/62)
+
+152. 10/11/62 - The CIA Chronology of 11/14/62 indicates that the "USIB principals . . . aware that they were dealing with an explosive political issue and aware also that 'leakage' of intelligence on offensive weapons, true or false, would seriously limit the President's freedom of action in dealing with what might become a major international crisis, they had evolved a system for limiting dissemination of such information." Analysis would continue and senior policy
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+NWI 85
+DoD 2501
+S資料 7"
+NW 88192
+DocID:34671886 Page 79

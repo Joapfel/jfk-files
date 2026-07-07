@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_13951.png
+
+Convert to MarkdownDecember 1, 1963
+
+SUMMARY OF RECOMMENDATIONS SUBMITTED TO THE PRESIDENT BY THE PRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+May 1961 - - - - November 22, 1963
+
+Board Reports of July 2, July 18, October 4, and October 17, 1961.
+
+Rec. #1:
+
+The Board made a series of 17 recommendations calling for (1) a redefinition of the role of the Director of Central Intelligence (DCI), and (2) a reorganization and redirection of the activities of the Central Intelligence Agency (CIA). These recommendations were submitted on the basis of a Board study requested by the President in anticipation of the appointment of a new DCI which subsequently took place on November 29, 1961. The Board recommended as follows:
+
+(1) That the President designate the DCI as the Government's chief intelligence officer having primary responsibility for lending coordination and guidance to the total U. S. foreign intelligence effort.
+
+(2) That the DCI consider establishing a small staff to assist him in providing coordination and guidance to the intelligence effort.
+
+(3) That the DCI, although retaining over-all responsibility for the CIA, be directed by the President to assign to the Deputy DCI the day-to-day operational direction of the CIA.
+
+(4) That the DCI be housed in the Executive Office of the President, in order to emphasize his role as chief intelligence officer of the United States.
+
+(5) That the DCI consider taking with him to the Executive Office those CIA personnel engaged in the preparation of national intelligence estimates and evaluations.
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+TOP SECRET
+
+Control System
+
+NW 185
+Doctd: 2492
+Page 3
+NW 88192
+Doctd:34671877 Page 10

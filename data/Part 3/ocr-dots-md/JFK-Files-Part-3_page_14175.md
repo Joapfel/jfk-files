@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_14175.png
+
+Convert to Markdown101. 9/11/62 - Senator Humphrey, speaking on the floor of the Senate said: ". . . I think it is ridiculous and insulting to the American people for grown men to wring their hands publicly about Cuba's being a military threat to the United States . . . I do not underestimate the fact that there are missiles, intermediate and short range. But I do know . . . that we have it within our capacity without even so much as violently flexing a muscle, to destroy every single military installation in one day. So I do not want the people of my state to lose a single night's sleep worrying about the might of Cuba . . ." (Source: Congressional Record)
+
+102. 9/12/62 - General Carter briefed the House Armed Services and Foreign Affairs Committees "on the Cuban situation". (Source: CIA Chronology, 11/7/62)
+
+103. 9/12/62 - A Cuban National being processed at the Refugee Center at Opa-locka, Florida, reported that on this date he observed 20 Soviet-driven trucks pulling 4-wheel double axle trailers from 65 to 70 feet in length; that these trucks were observed driving from Havana to Camp Libertad; that the beds of the trucks were loaded with black crates; that the trailers were loaded with what the source believed to be large canvas-covered missiles; that there were 4 fins at the trailing edge of each missile. The source of the information drew sketches of the missiles and these missiles resembled surface-to-surface MRBMs.
+
+CIA disseminated this information to the intelligence community on 9/21/62.
+
+104. 9/13/62 - "On 13 September a source was informed by a resident of the general area that a rocket base was being constructed by the Soviets at a location now identified from photography as Remedios (IRBM) Site 1. A second base was also reported, but a missile site has not yet been found in photography although new road construction exists in that area." (Source: Joint Evaluation Report, 10/24/62)
+
+105. 9/13/62 - On this date the DCI sent a third cable to General Carter from the Riviera "repeating these premonitions" which he had set forth in cables to CIA on 9/1 and 9/10 regarding the possibility of Soviet introduction of MRBMs into Cuba. (These views were provided to the DD/I and the Board of National Estimates.) (Source: CIA Chronology, 11/7/62)
+
+106. 9/14/62 - At the Special Group meeting, a JCS representative briefed on capabilities for low-level coverage of "certain targets" in Cuba. However, "the Secretary of Defense was recorded as not wanting to have the operation considered further until results of further U-2 reconnaissance of these targets were available, i.e., General Carter's proposal had been overtaken by the decision on U-2 coverage taken on 10 September (at the White House meeting on that date)." (Source: CIA Chronology, 11/7/62)
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+
+TOP SECRET
+
+NW185
+DocId:2501
+Page 64
+NW88152
+DocId:34671886 Page 61

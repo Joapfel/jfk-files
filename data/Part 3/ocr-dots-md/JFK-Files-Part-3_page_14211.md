@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_14211.png
+
+Convert to MarkdownTOP SECRET
+
+THE WHITE HOUSE
+WASHINGTON
+
+# MEMORANDUM FOR THE FILE
+
+This document consists of 5 pages
+No. 1 of 4 Copies, Series a
+
+March 14, 1963
+
+Subject: Board Meeting with the President, March 9, 1963
+
+At 10:00 A.M., on March 9, 1963, the Board met with the President in the Cabinet Room of the White House for the purpose of presenting the Board's report and recommendations growing out of its completed review of the foreign intelligence aspects of the Soviet military build-up in Cuba. Those present were Messrs. Killian, Doolittle, Land, Langer, Gray, Clifford, Baker, Murphy, and Messrs. Coyne and Ash. Mr. McGeorge Bundy was also present.
+
+Dr. Killian informed the President that the Board had recommendations to present based on the Cuba episode. He recalled to the President that the Board had submitted two previous reports, one - an interim report dated December 28, 1962, containing recommendations of such urgency that the Board forwarded them prior to completing its review of Cuba; and a more comprehensive report dated February 4, 1963, in which the Board set forth its complete findings based on a detailed investigation of the Cuba situation from the standpoint of foreign intelligence coverage. Dr. Killian said that the recommendations which the Board was now presenting should be considered in the light of the two previous reports, particularly the report dated February 4, 1963.
+
+Dr. Killian then presented the Board's recommendations, reading from the written report which was forwarded to the President under date of March 8, 1963. In reading this report to the President, Dr. Killian directed attention to the fact that most of the recommendations which were being presented were an outgrowth of the Board's study of Cuba, but that two of the recommendations dealt with major problems affecting the over-all foreign intelligence effort.
+
+Dr. Killian stated Recommendations 1 through 4 of the March 8, 1963 report.
+
+Following Dr. Killian's statement of Recommendation 4 regarding low-level aerial surveillance flights over Cuba, the President observed that such flights had not been suspended but were being reserved for coverage of particularly critical intelligence targets should the situation warrant, as, for example, the February 9, 1963 low-level mission. Mr. Bundy
+
+TOP SECRET
+
+NWI-186
+DocId:2502
+Page 7
+NW88132
+DocId:34671887 Page 8

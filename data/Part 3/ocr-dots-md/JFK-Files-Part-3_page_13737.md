@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_13737.png
+
+Convert to Markdown11110227
+
+SECRET
+6/8/68 Telex 27362 London 5061
+As of early 8 June, local FBI believed Sneyd in London. FBI sent 2 Reps there 0002456
+
+SECRET
+6/8/68 Telex 27367 London 5062
+"FBI here apparently believes Ray has been 'floating around Europe' since arrival from Toronto 7 May. FBI Red been trying follow-up earlier lead Ray had been trying arrange get to Rhodesia in hopes Smith Regime would not look critically at man who shot Negro
+
+NW 78334 DocId:32272026 Page 5

@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_13783.png
+
+Convert to MarkdownHavana broadcasts to Latin America continue to take the line that Cuba "is not exporting revolution," but to stress the necessity and inevitability of internal armed left-wing revolution in individual Latin American countries - calling for a "solid front" of the masses in support of such revolutions throughout the hemisphere, and indeed throughout the world.
+
+The Dominican Republic and Venezuela continue to receive special emphasis in these Havana broadcasts. Broadcasts of 23 and 26 December called the Dominican elections a "farce", and made the point that such elections are no substitute for armed revolutions - such as "the heroic Venezuelan revolution which has stirred the whole continent."
+
+A 27 December broadcast on the Venezuelan situation as such said: "The workers, students, intellectuals, and men and women of Venezuela fight bravely. Members of the Movement of the Revolutionary Left and of the Democratic Republican Union, Communists, and other patriots, civilian and military, have fought and still do fight against the traitorous and fascist regime of Betancourt." The commentator said that patriots have risen in arms in the mountains and cities of Venezuela; and that the guerrilla movement remained active in various regions of Venezuela.
+
+(FBIS Special Report to the Daily Summary, 28 December, OFFICIAL USE ONLY)

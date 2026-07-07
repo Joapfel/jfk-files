@@ -1,0 +1,51 @@
+# JFK-Files-Part-3_page_13697.png
+
+Convert to Markdown7600NUSC1833
+
+gsh
+
+2
+
+Phone (Area) 202-842-6000
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+I knew of the operation, that this was somebody trying to put
+together, this was a memo from Chief FI probably in the task
+force trying to put together by this time, 29 March, what had
+happened. The other document since it's, it's probably a later
+date, the yellow document was somebody probably again trying to
+reconstruct what had happened. The facts are not as I knew
+them at the time.
+
+Both paragraphs have condensed an evolution that took
+place over a period of a year and the decision probably was not
+made until '65 after I had left the operation, that we were
+pulling out.
+
+But the facts as stated here in those two documents are
+incorrect, and certainly the timing that they insinuate is
+wrong.
+
+Mr. Johnston. I think we should develop that on the
+record and if you want to point out what facts are incorrect,
+why don't you do so?
+
+AMLASH Case Officer. "The situation changed when Mr.
+Sanchez and Mr. Fitzgerald left the meeting to discover that
+President Kennedy had been assassinated." That's incorrect.
+
+Fitzgerald wasn't with me on the 22nd of November meeting.
+
+Mr. Johnston. Okay. What about the sentence before
+that, that Mr. Fitzgerald and Mr. Sanchez assured subject that
+this Agency would give him everything he needed, with your
+qualifier that Fitzgerald was not at the meeting?
+
+TOP SECRET
+
+78
+
+NWA030000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

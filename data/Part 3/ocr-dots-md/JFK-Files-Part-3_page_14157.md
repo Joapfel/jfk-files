@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_14157.png
+
+Convert to Markdown(57. 8/23/62 Continued_
+
+
+"4. The line of activity projected for operation MONGOOSE PLAN B PLUS should be developed with all possible speed."
+
+"5. An analysis should be prepared of the probable military, political and psychological impact of the establishment in Cuba of either surface-to-air missiles or surface-to-surface missiles which could reach the United States."
+
+"6. A study should be made of the advantages and disadvantages of making a statement that the United States would not tolerate the establishment of military forces (missile or air, or both?) which might launch a nuclear attack from Cuba against the United States."
+
+"7. A study should be made of the various military alternatives which might be adopted in executing a decision to eliminate any installations in Cuba capable of launching a nuclear attack on the United States. What would be the pros and cons, for example, of pinpoint attack, general counterforce attack, and outright invasion?"
+
+"8. A study should be made of the advantages and disadvantages of action to liberate Cuba by blockade or invasion or other action beyond the MONGOOSE B PLUS, in the context of an aggravated Berlin Crisis."
+
+NSAM No. 181 indicated there would be a further meeting with the President about 9/1 to review progress on the above items and that in the event of important new information an earlier meeting would be called. The NSAM concluded with the statement "The President emphasizes again the sensitive character of these instructions."
+
+58. 8/23/62 - The CIA Chronology of 11/7/62 referring to the meeting with the President, which resulted in the issuance of NSAM #181, states: ". . . Thus, by 23 August CIA had alerted the highest levels of the government to a rapidly unfolding Soviet military development in Cuba, including the probable establishment of surface-to-air missile sites, and the danger of surface-to-surface missiles. Furthermore, the President had taken action on the intelligence received. There was at this time no evidence of any sort that surface-to-surface weapons were being installed -- in fact, the MRBM units had scarcely started en route from the USSR -- but the possibility had been discussed by the President and his advisers."
+
+59. 8/23/62 - CIA's President's Checklist stated that:
+
+> "Most of our information from within Cuba on the influx of Soviet equipment and technicians has come from Cuban sources. We now have several reports from the British Embassy whose people have been out looking."
+
+- 11 -
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+
+TOP SECRET
+
+SPECIAL LIMITED DISTRIBUTION

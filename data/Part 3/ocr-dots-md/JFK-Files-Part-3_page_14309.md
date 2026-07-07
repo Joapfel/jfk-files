@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_14309.png
+
+Convert to MarkdownMr. Bundy's view that the Board must continue to keep
+itself fully informed about the foreign intelligence program,
+and Mr. Bundy emphasized the need for the Board to be com-
+pletely informed regarding covert action operations taking
+place in the NSC 5412/2 area.
+
+In an Executive Session, Mr. Coyne reported on a discussion which he had had with the newly-appointed DCI, Mr. McCone, for the purpose of outlining the various Board Panel assignments, and for the further purpose of scheduling CIA briefings for the members of the various Board Panels. Mr. Coyne reported that the DCI's reaction was to indicate his belief that the Board Panel activities seemed to be concerned with matters which were appropriate for the DCI himself to pursue. Chairman Killian said that following this discussion between Mr. Coyne and the DCI, Dr. Killian had contacted the Deputy DCI, General Carter, to pursue the request that CIA furnish briefings to the various Board Panels. General Carter replied to Chairman Killian that the DCI wanted to hold up on such briefings, for example, the briefing of the Board Panel on NSC 5412/2 activities, because the reorganization process was still underway in CIA. Chairman Killian also reported that when he contacted General Carter a week later on this same subject, it appeared that the CIA was reluctant to furnish the desired briefings, but Chairman Killian took a firm stand in requesting them.
+
+During an Executive Session, Chairman Killian asked
+for suggestions concerning subject matters to be discussed
+with the DCI when that official joined the Board meeting the
+following day. With respect to the Langer-Gray-Murphy Panel,
+Dr. Langer said he had no particular questions to raise with
+the DCI concerning activities carried out under the NSC 5412/2
+Group. Dr. Langer observed that he was impressed by the way
+the Special Group checks up on the implementation of covert
+operations. Chairman Killian referred to various indications
+he had received that General Taylor was doing a very good job
+in this respect. Mr. Gray thought that if the Board is going
+to try to protect the President in this particular area, the
+Board must have a better flow of information to the Board con-
+cerning NSC 5412/2 activities, in order that the Board may make
+a necessary evaluation of the covert action programs involved.
+Chairman Killian agreed with a suggestion by Mr. Coyne that
+the Board Panel on NSC 5412/2 activities should remain in
+existence on a continuing basis in order that the Board might
+
+NW 185
+DocId:2507
+Page 16
+NW 88192
+DocId:34671892 Page 17

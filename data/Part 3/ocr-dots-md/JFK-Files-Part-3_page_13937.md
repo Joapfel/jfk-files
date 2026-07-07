@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13937.png
+
+Convert to MarkdownSECRET
+
+PRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+
+September 11, 1963
+
+MEMORANDUM FOR THE BOARD
+
+SUBJECT: Covert Action and Intelligence Operations Against Cuba
+
+Mr. Desmond Fitzgerald, who heads up a Cuba task force within the DD/P area at CIA, has been asked to join the Board meeting for one hour for the purpose of reporting on covert action and intelligence operations relating to Cuba.
+
+When Mr. Fitzgerald last appeared before the Board on April 23, 1963, to brief members on this subject, his presentation included reference, among other things, to (1) the numbers of agents, teams, reports, etc., involved in the CIA clandestine agent effort against Cuba, with less detail on the substantive intelligence collection results being obtained thereby; (2) the fact that CIA had no policy guidance for "positive covert action programs of a specific sabotage nature," and that the policy guidance available to CIA in this area was concerned with creating "low key" resistance and "subtle sabotage" (e.g., leaflet drops and shorting out electric power lines); and (3) the fact that a decision regarding such policy guidance was to be obtained later in April 1963.
+
+In the course of Mr. Fitzgerald's appearance before the Board, members may wish to raise questions about the following:
+
+(1) The extent to which policy guidance has been provided to CIA, and by whom, pertaining to the execution of positive, major covert action programs against Cuba.
+
+(2) The results of efforts to mount clandestine agent operations designed to (a) obtain on-the ground photography of intelligence targets in Cuba, and (b) attempt intercept of emanations from Soviet encryption machines (as recommended by the Board to the President).
+
+(3) A description of covert actions against Cuba which (a) have been approved and are under way or are scheduled for future execution, and (b) have been proposed by CIA but for which approval has not been obtained.
+
+J. Patrick Coyne
+
+SECRET
+
+NW 185
+DocId: 2491
+Page 20
+NW 88152
+DocId: 34671876 Page 30

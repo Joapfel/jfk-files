@@ -1,0 +1,60 @@
+# JFK-Files-Part-3_page_14113.png
+
+Convert to Markdown- 23 -
+
+could be reintroduced into Cuba as below-deck cargoes. Mr. Clifford thought that it would be a good idea to continue our surveillance in order to ascertain the destination of these ships and the disposition made of the missiles, and Mr. McCone said that we can probably track the ships into the Black Sea and the Baltic, but that we would not be able to cover the unloading and transshipment of missiles into Soviet ports.
+
+Mr. Murphy wondered what had been the inspiration for
+the commitment not to invade Cuba. Mr. McCone supposed that
+this resulted from a Russian offer to do certain things in.
+return for things which they asked for.
+
+Mr. Clifford asked whether it is possible for the United
+States to develop intelligence sources in Cuba which would
+relieve our dependence upon photographic intelligence. Mr.
+McCone said that this is difficult to do primarily because
+Castro had instituted a police state in Cuba and, as an example
+of this, Mr. McCone cited the practice of the Castro regime
+in following a procedure whereby in effect the ration cards
+of the Cuban people serve as identification cards. Mr. McCone
+said that previously eight or nine teams of trained agents
+had been introduced into Cuba since April. Three of these
+teams remain in Cuba; the rest have been either killed or
+came back from their mission. Mr. McCone said that we have
+not been able to obtain much intelligence from these three
+teams because their principal activity has been to maintain
+their survival.
+
+Mr. Clifford said that he found it hard to understand
+why the United States has not been able to develop intelligence
+sources within Cuba, a country situated only 90 miles away
+from the United States, and one with which we have enjoyed
+the friendliest relations for 60 years. Mr. McCone said that
+approximately 2000 Cubans are coming out of Cuba every week
+and at that rate practically all of the responsible Cubans
+have left the island. Mr. McCone said after the Bay of Pigs
+invasion an intelligence "paralysis" set in for a time.
+Then, in December 1961, the President and the Attorney General
+and Mr. McCone had discussions leading to the instigation
+of some operations in Cuba. Mr. McCone said that he was
+aghast to learn at that time there were no refugee interroga-
+tions being conducted, and so the interrogation center was
+established at Opalaka. He said that within CIA a 500-man
+task force was set up to work on the Cuba problem and dis-
+appointing results have been obtained. Mr. McCone said that
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+Handle Via TALENT-KEYHOLE Channels
+
+Handle via DYEMAN
+Control System
+
+TOP SECRET
+
+NWM 85
+Doeld: 2500
+Page 7
+NW 88192
+
+DocId:34671885 Page 10

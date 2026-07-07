@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13781.png
+
+Convert to MarkdownSECRET
+
+NO FOREIGN DISSEM
+
+An even larger number of direct Havana radio incitements to revolt have been noted in transmissions to Latin American countries recently, apparently reflecting the increased references to the need for other Latin American countries to follow Cuba's example which have been noted in recent speeches of regime leaders.
+
+Thus a 1 January Cuban broadcast quoted a Guatemalan writer as saying that "after Cuba the American revolution will cleanse the other countries of this dirty blemish of ignorance, maintained purposely by interested groups. Now America has only one way to go - the way of revolution that began in Cuba." A late December broadcast about Peru claimed that "a powerful guerrilla movement is growing: it already forms the nucleus for a future national liberation army." A 3 January report on the meeting of the Uruguayan Communist Party quotes its first secretary as saying: "The next phase will be one of hard battles. A sharpened class war may break out at any time and unleash the revolutionary storm ... There is no other way but to forge the social forces of the revolution step by step, shaping the unity of the anti-imperialist forces whose nucleus is the left-wing liberation front." A specially beamed "Dominican bulletin" to the Dominican Republic on 31 December quoted a communique of the "Dominican Liberation Movement" as saying: "The experience of this year makes obvious to all the need to carry out the national, anti-feudal, anti-imperialist revolution." On 3 January, Havana radio attacked President-elect Bosch of the Dominican Republic for preparing to sell his country to the "American monopolists." The radio also repeated instructions from a Cuba-based Dominican exile group urging Dominicans
+
+SECRET
+
+NO FOREIGN DISSEM
+
+NW 88608 DocId:32423995 Page 33

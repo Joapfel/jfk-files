@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_13972.png
+
+Convert to MarkdownN: 185
+
+Doctd: 2492
+NFW061323
+
+Docld:34671877 Page 31
+
+TOP SECRET
+
+(3) That the CIA renew efforts to convince the Thai Government of the need for an effective central intelligence organization in the Government of Thailand (the State Department to decide whether the U. S. Ambassador should make specific overtures to Marshal Sarit in this regard).
+
+Rec. #45:
+
+That the CIA explore the feasibility of intensifying covert actions against the sizeable and effective influence of Communists among Japanese intelligentsia, educators and students.
+
+Board Report of December 28, 1962
+
+Rec. #46:
+
+Based on its review of intelligence coverage, assessment and reporting by U. S. agencies with respect to the Soviet military buildup in Cuba during the months preceding October 22, 1962, the Board submitted to the President an interim report containing the following recommendations:
+
+(1) That the U. S. Government: (1) maintain an aggressive intelligence effort to equip our policy makers with timely and adequate intelligence information to meet the possibility of continuing Soviet confrontations in Cuba; and (2) resist any tendency toward a let-down in intelligence coverage of Cuba in the wake of U. S. intelligence successes through U. S. military aircraft reconnaissance of Cuba.
+
+(2) That the United States make intensified, hard-hitting efforts to obtain significant intelligence on Cuba through clandestine espionage operations, including efforts by U. S. intelligence agencies to lay the groundwork for "deep cover" espionage operations in Latin American and other foreign countries (without dependence on official State Department cover which would not be available in the event of a break in diplomatic relations).
+
+(3) That (1) high-level and low-level reconnaissance of Cuba be continued as a means of acquiring photographic and Signals Intelligence concerning Soviet military installations, forces, weapons,
+
+TOP SECRET
+
+- 22 -

@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_13851.png
+
+Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+C-O-N-F-I-D-E-N-T-I-A-L
+
+**COUNTRY**: Ecuador / Cuba
+**REPORT NO.**: CS-3/534,979
+**SUBJECT**: Return of First Member of Revolutionary Youth to Receive Guerrilla Training In Cuba
+**DATE DISTR.**: 24 January 1963
+**NO. PAGES**: 1
+**REFERENCES**: RD
+
+**DATE OF INFO.**: Late December 1962
+**PLACE & DATE ACQ.**: Ecuador, Guayaquil (6 January 1963)
+**FIELD REPORT NO. HEG-2101**
+
+SOURCE EVALUATIONS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.
+
+**SOURCE:** Member (C) of the Revolutionary Union of Ecuadorean Youth.
+Appraisal of Content: 2.
+
+Victor Leon, a member of the Revolutionary Union of Ecuadorean Youth (URJE) from Esmeraldas, returned to Ecuador from Cuba on 22 December 1962. He is the first member of URJE to return from Cuba after receiving guerrilla training in that country. He went via Mexico to Cali, Colombia, by air and then overland to Guayaquil. After his arrival in Guayaquil, Leon said that he was the only URJE member in the group with which he was trained and therefore he did not know when the other URJE members undergoing training would return to Ecuador.
+
+Source Comment. Evidently Leon did not bring any money back from Cuba because he asked for a loan so that he could go to his home in Esmeraldas. Leon is not particularly intelligent and therefore was not trained as an organizer. However, he is eager to start guerrilla activities in Ecuador.

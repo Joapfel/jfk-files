@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_14001.png
+
+Convert to MarkdownPRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+
+**Subjects Suggested by Board Members for Discussion by the Director of Central Intelligence at the Board Meeting of January 30, 1964**
+
+## 1. Cuba
+
+>Status and effectiveness of clandestine collection and covert action programs; numbers and missions of Soviet personnel in Cuba; Castro's involvement in counter-insurgency and subversive programs in Latin America and other countries.)
+
+## 2. South Vietnam
+
+>Prospects for permanency of present regime; adequacy of coordination and effectiveness of indigenous intelligence organizations.)
+
+## 3. Panama
+
+>Availability of pre-crisis intelligence indicators and timeliness of current reporting thereon; extent of Castro influence.)
+
+## 4. Separation of the Office of the Director of Central Intelligence from the Central Intelligence Agency
+
+>Views as to desirability and feasibility.)
+
+## 5. U. S. Counterintelligence Posture
+
+>Assessment of damage to U. S. intelligence sources and operations resulting from Dulap and Howell cases.
+>Status of CIA studies on protection of intelligence, intelligence sources and methods.)
+
+## 6. Joint Congressional Committee on Foreign Intelligence
+
+>The DCI's appraisal of effect such a Committee arrangement would have on the effectiveness and security of foreign intelligence and related activities.)
+
+## 7. CIA Estimate on Economy of Use
+
+>The DCI's comments on substance of the estimate and significance of its public release by CIA.
+
+SECRET
+
+NAW-183
+DocId:2492
+Page 59
+NW 88192
+DocId:34671877 Page 60

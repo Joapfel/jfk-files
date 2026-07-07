@@ -1,0 +1,31 @@
+# JFK-Files-Part-3_page_13701.png
+
+Convert to MarkdownTOP SECRET
+
+82
+
+Convinced than before that the only way a coup could be launched in Cuba was the elimination of Castro and when he expressed this conviction, not in '63 but in late '64, is when the Agency, and I presume the U.S. Government at that time felt we can't continue that directly involved with AMLASH.
+
+Mr. Johnston. And the last sentence of that:
+
+"This included the following -- 'We would not furnish the silencer, nor scope, nor any money for direct assassination. Furthermore, we would not lift a finger to help the subject escape from Cuba should he assassinate Castro.'"
+
+Was that the substance of the discussion immediately after the assassination of President Kennedy?
+
+AMLASH Case Officer. No. A year later in November of '64.
+
+Mr. Johnston. And you're saying that this does not describe the fall AMLASH meeting?
+
+AMLASH Case Officer. It does not. It is a mixture of what happened over at least a two year period.
+
+Mr. Johnston. It perplexes me somewhat that your failure to keep written records would so warp later thinkers as to what was going on. I mean take the March, 1965 document. As of March, 1965 CIA is going on the assumption that you and Fitzgerald met AMLASH in Paris, that you assured him that he would get all the money he wanted and that your plans changed after the meeting because of the Kennedy assassination.
+
+TOP SECRET
+
+7600010857
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWR-38460000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000000

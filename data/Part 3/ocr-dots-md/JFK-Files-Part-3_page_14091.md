@@ -1,0 +1,56 @@
+# JFK-Files-Part-3_page_14091.png
+
+Convert to Markdown- 21 -
+
+fact take one step back and two steps forward, and hold on to
+the Cuba real estate as a propaganda and insurgency base,
+as a means of keeping Castro under control, or in order to
+retain a capability for quick restoration of a Soviet offensive
+capability. The kind of concerted intelligence action which
+the DCI had in mind would include (1) penetration of the Castro
+government regime, (2) the placement of additional agent teams
+in Cuba, (3) the continuation of efforts to obtain the assistance
+of British, French and German representatives in Cuba, (4) the
+possible obtaining of useful intelligence from the attorney,
+Donovan, who is negotiating prisoner releases, and (5) possibly
+the obtaining of useful information from the captain of the
+"African Pilot" who had a 3-hour talk with Castro and who
+yesterday asked to see a U. S. intelligence officer.
+
+Mr. Pace asked whether Mr. McCone would favor the use of
+Guantanamo Naval Base as a base for launching intelligence and
+related operations against Cuba. Mr. McCone said that he would
+not be in favor of this because if we were caught using Guantanamo
+for intelligence operations Castro would obtain UN and other support
+for Cuba's demands for U. S. evacuation of the Naval Base.
+
+Answering General Doolittle's question, the DCI stated that
+U-2 overflights of Cuba were going at the rate of two a day, re-
+sulting in coverage of all targets once a week and in coverage of
+some important targets (e.g., harbors) more often. Mr. McCone said
+that COMOR and USB list the targets and that he then establishes
+flight schedules.
+
+Going back to the subject of Guantanamo, Mr. Pace asked whether
+the DCI had made a study of the expected intelligence return that
+would be obtained if intelligence operations were conducted from
+the Base -- Mr. Pace adding that he thought such a study should be
+made before a final policy decision was reached. Mr. McCone said
+that he had not made such a study. He added that in August the
+"operators" in CIA had proposed to the MONGODB Group that Guan-
+tanamo Base be so used, but this was opposed at the policy level.
+Mr. McCone said that he would not be opposed to a restudy of the
+proposal at this time. In answer to Dr. Killian's inquiry, Mr.
+McCone confirmed that we are conducting SIGINT operations at
+Guantanamo, and Mr. Kirkpatrick noted that NSA had only recently
+added two more positions there.
+
+Handle via DUEMAN
+Control System
+
+TOE SECRET
+
+NWP 185
+Doctd:2498
+NWP Page 28
+Docld:34671883 Page 9

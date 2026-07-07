@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_13827.png
+
+Convert to MarkdownTHE WHITE HOUSE
+
+WASHINGTON
+
+SECRET
+
+January 21, 1963
+
+MEMORANDUM FOR
+
+Mr. Sterling Cottrell
+Coordinator of Cuban Affairs
+
+The President has read the attached copy of a CIA report on the training of Latin Americans in Cuba. He has also read the note from Ray Cline, which is attached.
+
+The President desires that you and your group take on this problem and report to him in the usual way.
+
+Bromley Smith
+
+SECRET
+
+NW 88608 DocId:32423995 Page 79

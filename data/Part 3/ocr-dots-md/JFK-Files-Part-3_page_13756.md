@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_13756.png
+
+Convert to MarkdownSECRET
+
+also been reported, but the evidence is unclear as to quantities shipped and the extent of Cuba's role in these transactions. We believe that there is an extensive agent net in Latin America directed from Havana.
+
+6. Castro has associated himself with revolutionary activist groups throughout Latin America. In most cases these have been Communist, but where the regular Communist Party favored a legal or parliamentary line he has not hesitated to support dissident Communist groups, e.g., in Brazil, and non-Communist revolutionaries, e.g., in Guatemala and El Salvador. In some cases he has sponsored new revolutionary organizations, e.g., in Panama, Colombia, and Peru. In Chile he has endorsed a popular front coalition made up of Communist and moderate leftists.
+
+## Evaluation
+
+7. Instances of financial and material support sent by Cuba to revolutionaries in other countries which have come to our attention are probably only a part of the total effort. Even so, the effort seems to have been relatively small and ineffective. Yet along with the political and psychological stimulus which Castro's influence has provided, Cuban subversive activities have perceptibly strengthened activist revolutionary groups. Dangerous situations subject to exploitation by Castro and the Communists exist in a number of Latin American countries— notably Venezuela, Brazil, British Guiana, the Dominican Republic, and Bolivia. These dangers arise from political and social tensions which existed long before Castro came to power. They might lie dormant for some time; but with Castro as a potential detonator, they are more likely to blow up. The detonative compound will exist as long as Castroism survives, whatever may happen to Castro personally.
+
+8. The most dangerous aspect of Castroism has been its broad appeal as a symbol of revolutionary change and nationalist assertiveness in Latin America. Propaganda from Cuba has taken advantage of this fact and has almost certainly been a more important influence in the Latin American situation than Castro's other subversive activities. During 1960 and 1961 Castroism became a force to be reckoned with politically in a number of Latin American countries. Certain governments felt obliged to move in the direction of neutralist and leftist positions. This influence waned, however, after Castro identified himself with the Bloc in late 1961. Nevertheless, the appeal to Castro's movement continued to be a source of major concern to almost all governments and seriously restricted their willingness to associate themselves, at least publicly, with the US.
+
+4
+
+SECRET
+
+NW 88608 DocID:32423995 Page 8

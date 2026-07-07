@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_14168.png
+
+Convert to Markdown(75. 8/31/62 Continues)
+
+"regime. That supposition, which our Government has never openly admitted or discussed, is a source of serious concern to the people of all the Americas. It should be fully aired. The dangers inherent in the situation should be known and appreciated by all the people of this hemisphere, and particularly by those nations which so far have actively blocked measures to combat the menace of Castroism.
+
+"Another very real possibility and, in my judgment, a probability that should be a source of even greater concern to the U.S. and which has so far not been openly discussed at all in this country is that the Soviets are deliberately taking advantage of the proximity between Cuba and Cape Canaveral to conduct other activities. There is no question at all of the possibility of interference with American space flights by sensitive equipment mounted in Cuba and operated by Communist experts." (Source: Congressional Record)
+
+76. 8/31/62 - In retrospect "a thorough review of refugee reports concerning the general areas now containing IRBM and MRBM sites has produced some probable indicators of scheduling. This collateral information indicates that plans to deploy ballistic missiles in Cuba were being implemented by the end of August. Site locations apparently had been selected and the surveys for the initial IRBM installations were probably completed by that time. IRBM site construction was apparently under way in September and preceded the MRBM sites. This sequence is also indicated by the photography."
+
+"Reported activities indicate that probably all of the San Cristobal sites were selected by MRBM deployment in August since an area which includes some of the sites was made a restricted zone during late August-early September."
+
+"Refugees had also reported "about August 22 the owner of a farm, now the location of San Cristobal MRBM Site 3, was evicted and the secondary road to the farm was improved by 24 August... (A Soviet survey team was reported in the vicinity of San Diego de los Banos, a village about 4 miles west of Site 1, on 5 September)".
+(Source: Joint Evaluation Report, 10/24/62, Supp. 4)
+77. 8/31/62 - CIA distributed a raw intelligence report which was based on information acquired in the U.S. on 8/23/62 (presumably from refugee sources) and which stated in part "A platoon of Soviets who are specialists in rocketry and atomic arms is assigned to the Ministry of the Cuban Armed Forces".
+
+78. 8/31/62 - Information received by an American correspondent in Mexico from a prominent Cuban exile and reported to the U.S. Embassy in Mexico City: ". . . Soviet military presence in Cuba was a fact . . . among the thousands of Soviet technicians who recently arrived on the island, many appeared to be between 18 and 20 years of age, too young to acquire any technical experience to impart to the Cubans . . . these young Russians dress in sports clothes but give the appearance of having only recently completed their military training . . . two sites with antennae, presumably used for monitoring activity at Cape Canaveral, will be converted into missile bases . . ." (Source: State Department Airgram from Mexico City No. 737.00/8-3162, dated 8/31/62)
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+22
+
+ NW 88132
+
+Doctd:34671886 Page 54

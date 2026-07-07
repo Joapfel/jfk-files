@@ -1,0 +1,18 @@
+# JFK-Files-Part-3_page_14055.png
+
+Convert to Markdowninquired as to the function of Mr. Cottrell's Interdepartmental Coordinating Committee with respect to Cuba. In response to this question, Mr. Cottrell described his coordinating function, beginning with the point that the President had requested last January that coordination be supplied to the activities of the 6 or 7 U. S. agencies which were dealing with the 4 or 5 Cuban exile groups. The President directed that there be established a focal point for coordination of policy recommendations and execution of approved policies assigned for implementation by various U. S. agencies following decisions by the Executive Committee of the NSC with respect to Cuba. Having been given this coordinating responsibility, Mr. Cottrell named Secretary of the Army Vance and Mr. Helms of CIA to serve on the committee, with provision for drawing upon representatives of other agencies as might be required from time to time. Mr. Cottrell said that his committee is charged with coordinating policy with respect to Cuba, the objectives being to prevent Cuba from becoming a base of Soviet aggression, to prevent the overt export of military equipment from Cuba to other Latin American countries for communist purposes, to prevent the export of subversive activities to other Latin American countries from Cuba, and to seek the removal of the Soviet presence in Cuba. Mr. Cottrell went on to say that when CIA proposes covert actions with respect to Cuba, the Cottrell Committee considers the proposals and comments on them to the Special Group, and if a policy issue is involved in a given proposal the matter is referred to the Executive Committee of the NSC for decision.
+
+Mr. Murphy asked Mr. Cottrell if he would state for the Board Mr. Cottrell's concept of what U. S. policy toward Cuba is today, for instance whether the policy is of a defensive or an offensive character. Mr. Cottrell answered by saying that in his opinion that the U. S. policy toward Cuba is not defensive, and as an indication of this he referred to the visit which he and Deputy Attorney General Katzenbach made to Nicareuga where a conference was held with officials of Central American countries concerning visa and other travel controls which might be
+
+OX CART - CORONA - IDEALIST
+
+TOP SECRET
+
+Handic via COMMIT-TELEPHON - KEYHOLE
+Channels Only
+
+NW 185
+Docld:2495
+Page 13
+NWI 89192
+Docld:34671880 Page 13

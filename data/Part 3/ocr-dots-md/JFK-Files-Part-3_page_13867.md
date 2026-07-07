@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_13867.png
+
+Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+S-E-C-R-E-T
+
+**COUNTRY** Cuba/Nicaragua
+**REPORT NO.** CS -3/534,165
+
+**SUBJECT** Cuban Training of Guerrillas for Landing in Nicaragua
+**DATE DISTR.** 16 January 1963
+**NO. PAGES** 1
+**REFERENCES** RD-W-2107
+
+**DATE OF INFO.** Mid-1962
+**PLACE & DATE ACQ.** Belgium, Antwerp (7 January 1963)
+
+**FIELD REPORT NO.**
+
+THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.
+
+**SOURCE:** Cuban naval officer (F) who left Cuba in January 1963, from a Cuban G-2 officer who disappeared from Habana, reportedly deserting, in November 1962. Appraisal of Content: 3.
+
+About July 1962 four hundred men, including Mexicans, Nicaraguans; and Cubans, were being trained in Cuba as a guerrilla unit which was to be landed in Mosquito, Nicaragua.
+
+**Field Comment.** The Cuban naval officer did not know when the landing in Mosquito was to take place.

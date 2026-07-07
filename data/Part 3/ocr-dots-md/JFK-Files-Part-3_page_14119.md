@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_14119.png
+
+Convert to Markdown- 2 -
+
+response to this report was devastatingly empty and inadequate. Dr. Baker saw no excuse for the fact that the DIA had been afforded only two days notice to comment on the Board's report prior to the submission of views by the DCI. (Dr. Langer thought it incredible that the DCI had given DIA only two days to comment on the Board's December 28 interim report.) It was Dr. Baker's thought that such a procedure was contrary to the general agreement which had been previously reached with Mr. Bundy (in a discussion between Messrs. Bundy, Baker and Coyne) that White House action memoranda flowing from Board recommendations would go directly to the agencies primarily concerned. With regard to the latter point, Mr. Coyne observed that Mr. Bundy had in this instance acquiesced with the DCI's request that the DCI obtain and report the coordinated views of the various U. S. intelligence agencies concerned with the matters covered in the Board's report.
+
+Dr. Langer pointed out to Dr. Land that at the Board's last meeting (which Dr. Land had been unable to attend) the Board had been briefed on current aspects of the Cuba situation. Dr. Land, pursuing the point which he had raised, hoped that the Board would be able to avoid the submission of a "boiler plate" report on the errors made in the intelligence handling of the Soviet build-up in Cuba. Dr. Land said he thought that the draft of the final Board report now before the Board was a good effort, but he hoped that it would not draw from the agencies involved a book covering past errors. It was Dr. Land's view that in the intelligence system there should be someone who knows the whole story and can inform the Board fully about it. Dr. Land's concern was that the intelligence elements involved may have been inept and that a year from now they would be repeating the errors spotted in the Board's report, unless the Board can get the agency heads to accept the Board's help in profiting from lessons learned so that mistakes can be avoided in the future.
+
+Mr. Clifford observed that there is a question of timing involved in the Board's present Cuba review, because the Board was under a special assignment from the President to prepare a report. Mr. Clifford thought that the Board would do a better service if it made a hard-hitting report and recommendations, and then after an appropriate interval the Board should ascertain whether the recommendations were being put into effect and urge action on those which the Board might find were not being implemented.
+
+Dr. Land suggested that the Board should complete its work on the present draft of its Cuba report and then take steps to get to the heart of things with respect to intelligence plans and programs
+
+TOP SECRET
+
+NW485
+DocId:2501
+Page 7
+NW88192
+DocId:34671886 Page 5

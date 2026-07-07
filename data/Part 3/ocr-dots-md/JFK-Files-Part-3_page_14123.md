@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_14123.png
+
+Convert to MarkdownTOP SECRET
+
+---3---
+
+has "under-played old fashioned espionage". He observed that it is easy to fly U-2s but that such flights inevitably bring up international problems since they violate sovereignty; and therefore the Department of State welcomes the idea of beefing up traditional espionage activities which are not dependent upon diplomatic cover.
+
+The Board next inquired as to whether the Secretary believed that the interests and requirements of the intelligence community were aggressively spoken for at the policy level during the pre-October 14 period. He responded that the United States would have been better off with more intensive air (U-2 plane) coverage during the period beginning October 1, but at that time reports were sketchy, there was the problem of the stand-down of the U-2 because of the Chinat loss, weather conditions were not optimum, etc. Revert ing to the principal question asked of him the Secretary expressed the view that the Special NSC 5412/2 Group operated adequately and is now operating adequately. He said that he is in touch with the Group from time to time on its plans and he noted that on the matter of intelligence collection flights we have run 2500 peripheral flights around the Soviet Union and every one of them is to some degree dangerous. He said that the President and he personally examine the particularly sensitive flights that are proposed. He noted that in the State Department intelligence requirements of the community are accepted in this area and that the Department goes along with the overwhelming number of flights proposed. He said that in the case of Cuban overflights he personally made two suggestions during the period in question. The first involved the step-up of peripheral flights around Cuba as a cover for putting flights over the island when we wanted to and he said that he had told the OAS representatives about this, noting that the "risks of strays" of such peripheral flights was "very high". His second suggestion involved breaking up one or two proposed flights into segments of four flights (the Board members were fully cognizant of this). Mr. Gray made reference to the delays which necessarily resulted from breaking the proposed mission into a four-segmented one. He inquired of the Secretary as to whether he had been advised of the fact that delays would necessarily result from his suggested amendment of the mission. The Secretary replied in the negative.
+
+At this point Dr. Land observed that there is not enough personified pressure from intelligence; that a concentrated statement of intelligence requirements and purposes should be constantly served up to the policy level from suspicious intelligence personalities and that these, of course, should be subject to ultimate decision by the Secretary of State and others of high
+
+TOP SECRET
+
+NWP68
+DocId:34671886 Page 9

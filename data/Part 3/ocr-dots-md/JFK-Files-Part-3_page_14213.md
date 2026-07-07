@@ -1,0 +1,24 @@
+# JFK-Files-Part-3_page_14213.png
+
+Convert to MarkdownTOP SECRET
+
+Turning next to two recommendations of a general nature, Dr. Killian stated Recommendations 13 and 14 of the March 8 report dealing with the subjects of scientific intelligence resources and the effective organization and management of the National Reconnaissance Office.
+
+Following Dr. Killian's presentation, the President expressed his appreciation for the Board's efforts and said that he would follow through on the recommendations which had been made.
+
+Referring to the thirty-five intelligence reports containing indicator-type data which were dealt with in the Board's February 4 report, the President observed that these indications were "pretty thin." The President observed that first there was the Berlin Wall incident and then the Cuba development, and in retrospect the President found it extraordinary that our Government had not obtained more advance information with respect to those situations.
+
+The President said that we should have accomplished a penetration of the Castro regime at a relatively high level in the Cuban Government.
+
+Dr. Land stated that he and Dr. Langer had been engaged in recent discussions of Dr. Land's concern about the manner in which our national intelligence estimates are produced. Dr. Land thought that, under the present system, it seemed that no meaning could be derived from particular facts or information unless the information could be fitted into patterns which the estimators already had in mind. The Board is therefore suggesting, Dr. Land said, that the CIA see if there is not a need for trained professionals who are not only open-minded, but whose careers are devoted to fitting intelligence information into all possible patterns. In the Cuba situation, Dr. Land pointed out, there was a fixed pattern in the minds of estimators to the effect that refugee reports concerning offensive missiles were in reality reports concerning surface-to-air missiles and installations. Dr. Land said that the Board was not proposing a policy under which the President would review raw intelligence reports, but the Board felt that the estimators should form the various alternative patterns which can be reliably derived from an analysis of intelligence, in order that policy makers may have the benefit of such alternatives. Dr. Langer said that on the other hand the estimators have to act on rationality and cannot assume that the enemy is acting on an irrational basis.
+
+- 3 -
+
+TOP SECRET
+
+NWI-86
+Docld:2602
+Page 9
+
+NW 88152
+Doctd:34671887 Page 10

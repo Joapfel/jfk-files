@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_13975.png
+
+Convert to Markdown(2) That U. S. intelligence agencies make it a major goal to discover the terms of Soviet/Cuban agreements and the programs to carry out such agreements.
+
+(3) That intensified efforts be made for substantial improvement in U. S. clandestine espionage coverage of Cuba -- because human-resource espionage operations continue to be important in spite of noteworthy results obtained by the United States in using scientific and technical intelligence techniques against Cuba.
+
+(4) That (1) there be a resumption of efforts to develop a long-focal-length camera for use in U-2 coverage of Cuba, using color and stereo photographic methods; (2) that there be a re-appraisal of the decision to suspend low-level photographic reconnaissance aircraft missions over Cuba; and (3) that a vigorous clandestine agent program be instituted with a view to obtaining on-the-ground photography of intelligence targets in Cuba, as an essential supplement to aerial photographic reconnaissance of the island.
+
+(5) That the current, intensive aerial surveillance of Cuba be accompanied by priority planning for adequate substitutes in the event that our aerial reconnaissance program is cut off by the advanced Soviet air defenses being installed in Cuba.
+
+(6) That, as recommended earlier, a major clandestine agent effort be mounted against Cuba, with a view to intercepting emanations from sophisticated Soviet code machines through the use of intercept equipment capable of concealment on an agent's person.
+
+(7) That, as previously proposed, the President be asked to resolve the issue when exceptional intelligence techniques are opposed at lesser levels because of the element of risk.
+
+TOP SECRET
+
+- 25 -

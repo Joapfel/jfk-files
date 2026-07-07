@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_14017.png
+
+Convert to MarkdownMr. Gray asked if Mr. McCone was suggesting that the President should talk to the Secretaries of State and Defense about criticisms of CIA made by persons in those Departments. Mr. McCone said, no, what must be done is for the President to make the matter the subject of a major speech and several press conferences. General Doolittle inquired whether Mr. McCone had discussed this with the President, and Mr. McCone replied that he had and this was the reason for remarks which the President made 30 days ago during a press conference. Mr. Murphy observed that public statements of the kind urged by Mr. McCone often have a way of proving to be a liability, because they may generate a whole flock of further press and radio commentaries; and for this reason Mr. McCone might consider the prospect of having to ride out this storm.
+
+Dr. Land asked what is the CIA's role in Vietnam. Mr. McCone said its role was not to overthrow governments, and there are many other reasons why CIA is in Vietnam. Dr. Land asked what, however, should the President publicly say about CIA's role in Vietnam. Mr. McCone said that he could supply the President with that.
+
+Chairman Clifford stated that the matter raised by Mr. McCone is an area in which he would hope that the Board might be of assistance. However, Mr. Clifford did not know how much the President could do in the way of public statements to the press. Perhaps a lot could be done within Government to stop damaging leaks of information from the various departments and agencies. Mr. Clifford said that the Board would address itself to the problem. Mr. McCone agreed that leaks are a part of the problem, and he recalled that the editor of News Week told him that he obtained information from State Department, but the editor would not name the source.
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+CORONA/ OXCART/TAGBOARD/GAMBIT
+
+TOP SECRET
+
+- 35 -
+
+N.W.185
+Docld:2493
+Page 7
+NW 88192
+Docld:34671878 Page 8

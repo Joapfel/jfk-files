@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_13743.png
+
+Convert to MarkdownSECRET
+
+Office of Security - William D. Pawley
+Two volumes
+Deletions - 10 sealed envelopes
+Volume I >
+① 24 Jan 1952 Memo to W.A. Osborne from George O'Rourke. Subj. Pawley, William Douglas, EE-7144-A.
+00/e requested security check on Pawley as potential source of foreign intelligence information. No derogatory info. on his loyalty & due to his promotion in A.S. suggest he be placed in Approved/ Caution Category.
+
+During investigation several persons described him as shady, slick business operator. General Chennault stated his record in India & China was questionable & that he was involved in attempted bribery.
+
+② Volume II
+Deletions - Three sealed envelopes
+
+③ 13 July 1954 Memo to Director from. Sheffield Edwards, Dir of Security: Subj: William W. Pawley.
+State Dept Security file indicates contained derogatory info. alleging black market activities, income tax difficulties, possible misuse & lend lease material & questionable money transactions,
+
+11112300
+
+SECRET.

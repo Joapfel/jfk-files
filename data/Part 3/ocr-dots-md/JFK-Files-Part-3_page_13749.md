@@ -1,0 +1,49 @@
+# JFK-Files-Part-3_page_13749.png
+
+Convert to Markdown**Agency Information**
+
+AGENCY : ARMY
+RECORD NUMBER : 198-10007-10002
+
+RECORD SERIES : CALIFANO PAPERS
+
+AGENCY FILE NUMBER :
+
+Document Information
+
+ORIGINATOR: ARMY
+FROM: JOSEPH A. CALIFANO, JR.
+TO: GENERAL KRULAK
+
+TITLE: CUBA AS A BASE FOR SUBVERSION
+
+DATE: 02/14/1963
+PAGES: 139
+
+<table><tr><td>Released under the John F. Kennedy<br/>Assassination Records Collection Act of<br/>1992 (44 USC 2107 Note). Case#: NW<br/>88608 Date: 03-18-2025</td></tr></table>
+
+SUBJECTS : CUBAN SUBVERSIVE ACTIVITIES
+
+DOCUMENT TYPE : PAPER, TEXTUAL DOCUMENT
+CLASSIFICATION : Secret
+RESTRICTIONS : 1C; 4
+CURRENT STATUS : Redact
+DATE OF LAST REVIEW : 02/10/1998
+
+OPENING CRITERIA :
+
+COMMENTS : Califano Papers, Box 1. Transmittal of report entitled "Cuba as a Base for Subversion" from Califano to Krulak.
+
+Department of the Army EO 13528
+
+Declassify [x] Exclude [ ] Exempt
+
+Authority __________
+
+Refer To __________
+
+Review Date 12/AUG/95 By M__J_C__Mq
+
+NO STATE OBJECTION
+TO DECLASSIFICATION
+BY [Signature] DATE 01/14/96

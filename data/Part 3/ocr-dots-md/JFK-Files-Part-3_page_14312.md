@@ -1,0 +1,57 @@
+# JFK-Files-Part-3_page_14312.png
+
+Convert to MarkdownIn his further remarks to the Board members at this
+meeting, Mr. McCone took up the subject of covert action
+programs which he then proceeded to describe to the extent
+that they involved aerial reconnaissance missions over China
+following consideration and approval by the Special NSC 5412/2
+Group.
+
+Later on in the meeting, the Board was briefed by
+Mr. Helms of CIA concerning Cuba. Mr. Helms said that after
+the abortive Cuban invasion there was a relaxation of covert
+action and intelligence collection efforts for several months
+with respect to Cuba; however, since December 1961 a major
+intelligence effort has been aimed at Cuba, involving U-2
+overflights, interrogations of Cuban refugees in Florida;
+and the obtaining of intelligence reports. In answer to a
+question by a Board member, Mr. Helms said that thought had
+been given to sabotaging petroleum which is enroute to Cuban
+refineries, but such a covert action project was awaiting
+further policy consideration. General Taylor joined the Board
+meeting at another point, in response to the Chairman's
+invitation, and among other things he discussed the subject of
+covert action activities. General Taylor asked whether the
+Board wished to indicate any reaction it might have to its
+current review of NSC 5412/2 matters, and Dr. Langer responded
+with a comment that as yet the Board's discussions had not
+gone beyond a briefing on procedures given by the Secretary
+of the Special Group. In answer to a question by Dr. Langer,
+it was General Taylor's opinion that the Special NSC 5412/2
+Group is not set up nor equipped to run a continuing check
+on the implementation of all covert action projects, and for
+this reason the Special Group places dependence upon the
+PFIAB.
+
+(When the Board met with the President on the afternoon
+of June 26, 1962, Chairman Killian mentioned to President
+Kennedy, among other things, the problem of assuring appropriate
+political control of covert actions conducted by the CIA or
+other elements of the government. Chairman Killian observed
+that the Special NSC 5412/2 Group was functioning effectively.
+As a footnote to its report to the President, Chairman Killian
+informed President Kennedy that the Board was happy to state
+that there had been resolved a problem which had recently arisen
+with respect to the Board's need-to-know regarding certain
+intelligence and covert action programs; and Dr. Killian
+felt that with the resolution of this problem, the Board could
+
+NW 185
+
+DocId:2507
+
+Page 10
+
+NW 88132
+
+DocId:34671892 Page 20

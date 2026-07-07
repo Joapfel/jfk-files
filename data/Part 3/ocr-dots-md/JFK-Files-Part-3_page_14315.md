@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_14315.png
+
+Convert to Markdown# Meeting of March 8-9, 1963
+
+In the course of this Board meeting the only consideration of any significance given to covert action matters was in connection with the visit of the DCI for a discussion of intelligence-related problems with members of the Board. The DCI, Mr. McCone, mentioned that CIA had traditionally carried out activities in the paramilitary field; however, the Department of Defense now has Special Forces operating in the paramilitary field in South Vietnam and elsewhere, which has resulted in conflicts between the CIA and DOD elements in those areas.
+
+# Meeting of April 23, 1963
+
+At this meeting, in the course of a discussion of covert action matters, the question was raised as to whether the Board should not ascertain specifically whether the President desired that the Board go into covert action programs deeply, and if that proved to be the President's wish then the Board should take steps to insure that it received full briefings from the agencies concerned. Chairman Killian stated that there were no limitations on the Board's access to such information and that this is well established.
+
+At the request of Chairman Killian, Mr. Murphy briefly informed the Board concerning the meeting which he, and Mr. Gray and Mr. Coyne had recently with Mr. Cord Meyer of CIA on the subject of covert action programs. Mr. Murphy said that the briefing covered operations in certain Latin American countries (the subject of Cuba was excluded because that was to be covered at today's Board meeting) and the briefing consisted primarily of "light touches", and was of such routine nature that it seemed to downgrade the importance which the Board attached to covert action operations and requirements.
+
+Mr. Coyne informed the Board of a request from Mr. Kirkpatrick of CIA who asked that the scheduled CIA briefing of the Board on clandestine operations with regard to Cuba, be scheduled outside of the presence of Mr. Cottrell, Deputy Assistant Secretary of State, Bureau of Inter-American Affairs, who was scheduled to join the Board meeting at the same time that the CIA briefing was to be given. Mr. Kirkpatrick explained that the DCI urged these briefings to be separate because the CIA briefing would include a discussion of covert action operations which Mr. Cottrell was not privy to.

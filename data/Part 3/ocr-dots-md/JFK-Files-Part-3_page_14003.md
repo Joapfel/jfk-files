@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_14003.png
+
+Convert to MarkdownSECRET
+
+I have known for some time, as I told you, that there are people in this Government, most particularly in the State Department, who enjoy harassing CIA in the press. I think, although I cannot prove it, that they have not been inclined to pass up this opportunity.
+
+Sincerely,
+John A. McCone
+Director
+
+Attachments as stated
+
+The Honorable Clark Clifford
+Chairman, President's Foreign
+Intelligence Advisory Board
+Washington, D. C.
+
+SEGMENT
+
+NW88192
+DocId:34671877 Page 62
+DoId:34671877

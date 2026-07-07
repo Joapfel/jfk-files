@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13830.png
+
+Convert to MarkdownSECRET
+
+they are to take standard courses at Cuban universities or other institutions in such subjects as agronomy, irrigation techniques, industrial management, etc. Even if their courses in Cuba are as represented to them before their arrival, they are undoubtedly given heavy ideological indoctrination and, like Cuban students, expected to "volunteer" for various emergency tasks such as picking coffee and harvesting sugar. Many of these probably also receive training in guerrilla tactics and other techniques of subversion.
+
+4. Other students are frankly told before they leave their home countries for Cuba that their training in Cuba will be in guerrilla warfare tactics, that it will be a rigorous program, and that they will be required to maintain strict standards of conduct and security.
+
+5. There have been a number of reports--from clandestine sources in Cuba, from sources in contact with the trainees after they have returned from Cuba, from Cuban refugees, and from a few of the trainees themselves--concerning the types of training which the young non-Cubans undergo in Cuba. The guerrilla training programs for Latin Americans in 1961 and 1962 do not appear to have been particularly well organized. In some instances, the trainees were moved to protest the fact that there were long periods when they were doing little or nothing; in other instances they were disgruntled over what they felt was harsh treatment, or when they thought too much was expected of them. The majority of the trainees, however, probably took the experience in stride.
+
+6. Included in the guerrilla training programs have been long marches through the forests and mountains, especially in the Sierra Maestra mountains where Castro carried on his guerrilla campaign against Batista. Students often are required to hike to the top of Pico Turquino, Cuba's highest mountain (6,230 feet). During the hikes, they engage in simulated guerrilla defensive and offensive exercises, are taught how to fend for themselves in the wilderness, how to find directions with compasses and maps, and how to assure the security of their encampments. Back in their camps, they are taught such subjects as means of communications among guerrilla bands, strategy and tactics of the guerrilla fighter, marksmanship, and weapons familiarization. One trainee
+
+-2-
+
+SECRET

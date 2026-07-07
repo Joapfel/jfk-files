@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_14026.png
+
+Convert to MarkdownTOP SECRET
+
+determine reasons for discontent and to learn of any plans to overthrow the government. (Two earlier coups had been attempted. In November 1960 junior paratrooper officers took part. In 1962 two Air Force pilots bombed the palace in the hope of killing members of the royal family.) In the summer of 1963 CIA's policy was tied to clear and present danger to U. S. interests. If CIA saw threats to the Diem regime, CIA would give warnings to Diem so as not to spoil CIA's contacts with the regime. In the summer, the intense feelings over the Buddhist issue were graver than any that CIA had seen in Vietnam. There were major popular grievances against the regime. The regime insisted it had the answers to all questions and that any opposition was either venal or stupid. All was decided from the Palace, and the Generals did not have much to do. The regime had a total lack of appreciation of public relations both at home and internationally. While the Buddhist suicides by burning were taking place there were 6 or 8 potential coup groups being formed, some of them being alliances between civilians and the military. The situation was crystallized with the Government raids on pagodas, resulting in public outcry. Diem convinced his General, that these repressive actions were necessary to maintain the war effort, when in fact Diem was making a political move against a Buddhist political operation. (Mr. Colby said there was no tie between the Bhuddists and the Vieg Cong, although there had been some Communist penetration of the Buddhist priests dating back before 1954.) The anti-Diem Buddhist movement actually began as a concept to protect Buddhism against Catholic supremacy. When the Government raided the pagodas, this almost set off a coup attempt at that time but the coup planners had not yet obtained support of sufficient troops. Meanwhile, CIA was watching developments carefully, Mr. Colby said. In answer to a question from Mr. Coyne, he stated CIA funds and activities were
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+- 51 -
+
+CORONA/oxcart/TAGBOARD/GAMBIT
+
+TOP SECRET
+
+NW 185-
+DocId: 2493
+Page 22
+
+NW 88192-
+
+DocId:34671878 Page 17

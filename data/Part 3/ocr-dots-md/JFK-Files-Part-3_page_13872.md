@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_13872.png
+
+Convert to MarkdownThe police in Rio de Janeiro report they have uncovered a pro-Castro plot to organize a revolution in Brazil. The police charge that Cubans who had undergone training in the Soviet Union and Communist China, have slipped into Brazil to train guerrilla bands in the northwest.
+
+Brazilian news reports predict a vigorous anti-Communist campaign there as a result of the affair. (CIA FBI 07, Rio de Janeiro, 14 December, OFFICIAL USE ONLY)

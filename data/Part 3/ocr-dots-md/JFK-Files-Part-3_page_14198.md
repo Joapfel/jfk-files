@@ -1,0 +1,53 @@
+# JFK-Files-Part-3_page_14198.png
+
+Convert to Markdown(168. 10/23/62 Continued)
+
+or operate the above items; and any other classes of material here-
+after designated by the Secretary of Defense for purposes of effectu-
+ating this Proclamation.
+
+The President authorized the Secretary of Defense to employ the
+land, sea and air forces of the U.S. (in cooperation with any forces
+made available by other American States) to carry out this Proclama-
+tion,
+
+Further, the President authorized the interception of vessels or
+craft proceeding toward Cuba and the taking into custody of any
+vessel or craft failing to comply with directions to identify itself
+and submit to visit and search -- with force to be used only to the
+extent necessary.
+
+169. 10/23/62 - A message passed within Cuba from Las Villas to Placetas suggested an intent to conceal "equipment" and "fuel station" in a railroad tunnel in an area south of the Remedios IRBM site. The message read: "Today situate equipment in the railroad tunnel of Placetas. Also situate the fuel station in this place."
+(Source: Joint Evaluation Report, 10/24/62)
+
+170. 10/23/62 - The Director, DIA, initiated the issuance of daily shipping reports and of a summary of Soviet ship movements.
+
+171. 10/24/62 - On this date Khrushchev "categorically stated"
+to American businessman W. E. Knox, in a conversation held in the
+Kremlin, that "the weapons which the Soviet Union had furnished to
+Cuba included antiaircraft missiles and ballistic missiles with both
+conventional and thermonuclear warheads." Khrushchev added that "even
+the Americans would not trust their NATO allies by turning over ther-
+monuclear devices to them." (Source: N.Y. Times Magazine, 11/18/62)
+
+172. 10/25/62 - The DIA initiated the issuance of a Special
+Intelligence Summary on Cuba.
+
+173. 10/26/62 - James Reston, writing in the New York Times,
+stated: "Privately, there are several misgivings. First, many
+people find it hard to believe that the offensive Soviet missile sites
+in Cuba suddenly mushroomed over the weekend. Accordingly, there is
+considerable suspicion either that the official's intelligence was
+not as good as maintained, or the Administration withheld the facts."
+
+174. 10/28/62 - SCRAMBLER communications were established between the USSR and Cuba. "We consider these links as the best candidates identified to date for Soviet command and control of the missile forces in Cuba." (Source: Joint Evaluation Report, 10/28/62)
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+
+TOP SECRET
+
+SPECIAL LIMITED DISTRIBUTION
+
+NWPagd628
+
+DocId:34671886 Page 84

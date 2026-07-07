@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_14009.png
+
+Convert to MarkdownThe consequences are as follows:
+
+1. The White House, and more particularly the State Department, are rightfully disturbed because they do not know the effect this publicity might have on their responsibilities.
+
+2. CIA's methodology and findings have been questioned because a vast amount of information upon which our conclusions are based was not disclosed (and much of it cannot be disclosed), and hence the legitimacy of our conclusions is doubted by some experts and in the public mind.
+
+3. Congressional leaders (Senators Russell, Saltonstall, Stennis, Chairmen Vinson and Cannon) are righ-fully disturbed and have so expressed themselves.
+
+4. All of this will be used to emphasize the need for a "Watchdog Committee" and legislation on this is more probable now than at any time in the past.
+
+5. A carefully planned DDP operation for covert release of information, and developed at my direction, has been destroyed. The purpose of DCI's trip to brief Heads of State in Britain, France, West Germany and Italy has been impaired if not destroyed.
+
+6. Activities have been contrary to my specific written and oral orders and warnings of DDCI at staff meetings when the subject was discussed.
+
+As a result it is my intention to issue instructions for the conduct of all public relations activities in the future, their careful coordination at the level of the White House and the State Department, and until these orders are issued I wish absolutely no contact whatsoever, no comments, no discussions with the press except with my personal authorization.

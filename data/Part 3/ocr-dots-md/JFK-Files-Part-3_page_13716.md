@@ -1,0 +1,150 @@
+# JFK-Files-Part-3_page_13716.png
+
+Convert to Markdown# TOP SECRET
+
+11
+
+97
+
+of this particular operation because of its sensitivity.
+
+Mr. Johnston. And that is the reason that this instruction
+was given about the file, this particular file or this
+particular document?
+
+AMLASH Case Officer. Yes. I can't see at this time that
+anything else would have been thought of at that time.
+
+Mr. Johnston. What suddenly required that order to be
+given?
+
+AMLASH Case Officer. Well, nothing specific except that
+by December of '63, the man with whom we were dealing, AMLASH I,
+was going back, or was probably back by that time already in
+Cuba. It was primarily probably I would say as much to protect
+his security as anything else.
+
+Mr. Johnston. So that nobody else -- did this have the
+effect of blocking knowledge of the AMLASH operation from other
+people within the Agency?
+
+AMLASH Case Officer. Probably from my office down. Certainly
+not Fitzgerald, not the Director or not anybody else who needed
+to know about the operation, absolutely not. This was just
+circulation within other components of SAS. That would not --
+in other words, a note of this type would only mean that I
+would be, or whoever would clear the order would be asked
+before this file was allowed to circulate or was given to
+anybody.
+
+Mr. Johnston. And I don't want to indicate -- my question
+
+TOP SECRET
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+1
+
+2
+
+3
+
+4
+
+5
+
+6
+
+7
+
+8
+
+9
+
+10
+
+11
+
+12
+
+13
+
+14
+
+15
+
+16
+
+17
+
+18
+
+19
+
+20
+
+21
+
+22
+
+23
+
+24
+
+25
+
+Ward & PAul
+
+Phone (Area Code) 544-6000
+
+410 First Street, S.E., Washington, D.C. 20003
+
+N\W~§S~O~U~T~P~O~L~D~E~\~2~\\~P~\\~2~\\~0~\\~C~\\~0~\\~S~\\~P~\\~A~\~J~P~A~G~E~\~J~J~Q~U~\~L~Q~\~

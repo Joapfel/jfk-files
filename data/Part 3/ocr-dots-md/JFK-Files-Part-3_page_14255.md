@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_14255.png
+
+Convert to MarkdownSECRET
+
+**Agenda item 3:** The writer will brief the Board on the details of these penetrations. Dr. Baker will brief the Board on the technical judgments which have been made on the subject by the Baker Panel. (See enclosed draft report prepared by the Panel.) This Panel consists of the following individuals:
+
+Dr. William O. Baker - Board Member
+Dr. Edward E. David - Director, Visual & Acoustic Research, Bell Telephone Laboratories
+Dr. Andrew M. Gleason - Department of Mathematics Harvard University
+Dr. John W. Tukey - Department of Mathematics Princeton University
+Mr. J. R. Pierce - Research Staff Bell Telephone Laboratories
+
+**Agenda item 5:** Mr. Robert Bannerman, Chairman of the USIB Security Committee, will brief the Board on the highlights of the study which his Committee has made thus far with respect to the general security implications of the audio penetrations of the Embassy in Moscow. (Hopefully, by Board meeting time, we will be in possession of a written USIB report on this subject as requested by Mr. Bundy.) Mr. G. Marvin Gentile, Director of Security, Department of State, will join the Board for Mr. Bannerman's presentation and will be prepared to respond to any questions which the members may have relative to the internal operations of the State Department's security system. (In Iron Curtain countries the State Department is primarily responsible for the security "sweeps" and associated actions which are taken in an effort to detect and counter hostile penetrations which may be attempted against official U. S. installations, personnel and classified information in those countries.) (See enclosed State memo to Coyne, dated 6-1-64.)
+
+**Agenda item 6:** General Blake, Director of NSA, and/or his Deputy, Dr. Tordella, will brief the Board on the technical assessments thus far made at NSA relative to the impact, if any, of these penetrations on the cryptographic systems which are employed by elements of the State and Defense Departments and CIA in the handling of classified communications between Washington and our official installations in Iron Curtain countries and elsewhere.
+
+**Agenda item 12:** Dr. Jerome Wiesner will discuss with the Board any findings, conclusions and recommendations which may have resulted from his examination at the Moscow Embassy of the actions taken and contemplated with respect to these very serious penetrations.
+
+J. Patrick Coyne
+
+SECRET
+
+NW186
+DocID:2503
+Page 22
+NW 88132
+Doctd:34671888 Page 23

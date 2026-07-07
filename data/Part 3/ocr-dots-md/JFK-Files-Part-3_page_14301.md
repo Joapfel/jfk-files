@@ -1,0 +1,5 @@
+# JFK-Files-Part-3_page_14301.png
+
+Convert to Markdown# Meeting of June 30-July 2, 1961:
+
+A portion of this Board meeting was attended by Mr. Mc-George Bundy who, at one point, read to the Board the letter from President Kennedy appointing General Taylor as Military Representative. Mr. Bundy emphasized that General Taylor's appointment was not exclusively military in character, for the President desired that General Taylor counsel him with respect to certain intelligence matters, and in the field of covert action activities the President wished to look to General Taylor for special guidance; and therefore the President had appointed General Taylor to serve as Chairman of the Special 5412/2 Group. Mr. Bundy mentioned that recently a two-hour briefing had been provided to the President, Mr. Bundy, General Taylor and Mr. Coyne by Messrs. Dulles and Bissell concerning major covert action programs currently being carried out by the Agency.

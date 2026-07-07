@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13885.png
+
+Convert to Markdownus of his rage when a Chilean woman strolled into the embassy with full militia regiments, including a pistol, to claim her mail.
+
+"One would assume that to the extent the Cubans are providing training in guerrilla warfare to Latin American extremists, these trainees would be thrown into any fighting which might develop, but that no publicity would be given to their presence at this time. Persistent, but unreliable scowling, rumours would have it that there are a large number of Africans (usually described on having rings in their noses and ears) being trained somewhere in the island (the province of Matanzas is sometimes mentioned); they have been variously described as Guamanian, Guinean, and Congolese. I would imagine that the Cubans would be delighted to provide military training to left-wing Congolese dissidents or Angolans, but I have not a particle of evidence that any such people are here."
+
+"The international brigades in the Spanish Civil War occupy an important place in left-wing mythology. It would be quite natural for the Cubans to dream of being able to secure similar support if fighting took place on the island. It seems highly unlikely, however, that foreigners would be brought to Cuba for this purpose in advance and the present rather limited effort seems to involve foreigners who for other reasons happened to be on the island when the crisis broke out."
+
+(CONFIDENTIAL)
+
+CONFIDENTIAL
+
+2
+
+NWI 88608 DocID:32423995 Page 137

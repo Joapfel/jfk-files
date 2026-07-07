@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_13734.png
+
+Convert to Markdown1110224
+
+SECRET
+
+I would like to see:
+
+1) D.D.O. files concerning James Carl Roy, and JBR under any of his aliases
+
+2) Real names of Crypographic references in 8 June 1968 Ottawa 5446 Telex
+SMABOVE 19
+LNERGO REP
+SMABLE
+
+3) 3rd Agency
+
+a) INS- Report from San Francisco Field Office of INS dtd 6/17/68 subject: CHANG, Fang Nang (A 17 - 288-758) [Ray's name given as Eric S Oalt]
+
+b) State Dept Telexes
+London 10573 7/3/68
+London 10554 7/3/68
+State 195240 7/2/68
+London 10017 6/18/68
+State 183535 6/14/68
+Lisbon 1567 6/14/68
+State 181198 6/12/68
+London 9738 6/11/68
+Ottawa 1813 6/8/68
+
+Thanks,
+Alan Hausman
+
+SECRET
+
+NW 78334 DocId:32272026 Page?

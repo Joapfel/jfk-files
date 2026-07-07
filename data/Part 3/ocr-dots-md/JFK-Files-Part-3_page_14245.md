@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_14245.png
+
+Convert to MarkdownTOP SECRET
+
+In response to a query from Dr. Baker, Colonel Steakley acknowledged that our reconnaissance activity gives the Soviets "training" in detection and in the development of countermeasures.
+
+Mr. Coyne asked whether there is not considerable duplication of intelligence collection as a result of the multiplicity of reconnaissance missions being flown in the same target areas. Colonel Steakley said that some duplication results, but in any event a single ELINT mission will not always pick up all the desired intelligence, whereas follow-on missions will pick up emissions which might not have been encountered on the previous run.
+
+A question was asked by Mr. Coyne about the JRC's working relationship with the NRO. Colonel Steakley said that this is satisfactory, even though not documented.
+
+Dr. Baker asked whether the system is fast enough to accommodate urgent intelligence requirements which might be formulated by non-military agencies, calling for overflights of denied territory, for example. Colonel Steakley said that this capability is adequate and he cited the example of the recent Alaskan earthquake, photographs of which were delivered to Washington within 15 hours after the request was made for them. In answer to a query by Dr. Baker along this same line, Colonel Steakley said that the System is capable of exercising straight-line channel of command to meet intelligence requirement which, e.g., the Secretary of Defense might suddenly need to have fulfilled -- such as a carrier-based U-2 mission over a particular intelligence target all of a sudden. Colonel Steakley expressed confidence that the JRC mechanism and resources are such that suddenly-arising intelligence reconnaissance needs can be met quickly.
+
+Colonel Steakley's visit with the Board was completed and he departed the meeting at 3:30 p.m.
+
+In executive session (with Dr. Baker in the chair during Mr. Clifford's absence) Board members considered and approved proposed letters from the Chairman requesting that State, Defense, CIA and the DCI update and revise the scope and coverage of their respective annual reports to the Board concerning the conduct of their intelligence-related responsibilities. These letters were approved and subsequently dispatched by the Chairman.
+
+At 3:55 p.m. Chairman Clifford returned from the President's office and rejoined the Board meeting.
+
+The Board meeting was joined at this point by the DCI, Mr. McCone; and Messrs. Kirkpatrick, Fitzgerald, and Meyers of CIA. Chairman Clifford said that the Board would appreciate hearing from the DCI concerning items of interest to Board members as set out in the list previously provided to the DCI, as well as any other matters which the DCI might wish to cover.
+
+At the DCI's suggestion, Mr. Fitzgerald took up the subject of Cuba which he had discussed previously at the meeting of the Board in April. He reported the recent defection to the U. S. of a Cuban military officer who
+
+JDEALIST/CORONA/OXCART
+
+TOP SECRET
+
+NW88192
+
+DocId:34671888 Page 13

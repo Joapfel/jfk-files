@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_14151.png
+
+Convert to Markdown(29. 3/21/62 Continued)
+
+"not preclude the liberal provision of Bloc advisers, instructors, and service personnel, the provision of such defensive weapons and equipment as surface-to-air missiles and radars, and such improvement of Cuban naval and air facilities as would enable them to service Soviet units." A foreword to the above estimate states that "Our information on internal developments is not as complete or as reliable as we could wish. On some matters, it is seriously inadequate . . . In general, the information available is sufficient to support the estimate."
+
+30. 3/27/62 - The U.S. stated that the Sino-Soviet bloc has furnished $100 million worth of military equipment and technical services to Cuba, and that several hundred Cuban military personnel have received training, including pilot training, in the bloc. "Arms include 5 to 75 MiG jet fighters; 150 to 250 tanks; 50 to 100 assault guns; 500 to 1000 field artillery; 500 to 1000 antiaircraft artillery; 500 mortars; 200,000 small arms, and some patrol vessels and torpedo boats. No evidence of missiles, missile bases or bombers."
+(Source: Chronology prepared by the State Department at the request of Senator Morse.)
+
+31. 4/11/62 - DIA initiated mee-ings with JCS and CIA personnel to discuss refugee interrogation guides for use at the Opa-locka center and to review intelligence requirements on Cuba.
+(Source: Oral report to Board by Director, DIA, 11/9/62)
+
+32. Spring of 1962 - "The USSR's decision to develop Cuba as a military base must have been made by the spring of 1962 and prepara-tions within the USSR must have been under way from that time on. There also must have been planning activities in Cuba, in particular, reconnaissance and survey work. The only indication of these opera-tions which can be found is a single intercepted personal message (4/11/62) addressed to a Russian in Cuba who had previously been at the Kapustin Yar missile test range. This fragment was not judged important enough to warrant inclusion in current intelligence publications".
+(Source: CIA Chronology, 11/7/62)
+
+33. May 1962 - A Cuban "Indications Center" was established at CINCLANT on the recommendations of DIA and NORAD.
+(Source: Oral report to Board by Director, DIA, 11/9/62)
+
+34. 5/31/62 - On this date the NPIC began publishing a series of formal reports dealing with NPIC's evaluation, from a photographic standpoint, of refugee and agent reports on Cuba. Between 5/31 and 10/5, NPIC examined 138 refugee and agent reports. The CIA Chronology of 11/7/62 stated that only three of these reports cited missile activity which could not be linked to the SAM and cruise missile de-ployments, and "NPIC's evidence negated those three." Elsewhere in the CIA Chronology it is stated "CIA current intelligence was ordered on 14 August not to publish any information on the construction of
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+NW-185
+Docld: 2501
+Page 36
+NW 88192
+DocId:34671886 Page 37

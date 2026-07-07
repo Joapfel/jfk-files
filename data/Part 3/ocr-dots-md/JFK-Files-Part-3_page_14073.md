@@ -1,0 +1,60 @@
+# JFK-Files-Part-3_page_14073.png
+
+Convert to MarkdownPRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD AGENDA
+
+August 5, 1964
+
+1. 8:30 P.M.
+   Depart Andrews AFB via Special Mission
+   aircraft (Constellation)
+
+2. 11:00 P.M., CST
+   Arrive Offutt AFB
+   Remain overnight at Offutt Inn
+
+August 6, 1964
+
+| Item | Time | Subject |
+|---|---|---|
+| 1. | 8:00 - 9:30 | Meeting with General Thomas Power, CINCSAC, and SAC Command Post Status Briefing |
+| 2. | 9:30 - 10:00 | Intelligence Warning |
+| 3. | 10:30 - 11:00 | Intelligence War Planning |
+| 4. | 11:00 - 12:15 | Soviet Bloc Threat |
+|   |   | a. Information Deficiencies |
+|   |   | b. Coverage Deficiencies |
+|   |   | c. Impact on the Single Integrated Operational Plan (SIOP) |
+
+5. 12:15 - 1:00 Lunch
+
+6. 1:00 - 2:00 Continue with Item 4
+
+7. 2:00 - 2:30 Intelligence Data Handling System (IDHS)
+
+8. 2:30 - 3:00 SAC-NSA Special Project
+
+9. 3:10 Depart Offutt AFB
+
+10. 9:10 (approx.) Arrive Andrews AFB
+
+August 7, 1964
+
+1. 9:00 - 9:30 Chairman's Time
+
+2. 9:30 - 10:15
+   Current Intelligence Briefing on the
+   Situations in South Vietnam, North Vietnam,
+   Laos, Cambodia, Communist China, Cyprus,
+   Congo, Cuba
+
+Mr. Ray Cline
+Deputy Director of Intelligence, CIA
+
+GAMBIT/FULCRUM
+
+Handle Via BYEMAN
+Control System
+
+TOP SECRET
+
+HWSB12
+DocID:34671882 Page 4

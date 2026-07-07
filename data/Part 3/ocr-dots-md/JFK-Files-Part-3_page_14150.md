@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_14150.png
+
+Convert to Markdown29. 3/21/62 - The DCI circulated NIE 85-62 on "The Situation and Prospects in Cuba". It stated that Cuban military capabilities were "essentially defensive" and that "we believe it unlikely that the Bloc will provide Cuba with strategic weapon systems or with air and naval capabilities suitable for major independent military operations overseas. We also believe it unlikely that the Bloc will station in Cuba combat units of any description, at least for the period of this estimate (the next two years). This attitude would
+
+(CONTINUED ON PAGE 5)
+
+- 4-a -
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+NW 185
+Docld:2501
+Page 35
+NW 88192
+
+Doctd:34671886 Page 36

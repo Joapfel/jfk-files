@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13720.png
+
+Convert to Markdown15
+
+# TOP SECRET
+
+101
+
+requirements for AMLASH, at a minimum he had to know that we had an agent with this particular access. But he knew about the operation? Not necessarily so.
+
+Mr. Johnston. Do you find this consistent with the nature of the operation as of November 22nd, 1963?
+
+AMLASH Case Officer. Explain that. I don't understand.
+
+What are you -- what is your question?
+
+Mr. Johnston. As of November 22nd, 1963, you were now involved in coup plotting with AMLASH, and were delivering or planned to deliver the equipment, rifles, sights, explosives, to assist him in that coup. It seems inconsistent, suddenly in February, to go back to trying to get espionage information from him.
+
+AMLASH Case Officer. First of all, I have to address that question from this point. Receiving a memo from King at that time doesn't necessarily mean that we are going to levy the requirements on AMLASH.
+
+Mr. Johnston. Oh, I agree with that.
+
+AMLASH Case Officer. So, to clarify the other part of your question, that if we needed intelligence after the October '63 meeting in which he said I'm not going to be strictly a source for intelligence, I want to do something more for my country, it would not be in any way out of the ordinary to ask him to send information that we felt was required on the outside.
+
+TOP SECRET
+
+7600410C UU J.3
+
+WARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+Phone (Area Code) 544-8000

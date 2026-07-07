@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_14297.png
+
+Convert to Markdown# BRIEFING OF BOARD'S COVERT ACTION PANEL
+
+## BY STATE DEPARTMENT REPRESENTATIVES
+
+September 6, 1963
+
+Mr. Murphy, Dr. Langer and Mr. Coyne met with Mr. Thomas Hughes, Director of the Bureau of Intelligence and Research of the Department of State on September 6, 1963, for a discussion of several matters in the intelligence area.
+
+With regard to covert action matters Mr. Hughes said that his Bureau in the Department of State is responsible for coordinating all NSC 5412/2 matters throughout the Department. Mr. Hughes felt that this job was being performed satisfactorily but he regreted that the State Department played a relatively minor role in Special Group activities. Mr. Hughes also expressed concern about the DCI's failure to provide sufficient time in advance of Special Group meetings for the coordination of covert action proposals which are to be discussed at the meetings and concerning which the Department of State has an interest.
+
+In a discussion with Under Secretary Alexis Johnson, the Panel was told that in Mr. Johnson's opinion CIA is now coordinating its covert action programs with the appropriate elements of the Department of State. He did comment, however, that new programs are submitted to the Department at the very last moment, because the Director of Central Intelligence wishes to sign off personally on new covert action proposals before they are submitted to the Department of State or to the Special Group.
+
+Secretary Johnson, in reply to a question posed by the Panel, said that the Special Group does not follow the general practice of reviewing periodically the status of implementation of covert action programs approved by the Special Group; and he thought it would be a good idea to have such reviews made, possibly by the Bureau of Intelligence and Research in the State Department.

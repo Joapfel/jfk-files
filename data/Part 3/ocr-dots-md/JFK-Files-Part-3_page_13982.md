@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13982.png
+
+Convert to MarkdownChairman Clifford then turned to the January 13, 1964, letter which he had received from the DCI, volunteering information concerning the events which had led to the recent CIA release of information on the estimate of the Soviet economy, with resulting critical editorial reaction in the United States press. Mr. Clifford asked that Board members study the DCI's letter as the basis for later discussion. Mr. Clifford said that he had found the letter to be curiously defensive, and he expressed concern over the danger inherent in what appeared to be an almost obsessive interest on the part of the DCI in regard to the CIA's "image". The Chairman also observed that according to newspaper accounts the DCI was at that moment in Europe visiting several heads of state, presumably on intelligence and other matters.
+
+Mr. Murphy recalled that previously the Board had urged closer relations between the President and the DCI on intelligence matters and he wondered if the DCI's current trip abroad is an indication that this close relationship exists between the DCI and President Johnson. Mr. Clifford said that it could only be speculated that sometimes a new President is susceptible to suggestions offered by experienced Presidential advisers, and in this instance the President may possibly have received a suggestion from the DCI that the European trip be made and perhaps the President acquiesced in reliance upon the DCI's judgment.
+
+Mr. Clifford left the Board meeting to take a telephone call from Secretary of Defense McNamara. Upon his return to the meeting Mr. Clifford said that the Secretary of Defense had called to emphasize the importance which he placed on the NRO problem which would be related to the Board later in the day by NRO Director McMillan; and Secretary McNamara had indicated that he personally was disturbed about the competition and back-knifing which had become evident in the NRO program. Mr. Clifford noted that General Carter
+
+HANDLE VIA BILBIN
+Control System
+
+SECRET
+
+SECRET
+
+NW 88152
+
+Doody 2492
+Page 40
+
+Docid:34671877 Page 41

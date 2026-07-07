@@ -1,0 +1,37 @@
+# JFK-Files-Part-3_page_14170.png
+
+Convert to Markdown(81. 9/4/62 Continued)
+
+"information available as fast as it is obtained and properly verified.
+There is no evidence of any organized combat force in Cuba, from any
+Soviet bloc country, of military bases provided to (sic) Russia, of
+a violation of the 1934 treaty relating to Guantanamo, of the presence
+of ground-to-ground missiles, or of other significant offensive capability
+either in Cuban hands or under Soviet direction and guidance. Were it
+otherwise, the greatest issues would arise. The Cuban question must be
+considered as a part of the worldwide challenge posed by Communist threats
+to peace . . . It continues to be the policy of the United States that the
+Castro regime will not be allowed to export its aggressive purposes by force
+or the threat of force. It will be prevented by whatever means may be
+necessary from taking action against any part of the Western Hemisphere . . .
+
+82. 9/4-5/62 - "General Carter briefed a number of Congressional leaders, including the Senate Foreign Relations and Armed Services Committees". (CIA Chronology, 11/14/62)
+
+83. 9/5/62 - This was the first U-2 mission for September (of the two which had been authorized "as a routine matter" by the Special Group on July 19 -- based on the DCI's recommendation that "U-2 flights over Cuba be continued at their current level of two a month"). This flight (and the August 29 flight) covered areas which an retrospect are known to have been the sites of MRBM and IRBM installations -- but the September 5 photography "gave no recognizable evidence that any construction was then under way, although re-examination showed a few vehicles and some construction material at Guanajay Site 1 on August 29. In fact there was probably no ballistic missile equipment in Cuba at that time." (Source: CIA Chronology, 11/7/62)
+
+84. 9/5/62 - On this date photograph: of the Remedios IRBM site was negative, but road improvements began shortly thereafter, and a flow of construction from the port of Isabela, on the north coast . . . . . . . . "the date at which the site acquired a recognizable photographic signature is not determinable. The estimated date for the beginning of major construction is about 1 October". (Source: CIA Chronology, 11/7/62)
+
+85. 9/5/62 - A CIA U-2 mission developed photographic evidence of MIG-21s in Cuba. (Source: NPIC)
+
+86. 9/5/62 - Senator Keating, speaking on the floor of the Senate in response to Senator Engle's earlier remarks that day (see Items 60 and 64, above):
+
+I have said that the whole story has not been told the American people. That is still the case . . . even after the latest White House announcement yesterday.
+
+I apologize for the embarrassment I am about to cause the Senator from California. On the 14th day of August, in an effort to get some official information, I wrote to the Department of State to ask them about Cuba and the buildup there. Sixteen days later on
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+Page F

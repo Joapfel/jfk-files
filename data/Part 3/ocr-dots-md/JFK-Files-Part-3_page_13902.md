@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_13902.png
+
+Convert to Markdown# Board Report of January 20, 1962
+
+Rec. #32: That the Director of Central Intelligence, in consultation with the U. S. Intelligence Board, review the functions of the U. S. Intelligence Board's Watch Committee and National Indications Center, to determine their effectiveness in carrying out their mission of providing early warning.
+
+# Board Report of March 8, 1963
+
+Rec. #49(11) (Based on the review of intelligence coverage, assessment and reporting by U. S. agencies with respect to the Soviet military buildup in Cuba in 1962): That concerted efforts be made to (1) devise an effective mechanism for the integration of assessment (and cumulative periodic appraisals) of early-warning and indicator-type intelligence and prompt reporting thereof to policy-making and command officials; and (2) conduct intensified research concerning automatic data processing techniques to facilitate the review and assessment of the great volume of material dealt with in the United States intelligence community.
+
+## Related Board Recommendations Regarding Improved Communications Capability for the Quick Transmittal of Vital Intelligence Data
+
+# Board Report of October 17, 1961
+
+In lieu of a recommendation, this was a report to the President on progress achieved by the Defense Department in performing its share of the responsibility for the efficiency of the Critical Communications (CRITICOM) Network for the quick transmittal of vital early warning and other intelligence data from overseas posts to headquarters in Washington.
+
+# Board Report of January 20, 1962
+
+Rec. #27(11) (Based on review of U. S. intelligence activities in seven Middle Eastern countries): That the Defense Department equip field elements of the Critical Communications (CRITICOM) Network with capability for rapid communication of critical messages among major and subordinate military commands in the field.
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+TOP SECRET
+
+- 2 -
+
+NW 185
+Docd:2490
+Page 12
+DocId:34671875 Page 17

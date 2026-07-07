@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_14138.png
+
+Convert to Markdownmemorandum read: "Later was delayed due to disagreement on account of training required."
+
+There was also an October 12, 1962 addendum to the above-mentioned October 11 memorandum from Mr. Parrott to Mr. Bundy, stating: "Later." The memorandum related that, according to Mr. Knocke, Mr. McCone had decided the day before (October 11) that these flights must be either entirely overt or entirely covert, and he didn't particularly care which so long as they were accomplished as soon as possible. In Mr. McCone's absence, General Carter had come to an agreement with General McKee, Vice Chief of Staff of the Air Force, along those lines on October 11; later, however, Mr. Gilpatrick said that this was not his understanding of the terms of authorization from higher authority. Mr. Gilpatrick felt that the idea was that a uniformed pilot should operate the Agency's vehicle.
+
+On October 12 at 12:45, General Carter had a meeting with Mr. Bundy and at that time General Carter stated that the Agency operation was ready to go except for weather, and that this would hold it up until at least Sunday, and meantime the SAC pilot would have received the necessary training. It was agreed that if the pilot was sufficiently trained by the earliest time the mission could be mounted, the flight would go, with all other arrangements within the Agency framework. If the pilot were not ready by the time the vehicle was ready, the mission would be mounted as a completely Agency operation, i.e., with a civilian pilot. According to Mr. Lay, the USIB had taken the following actions at its October 10, 1962 meeting with respect to the targets listed in the COMOR paper of October 6: (1) The Group I targets were not discussed by USIB, the implication being that there was no problem from the point of view of USIB's jurisdiction. (2) Groups II and III should be covered as rapidly as possible initially, and after that the frequency of coverage would be further examined. (3) COMOR was to re-do the section of the October 6 paper dealing with Group IV, with targets to be broken out in categories of priority, and USIB would consider this new paper on October 17. USIB did not consider any operational aspects, but confined themselves to the importance of the targets and the frequency of coverage.
+
+## Minutes of the Special NSC 5412/2 Group
+
+The following summarizes the minutes of the Special Group Meetings which were identified by Mr. Parrott as including consideration of the subject of Cuba.
+
+Handwritten notes via Blyman
+Control System
+
+- 6 -
+
+Handwritten notes via TALENT-KEYHOLE Channels
+
+TOP SECRET
+
+NW 185
+Docld 2501
+Page 23
+NW 88192
+DocId:34671886 Page 24

@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_13778.png
+
+Convert to MarkdownUNCLASSIFIED
+
+The following quotations are taken from broadcasts in the spring of 1962:
+
+1 May 1962, speech by Ernesto Guzvara:
+
+"Sometimes some comrades in Latin America asks us what we think of this or that place, how shall the problem be faced in this or that place. We always answer that there is no set way to seize power and that the working class, helped and strengthened by the peasant class, must never seek the most bloody battle, because it will cost thousands and thousands and millions of lives of their sons. But the seizure of power by the working class is a historic necessity, and no one can oppose history.... The years ahead, comrades, will be the scene in all of America of constant, fratricidal struggles."
+
+8 April 1962, commentary on Ecuador:
+
+"As of today, Arosemena, the people are rising up in arms against you, your infamous coalition government, the reactionary elements of the army, the bosses, the powerful, the exploiters, and above all, imperialism, in order to fulfill the slogans that you proclaimed and betrayed: land reform, tax reform, and national dignity. The people, Arosemena, never forgot their word."
+
+4 April 1962:
+
+"The present government of Ylíوزa Fuentes must be forced to abandon office, and the Congress, composed mainly of deputies who hold office as a result of fraud and imposition, must be dissolved."
+
+22 March 1962:
+
+"Cuba has said, and has repeated a thousand times, that it is not necessary to export revolution, because each of the oligarchical, tyrannical, and despotic governments under which America suffers is itself preparing the conditions necessary for the people to rise up against it. And the people who suffer those proimperialist, bloody governments do not need to have parachutists drop into their mountains. They themselves seek solutions for their problems. The only thing of which Cuba can be accused is of having opened the way of having won its freedom fighting in pacovilla warfare against a cruel dictatorship."

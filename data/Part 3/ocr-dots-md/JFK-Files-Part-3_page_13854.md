@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13854.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+<table><tr><td>SECRET<br/>(When Filled In)</td></tr></table>
+
+CLASSIFICATION - DISSEMINATION CONTROLS
+
+<table><tbody><tr><td>COUNTRY</td><td colspan="2">ARGENTINA / URUGUAY / CUBA</td><td>REPORT NO.</td><td>TDCS -3/537,168</td></tr><tr><td>SUBJECT</td><td colspan="2">ACTIVITIES OF ARGENTINE PERONIST TERRORISTS</td><td>DATE DISTR.</td><td>13 FEBRUARY 1963</td></tr><tr><td>DATE OF INFO.</td><td colspan="2">10 FEBRUARY 1963</td><td>PRECEDENCE</td><td>ROUTINE</td></tr><tr><td>PLACE & DATE ACQ.</td><td colspan="2">URUGUAY, MONTEVIDEO (11 FEBRUARY 1963)</td><td>REFERENCES</td><td>IN 671Ø1</td></tr><tr><td>APPRaisal</td><td colspan="2">2 (THAT THE SUBSOURCE MADE THE REPORTED STATEMENTS) MENTS)</td><td>HUM-</td><td>2202</td></tr><tr><td>SOURCE</td><td colspan="2">A PERSON IN CONTACT WITH PERONISTS IN URUGUAY (B) FROM A CONTACT (F) IN PERONIST CIRCLES.</td><td colspan="2"></td></tr></tbody></table>
+
+1. NORMA KENNEDY AND FIVE OTHER ARGENTINE TERRORISTS ARE CURRENTLY IN MONTEVIDEO HAVING RECENTLY ARRIVED FROM CUBA WHERE THEY UNDERWENT GUERRILLA WARFARE TRAINING. THEY PLAN TO GO TO ARGENTINA IN THE NEAR FUTURE WHERE THEY WILL ORGANIZE GUERRILLA WARFARE OPERATIONS. (FIELD COMMENT: KENNEDY AND HER GROUP WERE REPORTED UPON BY THE SAME SOURCE IN AUGUST 1962 WHEN THEY ARRIVED IN URUGUAY CLANDESTINELY FROM ARGENTINA ENROUTE TO CUBA.) (SOURCE COMMENT: KENNEDY AND HER GROUP MAY BE HIDING ON A RANCH NEAR FRAY BENTOS, URUGUAY, OWNED BY JULIO GALLEGO SOTO, ARGENTINE)
+
+<table><tr><th style="text-align:center; vertical-align:middle;">SECRET</th><th colspan="15" style="text-align:center; vertical-align:middle;">CLASSIFICATION - DISSEMINATION CONTROLS</th><th style="text-align:center; vertical-align:middle;">GROUP 'I'<br>Excluded from automatic<br>downgrading and<br>declassification</th></tr><tr><td colspan="16" style="text-align:center;">DA IN 16839</td></tr><tr><th scope="col" style="text-align:left;">STATE/INR</th><th scope="col" style="text-align:left;">DIA</th><th scope="col" style="text-align:left;">ARMY/ACSI</th><th scope="col" style="text-align:left;">NAVY</th><th scope="col" style="text-align:left;">AIR</th><th scope="col" style="text-align:left;">JCS</th><th scope="col" style="text-align:left;">SECDEF</th><th scope="col" style="text-align:left;">NSA</th><th scope="col" style="text-align:left;">NIC</th><th scope="col" style="text-align:left;">AID</th><th scope="col" style="text-align:left;">USIA</th><th scope="col" style="text-align:left;">OCI</th><th scope="col" style="text-align:left;">ONE</th><th scope="col" style="text-align:left;">OCR</th><th scope="col" style="text-align:left;">ORR</th><th scope="col" style="text-align:left;">OBI</th><th scope="col" style="text-align:left;">OO</th></tr><tr><th scope="row" style="font-weight:bold; text-align:left;">STATE/DIR</th><td></td

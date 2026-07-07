@@ -1,0 +1,33 @@
+# JFK-Files-Part-3_page_13948.png
+
+Convert to Markdownthe Board have been made on that basis. (The Board's membership is listed under Tab D.) The Board was chaired initially by Dr. James Killian, Jr. In April 1963 when Dr. Killian resigned, President Kennedy appointed Mr. Clark Clifford as Chairman. In appointing Mr. Clifford, the President directed that the Board "continue to perform the highly important function of maintaining an independent review and assessment of the objectives and conduct of the foreign intelligence and related activities of the departments and agencies having responsibilities in this field." (Tab E)
+
+Coincident with Mr. Clifford's appointment, the President made a public announcement emphasizing that he would "continue to look to the Board for non-partisan, objective appraisals of the activities of our intelligence agencies in order to assure their efficient management and maximum effectiveness." (Tab F)
+
+Review Procedures of the Board: The Board maintains its continuing, independent review and assessment of U.S. foreign intelligence activities and covert action operations through the following means:
+
+(1) Panels (composed of designated Board Members and the Executive Secretary) which are responsible for keeping the full Board informed with respect to significant actions, problems, gaps, overlaps, and deficiencies in specified areas of the overall foreign intelligence effort.
+
+(2) On-the-scene reviews, both in the U.S. and abroad, of intelligence-related activities. These reviews (made by designated Members and/or the Executive Secretary) encompass pertinent activities of the CIA, the Departments of State and Defense, the Unified and Specified Commands, the Army, the Navy, the Air Force, the National Security Agency and the Service Cryptologic Agencies. Such reviews have been made at the Seat of Government, elsewhere in the Continental U.S., in Latin America, Scandinavia, Europe, Africa, the Middle East, Southeast Asia, and the Far East.
+
+(3) Review of periodic progress reports and special reports, submitted to the Board by the military and civilian intelligence agencies.
+
+(4) Review of major Intelligence publications, produced on a daily, weekly, monthly, or "spot" basis by the Central Intelligence Agency, the Defense Intelligence Agency, the Department of State, and by the U.S. intelligence community collectively. These publications include current intelligence reports and appraisals of significant day-to-day developments, National Intelligence Estimates, Special Intelligence Estimates, and the intelligence results of satellite and aircraft reconnaissance missions.
+
+(5) Briefings on selected intelligence topics from agency heads and other officials associated with the several U.S. intelligence agencies.
+
+(6) Discussions, as appropriate, with the Secretaries of State and Defense, the Chairman, JCS, the President's Special
+
+Handle via GUEMAN
+
+Controlled...
+
+HANDLE VIA COMMENT CHANNELS ONLY
+
+TOP SECRET
+
+NW185
+DocId 2492
+Page 6
+N.W. 88192
+Doctd:34671877 Page 7

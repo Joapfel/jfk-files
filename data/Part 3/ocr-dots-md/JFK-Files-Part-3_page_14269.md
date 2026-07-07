@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_14269.png
+
+Convert to MarkdownMr. Murphy raised with Mr. Johnson the question as to whether subordinates should be allowed to make decisions such as the cutting of the co-axial cables discovered leading out of the Embassy in Moscow -- Mr. Murphy pointing out that such action appeared premature and prevented the technicians from making technical examinations of value and importance. Mr. Murphy also noted that subordinates in State and CIA had assumed responsibility for the decision that no attempt would be made to exploit the devices found in Moscow. Mr. Johnson was unaware of policy direction regarding such matters, and Mr. Coyne made known to him the provisions of NSC 5618 covering the subject.
+
+With reference to North Vietnam, Mr. Johnson noted that the situation is most discouraging insofar as covert infiltration actions are concerned. He said that CIA had tried hard, and the activity has now been transferred to MACV in Saigon.
+
+Mr. Johnson concluded his visit with the Board Panel and departed the meeting.
+
+In executive session, Panel Chairman Murphy asked that the Board Staff's review of the Special Group minutes include summaries of items pertaining to Vietnam and Cuba, for later study by the Panel.
+
+The Panel Meeting adjourned at 12:15 p.m.
+
+A. R. Ash
+
+NW 185
+DocId:2504
+Page
+NW 88192
+DocId:34671889 Page 7

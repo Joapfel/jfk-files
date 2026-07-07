@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_14059.png
+
+Convert to MarkdownTOP SECRET
+
+figure for NSA was given as 20,000 in comparison with the UK total of 6,600 personnel engaged in this type of activity.
+
+With respect to SIGINT collection on Cuba, General Blake informed the Board that in March 1961 there were 10 NSA intercept positions and 5 processing staff personnel working on Cuba, which was increased by February 1963 to 100 positions and 1,660 people. Mr. Clifford inquired as to whether any SIGINT which was obtained on Cuba entered into U. S. policy decisions during the October 1962 Cuba crisis.
+
+General Blake said that the policy makers were supplied with SIGINT on Soviet shipping to Cuba as early as the spring and early summer of 1962. Dr. Tordella added that also in the early summer of 1962 NSA was able to report on the SIGINT buildup of the Soviets in Cuba, and was able to provide information on defense communications networks as well as the plain text of communications sent by the Soviet Ambassador to his superiors in Moscow.
+
+Mr. Murphy inquired as to whether NSA now has an ability to penetrate Soviet communications to Cuba. Dr. Tordella stated that in spite of the short distance which separates Cuba from the U. S. the security precautions followed by the Soviets would not permit a hit-and-run commando type effort to pre-empt the communications equipment involved. General Blake had no suggestions to offer in response to Mr. Coyne's inquiry as to whether the NSA would like to extend its operations with respect to Cuba beyond those which are now programmed. General Blake did refer to efforts which are being made, through direction finding methods, to pin-point the location of the Soviet communications equipment in question, hopefully within the range of 1 mile. General Blake pointed out that the Russian SCRAMBLER system which is employed on 2 links running from Moscow to Havana, and which operates at the rate of 66 words a minute, may be approaching a solution on the part of NSA -- meanwhile, some traffic analysis is being obtained from it.
+
+Handle via BYEMAN
+Control System
+OXCART-CORONA-IDEALIST
+
+TOP SECRET
+
+Handle Via COMINT-TALENT-KEYHOLE
+Channels Only
+
+NW 185
+DocId:2495
+NWP:Page21
+DocId:34671880 Page 17

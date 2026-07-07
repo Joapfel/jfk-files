@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_13733.png
+
+Convert to MarkdownAgency Information
+
+AGENCY : HSCA
+RECORD NUMBER : 180-10143-10222
+RECORD SERIES : CIA SEGREGATED COLLECTION
+AGENCY FILE NUMBER : 29-05-01
+
+Document Information
+
+ORIGINATOR : HSCA
+FROM :
+TO :
+TITLE :
+
+DATE : 00/00/0000
+PAGES : 1
+
+SUBJECTS :
+HSCA, FILES
+CIA, FILES
+
+DOCUMENT TYPE : FORM
+CLASSIFICATION : Unclassified
+RESTRICTIONS : Open in Full
+CURRENT STATUS : Release
+DATE OF LAST REVIEW : 08/16/1995
+
+OPENING CRITERIA :
+
+COMMENTS : Box 19
+
+2025 Release under the President John F. Kennedy Assassination Records Collection Act of 1992

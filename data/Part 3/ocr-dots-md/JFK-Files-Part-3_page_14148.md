@@ -1,0 +1,35 @@
+# JFK-Files-Part-3_page_14148.png
+
+Convert to Markdown19. **4/17-19/61** - The CIA-directed effort against Castro met with disaster at the Bay of Pigs.
+
+20. **4/20/61** - President Kennedy stated that any unilateral American intervention would have been contrary to our traditions and to our international obligations, but that we do not intend to abandon Cuba.
+
+21. **4/20-12/1/61** - CIA relaxed its intelligence collection and covert action efforts against Cuba, according to the oral report made to the Board on 6/26/62 by CIA Deputy Director Helms.
+
+22. **6/15/61** - A CIA U-2 mission developed photographic evidence of MIG-15s and MIG-17s in Cuba.
+
+23. **7/15/61** - A CIA U-2 mission developed photographic evidence of MIG-19s in Cuba.
+
+24. **12/2/61** - Castro declares himself a bona fide Communist, "I believe absolutely in Marxism . . . I am a Marxist-Leninist and will be a Marxist-Leninist until the last day of my life." He admits that he hid his true political ideology during his revolutionary struggle because he felt that "if we, when we began to have strength, had been known as people of very radical ideas, unquestionably all the social classes that are making war on us would have been doing so from that time on."
+
+25. **1/31/62** - The Foreign Ministers of the American Republics, meeting at Punta del Este, declared that because of its public alignment with international communism, the present Marxist-Leninist government of Cuba is excluded from participating in the Inter-American system.
+
+26. **2/3/62** - In a Proclamation by the President an embargo was placed on trade with Cuba.
+
+27. **3/7/62** - Director of Central Intelligence Directive No. 1/3, entitled "Priority National Intelligence Objectives," provided guidance to the intelligence community on its intelligence collection effort. This guidance included the following:
+
+> "First Category: Objectives of such vital importance as to require a maximum intelligence effort . . . B. Present and prospective Soviet and Chinese Communist capabilities for nuclear attack on the U. S. . . ."
+
+> "Second Category: Objectives of such critical importance as to require an intensive intelligence effort . . . F. Present and prospective Soviet, Chinese Communist, Satellite, and Cuban capabilities and intentions to initiate, conduct, and support
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+
+TOP SECRET
+
+SPECIAL LIMITED DISTRIBUTION
+
+NW 185
+DocId:2501
+Page 33
+NW 88192
+DocId:34671886 Page 34

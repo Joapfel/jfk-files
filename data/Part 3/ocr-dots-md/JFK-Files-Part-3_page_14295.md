@@ -1,0 +1,43 @@
+# JFK-Files-Part-3_page_14295.png
+
+Convert to MarkdownTAB B
+
+"KENNEDY BOARD"
+
+CONSIDERATIONS OF COVERT ACTION MATTERS BY
+PRESIDENT KENNEDY'S FOREIGN INTELLIGENCE ADVISORY BOARD
+
+Briefing of President by DCI, June 28, 1961
+
+References to Covert Actions, Board Reports to President
+
+CIA Report on USSR and Communist China Expenditures
+
+Briefing of Board Panel by Secretary, Special Group, May 11, 1962
+
+Chairman's Discussions of Covert Action Matters with DCI, May 1962
+
+Discussion with General Taylor, June 29, 1962
+
+CIA Briefing of Board Panel, July 20, 1962
+
+CIA Briefing of Board Panel, November 1, 1962
+
+Board Discussion with General Taylor, Chairman, JCS,
+January 26, 1963
+
+CIA Briefing of Board Panel, April 15, 1963
+
+CIA Briefing of Board Panel, September 6, 1963
+
+State Department Briefing of Board Panel, September 6, 1963
+
+Discussions with McGeorge Bundy, September 23, 1963
+
+Excerpts, Minutes of Board Meetings, 1961--1963
+
+NW 185
+DocId:2507
+Page 3
+NW 68132
+DocId:34671892 Page 3

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_13774.png
+
+Convert to MarkdownOFFICIAL USE ONLY
+
+and entertainment, it transmits special programs--"sponsored" by so-called exile groups--the evident intent of which is to encourage subversion of the incumbent governments of Peru, Guatemala, and the Dominican Republic. Programs with similarly subversive intent were formerly beamed to Nicaragua and Honduras; these were discontinued in September 1962.
+
+Although first observed by FBIS monitors on 14 March 1961, the Cuban international service was not officially inaugurated until May Day of that year, when it began presenting a relatively modest schedule of programs in English, French, and Spanish for Europe and the Americas for a total of 42 hours a week. Since then, "Radio Havana" has grown by leaps and bounds, finally emerging as Latin America's number one international broadcaster. Its time on the air is as follows, in hours per week:
+
+Arabic to the Mediterranean area - 5 hours 15 minutes
+Haitian Creole to Haiti - 7 hours
+English to Europe - 9 hours 20 minutes
+English to the Americas - 17 hours 30 minutes
+French to Europe - 9 hours 20 minutes
+French to Canada - 3 hours 30 minutes
+French to the Mediterranean - 3 hours 30 minutes
+Portuguese to Brazil - 7 hours
+Spanish to Europe & the Mediterranean - 16 hours 55 minutes
+Spanish to the Americas - 108 hours 30 minutes
+
+The technical facilities of "Radio Havana" are at a transmitter site about 23 miles southwest of Havana. At present, no more than four shortwave transmitters are being used, but in the past as many as five have been observed on the air at the same time. These transmitters range in power from 10 to 100 kilowatts, enabling "Radio Havana" to be heard all over the world. Programs are sent from studios to the transmitter site by means of microwave relays.
+
+In addition to the regularly scheduled international service, these transmitters have been known to broadcast special programs in order to take advantage of particular political situations. When serious disorders broke out in the Dominican Republic in late 1961, for example, broadcasts emanating from a self-styled "clandestine" station called "Radio Revolucion del Movimiento Catorce de Junio" demanded the overthrow of the Dominican government. The station went off the air after about a week, but not before direction finder (DF) bearings and other technical clues indicated that the Bauta transmitter site was the point of origin.
+
+"Radio Havana" announces that it makes its facilities available to political groups from other Latin American nations so that they can beam programs
+
+OFFICIAL USE ONLY
+
+Page I-2
+
+NW 88608 DocId:32423995 Page 26

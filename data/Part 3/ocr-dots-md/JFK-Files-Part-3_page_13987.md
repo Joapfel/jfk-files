@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_13987.png
+
+Convert to Markdowninstigated the recent incidents in Panama, although the Communists were quick to exploit the situation once it arose. CIA succeeded in photographing 13 Castro-ites who were engaged in fomenting the incident after it started.
+
+Of a total of 45 Communist Castro-ites involved, 13 had been trained in Cuba, and they distributed leaflets and disseminated propaganda over the radio.
+CIA also learned that one Thelma King personally led a mob of Panamanians in the streets. Dr. Langer wondered if Panamanians and the world at large are aware that radio stations in Panama were in the hands of the Communists.
+General Carter replied that one could not say that precisely, but it can be said that 30 minutes after the incident began there were inflammatory broad-casts on the air. As for the sniper activity, General Carter said that one sniper had been identified as a known Communist.
+
+With regard to Vietnam, General Carter said that the bloodless coup which began yesterday afternoon was accomplished by a group of young generals who are pro-American and anti-neutralist. General Khanh is the leader.
+
+General Khin, 3rd Corps Commander, will be chief of staff. The coup group had been plugging for more counter-insurgency effort against the Viet Cong, and the new leaders will take stronger action. General Khanh has said that he will look to U. S. Ambassador Lodge for guidance on political matters in the immediate Saigon area.
+
+General Carter said that CIA had received advance information from
+General Khanh that he was worried about French moves with respect to
+Vietnam. (In answer to Mr. Coyne's question as to whether CIA had been
+back of yesterday's coup, General Carter replied that it is well known that
+the CIA does not instigate coups.) Mr. Murphy, noting the conspiratorial
+
+HANDLE VIA DYZEMAN
+Control System
+
+TOP SECRET
+
+NWO
+Docld:2492
+Page 15
+NW 88192
+
+Doctd:34671877 Page 46

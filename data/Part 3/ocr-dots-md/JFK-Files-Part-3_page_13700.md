@@ -1,0 +1,32 @@
+# JFK-Files-Part-3_page_13700.png
+
+Convert to MarkdownTOP SECRET
+
+81
+
+This is not a document. This is somebody's notes in putting together. These are rough notes typed on yellow, legal sized paper of somebody trying to reconstruct what happened here probably two or three years afterwards.
+
+Mr. Johnston. I guess what I'm asking is a yes or no answer. In October or November, 1963, did you or Mr. Fitzgerald, to your knowledge, assure AMLASH that he would receive all the money he wanted?
+
+AMLASH Case Officer. No, and I must qualify that. Unless you want to infer that in giving him the support that he needed he would also receive money. But money specifically, all he wanted, was never a part of the conversations, to the best of my knowledge.
+
+Mr. Johnston. We have talked about the next sentence and it continues.
+
+"Because of this fact plans of subject changed and it was decided the Agency could have no part in the assassination of a government leader, including Castro."
+
+Is that accurate? I'm giving you an opportunity to rebut the document.
+
+AMLASH Case Officer. It's accurate from the point of view--
+
+You have to put it in the right time frame, in the right context. When he was met in late '64, after having visited and lived in Cuba for a year or almost a year, he came back more
+
+TOP SECRET
+
+76000108156
+WARD B PAUL
+
+gsh 55
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NW-88008-KOOLID-024284000-Page 54

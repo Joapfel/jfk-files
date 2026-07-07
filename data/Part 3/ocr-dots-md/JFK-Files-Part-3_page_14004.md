@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_14004.png
+
+Convert to MarkdownUNITED STATES SENATE
+
+January 13, 1964
+
+Honorable John A. McCone
+Director, Central Intelligence Agency
+Washington 25, D. C.
+
+Dear Mr. McCone:
+
+Recently I read an article stating that the CIA had held a press conference during which the Soviet economy was discussed.
+
+My impression is that the holding of press conferences is a distinct departure from CIA's past practice. I would appreciate it if you would advise me of the significance of this occurrence and whether it represents a change of policy which will be a precedent for the future.
+
+/NW/

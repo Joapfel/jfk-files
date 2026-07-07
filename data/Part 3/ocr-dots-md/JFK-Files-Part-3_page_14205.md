@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_14205.png
+
+Convert to MarkdownPRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+
+MEETING OF MARCH 8 - 9, 1963 (The Board
+met with the President on March 9, 1963)
+
+2025 Release under the John F. Kennedy Assassination Records Collection Act of
+1992
+
+NWP-185
+Dodd:2502
+NWP-Page21
+DocID:34671887 Page 2

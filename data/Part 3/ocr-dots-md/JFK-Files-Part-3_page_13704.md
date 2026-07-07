@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_13704.png
+
+Convert to MarkdownTOP SECRET
+
+1963
+Phone (Area 202) 844-6000
+
+to AMLASH the following November in 1964.
+
+AMLASH Case Officer. Yes. So I don't know why we're taking that particular piece of information out of context because in that same memorandum it does state that.
+
+Mr. Johnston. Let me move off these documents. The file on AMLASH contains a November 27th report from Paris which indicated a source in the Cuban embassy in Paris.
+
+AMLASH Case Officer. Excuse me. November 27th of what year?
+
+Mr. Johnston. 1963. A source in the Cuban embassy in Paris was complaining about AMLASH's denigrating the revolution.
+
+Did you see that report on November 27th, 1963?
+
+AMLASH Case Officer. I probably did. I can't specifically recall that I did.
+
+Mr. Johnston. And as I read the report, or my statement to you of its substance, it would suggest to you that AMLASH was known by given diplomatic personnel in Paris to be putting down the Castro revolution.
+
+AMLASH Case Officer. It depends on who. In other words, who did he say this to because he did have friends in the different embassies.
+
+Mr. Johnston. The Cuban embassy?
+
+AMLASH Case Officer. He stayed at the Cuban embassy. He was a Cuban official at that time. So he had friends who were
+
+TOP SECRET
+
+410 First Street, S.E., Washington, D.C. 20003
+
+7610 CR 50 WARD & PAUL

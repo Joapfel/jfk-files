@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_14013.png
+
+Convert to MarkdownNovember 22, 1963
+
+| ITEM | TIME | SUBJECT | SECRET |
+| :--- | :--- | :--- | :--- |
+| 11. | 9:00 - 9:15 | Chairman's Time | |
+| 12. | 9:15 - 10:00 | Resume with Item 10 | |
+| 13. | 10:00 - 12:00 | Discussions with the Director of Central Intelligence <br> Mr. John A. McCone | |
+| 14. | 12:00 - 12:30 | South Vietnam: Activities of CIA Preceding and Following the Overthrow of Diem. <br> Mr. William Colby, DD/P Staff, CIA | |
+| 15. | 12:30 - 1:30 | Resume with Item 10 | |
+| 16. | 1:30 - 2:15 | Lunch - White House Mess | |
+| 17. | 2:15 - 6:00 | Completion of final draft of Report to the President. | |
+
+SECRET
+
+- 2 -
+
+NW 185
+DocId:2493
+Page 3
+NW 88192
+DocId:34671878 Page 4

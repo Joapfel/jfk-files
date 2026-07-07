@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_14048.png
+
+Convert to MarkdownLiable via Commin-Talent-Keystone
+
+it is up to the Board to ascertain specifically whether the President desires that
+the Board go into covert action programs deeply, and if that is the President's
+wish then the Board should take steps to insure that it receives full and significant
+briefings from the agencies concerned. In this connection Mr. Clifford asked
+whether there was any limitation at all on the Board's right to know about these
+matters. Dr. Killian replied that there were no limitations and that this is well
+established.
+
+Mr. Coyne informed the Board at this point about the telephone call which had been received from the Office of the DCI the preceding day, Mr. Kirkpatrick of CIA had conveyed the DCI's wish that the scheduled CIA briefing of the Board today on certain clandestine operations be conducted in the absence of Mr. Cottrell, Deputy Assistant Secretary of State, Bureau of Inter-American Affairs, who Mr. McCone understood was to join the Board meeting at the same time the CIA briefing was to be given. The basis for the DCI's request was the fact that certain aspects of the CIA briefing to be given on clandestine operations with respect to Cuba involve covert action operations which Mr. Cottrell is not privy to. Mr. Coyne noted that the Board's agenda had been revised to accommodate the DCI's request, although Mr. Coyne found the request to be somewhat surprising in view of the responsibilities which have been assigned to Mr. Cottrell by the White House for coordination for all matters relating to Cuba.
+
+Mr. Gray observed that if at today's meeting the Board in fact received a
+full story concerning clandestine and covert actions being planned and executed
+under CIA auspices, this would certainly constitute a milestone in the Board's
+efforts along this line. Dr. Land thought the Board should take the position that
+unless the CIA briefing presents a full story, the briefers should be asked to
+continue until the Board has received a full picture. Mr. Clifford thought that
+the better procedure to follow would be for the Board to listen to the CIA briefing
+
+COCART-CORONA-IDEALIST
+
+TOP SECRET Liable via COMINT - TALENT - KEYWOLE
+
+Channels Only
+
+185
+
+NW
+
+Docld:2495
+
+Page F
+
+NW 68192
+
+DocId:34671880 Page 6

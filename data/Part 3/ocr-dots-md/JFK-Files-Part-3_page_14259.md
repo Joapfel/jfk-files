@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_14259.png
+
+Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+
+WASHINGTON 25, D. C.
+
+OFFICE OF DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
+
+3 June 1964
+
+The Honorable McGeorge Bundy
+Special Assistant to the President
+For National Security Affairs
+The White House
+Washington, D. C.
+
+Dear Mr. Bundy:
+
+As requested in your memorandum of 14 May, the attached Preliminary Damage Assessment of the Technical Surveillance Penetration of the U.S. Embassy, Moscow, is transmitted herewith.
+
+The United States Intelligence Board today noted the attached Security Committee report and approved the recommendations as contained therein.
+
+As you also requested, copies of the attached report have been furnished to the President's Foreign Intelligence Advisory Board.
+
+Attachment
+
+cc: President's Foreign Intelligence Advisory Board
+
+TS-188539-64
+
+Copy No. 2
+
+<table><tr><td>EAQ. 1<br/>Excluded from automatic<br/>search for the<br/>declassification</td></tr></table>
+
+NW 185
+DocId:2503
+Page 32
+NW 88132
+DocId:34671888 Page 27

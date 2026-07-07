@@ -1,0 +1,14 @@
+# JFK-Files-Part-3_page_13923.png
+
+Convert to MarkdownThe DCI then referred to the problem of CIA's limited access to the U.S. Embassy in Moscow. He said that there are sources in the USSR who would be willing to work with the CIA if the Agency had personnel on the scene to operate these sources. Mr. McCone noted that there are only four CIA people in the Embassy, along with some 17 U.S. military personnel. In contrast, Mr. McCone noted, in the U.S. there are 185 Soviet and 93 Soviet satellite intelligence officials operating against the U.S. in the Washington D. C. and New York (UN) areas. The DCI stated that on the question of placing additional CIA personnel under official cover in the Embassy at Moscow, the Ambassador has steadfastly held that the risk of damage from exposure of such personnel is so severe that it is not worth the gamble. Therefore, Mr. McCone said, CIA has only four men in the Moscow Embassy and they would all have to work on any one case. Recalling that several CIA operatives had to be taken out of Moscow when the Penkovskiy case blew up, the DCI emphasized that CIA needs to augment its personnel there. In answer to Mr. Clifford's inquiry as to what steps were being taken by the DCI to obtain authorization for the assignment of additional CIA personnel to the Embassy in Moscow, Mr. McCone said that he has had conversations with the head of the State Department. However, housing for U.S. personnel is limited in Moscow and the net result of increasing CIA personnel there would probably necessitate the removal of a State Department political officer or some other State Department representative.
+
+75
+
+~~TOP SECRET~~
+
+75
+
+NWI 185
+DocId:2491
+NWP88j321
+DocId:34671876 Page 16

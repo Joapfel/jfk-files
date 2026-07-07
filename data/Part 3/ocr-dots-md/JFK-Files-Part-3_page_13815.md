@@ -1,0 +1,16 @@
+# JFK-Files-Part-3_page_13815.png
+
+Convert to MarkdownS-E-C-R-E-T
+
+NO FOREIGN DIESEM
+
+- 2 -
+
+CS-3/530,889
+
+1. Headquarters Comment. -Ruberas is probably identical with Miguel Brugueras del Valle, who was described as Director of the Press Department on the official list of delegates to the Foreign Ministers' Meeting in Uruguay in January 1962. Brugueras is now assigned to the Cuban Embassy in Brazil as Cultural Attache.
+
+S-E-C-R-E-T
+NO FOREIGN DISSEM
+
+NW 88608 DocId:32423995 Page 67

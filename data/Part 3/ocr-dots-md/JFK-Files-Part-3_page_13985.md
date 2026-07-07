@@ -1,0 +1,44 @@
+# JFK-Files-Part-3_page_13985.png
+
+Convert to Markdownadded, that it is difficult for our Government to equate its policy of
+wheat sales to Russia with a policy of economic denial against Cuba;
+however the President has said that he wants to push the economic denial
+program. Mr. Fitzgerald remarked in this connection that the volatility
+of the Cuban people transmits itself to Washington.
+
+Mr. Murphy then asked if someone could say what is going on in Cuba.
+Mr. Fitzgerald replied that the most important development is the series of
+"victories" which Castro has enjoyed: Castro found at year's end that there
+was an unanticipated hard currency balance of $100 million from the sugar
+crop, thus giving Castro a basis for obtaining extensions of credits for
+such transactions as the purchase of British buses; the French are about to
+extend Castro credits over a 5-year period; in Panama, although Castro didn't
+provoke the anti-U. S. incidents he gets credit for it; and Castro also gets
+credit for the Zanzibar coup even though he did not instigate that incident,
+either. So, Mr. Fitzgerald noted, "Castro is stronger and his arm is longer".
+
+Dr. Langer asked if CIA is getting intelligence agents into Cuba, and
+information out. Mr. Fitzgerald exhibited a chart depicting the deployment
+of agents in Cuba, pointing out that there was a concentration of agents in
+the Havana area. He said, however, that the figures were off because CIA
+had sloughed off the poor agents, and because two agent nets had been lost
+in the Havana area (although a key agent from each net had been successfully
+pulled out). Mr. Fitzgerald said that CIA has 64 singleton agents; 83 agents
+legally resident in Cuba; and 55"black subagents" in one net.
+
+In reply to Dr. Langer's question, Mr. Fitzgerald said that about 1200
+Latin American and African nationals a year are receiving training in Cuba
+and are returning to their respective countries.
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+TOP SECRET
+
+Handle via BYEMAN
+Control System
+
+NWI-1863
+DocID:2192
+Page 13
+NW 88192
+DocId:34671877 Page 44

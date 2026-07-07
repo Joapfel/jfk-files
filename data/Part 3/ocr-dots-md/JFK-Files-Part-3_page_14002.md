@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_14002.png
+
+Convert to MarkdownTHE DIRECTOR OF CENTRAL INTELLIGENCE
+
+WASHINGTON 25, D.C.
+
+14 January 1964
+
+Dear Clark:
+
+As you probably know, I am leaving for Europe on Saturday and hence will miss an opportunity to visit with you in the immediate future. However I wish you to know the background of the press incident which unfortunately has been "blown up" and hence the theme of a great number of editorials,
+
+Therefore I am attaching a memorandum prepared for my file to review the series of events which led up to the release of information on the Soviet economy with CIA attribution. Also attached is a copy of a letter from Senator Stennis and my reply. Finally, there is a copy of the directive which I am issuing today in order to prevent an inadvertent recurrence of the situation.
+
+Frankly I am surprised at the publicity and furthermore I cannot be overly critical of the attribution because of the long history of CIA's releases on Soviet economy. We have for 10 years been issuing volumes on this subject in unclassified form carrying the Central Intelligence Agency name and these are in universities, libraries, and in the hands of virtually all economists and newspapermen interested in the subject. Furthermore, Allen Dulles has testified in open hearing and on the record on this subject. It was a favorite topic for speeches by Allen, General Cabell and Bob Amory in the days when CIA officials were making speeches. Hence the denial of the privilege of attribution would have, in my opinion, not been respected by anyone in the press.
+
+Two additional points which might have something to do with this -- first, we recently lost Col. Grogan, who has handled press relations for CIA for years, because of retirement after a heart attack. His replacement, a capable officer in the field of public relations was in the process of getting acquainted with the press and hence was not as sensitive to the tricky problem of press relationship as a more experienced press officer might have been. Secondly,
+
+SECRET
+
+NW 88192 DocId:34671877 Page 61

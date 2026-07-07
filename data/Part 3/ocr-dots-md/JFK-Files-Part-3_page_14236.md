@@ -1,0 +1,28 @@
+# JFK-Files-Part-3_page_14236.png
+
+Convert to MarkdownTOP SECRET
+
+AGENDA FOR JUNE 4, 1964 (Continued):
+
+| ITEM | TIME | SUBJECT |
+|---|---|---|
+| 10. | 2:15 - 2:45 | Status Report on Military (peripheral and overflight) Reconnaissance Programs (other than satellite) |
+| 11. | 2:45 - 3:00 | Colonel Ralph D. Steakley, USAF |
+| 12. | 8:00 - 3:30 | Director, Joint Reconnaissance Center, Pentagon |
+| 13. | 3:30 - 4:00 | Executive Session |
+| 14. | 4:00 - 5:30 | On-the-Scene Review at Moscow Embassy of State Department's Counter-audiosurveillance Measures to Safeguard U. S. Classified Systems and Information |
+| 15. | 5:30 - 6:30 | Dr. Jerome Wiesner, M.I.T. (White House Consultant and former Science Advisor to the President) |
+| 16. | 6:30 - 8:00 | Status Report on the Implementation of Prior Board Recommendations |
+| 17. | 7:45 - End of Day | Mr. Ash |
+| 18. | 8:00 - 9:30 | Discussions with the Director of Central Intelligence |
+| 19. | 9:30 - 6:30 | Mr. John A. McCone |
+
+- 2 -
+
+TOP SECRET
+
+a) Discussion of peripheral and over-flight reconnaissance.
+
+b) Discussion of audio problem,
+
+c) Consideration of up-dated requirements for Annual Reports to the Board by State, Defense, CIN, and the DCI.

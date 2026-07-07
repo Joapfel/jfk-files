@@ -1,0 +1,23 @@
+# JFK-Files-Part-3_page_14257.png
+
+Convert to MarkdownSECRET
+
+-2-
+
+and Mr. Hill are no longer connected with this Office exact reasoning can not be supplied and only surmised. Inquiry will be made of Mr. Hiller and Mr. Musser to determine whether they can furnish further pertinent details concerning this matter. The results of this inquiry will be furnished to you as soon as possible.
+
+It should be noted that primary interest in Moscow at that time was in the resolution of the nature of the microwave signals directed at the west wall of the Embassy, as little was actually known prior to Mr. Musser's arrival of the exact characteristics of the signal.
+
+In regard to your request for the position of the Department of State in connection with Mr. Khrushchev's allegation that he possessed a State cable, Mr. John W. Coffey, Deputy Assistant Secretary for Communications, has furnished the following statement:
+
+"In response to Mr. Coyne's request we have reviewed the position of the pipe embargo message as stated last September in the light of the discovery of microphones in the American Embassy Moscow.
+
+"On the basis of evaluations to date, we assume the possibility that the bulk of classified telegraphic information handled at Moscow between occupancy of the building in 1953 through 1952 may have been compromised. Classified telegraphic communications exclusive of Iron Curtain posts would not have been affected. We assume no penetration of cryptographic systems at Moscow since the installation of the shielded enclosure in late 1960 for the communications operations.
+
+"The microphone discovery does not alter our position with respect to Mr. Khrushchev's allegation unless it is assumed that a telegram originated in Moscow prior to December 1962 is that in question. As you know, Ambassador Kohler, in paragraph 2-c Embtel 3577 of 24 May 1964, reiterated his earlier position denying the existence of the alleged telegram."
+
+SECRET
+
+86
+DocId:2503
+B51

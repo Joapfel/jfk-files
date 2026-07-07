@@ -1,0 +1,40 @@
+# JFK-Files-Part-3_page_13853.png
+
+Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+
+This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.
+
+S-E-C-R-E-T
+NO FOREIGN DISSEM
+
+COUNTRY Paraguay/Argentina/Cuba
+SUBJECT Return of Paraguayan Leftist to Argentina from Cuba
+REPORT NO. CS-3/536,455
+DATE DISTR. 7 February 1963
+NO. PAGES 1
+REFERENCES RD
+
+DATE OF 9 January 1963
+INFO.
+PLACE & Paraguay, Asuncion
+DATE ACQ. 24 January 1963
+
+FIELD REPORT NO. HYA-834
+
+THIS IS UNEVALUATED INFORMATION. SOURCE GRADINGS ARE DEFINITIVE. APPRAISAL OF CONTENT IS TENTATIVE.
+
+SOURCE: Paraguayan security officer (B) from a Paraguayan Government official in Formosa, Argentina. Appraisal of Content: 2.
+
+Retired Captain Guerrero Padin (fnu),¹ a member of the left-wing group of the Paraguayan Febrerista Party, was seen in Formosa, Argentina, on about 9 January 1963. Since October 1962 Guerrero Padin had been in Habana, Cuba, where he received guerrilla training. Guerrero, who is separated from his family,² spends as much time in Buenos Aires as he does in Formosa.
+
+1. Field Comment. Guerrero Padin is probably identical with Rafael Guerrero Padin.
+
+Headquarters Comment. In September 1962 a usually reliable source with good contacts in exile groups, reported that Guerrero Padin (fnu), a former captain in the Paraguayan Army, was an instructor in guerrilla warfare at a training camp near Habana. The source received this information from a member of the United Front for National Liberation (FULNA) who had recently returned.
+
+2. Field Comment. According to a usually reliable source, Guerrero Padin is legally separated from his wife, Benefrida, who lives on Calle Caballero, between Tte. Farina and Manuel Dominguez, Asuncion, Paraguay.
+
+5
+4
+
+5
+4

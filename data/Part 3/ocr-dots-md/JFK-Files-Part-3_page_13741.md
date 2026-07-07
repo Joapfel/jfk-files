@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_13741.png
+
+Convert to MarkdownSECRET,
+
+① Memorandum for: Chief, Security Analysis Group.
+Subject: Agency, Castro Assassination Plotting (Sam Francisco & Santo Trafficante)
+Reference made to SSCI Interim Report 20 Nov. 1975,
+P.3- "Attached is a copy of an 18 June 1976 memorandum in the name of Frank Anthony Sturgis aka Frank Ehrlich (#353 459) which identifies Marie Lorenz and contains a copy of referenced article" (13 Jun 1976 New York Daily News article by Paul Meekes)
+
+11112298
+
+SECRET,

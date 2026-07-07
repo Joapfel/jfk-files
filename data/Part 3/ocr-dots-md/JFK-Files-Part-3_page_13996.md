@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_13996.png
+
+Convert to Markdownmember agencies of the Intelligence Community. Of the 170 recommendations, the President approved 125, disapproved 2, and temporarily deferred final action on the remainder. Of the 125 approved recommendations, implementing actions on 85 have been substantially completed. The remaining Presidential-approved recommendations deal with substantive intelligence matters warranting continued Board attention and, possibly, the submission of further Board recommendations to the President.
+
+Next Mr. Clifford cited several examples of intelligence areas of major and continuing concern to the Board. These included the following:
+
+1. The vast size and cost of the over-all intelligence effort which involves some 149,000 individuals, 131,000 of whom are in Defense and 17,000 of whom are in CIA. Mr. Clifford reported that the effort this year will cost slightly less than four billion dollars.
+
+2. The National Reconnaissance Program (at this point Mr. Clifford asked Dr. Land to brief the President for three or four minutes, which he did, on the highlights of the satellite reconnaissance programs.) In the course of the briefing Dr. Land exhibited to the President examples of the recent Gambit photography taken over Montana.
+
+3. The U-2, Oxcart, Tagboard programs. At this point, pursuant to Mr. Clifford's request, General Doolittle briefed the President for several minutes on the highlights of these three programs.
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+TOP SECRET

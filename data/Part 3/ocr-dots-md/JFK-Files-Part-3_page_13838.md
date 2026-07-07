@@ -1,0 +1,22 @@
+# JFK-Files-Part-3_page_13838.png
+
+Convert to MarkdownS-E-C-R-E-T
+NO FOREIGN DISSEM
+
+- 3 -
+
+CS-3/535,176
+
+22 November - Studied plan of attack on the encampment; marched in the rain, camping in the woods.
+
+23 November - Practiced hanging and taking down hammocks; studied tactical manual.
+
+24 November - Practiced security and emergency plan of the encampment.
+
+25 November - Studied tactical manual.
+
+7. On 26 November, during an exercise to practice security on the march, the advance and rear guard groups got lost in the woods. As a result there was criticism of poor leadership, and the instructor ordered them to repeat the operation. Several men refused, and the instructor ordered that they not be given anything to eat. Because of the order, the rest of the men refused to eat but through argument and an appeal to the Revolution they were eventually persuaded to do so.
+
+8. While they were studying on 27 November, Lt. Manolo Nunez arrived from Habana with news that the course would be intensified because some of the group had a fixed date for their departure from Cuba for Argentina. During the day a conversation was overheard in which a Trotskyite said that the Cuban Government ought not to allow those who wanted to leave to do so since they might be dangerous when they got to Argentina. The conversation was repeated to members of the Peronist group, one of whom loaded a rifle, intending to shoot the Trotskyite. The shooting was prevented but the atmosphere was so tense that the two groups were ready to fight. At that moment the lieutenant instructor appeared and took away the rifles and ammunition; he immediately went to Habana to report the incident. By night the five Trotskyites were separated from their group.
+
+9. On 29 November Cooke arrived and urged the immediate withdrawal of the Peronists and the Vanguard Socialists so that they could return to Argentina. That evening the trainees left for Habana, where they were housed in a residential building on Calle Septima. On 30 November the trainees, because of their semi-abducted situation, became very concerned and put on civilian clothes instead of their military uniforms. On 1 December some of the men left the house without permission, intending to take a walk; they were told by Ulises (lnu), a Negro member of G-2, that they could not go out without the permission of the Cuban Government. They said that they wished to deal directly with the Cuban Government concerning their return home since they did not wish to have anything to do with Cooke, who they thought was deceiving them. Ulises immediately asked them for a written, personal report, including 1) their regard for and opinion of John William Cooke; 2) the type of work which they desired to do when they arrived in Argentina; 3) their political affiliations; and 4) the impressions produced

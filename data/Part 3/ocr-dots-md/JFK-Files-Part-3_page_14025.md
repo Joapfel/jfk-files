@@ -1,0 +1,12 @@
+# JFK-Files-Part-3_page_14025.png
+
+Convert to MarkdownHOLD BY COMINT CHANNELS ONLY
+
+TOP SECRET
+
+NW185
+DocId:2493
+Page 27
+NW68192
+
+Doctd:34671878 Page 16

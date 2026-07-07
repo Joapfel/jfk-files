@@ -1,0 +1,9 @@
+# JFK-Files-Part-3_page_13785.png
+
+Convert to MarkdownA Havana radiobroadcast 10 January quoted the Central Committee of the Venezuelan Communist Party as calling President Betancourt's government the "principal enemy of the Venezuelan people today."
+
+It called on the people and Communist Party of Venezuela to "master and use all forms of combat needed to achieve liberation and national sovereignty."
+
+A 7 January broadcast beamed from Havana to Peru said that "the military-government junta may rest completely assured that there will be revolution in Peru and the people will take over power," and it concluded - "Now is the time to resist with greater force and vigor; strike against abuse, strike against violations...the strike is the most powerful weapon. The strike can do more than rifles and bullets."
+
+(FBIS, Special Report to Daily Summary, 11 January, OFFICIAL USE ONLY)

@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_13759.png
+
+Convert to MarkdownSECRET
+
+Other Factors on Which Castro's Subversive Capability Will Depend
+
+17. If the US and USSR reach and implement the agreement stated in the problem Castro will gain an immunity which he lacked before the missile base crisis. He will, furthermore, still have most of the arms and equipment which were delivered in the post-July buildup, as well as enhanced capabilities provided by accelerated training. Presumably his enemies will have about the same, or less, freedom to engage in propaganda, sabotage, support for resistance activities, and other actions designed to overthrow Castro than they had before the crisis—almost certainly not more. Unless Castro is gravely endangered by internal political and economic problems, there is no reason to believe that anti-Castro activities are any more likely to jeopardize his position than they did before the crisis.
+
+18. Situation in Cuba. Castro's ability to engage in subversive activities will be influenced significantly by the strength and stability of his position at home. Heightened political and economic difficulties in Cuba would restrict Castro's subversive effort, while the more secure he is at home, the more freedom and strength he is likely to have for subverting other governments and re-establishing his prestige and influence. Castro's position in Cuba will depend in part on his own policies, but is likely to depend even more upon those of the Soviets.
+
+19. Alternative Soviet policies. There are several courses of action with respect to Cuba which the Soviets are likely to consider. Some leaders may argue that the whole policy of economic and military support for Castro should be abandoned along with the plan for the deployment of strategic missiles in Cuba. We believe, however, that the Soviet stake in Cuba as an ally and as a Soviet center in Latin America is still too high to abandon. The stake in Castro as a person, however, is questionable. If the Soviets did make a decision to withdraw support either from Castro or from Cuba, we believe that Cuban capability for subversion in Latin America would be greatly reduced, at least for a time. This capability would be reduced more in the case of the Soviets' withdrawing support from Cuba than in the case of their abandonment of Castro alone.
+
+20. An alternative course would be for the Soviets to continue to extend economic and military assistance. Such assistance could range all the way from the amounts necessary to maintain Cuba in its present condition, including support of the expanded military establishment, to substantial increases. Such a policy would probably reduce considerably Castro's internal problems and thus give him additional freedom to engage in external subversion and sabotage. Additions to Castro's stocks of small arms would not in themselves change his capability for subversive activity, as he already has supplies of surplus arms. However, if the Soviets were to provide substantial additional air and
+
+SECRET
+
+7

@@ -1,0 +1,26 @@
+# JFK-Files-Part-3_page_14078.png
+
+Convert to MarkdownTHE WHITE HOUSE
+WASHINGTON
+
+SECRET
+
+PRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+
+August 3, 1964
+
+MEMORANDUM FOR THE BOARD
+
+SUBJECT: Audiosurveillance Collection and Countermeasures Efforts of the Intelligence Community
+
+In Executive Session Mr. Ash will brief the Board on significant developments relating to the subject which members may wish to keep in mind when USIB representatives discuss the matter with the Board.
+
+Following Mr. Ash's briefing, Mr. Tom Karamessines, Assistant to CIA's Deputy Director for Plans, and Mr. Robert Bannerman of CIA's Deputy Directorate for Support, will brief the Board on the U. S. Intelligence Board's conclusions and recommendations on the organization and management of the audiosurveillance effort. (On June 26, 1964 following the Board's recommendations to the President, Mr. Bundy requested the Director of Central Intelligence, as Chairman of the USIB, to present coordinated proposals for the most effective possible organization, management, and coordination of the intelligence community's resources and capabilities for research and development, and the operational application, of techniques for audiosurveillance collection and audiosurveillance countermeasures. The organization and management aspects of this problem are indicated by the fact that under present arrangements: (1) research and development of audiosurveillance collection and countermeasure devices and techniques are pursued separately by State, Defense and CIA; (2) the coordination of audiosurveillance collection operations is the responsibility of the FBI in the U. S., and is the responsibility of the DCI overseas; and (3) the coordination of audiosurveillance countermeasures activities is the responsibility of an NSC interagency committee chaired by the Department of State.)
+
+Next Mr. Howard Osborne, Director of CIA's Office of Security, and Mr. G. Marvin Gentile, Director of Security at the Department of State, will bring the Board up to date on the USIB's final assessment of the audio and electromagnetic penetrations of the U. S. Embassy, Moscow which were discovered in April.
+
+(At the last meeting the Board was provided with results of USIB's preliminary assessment of damage caused by these
+
+NOT TAKEN UP AT August Meeting / SECRET / 
+
+U.S.B. 102

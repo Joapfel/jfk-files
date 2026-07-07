@@ -1,0 +1,19 @@
+# JFK-Files-Part-3_page_14039.png
+
+Convert to Markdown expected that this effort will result in press releases, and Soviet protests at the UN and elsewhere. However, Mr. McCone expressed the belief that there is already some disaffection within Cuban military circles, and if the CIA effort succeeds the result will be an overthrow of Castro but it will also mean a military dictatorship in Cuba for a time.
+
+Mr. McCone suggested that it might be profitable for the Board to receive a briefing on Cuban matters from Mr. Fitzgerald of CIA, at the next Board meeting. Mr. Clifford agreed that this would be desirable.
+
+Mr. Gray observed that newspaper accounts and items in the Central Intelligence Bulletin have been in disagreement on the Soviet turnover of the armored camps to the Cubans. Mr. McCone thought that CIA's assessment is the correct one.
+
+Mr. Pace inquired about the quality of U-2 photography being obtained from missions over Cuba. Mr. McCone replied that in the present season of summer storms there is more cloud cover and shadows which means fewer sightings of the 30 critical target points of top interest to the CIA, and he noted that there was a 15-day period of such bad weather recently. At present U-2 missions are flown daily and sometimes twice daily, all of them direct overflights. The objective, he said, is to get a mosaic of the whole island every 7 days.
+
+In answer to General Doolittle's question, Mr. McCone said that special authorization is still required for the sending of low-level missions over Cuba. Answering a question by Dr. Langer, the DCI said that no evidence of camouflage had been seen. He added that each day CIA issues an analysis of "exotic" reports received from refugee, agent and other sources, and there are innumerable such reports of all kinds which cannot be checked out. For example, a refugee from Cuba arrived in Miami with the story that he had seen an enormous submarine
+
+TOP SECRET
+
+NW 185
+DocId:2494
+Page 6
+NW 88192
+DocId:34671879 Page 7

@@ -1,0 +1,17 @@
+# JFK-Files-Part-3_page_13913.png
+
+Convert to MarkdownThe Board meeting was joined at this point by Raymond G. Rocca (substituting for Mr. James Angleton of CIA) for a briefing of Board members on CIA's counterintelligence program.
+
+Mr. Rocca began his briefing with the statement that CIA does not have the entire world-wide responsibility for counterintelligence (CI). To illustrate this point, he exhibited a chart dated September 1962 entitled "U. S. Organization for Counterintelligence" showing the various elements of the numerous U. S. departments and agencies whose functions and responsibilities bear some relationship to counterintelligence. Within CIA itself the CI function is compartmented under the Deputy DCI for Plans. The headquarters staff consists of 85 officers and 66 clerical personnel (although there is a large number of CIA headquarters personnel assigned to other intelligence activities which are related to CIA's CI programs). At CIA stations overseas, CI functions are performed by various CIA personnel in such areas as Penetration, Provocation, Double Agents, Technical Surveillances, Protective CI Services, Interrogations, and Deception.
+
+Mr. Rocca stated that studies and recommendations made by General Doolittle some 10 years ago had a great deal to do with the fact that there is a separation in CIA of the handling of CI activities and positive espionage operations.
+
+30
+
+~~TOP SECRET~~
+
+NW 185
+DocId:2491
+Page 5
+NWI 88132
+DocId:34671876 Page 6

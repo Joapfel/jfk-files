@@ -1,0 +1,21 @@
+# JFK-Files-Part-3_page_14287.png
+
+s, Mr. Cord Meyer and Mr. Desmond Fitzgerald (head of CIA's headquarters staff dealing with Cuba). Highlights of the briefings were as follows:
+
+MESSRS. HELMS and MEYER
+
+**British Guiana**
+
+For a 79-day period ending in July, the anti-Jagan Trades Union Congress maintained a general strike which was directed against the Jagan regime, and had wide support among agrarian and industrial workers in protest against an oppressive Labor Bill proposed by Communist-oriented Jagan. CIA worked out with George Meany a program of CIA financial support ($435,000) to the strike under the cover of "AFL-CIO contributions."
+
+A CIA cover representative ran the strike program. The activity was tricky because the United States and the British desired to avoid violence; and the situation was complicated by the fact that the British Governor-General opposed the strike. CIA assesses the operation as a success because even though Jagan was not unseated, the oppressive Labor Bill was withdrawn and the TUC survived.
+
+The strike activity took place against a background of agreement between President Kennedy and MacMillan that the British will not pull out of Guiana for an indefinite future period, in the hope that a Communist government will not fill the vacuum when the British do withdraw.
+
+Cuban influence in the strike was in the form of a $1 million advance from Cuba to the Guiana Import-Export Corporation (an arm of Jagan's East Indian Peoples Progressive Party) which in turn was borrowed by the Jagan regime. Soviet help was indicated by a rumored transfer of over $100,000 to Jagan's Party through banks.
+
+TOP SECRET
+
+NWP881822
+
+DocId:34671891 Page 3

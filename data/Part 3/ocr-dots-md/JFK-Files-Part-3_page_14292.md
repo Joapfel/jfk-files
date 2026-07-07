@@ -1,0 +1,42 @@
+# JFK-Files-Part-3_page_14292.png
+
+Convert to MarkdownCIA considers that of all nationalities, the Cubans are
+the most unreliable (prone to exaggerate). The best informa-
+tion comes from non-Cuban agents.
+
+There are 108 agents in Cuba, including friendly diplomatic personnel. There are two illegal teams working, one of which has 200 sub-agents. There are 44 legal travelers working; 60 agents in Cuban shipping; and there are 31 penetrations of Cuban installations abroad.
+
+As to Soviet shipping into Cuba, CIA has an agent in
+every port, but observers cannot say what is in the crates
+they see being off-loaded.
+
+Since January CIA has disseminated 150 photographs taken by agents on-the-ground in Cuba. Also CIA has furnished its agents in Cuba more and better radio equipment.
+
+CIA's estimate of bloc personnel in Cuba: 12,000 Soviet troops; 150 Chinese (mostly diplomatic personnel); an unknown number of Soviet civilian technicians; and "a lot" of Czech and other bloc technicians working with the Cuban military forces.
+
+CIA considers that in the past 9 months progress has
+been made in (1) intelligence collection with respect to Cuba,
+and (2) effectiveness of the economic denial program. CIA
+feels that the "X" factor is the volatility of the Cuban people
+whose resignation to their lot under Castro would change over-
+night if they see evidence of successful sabotage operations
+against the Cuban government,
+
+CIA penetration of the Cuban military got under way in April. An agent brought out a Cuban Army major and he is being sent back into Cuba next week. The major says that there is a medium level acceptance among the military of the idea of overthrowing Castro, but although this view is held by individual members of the military they are fearful of communicating it to others within Cuba. The wife of the chief of training of the Cuban Army is a CIA source. Defectors are naming military personnel to be contacted. There is, however, a fear of the Castro security system.
+
+The subject of specific kinds and amounts of Soviet military
+equipment in Cuba is an area of the worst exaggeration and reporting
+by nonprofessional observers. However, there is no evidence of
+offensive missiles. There are 47 MIG-21's operated by Cuban pilots.
+Cubans are at the SA-2 sites and are being trained to operate them.
+We don't know what is in the caves, exactly. Neither CIA agents
+nor Cubans (nor even Castro) has access to the Soviet armored camps.
+
+A. R. Ash
+
+TOP SECRET
+
+N.W. 185
+Docld:2506
+Page 7
+Docld:34671891 Page 8

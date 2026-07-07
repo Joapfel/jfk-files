@@ -1,0 +1,54 @@
+# JFK-Files-Part-3_page_13710.png
+
+Convert to MarkdownWARD & PAUL
+
+410 First Street, S.E., Washington, D.C. 20003
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+15
+16
+
+TOP SECRET
+
+5
+
+in the Brazilian embassy state that this was going to take place?
+
+In other words, was he telegraphing this plan that he had?
+
+Mr. Johnston. I don't know. I assume not.
+
+AMLASH Case Officer. I would find it highly unusual that if he was serious about being involved in something like this, that he would publicly announce his plan, but I may be wrong.
+
+That's just my opinion.
+
+Mr. Johnston. So we have this Castro speech of September 7th, whatever that means, and we have the AMLASH operations we talked about in November and October, and then almost at the very moment of the Kennedy assassination we have your meeting with AMLASH and giving him the technical equipment or the assurances of technical equipment that he had requested at the October 29th meeting.
+
+You knew on November 24th, certainly November 25th, that the alleged assassin of President Kennedy was pro-Castro, Lee Harvey Oswald was pro-Castro.
+
+AMLASH Case Officer. I don't even know that at this time.
+
+Mr. Johnston. You don't know that at this time?
+
+AMLASH Case Officer. No, where did you get that?
+
+Mr. Johnston. You don't know?
+
+AMLASH Case Officer. That he was pro-Castro?
+
+TOP SECRET
+
+767000186536

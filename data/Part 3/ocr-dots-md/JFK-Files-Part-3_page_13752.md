@@ -1,0 +1,7 @@
+# JFK-Files-Part-3_page_13752.png
+
+Convert to MarkdownSUBVERSION -- Actions, which may or may not be inimical to U.S. interests, designed to undermine the military, economic, psychological, morale, or political strength of a constituted government.
+
+UNCLASSIFIED
+
+UNCLASSIFIED

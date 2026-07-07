@@ -1,0 +1,25 @@
+# JFK-Files-Part-3_page_14184.png
+
+Convert to Markdown(131. 10/1/62 Continued)
+
+(3) In the Western Army area, the 3 (possibly 4) SA-2 sites form a linear pattern for the defense of the military airfield at San Antonio de los Banos and the Havana-Mariel complex (San Antonio is headquarters for the Cuban Revolutionary Air Force and the assembly point for all MIGs except MIG-21s).
+
+(4) Further west, in Pinar del Rio Province, a triangular pattern of SA-2 sites cannot be connected with any significant military installation. There are 2 underground facilities within this triangle whose use and purpose are unknown. One of these 3 SA-2 sites is located very near to the San Julian military air base, but this is a most unlikely spot to place SA-2s for the defense of this air base. "Therefore, curiosity is immediately aroused as to the purpose of this triangular pattern on the far western tip of Cuba."
+
+(5) In the north central portion of Pinar del Rio Province is a trapazoid-shaped restricted area (15-20 miles on a side) controlled by Soviet military personnel recently introduced into Cuba. . . . no known military installations in this rough and sparsely populated area . . . Cuban refugees arriving in Miami say all Cubans have been evacuated from the area. Purpose of this restricted area is unknown.
+
+(6) Information on the deployment of Soviet military personnel and "technicians" in Cuba is derived from unevaluated refugee sources. A plotting of all reported locations indicates that there is a definite correlation between the location of Soviet personnel and missiles or missile activity. Significantly, the greatest concentration of Soviet personnel, activity and camps is in the western end of Cuba indicating a greater interest by the Soviets in Pinar del Rio than in other Provinces.
+
+(7) The source of an unevaluated report says that on September 12 he saw some 20 SS-4 (or possibly SS-3) missiles in the vicinity of Campo Libertad (a small airfield on the western edge of Havana). This report is unconfirmed and there are no other reports of such missiles. However, it is significant to note that by taking the approximate center of the trapazoid-shaped restricted area previously referred to, as the point of origin for a radius of 1100 nm (range of an SS-4 missile) the arc includes Philadelphia, St. Louis, Oklahoma City, San Antonio, Mexico City, all Central American capitals, the Panama Canal, and Venezuelan oil fields. "The presence of operational SS-4 missiles in this location would give the Soviets a great military asset."
+
+Based on the foregoing, DIA on 10/2/62 proposed to the COMOR Working Group that the Pinar del Rio search area be included in COMOR's reconnaissance objectives for Cuba. (This was done at the October 4 COMOR meeting and the objective was incorporated in the reconnaissance objectives list.) (Source: Letter to Coyne from Director, DIA, 11/13/62)
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+
+TOP SECRET
+
+SPECIAL LIMITED DISTRIBUTION
+
+NW88P32
+
+Doctd:34671886 Page 70

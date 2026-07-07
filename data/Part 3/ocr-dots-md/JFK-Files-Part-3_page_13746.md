@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_13746.png
+
+Convert to MarkdownSECRET
+
+mCarter #16 March 8 DDO
+
+**MRR - DDO - (continued)**
+
+Third Agency deletions - Seven sealed envelopes, rip FBI, one Dept of Defense 5-366-0308-64 23 Mar 1964 Re: Cuban episode counter-revolutionary activities
+
+Joe Luis Arango - military coordinator for MRR - used name Angelito.
+
+No. Notes
+
+Justin McCarthy - DDO - I, vol. - loose documents
+
+① Nov. 14, 1961 Calle - WA CITE NYOR 4995
+
+New York patrol board enquiring about any agency business with Justin McCarthy, DBOB 11 July 1919, Denver, Colorado.
+
+Pencilled notation: "DAD/0 #0405, Since source disclosed self to Parole Board - we can confer without 'revealing' identity. NYFO instructed to confirm, verbally, to Parole Board that JMEC did, in fact, approach us to offer suggestions/information. NYFO will make record of statement made by Reeves & forward ee to support." 11112303
+
+② Memo for files, 15 Nov 1961 from Harry A. Real Subj.: Justin McCarthy - New York Parole Board Inquiries Regarding Relations With CIA.
+
+SECRET
+
+NW 78334 DocId:32272188 Page 8

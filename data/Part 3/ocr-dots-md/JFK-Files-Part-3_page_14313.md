@@ -1,0 +1,15 @@
+# JFK-Files-Part-3_page_14313.png
+
+Convert to Markdownexpect to receive the information which it had to have in order to carry out its responsibilities to the President. Dr. Killian added that based on briefings which had been received by the Board there appeared to be a lack of information on the overall plan with respect to covert actions regarding Cuba which prompted General Taylor to explain that he had not yet had an opportunity to give the Board a thorough fill-in concerning covert actions against Cuba, which had been considered in the Special Group. After the Board meeting with the President, General Taylor summarized briefly for the Board the intelligence programs being established with respect to Cuba, pointing out that such programs were the first phase of the effort against Cuba at this time.)
+
+## Meeting of September 28, 1962
+
+During this meeting of the Board, Mr. Murphy presented an oral report of the Board's Panel on Covert Actions Operations, based on a detailed report which had been prepared by Mr. Coyne with respect to the recent meeting which the Panel had had with the DCI. Mr. Murphy touched on some of the highlights of the information which had been supplied by the DCI and by Mr. Helms, and Mr. Murphy suggested that Board members read the memorandum report which Mr. Coyne had prepared. Mr. Murphy thought that a good rapport had been established by the Panel with the DCI and he indicated that the Panel would continue to review the subject periodically with Messrs McCone and Helms. Dr. Baker, Acting Board Chairman, emphasized the need for the Board to obtain full and accurate information concerning covert operations being conducted with respect to Cuba and with respect to other matters.
+
+## Meeting of November 9, 1962
+
+At the beginning of this meeting, it was announced that Mr. Pace was absent on a trip to South America, in the course of which he would, on behalf of the Board, look into some foreign intelligence and covert action activities in Argentina and Uruguay.
+
+## Meeting of December 6-7, 1962
+
+During this meeting Mr. Coyne suggested that the Board consider the advisability of a recommendation to the President that the Board be granted continuing access to records of the

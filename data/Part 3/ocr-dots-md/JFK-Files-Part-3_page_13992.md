@@ -1,0 +1,39 @@
+# JFK-Files-Part-3_page_13992.png
+
+Convert to Markdownthe Army, Assistant Secretary of Defense, Director of Defense
+Mobilization and Presidential Assistant for National Security
+Affairs. He noted, too, that with Coyne on behalf of the Board,
+Mr. Gray has made on-the-scene reviews of intelligence activities
+in practically every country in the Near East, Middle East,
+Southeast Asia and the Far East. The Chairman next mentioned
+Dr. Land, his Presidency of Polaroid and his outstanding
+contributions to photographic reconnaissance techniques having
+special application to intelligence. He next mentioned
+Dr. William Langer, his distinguished academic career and his
+long association with the intelligence estimating process. He
+next mentioned Mr. Robert Murphy and his decades of service as
+a career diplomat, roving ambassador and Under Secretary of
+State. He next mentioned Mr. Frank Pace, noting that his
+experience as Director of the Budget Bureau and as Secretary
+of the Army, as well as his experience as President of General
+Dynamics, especially equips him to keep abreast of management
+and organization problems in the intelligence community and of
+the intelligence budgeting process. Finally Mr. Clifford
+mentioned Mr. Coyne, the Executive Secretary of the Board, as
+a Presidential appointee and member of the White House staff
+who has had some 24 years of experience in the intelligence
+field, first as Assistant Director of the FBI and in more
+recent years with the staff of the National Security Council
+and of the President. He observed that prior to President
+Johnson's assuming office, Coyne had served Presidents Truman,
+
+TOP SECRET
+
+HANDLE AS CO-OPERATIVE CHANNELS ONLY
+
+NWI 186
+DocID:2392
+Page 50
+
+NW 88132
+DocId:34671877 Page 51

@@ -1,0 +1,30 @@
+# JFK-Files-Part-3_page_14127.png
+
+Convert to MarkdownTOP SECRET
+
+THE WHITE HOUSE
+WASHINGTON
+
+January 26, 1963
+
+MEMORANDUM FOR THE FILE
+
+SUBJECT: Cuba
+
+In the course of the Board meeting of January 26, the Board members and the writer met at the Pentagon with General Maxwell Taylor, Chairman of the Joint Chiefs of Staff, at which time the members discussed with General Taylor the series of questions set forth in the attachment to this memorandum. The highlights of the discussion follow.
+
+General Taylor felt that the performance of DIA during the Cuba period was "on the whole good - in fact indispensable."
+
+General Taylor noted that from August 31 to September 21, he, Gilpatrick and McCone were all absent from the Washington area but he quickly added that things probably would not have been different had they been here.
+
+General Taylor disparaged the value of the refugee reports emanating from Cuban exiles in Florida during the months preceding the crisis. He said most of their information was unreliable although on reflection he concluded that some reports were in fact reliable. When General Taylor was asked by a Board member whether the intelligence community's estimating and reporting functions could have been hindered by pre-conceived views of Sovietologists regarding Soviet indications with respect to Cuba, General Taylor stated that either Khrushchev was stupid or we were. He said, "In the minds of most of us we just didn't think that the Soviets would put nuclear weapons on the island." He added that the birth of U-2 flights over Cuba prior to SAC's discovery was occasioned by the shoot-down of a U-2 over the Chinese communist mainland (causing us to go slow on authorizing U-2 anywhere), and the highly unsatisfactory weather conditions which prevailed in the Caribbean during the period preceding the discovery on October 14.
+
+Dr. Killian asked whether DIA had been as effective as it might have been and General Taylor responded that particularly after October 14 it had done such an excellent job that he could not suggest any way of improving on it. He said that in the pre-October 14 period the intelligence community "wasn't going at full steam." He added that all efforts in the Mongoose Committee to achieve a better intelligence base produced very little and that in the Mongoose Committee "we never received any urgent information of value on Cuba."
+
+TOP SECRET
+
+NW 185
+DocID:2501
+Page 15
+NW 88132
+DocId:34671886 Page 13

@@ -1,0 +1,36 @@
+# JFK-Files-Part-3_page_13998.png
+
+Convert to Markdowndevelopments in Panama for months on end and that perhaps this
+was so" but from the President's vantage point there was no
+specific information pinpointing developments until after
+difficulties had occurred.
+
+In the case of the coup which had occurred in South
+Vietnam on the night preceeding our meeting with the President,
+he said that he "received no intelligence at all on that
+development." In fact it appeared to the President that
+General Khanh had advised our intelligence people of a
+suspected coup which would be attempted by someone else in
+Saigon for the purpose of "pulling us off the track."
+
+Next the President inquired as to the Board's view on
+a request that he had recently received from the Pentagon.
+Reading from a communication which he had before him, it
+appeared that the President was being informed by the Pentagon
+that a proposal had been made to reduce the military membership
+on the U. S. Intelligence Board by dropping from the USIB the
+Directors of G-2, 'A-2 and ONI, retaining on USIB the DCI,
+the Deputy Director of CIA, DIA, NSA, State, AEC and FBI.
+Mr. Clifford observed that in our bureaucracy no one having
+representation on a committee likes to be removed therefrom
+but that it was his personal view that USIB would probably
+function as well if not better with reduced membership. The
+President indicated that the Chiefs of Staff did not agree.
+They were, in fact, asking the President to permit their
+respective G-2's to continue as regular members of USIB.
+Mr. Clifford advised that he and the other Board members
+did not agree that this was necessary, particularly now
+
+TOP SECRET
+
+HANDLE VIA COMINT CHANNELS ONLY 8 -

@@ -1,0 +1,50 @@
+# JFK-Files-Part-3_page_13890.png
+
+Convert to MarkdownOctober 2, 1964
+
+| ITEM | TIME | SUBJECT |
+| :--- | :--- | :--- |
+| 13. | 9:00 - 9:45 | Chairman's Time |
+| 14. | 9:45 - 10:45 | Current Intelligence Briefing on Situations in South Vietnam, North Vietnam, Laos, Cambodia, Communist China, Malaysia-Indonesia, Cyprus, Congo, Cuba |
+| | | Mr. Ray Cline & Mrs. Clinton B. Congeney |
+| | | Deputy Director for Intelligence, CIA (or Mr. R. J. Smith) |
+
+| ITEM | TIME | SUBJECT |
+| :--- | :--- | :--- |
+| 15. | 10:45 - 11:00 | Executive Session |
+| 16. | 11:00 - 12:00 | The National Reconnaissance Program |
+| | 12:15- | Dr. Brockway McMillan-Bruce genes J. G. D. T. |
+| | | Director, National Reconnaissance Office |
+
+| ITEM | TIME | SUBJECT |
+| :--- | :--- | :--- |
+| 17. | 12:00 - 12:15 | Executive Session |
+| 18. | 12:15 - 1:00 | Lunch - White House Mess |
+| 19. | 1:00 - 1:45 | Briefing on Highlights of Recent U.S. National Photographic Intelligence Activities |
+| | 1:10 - 1:50 | Dr. Arthur Lundahl |
+| | | Director, National Photographic Intelligence Center |
+
+| ITEM | TIME | SUBJECT |
+| :--- | :--- | :--- |
+| 20. | 1:45 - 3:00 | Discussions of Future Board Business |
+| 21. | 3:00 - 4:30 | Discussions with the Director of Central Intelligence |
+| | | Mr. John A. McCone & Mrs. Lyman Kiehlpert |
+
+| ITEM | TIME | SUBJECT |
+| :--- | :--- | :--- |
+| 22. | 4:30 - End of Day (5:00) | Executive Session |
+
+Handle via DVEMAN
+Control System
+
+TOP SECRET
+
+NW 185
+
+DocId: 2490
+
+Page 1
+
+NW 88132
+
+DocId:34671875 Page 5

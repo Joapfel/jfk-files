@@ -1,0 +1,48 @@
+# JFK-Files-Part-3_page_13698.png
+
+Convert to Markdowngsh 53
+
+Phone (Area 202) 544-6000
+
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
+11
+12
+13
+14
+
+WARD & PAUL
+
+AMLASH Case Officer. This was at the meeting in October and not at the November meeting because that is correct, provided you put it in the right context.
+
+Mr. Johnston. What about the statement, all the money he wanted?
+
+AMLASH Case Officer. Inferred. I mean I don't recall that money was ever discussed with this man at any time. In fact I was asked this question before and I couldn't really recollect when I had given him some money.
+
+It turns out that the record shows that I did give him $350 for his expenses. But money, specifically, again, that is somebody else interpreting. I don't know of any other document or certainly any memorandum for the record that I prepared in which money specifically was mentioned.
+
+Mr. Johnston. But would you disagree with the statement?
+
+AMLASH Case Officer. Well, the statement as a whole, if you leave out the money, which again, anything that he needs.
+
+Mr. Johnston. Well, that's what we want to leave in, the money.
+
+AMLASH Case Officer. If he needs the money, I think it was not excluded in the offer. But what I'm saying--
+
+Mr. Johnston. This makes a positive statement, him saying that you and Mr. Fitzgerald assured AMLASH that the Agency would give him everything he needed, all the money he wanted.
+
+TOP SECRET
+
+7 6 0 0 0 1 O R B I
+
+410 First Street, S.E., Washington, D.C. 20003
+
+NWW00608C10011E42F29B405A1D7E8D5

@@ -1,0 +1,29 @@
+# JFK-Files-Part-3_page_14133.png
+
+Convert to Markdownthat no high-level penetration of the Cuban Government had been achieved. In answer to a question from the Attorney General, General Lansdale said that intelligence indicated that although there was widespread dissatisfaction with Castro, there was no rallying point for active opposition.
+
+The Attorney General and Mr. Johnson emphasized the need for an effort to obtain hard intelligence on subversive activities by the Castro regime in the Hemisphere, Mr. McCone noting that such efforts to date had been fruitless.
+
+Dr. Cline showed the Group the extent of reconnaissance coverage of Cuba. Mr. McCone emphasized that this program has developed complete information on deployments and facilities for the Army, Navy, and Air Force, and he particularly noted that these missions have verified that there is sufficient logistic support for a 75,000-man military force. "No missile sites have been found."
+
+The Group agreed on a complete review of MONGODB toward the end of July, with participation by the Secretaries of State and Defense. General Taylor emphasized that in the preparation for such review, there would be a need for summaries of results obtained to date, of intelligence developed, and of future alternatives opened to the United States (including possible activities in other parts of Latin America).
+
+Mr. Johnson said that the State Department is investigating the possibilities for subsidizing Japanese purchases of Dominican sugar to divert purchases from Cuba and thereby deprive Cuba of a source of dollars, and Mr. Johnson asked that MONGODB operational representatives look into this further. Mr. McCone said that the CIA could use unvouchered funds for this purpose, but it would be illegal to use covert funds as a means of evading the intent of Congress.
+
+## Minutes of the October 4, 1962 Meeting of the Special Group (Augmented)
+
+Those present for this meeting with regard to Operation MONGODB were the Attorney General, Mr. Johnson, Mr. Gilpatrick, General Lansdale, Mr. McCone, General Carter, and Mr. Wilson.
+
+The Attorney General informed the Group that higher authority was concerned about progress on the MONGODB program and felt that more priority should be given to trying to mount sabotage operations. The Attorney General wondered if a new look were
+
+Control System
+
+Handle Via TALENT-KEYHOLE Channels
+
+TOP SECRET
+
+NW 185
+DocId: 2501
+Page 18
+N\W 88192
+DocId:34671886 Page 19

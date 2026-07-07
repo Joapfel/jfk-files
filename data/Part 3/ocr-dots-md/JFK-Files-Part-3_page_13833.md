@@ -1,0 +1,13 @@
+# JFK-Files-Part-3_page_13833.png
+
+Convert to MarkdownSECRET
+
+them by making away their food, but then all the members of the group went on a hunger strike in protest. Discipline then appears generally to have broken down, the trainees got their way but were no longer motivated to study. The source and most other members of his group left Cuba and arrived in Prague on 23 December. At his first opportunity, he left Czechoslovakia and reported his experiences to officials in a West European country.
+
+12. This source's total period of training in Cuba was approximately six months. Other trainees have gone for periods of three months or less. An unknown number have probably remained a year or more and, in some instances, remain in Cuba indefinitely. The latter sometimes join one of the numerous groups of nationals from particular Latin American countries which, in effect, form cadres being groomed for eventual return to their countries, perhaps "after the revolution."
+
+13. Information from all available sources indicates that nationals of all nineteen other Latin American countries, with the possible exception of Uruguay, have been among those receiving guerrilla training in Cuba during the course of 1962. Venezuelans seem most numerous; some 200 of them are estimated to have received training in Cuba during the past year. Relatively large numbers have also come from Peru, Ecuador, Argentina, and Bolivia.
+
+14. Prior to the October crisis, the trainees going to Cuba usually traveled by regular commercial airlines or, on some occasions, by specially chartered Cuban commercial planes. Those coming from South America generally went via Uruguay, Chile, or Brazil to Trinidad or Curacao and from there by regularly scheduled Cubana or KLM planes to Havana. Those coming from Middle America generally traveled through Mexico and then by Mexicana or Cubana commercial planes to Havana. With the cessation of service to Cuba by KLM, Mexicana, Iberia and other Western airlines after 23 October, the regular Cubana service between Mexico City and Havana remains the only direct and regular air connection between Cuba and the rest of Latin America. There has been a sharp increase in recent weeks of travelers to Mexico from South America en route to Cuba. Many of these were invited for the 2 January anniversary celebrations
+
+SECRET

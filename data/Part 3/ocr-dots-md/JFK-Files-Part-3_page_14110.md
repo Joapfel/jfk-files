@@ -1,0 +1,27 @@
+# JFK-Files-Part-3_page_14110.png
+
+Convert to Markdowna periodic regional intelligence bulletin on Southeast Asia, and that consideration is being given to issuing similar regional intelligence bulletins for consumers in other areas. He described this particular recommendation as being a "good suggestion."
+
+At this point Mr. Clifford, reverting to the discussion on the Hanson Baldwin matter, asked whether a separate investigative unit is being established as recommended by the Board, in lieu of the referral of leaks for investigation by the FBI. Mr. McCone responded that this matter is still under consideration; that in his own office he is prepared to set up such a unit; that he and the President feel this action must be taken; but that there is growing concern in some quarters that the creation of such a unit might ultimately lead to the establishment of some kind of internal Gestapo.
+
+Mr. McCone next turned to the subject of Cuba. He said that in late July there was first witnessed an increased tempo of Soviet bloc shipments to Cuba, and by August the rate of shipments had more than doubled. On August 10, 1962 there was held a meeting of Principals (the President not participating) to discuss Cuban operations which had taken place during the preceding months of 1962. Up to that time there had been an exploratory intelligence effort primarily aimed at providing a basis for deciding what covert actions could be taken against the Castro regime. The results of this intelligence effort had been reflected in reports appearing in the Central Intelligence Bulletin and in items which were set forth in the Presidential Check List. At that time, Mr. McCone said, he analyzed the developments in Cuba as indicating (1) the establishment of a sophisticated SIGINT operation to be directed against our space activities at Camp Canaveral, (2) the establishment of a comprehensive air defense system, or (3) the introduction of a MRBM capability, or possibly all three. However, no one shared Mr. McCone's feeling that the Soviet activities in Cuba were directed toward the establishment of a ballistic missile capability. On the contrary, the Department of State and the Office of National Estimates within the CIA considered that such action by the Russians would be a departure from established Soviet policy.
+
+Mr. McCone said that throughout August a careful watch was maintained with respect to developments in Cuba, and in late August the construction of SAM sites was detected. By August 23, when Mr. McCone left the country (on his honey-moon), there had been obtained photographic evidence of the construction of seven SAM sites together with evidence of extreme security measures being taken with respect to the unloading of ships at Cuban ports. These developments, Mr. McCone related, gave rise to considerable worry on his part,
+
+HANDLE VIA COMINT CHANNELS ONLY
+
+Handle Via TALENT-KEYHOLE Channels
+
+Handle via BYELMAN
+Control System
+
+TOP SECRET
+
+NW185
+Doctd:2500
+Page 6
+
+NWI892
+Page 7
+
+Docld:34671885 Page 7

@@ -1,0 +1,34 @@
+# JFK-Files-Part-3_page_14167.png
+
+Convert to Markdown(75. 8/31/62 Continued)
+
+"troops. Troops is what I mean, and not technicians. They were wearing Soviet fatigue uniforms,
+
+"On August 13 five Soviet torpedo boats unloaded from Soviet ships, and are now moored at La Base. There is every indication that the naval complement to handle these boats disembarked at the same time.
+
+"Again let me emphasize that these could not reasonably be called technicians,
+
+"On August 13, 1,000 non-Cuban personnel in fatigue uniforms were seen working in the area near Finca La Guatana, in all probability on or near a missile base located in that area.
+
+"On August 3 a large convoy of military vehicles manned by Soviet personnel was observed on the highway in Las Villas Province. The convoy moved in military order and contained the first amphibious vehicles observed in Cuba; also jeeps, 6x6 trucks, and tracked trucks.
+
+"On August 5 there was a movement seen of a 64-vehicle convoy heading west on Carretera Central. The convoy was moving in military order. It included tanks, cannonlike trailers, and flatbed trailers.
+
+"On August 8 there was observed a night movement of a convoy on Carretera Central. Flatbed trucks were observed transporting concave metal structures supported by tubing. The convoy included a number of closed vans. The convoy appeared to be moving toward an installation 4 to 5 kilometers from Canimar in a closely restricted area believed to contain a rocket installation.
+
+"There have been other observations of activities there, which have been confirmed,
+
+". . . Since July the Soviet Union has greatly stepped up shipments of men and equipment. More than 20 cargo ships have arrived from Communist ports in the last few weeks. Many have been unloaded under maximum security. Between three and five thousand so-called 'technicians' have arrived in the course of the past year. Soviet statistics reveal that by the end of the year the Soviets will have shipped nearly $1 billion of goods and equipment to Castro. Cuban trade with non-Communist countries will be down to about 30 percent next year and Cuba will be virtually isolated from the free world--a Communist enclave within the free world where the Soviets can operate unchecked and to a large extent unobserved.
+
+". . . More ominous reports suggest that the Soviets are constructing missile bases and sending over technicians and experts to man them. In this way the Soviets could expect to discourage determined refugees of other nations of this hemisphere from any kind of concerted attack on the Cuban dictatorship. They could also strengthen Castro to resist increasing internal dissatisfaction against his
+
+HANDLE VIA COMINT/TALENT/KEYHOLE CHANNELS ONLY
+SPECIAL LIMITED DISTRIBUTION
+
+TOP SECRET
+
+NW 185
+DocID:2501
+Page 53
+NWS8192
+DocId:34671886 Page 53
