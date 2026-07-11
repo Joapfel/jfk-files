@@ -1,0 +1,37 @@
+PAYROLL CHANGE DATA
+
+Previous normal
+
+New normal
+
+Pay this period
+
+BASE PAY GROSS PAY
+
+OVERTIME
+
+RET. FISCAL TAX
+
+BOND
+
+E.C.A.
+
+STATE TAX GROUP LIFE INS.
+
+NET PAY
+
+Payroll period Block No. Slip No.
+
+5-1,239-40
+
+7-13 38,560.00
+
+Payroll Change Data
+
+BASE PAY GROSS PAY RET. FISCAL TAX BOND E.C.A. STATE TAX GROUP LIFE INS. NET PAY
+
+Previous normal
+
+New normal
+
+Pay this period </

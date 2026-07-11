@@ -1,0 +1,45 @@
+FILE-1 SECRET (When Filled In)
+
+TRAVEL BRIEFING DATA
+
+ROUTE PHONE FILÉ NUMBER
+
+CITY RANK OR GRADE
+
+NATIONALITY STATUS COVER YES
+
+AREA DEPENDENTS BRIEFTED
+
+APPROVAL PREVIOUS TRAVEL
+
+A COVER YEARS NO
+
+B COVER
+
+C COVER YEARS
+
+D
+
+SPECIAL BRIEFING PROBLEM
+
+SECURITY APPROVAL FOR TRAVEL VERIFIED IN SUBJECT FILE YES NO
+
+SECURITY APPROVAL FOR TRAVEL BASED ON FILE REVIEW BY BRIEFING OFFICER YES NO
+
+SECURITY FILE AVAILABLE FOR REVIEW BEFORE BRIEFING YES NO
+
+EMERGENCY CONTACTS (met on arrival, phone no., alternate action to make contact)
+
+SECURITY REGULATIONS (operational talk, documents, indigenous employee hazards)
+
+TRAVEL PRECAUTIONS (recognition overseas, camera, black market, currency exchange)
+
+PERSONAL AFFAIRS (charge accounts, traffic tickets, litigation, neighbors)
+
+PERSONAL CORRESPONDENCE (limitations, home address, shop talk)
+
+PERSONAL CONDUCT (morals, drinking, representative americans)
+
+ASSOCIATION WITH FOREIGNERS' (overseas briefing, phase out on return)
+
+MOSTILE AUDIO SURVEILLANCE (microphones, shop talk at home hotels, report to security)

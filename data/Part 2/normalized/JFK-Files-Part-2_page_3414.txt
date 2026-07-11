@@ -1,0 +1,87 @@
+JMWAVE ORGANIZATION
+
+SECRETARY
+
+CHIEF OF STATION
+
+SIGNAL CENTER
+
+4- COMMUNICATORS
+
+SUPPORT BRANCH
+
+1-Chief, Support
+
+1-Secretary
+
+1-Finance Officer
+
+1-Finance Asst
+
+1-Logistics Officer
+
+1-Logistics Asst
+
+1-Records Officer
+
+1-Intel Asst
+
+1-Clerk
+
+OPERATIONS BRANCH
+
+FI SECTION
+
+1-Officer (Refugee Debriefings)
+
+1-Officer (On Island Assets)
+
+1-Officer (Liaison with Local Services)
+
+1-Officer (FI Third Country)
+
+1-External Ops Rep (AMOT)
+
+2-Intel Assts (Management of On-Island Ops)
+
+1-Secretary Steno
+
+CA BRANCH
+
+1-Chief
+
+1-Ops Officer (Radio)
+
+1-Ops Officer (Pol Action Press and Publication)
+
+1-Admin Asst
+
+1-Secretary
+
+EXTERNAL OPS BRANCH
+
+1-Chief
+
+1-Ops Officer (JMCHALK)
+
+1-Ops Officer (Referent with Station FI Branch)
+
+1-Intel Asst
+
+1-Secretary Steno
+
+REPORTS SECTION
+
+3-Reports Officers (One of these AMOT officer to handle AMOT reporting)
+
+1-Secretary Steno
+
+1-Clerk Typist
+
+TECHNICAL SERVICES SECTION
+
+1-Photo General
+
+1-IO Tech Aide
+
+1-Clerk Typist

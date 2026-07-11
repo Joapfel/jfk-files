@@ -1,0 +1,23 @@
+4.01.04 Does he have a nickname: If Yes, does he object to being addressed by his nickname? Yes No X
+
+4.01.05 Is he addressed by a diminutive? (Johnny, Jack, Hank, etc.) Yes X No
+
+4.01.06 Does he have any scars or other distinguishing marks? If so, please describe: Yes No X
+
+4.02 Hair:
+
+4.02.01 Color Very light &nbsp;&nbsp;&nbsp; Light &nbsp;&nbsp;&nbsp; Medium X&nbsp;&nbsp;&nbsp; Gray or white &nbsp;&nbsp;&nbsp; Dark &nbsp;&nbsp;&nbsp; Very dark &nbsp;&nbsp;&nbsp;
+
+4.02.02 Waviness Curly X&nbsp;&nbsp;&nbsp; Average &nbsp;&nbsp;&nbsp; Straight &nbsp;&nbsp;&nbsp;
+
+4.02.03 Amount Thick &nbsp;&nbsp;&nbsp; Average X&nbsp;&nbsp;&nbsp; Sparsely Balding &nbsp;&nbsp;&nbsp; Bald &nbsp;&nbsp;&nbsp;
+
+4.02.04 Grooming Well-groomed &nbsp;&nbsp;&nbsp; Unruly Average X&nbsp;&nbsp;&nbsp; Unkempt &nbsp;&nbsp;&nbsp;
+
+4.02.05 Is there anything unusual about his hair or hair style? If so, please describe:
+
+4.03 Eyes:
+
+4.03.01 Color Gray &nbsp;&nbsp;&nbsp; Green &nbsp;&nbsp;&nbsp; Blue &nbsp;&nbsp;&nbsp; Yellowish &nbsp;&nbsp;&nbsp; Hazel &nbsp;&nbsp;&nbsp; Light brown &nbsp;&nbsp;&nbsp; Brown &nbsp;&nbsp;&nbsp;
+
+4.03.02 Wears eyeglasses Always &nbsp;&nbsp;&nbsp; To read &nbsp;&nbsp;&nbsp; Never X&nbsp;&nbsp;&nbsp;

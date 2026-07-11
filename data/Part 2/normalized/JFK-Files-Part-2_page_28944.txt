@@ -1,0 +1,63 @@
+FORM OA-C528b (4-64) KC
+
+MARINA N. OSWALD
+
+CLAIM NO. 433-54-3937-E E
+
+DATE 6/7/65
+
+INITIALS
+
+CR. BLOCK NO. =0208 JUN '65 KC
+
+DATE OF BIRTH
+
+PAYEE FILE
+
+DIARY FILE
+
+CROSS-REF.
+
+ACCOUNT NO.
+
+Investigation pending determ. of cont. disability
+Failure to have a child entitled to benefits in your care
+Refused VR Services
+
+1. Worked outside the United States 8. Payee not determined
+
+2. Worked and expects net earnings to exceed $1200 5. OAIB worked outside the United States 9.
+
+3. OAIB worked and expects net earnings to exceed $1200 mjb Clerk (Date)
+
+Reviewer (Date)
+
+0. Benefits payable by some other agency
+
+Death of beneficiary
+
+2. Dependent terminated due to death of insured individual
+
+X 3. Divorce or Marriage Remarriage
+
+4. Attained age 18 and not disabled
+
+5. Beneficiary entitled to other benefits
+
+6C. Child no longer disabled
+
+Death Marriage of child
+
+7C. Adoption
+
+Adoption of child
+
+8H. DIB no longer disabled
+
+8. Mother terminated- Child no longer disabled
+
+X. DIB attained age 65
+
+R. Claim withdrawn
+
+"}]

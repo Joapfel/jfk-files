@@ -1,0 +1,19 @@
+POSITION CONTROL REGISTER
+
+Title Rank Previous Position Department Number Title C.A. Staff Code Employee Number Date Hired Grade Type of Leave End Date Month Year Shift Location P.O.S. Station Station Code Department Head Department Title Motto
+
+Level Number in Level Status
+
+Lt. Col. Ewing S. Fife Col./Lt. C-0134.01 Sr. 1956 D
+
+Lt. Col. J. P. Williams Col./Lt. C-0134.01 Sr. 1956 G
+
+Maj. D. R. Anderson Maj./Sr. C-0132.58 Sr. 1956 *D
+
+Pfc. B. K. McVey Pfc. C-0318.01 Jg. 1945 10
+
+Drs. E. W. Meehan Dr. C-0118.01 Jg. 1945 D
+
+Sgt. H. C. Lee Sgt. C-0136.01 Jg. 1933 I
+
+Sgt. L. P. Henson Sgt. C-01

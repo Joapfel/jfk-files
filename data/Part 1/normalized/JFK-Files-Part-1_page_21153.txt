@@ -1,0 +1,15 @@
+VOLUNTARY ENTRIES
+
+Experience in the handling of employee emergencies has shown that the absence of certain personal data often delays and complicates the settlement of estate and financial matters. The information requested in this section may prove very useful to your family or attorney in the event of your disability or death and will be disclosed only when circumstances warrant.
+
+INDICATE NAME AND ADDRESS OF ANY BANKING INSTITUTIONS WITH WHICH YOU HAVE ACCOUNTS AND THE NAMES IN WHICH THE ACCOUNTS ARE CARRIED. CLARENDON TRUST CO., ARLINGTON 10, VA. JAMES G. RICHARDSON &amp; JOINT HARRIETTE D. RICHARDSON
+
+HAVE YOU COMPLETED A LAST WILL AND TESTAMENT? YES NO. (II "Yes" where to document location?)
+
+HAVE YOU PREPLANNED AN ARRANGED GUARDIANSHIP OF YOUR CHILDREN IN CASE OF COMMON DISASTER TO BOTH PARENTS? YES NO. (II "Yes" give name(s) and address)
+
+HAVE YOU EXECUTED A POWER OF ATTORNEY? YES NO. (II "Yes", who possesses the power of attorney?)"}, {"bbox": [530, 1509, 1899, 1536], "category": "Text", "text": "ADDITIONAL DATA AND/OR CONTINUATION OF PRECEDING ITEMS"}, {"bbox": [481, 2857, 2288, 2994], "category": "Table", "text": " SIGNATURE DATE WHEN
+
+JACQUES E. RICHARDSON 31 July 62 Washington, D.C.
+
+"}, {"bbox": [1242, 2998, 1513, 3032], "category": "Text", "text": "CONFIDENTIAL"}]

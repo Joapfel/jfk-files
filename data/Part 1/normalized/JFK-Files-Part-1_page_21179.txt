@@ -1,0 +1,47 @@
+request for personnel action
+Serial No.
+Name (Last, First, Middle)
+Date Of Birth
+Vot Prof.
+Sea
+CS - L/C Mo. & Da. Yr. Mo. & Da. Yr. Mo. & Da. Yr. WELCH JAMES E JR.
+CSC Form. & No.
+Appmt. Affidavt
+REGL
+LCD Mo. & Da. Yr. Yes. 1 Code Mo. & Da. Yr. Yes. 1 Code Mo. & Da. Yr. Mo. & Da. Yr.
+SCD
+CSC Form.
+CSC Or Other Legal Authority
+Will Order LCD Mo. & Da. Yr. Mo. & Da. Yr. Mo. & Da. Yr. Mo. & Da. Yr. Mo. & Da. Yr.
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations Code 15. Location Of Official Station Station Code
+
+DOS OFFICE OF THE CONTROLLER FINANCE DIVISION COMPENSATION AND TAX ACCOUNTS CONTRACT AGENTS ACCOUNT SECTION
+
+16. Dept. Field 17. Position Title 3803 WASHINGTON, D.C. 75013
+
+Dept. - USId - From . Code 2 FINANCE ACCOUNT-18. Position No. 051.03 25 0510.1%
+
+Grade & Stop
+Salary Or Rate
+SD
+Date Of Grade
+PSI Due
+Appropriation Number
+
+5/1 3670 9 09 122 157 09 121 159 8-304-20
+
+ACTION
+
+Nature Of Action Code
+L.H. Date Mo. Da. Yr.
+Type Of Employee Code
+Separation Date:
+
+Reassignment 56 ASAP Regular 01
+
+PRESENT ASSIGNMENT
+
+Organizational Designations Code</

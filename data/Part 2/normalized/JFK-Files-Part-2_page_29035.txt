@@ -1,0 +1,83 @@
+SUPPLEMENT TO SCHEDULE C
+
+Description Amount
+
+Income $45,499.72
+
+Loan: Sales Tax 383.47 $45,116.25
+
+Cost of Credit Sold 800.00
+
+Loan: Inventory Purchase
+
+Decay/Milk 4,491.98
+
+Quebec 16,463.08
+
+Meat 2,923.29
+
+Bakery/Traci 3,102.44
+
+Total Available $27,780.79
+
+Loan: Ending Inventory 800.00 26,980.79
+
+Gross Income $18,135.46
+
+Description Amount
+
+Expenses
+
+RGS-1,728.82
+
+Accounting 100.00
+
+Payroll 3,877.93
+
+Payroll Tax 323.42
+
+Insurance 190.00
+
+Tollgate 127.45
+
+Advertising 25.00
+
+Minolta Llc Group/Topolino 254.15
+
+Equipment 382.25
+
+Taxi/Lebanou 214.51
+
+Wondery 12.15
+
+Auto 425.29
+
+Linen -0-
+
+Donations 61.94
+
+Newspapers 14.65 7,737.56
+
+NET INCOME $10,397.90
+
+Loan: Depreciation 3,428.50
+
+NET INCOME-6,969.40
+
+DEPRECIATION ---
+
+Description Year Amount
+
+:--- :-: ---:
+
+Equipment 4-70 5 Yr. SL $2,000.00
+
+| Equipment not to
+
+Leave 2 Yr. SL 1,000.00
+
+| Leasehold Imp.
+
+(Balance of Lease) 7 Yr. SL 428.50
+
+$3,428.50

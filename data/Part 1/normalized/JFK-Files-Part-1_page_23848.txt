@@ -1,0 +1,45 @@
+Passport No. Date
+
+4.6.63. Arr. U.K., London Airport, visit up to 3 months. 9
+
+5.6.63. Dept. U.K., London Airport. 9
+
+7.6.63. Arr. France, Ciry. 7
+
+6.6.63. Dept. France, Vallorto. 8
+
+16.6.63. Dept. France, Ciry. 7
+
+26.6.63. Arr. U.K., London Airport, visit up to 3 months. 10
+
+2.7.63. Dept. U.K., Getaick. 10
+
+2.7.63. Arr. France, The Bourget. 5
+
+9..6.63. Arr. U.K., London Airport, visit up to 3 months. 10
+
+9.6.63. Dept. U.K., London Airport. 10
+
+9.1.63. Arr. SITZERLAND, Genova, air. 7
+
+1.10.63. Dept. France, Le Bourget. 5
+
+1.10.63. Arr. U.K., London Airport, visit up to 3 months. 10
+
+3.10.63. Dept. U.K., London Airport. 10
+
+7.10.63. Arr. France, Le Bourget. 10
+
+27.10.63. Arr. France, Vallorto. 8
+
+12.10.63. Dept. France, Care du Nord. 11
+
+14.10.63. Arr. Belgium, 7 Brussels. 7
+
+9.12.63. Gela Ruther Stamp. 11
+
+16.1.64. Arr. France, Vallorto. 11
+
+23.1.64. Dept. France, Care du Nord. 11
+
+25.1.64.</td

@@ -1,0 +1,45 @@
+17. MILITARY EDUCATION - In order to be eligible for military service in the United States, all men between the ages of 18 and 21 must have completed at least one year of active duty in the Army, Navy or Air Force. Prior to age 18, men must have completed a period of at least six months of active duty in the Marine Corps. All men must have received at least one certificate of completion of basic military training. This statement must also be completed by all male members of the National Guard and by female members of theActive Component of the Military Forces. The information on this form will be used to compute the length of time that a person has served in the armed forces, and it will help determine which branch of the military he or she belongs to.
+
+(a) First Special Service Unit Attended
+
+Location
+
+Years Attended (if more than one)
+
+From: To: Earning mentioned at end of this training
+
+(e) Duty assignment or rating after being given all expected changes in duty assignment (whichever is not you) attended a Special Service School.
+
+Date of duty assignment (months, years)
+
+From: To: Earning mentioned at end of this training
+
+(f) Second Special Service School Attended
+
+Location
+
+Years Attended (if more than one)
+
+From: To: Earning mentioned at end of this training
+
+(g) Duty assignment after this training
+
+Date of duty assignment (months, years)
+
+From: To: Earning mentioned at end of this training
+
+List on a separate sheet of paper any additional experience, training, service, or special duty assignments during military service or hospitalization.
+
+(h) Education - Circle highest grade completed
+
+1 2 3 4 5 6 7 8 9 10 11 0
+
+Mark in the appropriate box to indicate in what branch of service he or she is currently serving: Airborne Force Assignment [Marked] (see NOTE below) or other branches of service.
+
+Elementary School [Marked] [input type="checkbox", checked] High School [input type="checkbox", checked] Some College [input type="checkbox"] (See Note below)
+
+Business course with emphasis on office management.
+
+&nbsp; Subjects Studied Business Course Concluded Semester Credit Hours
+
+Term To- Day Night Title Date

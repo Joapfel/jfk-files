@@ -1,0 +1,47 @@
+NOTIFICATION OF PERSONNEL ACTION
+
+MCC-3 Date Of Birth Mo. Da. Yr. 4 Vet. Prof. None-0 5 Pt-1 10 Pt-2 Code (C) M 1 5 Sex 6 CS-LCD Mo. Da. Yr.
+
+Serial No.
+SCD Mo. Da. Yr.
+CSC Retmt. Yes-1 No-2 Codo 1 59 USCA-400 J
+CSC Retmt.
+CSC Or Other Legal Authority Yes-1 No-2 Codo 1 59 USCA-400 J 10 Apmt. Affidav Mo. Da. Yr.
+FEGLI-19 LCD Mo. Da. Yr.
+App't.-Ord. Yr.
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations DDP FI RECORDS INTEGRATION DIVISION ANALYSIS AND OPERATIONS BRANCH INDEX SECT ON Code WASH. D. C. 15. Location Of Official Station Station Code
+
+Dept. - Field Dept - 1 Codo USId - 3 2 Frgn - 5
+Position Title FILE CLERK
+Position No. 424.05
+Serv.
+Occup. Series GS 0305.01
+
+Grade & Step 04 1
+Salary Or Rate 3415
+SD DS
+Date Of Grade Mo. Da. Yr.
+PSI Due Mo. Da. Yr.
+Appropriation Number 8 2309 23
+
+ACTION
+
+Nature Of Action Code 0-1
+Eff. Date Mo. Da. Yr.
+Type Of Employee REGULAR
+Separation Data
+
+PRESENT ASSIGNMENT
+
+Organizational Designations DDP WH BRANCH III MEXICO CITY, MEXICO STATION Code 4751
+Location Of Official Station MEXICO CITY, MEXICO
+Dept. - Field Dept - 1 Codo USId - 3 5 Frgn - 5
+Position Title MAIL AND FILE CLERK
+Position No. 510
+Serv.
+Occup. Series GS 0205.05
+
+38. Grade & Step 04 1 39. Salary Or Rate 3415

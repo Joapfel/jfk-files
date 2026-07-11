@@ -1,0 +1,61 @@
+SECRET COURIER
+
+REQUEST FOR PERSONNEL ACTION
+
+Serial No.
+Name (Last-First-Middle)
+Date Of Birth
+Not Preceding
+Sex
+CS-EOD
+
+512170 RANDALL FREDERICK M 18 Mo. F 28 Do. 25 Yr. Yes - 1 No - 2 Cod No 01 Yes 5 Mo - 1 No 9 M 1 M 09 F 18 Do. 51 Yr.
+
+SCD
+CSC Retmt.
+CSC Or Other Legal Authority
+Apmt. Affidav. 11 FEGLI-18 LCD
+M.B.P.S. LCO
+
+Mo. 12 Do. 27 Yes - 1 No - 2 Code 1 Mo. 09 Yr. 10 No - 2 Mo. 09 Da. 10 Yr. 51 Yes - 1 No - 2
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations Code 15. Location Of Official Station Station Code
+
+DDP FE FE MIA INDONESIA, MAL., AUST., NEW ZEA. INDONESIA SECTION
+
+Dept. - Field
+Position Title
+Position No.
+Serv.
+Occup. Series
+
+Dept. USId: Frgn. CONSULAR OFF AREA OPS OFF CH 3876 FSR GS 0136.01
+
+Grade & Step
+Salary Or Rate
+SD
+Date Of Grade
+PSI Due
+
+06 13 1 7150 9890 D1 Mo. Da. Yr. 09 07 58 Mo. Da. Yr. 03 06 60 9 3700 10 201
+
+ACTION
+
+Nature Of Action Code
+UK. Data
+Type Of Employee Code
+Separation Date
+
+Conversion From FSR Status 20 0000 03 12 199 Regular 31
+
+PRESENT ASSIGNMENT
+
+31. Organizational Designations Code 32. Location Of Official Station Station Code
+
+Dept.-Field
+Position Title
+Position No.
+Serv.
+Occup. Series </

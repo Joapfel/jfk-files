@@ -1,0 +1,67 @@
+ORIG: RITA PERKINS UNIT: SR/2/CE EXT : 8757 DATE: 21 F FEBRUARY 1961
+
+ROUTING
+
+1 4
+
+2 5
+
+3 6
+
+TO : PARIS
+
+CONF: SR 6
+
+INFO: CI, C1/OPS, FI, TSD-4,
+
+RE: Piling (check one):
+
+No CS Record Value. Destroy.
+
+DI file this copy as indicated
+
+Branch copy filed as indicated
+
+RE: Indcating (check one): Marked [ ] No need required
+
+PRIORITY
+
+OPERATIONAL IMMEDIATE
+
+26903
+
+RVT [Signature]
+
+1
+
+DUF [Signature]
+
+CONF/2 [Signature]
+
+PARI
+
+REDWOOD LCTSPROVE AEDOGMA-1
+
+RE: PARI 3664 (IN 46263)
+
+END OF MESSAGE
+
+CS COMMENT: RE: ASKED IF HOS DESIRED ANY PARI ACTION BE POSSIBLE
+
+REPatriATION NycyPorUK.
+
+RVAN [Signature]
+
+RVT [Signature]
+
+1
+
+DUFI J[Signature]
+
+CONF/2 [Signature]
+
+CWE- Jc Perdine
+
+SR/SI Eng ME/3 IJ
+
+AUTHENTICATING OFFICER

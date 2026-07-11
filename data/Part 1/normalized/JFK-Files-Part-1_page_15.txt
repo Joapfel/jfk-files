@@ -1,0 +1,11 @@
+2 Indicate that S0 is an initial sum, and Sn is a sequence. Using the definition of S{n+1}, prove by mathematical induction that for all positive integers n, Sn is equal to the sum of the first n terms of \{Sk\}.
+
+is convergent. Let's use the ratio test:
+
+Let r = {S{n+1}}{Sn}. In this case,
+
+r = {S2}{S1} = {2+2}{2} = 1+1 = 2
+
+a1 = 2
+
+Since r > 1, the limit becomes infinite, which contradicts the condition for convergence. This means that the series diverges.

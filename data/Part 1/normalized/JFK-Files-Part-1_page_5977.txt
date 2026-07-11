@@ -1,0 +1,37 @@
+PERSONALITY (201) FILE REQUEST
+
+TO RI/ANALYSIS SECTION DATE 9 - AUG 1957 ACTION OPEN AMEND CLOSE ROOM NO. TELEPHONE
+
+FROM P Cuffer
+
+INSTRUCTIONS: Form must be typed or printed in block letters. SECTION II: List 201 number, name and identifying data in the spaces provided. All known aliases and variants (including make-up name, if applicable) must be listed. If the identifying data varies with the alias used, a separate form must be used. Write UNKNOWN for items you are unable to complete. SECTION III: List cryptonym or pseudonym, if assigned. If true name is sensitive, obtain 201 number from 201 Control Desk and complete Section I and Section III. On a separate form, enter the 201 number and complete Section II and Section III. Submit each form separately. SECTION IIIb: To be completed in all cases.
+
+SECTION I
+
+SUBTITLE NONSENSITIVE 201 NO. 191098 SOURCE DOCUMENT DEF 87904 NAME VARIANT NAME (Last) FRANK (Middle) HELIC MAN CUSAN SET-3
+
+OTHER IDENTIFICATION
+
+PHOTO YES NO BIRTH DATE
+17 COUNTRY OF BIRTH
+CANADA CITY OR TOWN OF BIRTH
+OTHER IDENTIFICATION
+USA
+
+OCCUPATION/POSITION
+
+MAYOR
+
+STUDENT
+
+FORENAME MARY
+
+FORENAME DOUGLAS
+
+FORENAME LINDSAY
+
+FORENAME JAMESON
+
+FORENAME JOHN
+
+FORENAME ANNA

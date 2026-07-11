@@ -1,0 +1,32 @@
+(When Filled In)
+
+FITNESS REPORT EMPLOYEE SERIAL NUMBER CUST
+
+SECTION A GENERAL
+
+NAME (Last, First) (Middle) Randall, Frederick
+DATE OF BIRTH-28 Oct 26
+SEX M
+GRADE GS-13
+
+3. SERVICE DESIGNATION D Opa Officer 7. OFF/DIV/DR OF ASSIGNMENT FE/Tokyo, Japan
+
+CAREER STAFF STATUS X TYPE OF REPORT
+
+MOT ELIGIBLE PENDING MEMBER DECLINED. DEFERRED DENIED INITIAL ANNUAL REASSIGNMENT/SUPERVISOR REASSIGNMENT/EMPLOYEE
+
+10. DATE REPORT DUE IN O.P. 11. REPORTING PERIOD From To 17 Sep 61-31 Dec 61 SPECIAL (Specify)
+
+SECTION B EVALUATION OF PERFORMANCE OF SPECIFIC DUTIES
+
+List up to six of the most important specific duties performed during the rating period: Insert rating number which best describes the manner in which employee performs EACH specific duty. Consider ONLY effectiveness in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to supervise (Indicate number of employees supervised).
+
+1 - Unsatisfactory 2 - Barely adequate 3 - Acceptable 4 - Competent 5 - Excellent 6 - Superior 7 - Outstanding
+
+SPECIFIC DUTY NO. 1 Initial responsibility for Station RATING NO. 5 SPECIFIC DUTY NO. 4
+
+SUPERPART activities RATING NO. 5 SPECIFIC DUTY NO. 3
+
+SPECIFIC DUTY NO. 2 Supervision of station TSD activity involving one TSD officer RATING NO. 5 SPECIFIC DUTY NO. 5
+
+SPECIFIC DUTY NO. 3 Supervision of local intel community central carding facility RATING NO.

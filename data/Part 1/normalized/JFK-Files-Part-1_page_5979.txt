@@ -1,0 +1,30 @@
+CIA INTERNAL USE ONLY SECRET
+
+PERSONALITY (201) FILE REQUEST
+
+TO RI/ANALYSIS SECTION Date ACRON CASE
+
+FROM ROOM NO. TELEPHONE
+
+INSTRUCTIONS: Form must be typed or printed in block letters. SECTION It List 201 number, name and identifying data in the spaces provided. All known aliases and variants (including maiden name, if applicable) must be listed. If the identifying data varies with the alias used, a separate form must be used. Write UNKNOWN for items you are unable to complete. SECTION IIa List givenonym or pseudonym, if assigned. If true name is sensitive, obtain 201 number from 201 Control Desk and complete Section I and Section III. On a separate form, enter the 201 number and complete Section II and Section III. Submit each form separately. SECTION IIb To be completed in all cases.
+
+BASIC INFORMATION 301 NO. NAME (Last) (First) (Middle) SOURCE DOCUMENT N号 TYPE NAME STATUS REASON FOR DELAY REVISION
+
+PHOTO-4 BIRTH DATE 5 COUNTRY OF BIRTH-6 CITY OR TOWN OF BIRTH-7 OTHER IDENTIFICATION 8 OCCUPATION/POSITION 9 DESTRUCTION PROTOCOL
+
+TIF NO M 10 V PLEASE REMAIN AS IS 1 2 3 PURGE PERIOD
+
+SECTION II CRYPTOLOGY COUNTRY OF RESIDENCE
+ACTION DESK
+SECOND COUNTRY INTEREST
+THIRD COUNTRY INTEREST 12a.
+
+SECTION III COMMENT(S): PERMANENT CHARGE RESTRICTED FILE SIGNATURE
+
+TIF V NO TIF V NO TIF V NO
+
+PUNCHED
+
+VERIFIED
+
+"}]

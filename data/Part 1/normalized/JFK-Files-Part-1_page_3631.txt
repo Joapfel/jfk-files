@@ -1,0 +1,31 @@
+DCI/DDCI
+
+Inputting Slip
+
+ACTION INFO. ACTION INFO.
+
+1 DCI-11 IG
+
+2 DDC-1 12 D/PPB
+
+3 DDS&T 13 SAVA
+
+4 DDI-14 ASST/DCI
+
+5 DDO-15 AO/DCI
+
+6 DDM&S 16 EX/SEC
+
+7 D/DCI/IC 17
+
+8 D/ONE-18
+
+9 GC 19
+
+10 LC 20
+
+SUSPENSE
+
+Remarks: Do we have a discreet way to say (sincerely): Thanks but no thanks?
+
+11/1/73 DCI/DDC-1

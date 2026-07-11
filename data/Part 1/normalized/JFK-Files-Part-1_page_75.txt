@@ -1,0 +1,57 @@
+FIELD DISTRIBUTION
+
+A Division
+
+Abidjan Asuncion Amman
+
+Accra Bogota Ankara 2
+
+Addis Ababa Brazilin Athens 5
+
+Ashaare Conakry Aire Beirut
+
+Bangui Caracas Bombay
+
+Benin Georgetown Calcutta
+
+Dakar Guatemala Colombo
+
+Israël as Galatia Guayaquil Dacca
+
+Kampala Kingstoe Istanbul
+
+Pooetown La Paz Jerusalem
+
+Khartoum Lima Jidda WH/ 2
+
+K MASASA MEXICO CITY KABUL CI/FRA WH/CA
+
+KEEDY MONTEVIDEO KARACHI CANADA WH/1,2,3,4,5
+
+Lagos Panama KATMANDU LA HOLA WH/7/JTB, GU
+
+Lusaka Puerto Alegre KURWAIT NEPAL-1-D7/RB
+
+Mogadisiclo Nort. Au. Spain Lahore SINGAPORE 2-DCCA
+
+MOORVIE QUITE Madras NEW DELHI CI/ICG
+
+Nairobi Rome New Delhi OFFICE FBID/WEISS
+
+Rabat RIO DE JANEIRO Nicosia ROTTERDAM OTR/SIC
+
+Tripoli SAN JOSE Ravelspini STP/ISLAWRENCE LIBRARY OCTR/Isolation Library
+
+Vamonde SOU SALVADOR Teheran FILIPINO FLIPPOC
+
+SANTIAGO MPSC/PSC MPSC/PSC
+
+EUR Division
+
+Berlin 3
+
+Beri
+
+Bonn 5
+
+Brussels </

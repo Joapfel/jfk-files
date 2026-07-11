@@ -1,0 +1,55 @@
+Serial No.
+Name (Last-First-Middle)
+Date C'd-in
+Vt., Pref
+Sex
+CS - EOD
+
+Mo. & Da. & Yr. Non-0 5 Pt.-1 10 Pt.-2 Code 1 M 1 Mo. & Da. & Yr.
+
+125798 WILCOTT JAMES B JR 09 27 31 1 1 03 04 57
+
+SCD
+CSC Retmt. Yes-1 No-2
+CSC Or Other Legal Authority Code 1 50 USCA-403 j
+Aprt. Affidav Mo. & Da. & Yr.
+FEGLI Yes-1 No-2
+LCD Mo. & Da. & Yr.
+Mil. Ser., Credit ECO Yes-1 No-2 Code 2
+
+Position No.
+Salary Or Rate
+Location Of Official Station
+App. Affidav
+Position Title
+Department Code
+Service Series
+
+Mo. 06 Da. 26 Yr. 53 Mo. 09 Da. 22 Yr. 57 0305.02 GS 0544.01
+
+Grade & Step
+Salary Or Rate
+SD
+Date Of Grade Mo. 09
+PSI Due Mo. 09
+Appropriation Number 8 6304 20
+Nature Of Action Code 56
+Eff. Date Mo. 03
+Type Of Employee DA. 25
+Separation Data REGULAR-59 01 REASSIGNMENT
+
+05 2 4190 SF
+Salary Or Rate
+App. Affidav
+Organizational Designations DDS OFFICE OF THE COMPTROLLER FINANCE DIV COMPENSATION & TAX ACCTS BR CONTRACT AGENTS ACCTS SECT. Code 3803
+Location Of Official Station WASH., D. C.
+Dept.-Field Code Dept.-2
+Position Title USId-4
+Finance ASST Frgn.-6
+App. Affidav
+Position No. REGULAR 0470
+Service Series GS
+Occup. Series 0510.14
+Remarks
+
+</tbody

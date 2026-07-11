@@ -1,0 +1,47 @@
+ORIG: Charlotte Uts .&.8:8j UNIT : WH/3/Mexico EXT : 5940 DATE : 4 Dec 62
+
+1 4
+
+2 5
+
+3 6
+
+OUTING
+
+TO MEXICO CITY
+
+CONF: WH 8
+
+INFO : C1/OA, CCS-2, S/C 2
+
+CITE DIR 03369
+
+REF HMMA-19978
+
+GERENDE CONTRACT AMENDED-8 NOV TO INCLUDE CHRISTMAS
+
+BONUS.
+
+END OF MESSAGE
+
+WH CMT: Requested amendment for Raymond H. GERENDE (201-119523) contract for a one month's bonus at Christmas.
+
+-RID/F5-
+
+DESTROY
+
+WH/PERS/RENAHAM WH/COD
+
+H. B. Mr. facsimile
+
+W. W. King C/WHD
+
+JFD-11 9 23 MH .85
+
+NED P. HOLMAN C/WH/3
+
+GROUP I Included from automatic downdraft and dechoafidates
+
+AUTHENTICATING OFFICER
+
+Copy No.

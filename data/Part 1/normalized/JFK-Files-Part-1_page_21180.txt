@@ -1,0 +1,52 @@
+Classify According To Content.
+
+REQUEST FOR PERSONNEL ACTION
+
+Serial No.
+Name (Last, First, Middle)
+Date Of Birth
+Vtr. Prof.
+Sex
+CS - EOD
+
+Mo Da Yr None 0 5 Pt-1 10 Pt-2 Code Mo Da Yr
+
+WILCOTT, James B., Jr. 9 27 31 M
+
+SCD
+CSC Retrn.
+CSC Or Other Legal Authority
+Apmft.Altidav.
+FEGLI
+LCD
+Col./Sd.
+
+Mo Da Yr Yes -1 No -2 Code Mo Da Yr Yes -1 No -2
+
+Mo Da Yr Yes -1 No -2
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations DDS/Office of the Comptroller Fiscal Division Accounts Branch Allotment Ledger Section Code 15. Location Of Official Station Wash., DC Station Code 75013
+
+Dept. Field Dept. XX Code Valid. From
+Position Title Fiscal Acct Clk
+Position No.
+01
+Serv. 0501.04
+Occup. Series
+
+Grade & Step
+Salary Or Rate SF 3670.00
+SD
+Date Of Grade Mo Da Yr
+PSI Due Mo Da Yr
+Appropriation Number
+
+5/1 8-6303-20
+
+ACTION
+
+Nature Of Action Reassignment Code 56
+Eff. Date ASAP-2 123 5/6
+Type

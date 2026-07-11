@@ -1,0 +1,49 @@
+DISPATCH CLASSIFICATION
+
+SECRET PROCESSING ACTION
+
+Chief, WOACRE Attn: Geoffrey K. BLOXALD UNCLASSIFIED
+
+NO REQUIRING REVIEW
+
+ONLY QUALIFIED DESIGN
+
+CAN BE APPROVED
+
+Chief, WH; COS, Panama City (Clement L. BROCK) MICROFILM
+
+Chief of Station, Mexico City
+
+SUBJECT
+
+(AQUATIC/LIONION Pulse Camera)
+
+ACTION REQUIRED - REFERENCES
+
+Action: See paragraph 5.
+
+1. The LIONION Pulse Camera has been working for well over a year with no major technical problem. A few months ago the 100 foot film magazine had to be repaired because the supply spindles had tightened and put an excessive strain on the motor.
+
+2. More recently, the battery supply had dropped to about 22.5 volts or so causing erratic operation. The sensor relay between the VLS-2 and the camera suffered the most because of chattering and consequently arcing between the points.
+
+3. To prevent failures of this type in the future, Raymond L. BARCENAS is making a small battery charger at a nominal cost that can be floated across the batteries keeping them fully charged. We are doing it this way rather than ordering a DC power supply because it is less expensive than a commercial model and will not be bothered by house current interruptions or fluctuations. If however, WOACRE/PB foresees any problems by doing it this way, please inform us.
+
+4. On a recent visit to LIONION and a check of the equipment, it was found that the lens of his FOCOMAT IC enlarger has a fungus like smudge between the elements. We cannot detect any degradation in print quality but would like to have a new one in case this is a fungus and it gets worse.
+
+5. In summation it is requested that WOACRE/PB provide the following to Mexico City, charge 7135-2403.
+
+Sensor Relay believed to be a Potter-Bromfield 5A5089 but please check;
+
+Comments on the power supply;
+
+Lens for a Leitz FOCOMAT IC.
+
+Distribution:
+
+2 - WOACRE Willard C. CURTIS
+
+1 - WH Panama CS COPY
+
+HMMA-31294
+
+CLASSIFICATION

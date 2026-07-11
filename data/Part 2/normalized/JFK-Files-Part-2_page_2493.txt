@@ -1,0 +1,41 @@
+[ ] CONFIDENTIAL
+
+[ ] SECRET
+
+CIA/DCD REQUIREMENT CONTROL SHEET
+
+DCD CASE NO 1 2 3 4 5 6 TO 7 8 9 10 11 12 DATE OPENED MO DA YR L N DATE PROC V S A A R REQUIREMENT INITIATOR SERIAL NUMBER DATE OF DOCUMENT D MO DA YR
+
+PROD SYS LIF D U J A F M J A S O N D W TH BY C P L A 7 6 0 4 4 9
+
+0 6 5 8 0 e 5 3 9
+
+SUBJECT OF REQUIREMENT
+
+Request for contact: Wackenhut Corporation
+
+ROUTING DATE INITIALS CATEGORY OF REQUIREMENT (Desk Officer check one)
+
+1-OSG/French 0 - ECONOMIC 5 - SOCIOLOGICAL
+
+2 1 - SCIENTIFIC AND TECHNICAL 8 - GEOGRAPHIC
+
+3 SV/CONTROL/CASE DESK-2 - POLITICAL 7 - BIOGRAPHIC
+
+4 3 - MILITARY 8 - MISCELLANEOUS
+
+DCD ACTION ON REQUIREMENT (Desk Officer check as appropriate)
+
+I. Requirement is accepted for action, under the above DCD case number, on the following basis: [x] A. It is being forwarded to the field. (Specify, under "Remarks") [x] 1. Capability is known or believed to exist.
+
+[ ] 2. Capability is uncertain, but field resources suggest possibility of collection.
+
+[ ] 3. No capability is believed to exist at present, but requirement will be used if capability develops.
+
+[ ] B. It will be retained at headquarters.
+
+[ ] 1. The field is already alert to the need and will continue to report as information is obtained.
+
+[ ] 2. Sources capable of at least partial fulfillment may become available; requirement will be drawn upon for their guidance.
+
+II. Requirement is not accepted for action, for reasons given under "Remarks." It <input type="checkbox" checked

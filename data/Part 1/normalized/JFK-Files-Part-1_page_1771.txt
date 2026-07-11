@@ -1,0 +1,31 @@
+Name SSN SFN TE ORG Termination Date
+
+MUNIZ, DONALD W. 03108 485105490 055849 CE AF 27 May 1977
+
+Vagnina, Daniele S. 231640291 641680 CE OTR-30 June 1977
+
+Weaver, Carol M. 380361880 586457 CE AF 10 May 1977
+
+West, Bill C. 113332128 015790 IC OSR-13 May 1977
+
+Williams, James H. 578701385 662217 CE LOG-30 June 1977
+
+Wolfe, Elizabeth L. 412667301 663774 CE OSIG-18 June 1977
+
+Woodyear, Frances A. 579501526 133351 CE EA 6 May 1977
+
+Meybaum, Heino W. 565464787 051918 CA EUR-10 June 1977
+
+Edger, Ruth C. 447461282 679606 CE LA 10 June 1977
+
+Kelley, Joseph B. 579388251 016617 Conslt: OGC-31 May 1977
+
+Type Employee Codes
+
+CE - Contract Employee CA - Career Associate IC - Independent Contractor Conslt - Consultant FN - FBIS Foreign National
+
+Sara Tarchie
+
+OP/CPD
+
+2/95

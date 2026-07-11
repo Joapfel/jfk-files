@@ -1,0 +1,19 @@
+PORTFOLIO SALES OF STOCKS TO DATE Date of Purchase Stocks No. of Shares Total Purchase Price Date of Sale Net Sale Price Coin or (Loss) on Sales*
+
+4/22/64 Burlington Industries, Inc. 300 13,812.93 6/8/65 20,466.70 6,653.77
+
+4/22/64 National Steel Corporation 300 16,559.22 11/4/66 11,997.11 (4,557.11)
+
+7/23/64 Scott Paper Company 1100 37,556.77 11/4/66 28,913.79 (8,012.63)
+
+4/22/64 J. C. Penny Company 250 16,278.21 11/4/66 13,112.15 (3,165.65)
+
+10/7/64 Columbia Broadcasting System 408 16,660.52 11/4/66 21,938.98 5,275.66
+
+12/7/64 Scott-Foreman &amp; Company 600 20,976.80 11/15/66 23,849.15 2,822.55
+
+7/19/65 North American Aviation 300 16,332.75 1/16/67 15,652.48 (1,730.27)
+
+5/20/65 Corn Products Company 500 26,691.90 9/21/67 22,279.43 (6,412.33)
+
+1/2/66 General Public Utilities 1500 45,253.63 9/21/67</td

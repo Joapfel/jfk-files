@@ -1,0 +1,29 @@
+TEST DESCRIPTION
+
+CLERICAL SPEED AND ACCURACY A test of speed and accuracy of response in a simple perceptual task. Measures ability to perceive, retain momentarily, and correctly respond to simple number and letter combinations. JUN 6 11 01 AM '55
+
+SPELLING A test of ability to distinguish between correctly and incorrectly spelled words of everyday usage found to be most frequently misspelled.
+
+SENTENCES A test of ability to distinguish errors in spelling, punctuation, and grammar in sentences.
+
+NUMERICAL ABILITY A test of ability to reason with numbers, to manipulate numerical relationships, and to deal with quantitative materials. No verbal element is present in the format of the problems.
+
+ABSTRACT REASONING A non-verbal test of reasoning ability. Measures ability to perceive relationships in changing abstract figure patterns and to generalize changes into operating principles.
+
+SPACE RELATIONS A test of ability to visualize and mentally manipulate forms and patterns in three-dimensional space.
+
+MECHANICAL REASONING A test of ability to understand and apply mechanical and physical principles presented pictorially, in familiar settings.
+
+VERBAL REASONING A verbal test of reasoning ability. Measures ability to abstract, generalize, and think constructively from concepts presented in word analogies.
+
+LEARNING ABILITY Form 5 A test of general mental ability consisting of questions on vocabulary, arithmetical reasoning, and verbal analogies.
+
+TYPING A ten-minute straight copy test of speed and accuracy in typing material of average difficulty. Typing scores are reported as follows: Gross - Total words per minute. Net - Gross words per minute minus 1 for each error made. Errors - Total Number
+
+SHORTHAND A test composed of three typical business letters dictated at different speeds as follows: Letter I: 60 words per minute; Letter II: 80 words per minute; Letter III: 100 words per minute. Maximum possible scores are as follows: Letter I Letter II Letter III
+
+Form A 49 50 60
+
+Form B 50 51 49
+
+Form C 50 50 50

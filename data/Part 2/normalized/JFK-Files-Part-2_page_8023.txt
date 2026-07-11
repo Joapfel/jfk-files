@@ -1,0 +1,31 @@
+NEW INSTALLATIONS
+
+OF AT FOR
+
+Burroughs B 4700 system Computer Management Group (CMG) Ltd., North-west London, England The first of two B4700 systems (which are included in a five-system order) to be installed at CMG's North-west London, England center (entire 5 computer system order valued at $4.3 million)
+
+Walter E. Heller & Co., Chicago, Ill. (2 systems) Providing internal processing speed to keep pace with continued growth of data processing operations: system will allow expansion without reprogramming or recompiling; replaces two Burroughs B3500 systems
+
+Control Data CYBER-70 Model 74 system Century Research Center Corp. (CRC), Tokyo, Japan Increasing CRC's processing capabilities to include remote batch data processing services via high speed communication line control devices, and offer a wide range of services to various types of users: system will be connected to a previously installed CDC 6600 computer (system valued at $3 million)
+
+Control Data CYBER-70 Model 76 system Atmospheric Environment Service of Canada, Montreal, Canada Upgrading weather forecasting facilities throughout the country: system installed at Canadian Meteorological Center in Montreal, Canada (system valued at $6.3 million)
+
+Control Data 3150 system Ingalls Iron Works Co., Birming- ham, Ala. Expanding automated design activities: system will operate in conjunction with a previously installed CDC 3150 to support CONSTRUCTS, an automated engineering design software package
+
+IBM System/370 Model 155 system Educational Information Services (EIS), Princeton University, Princeton, N.J. Linking with university's IBM System/360 Model 91 to significantly expand a variety of data processing services
+
+IBM System/370 Model 168 system Datacrown Limited, Willowdale, Ontario, Canada The first of two systems that will more than double current batch processing capacity and increase its capability to provide for transaction-oriented terminals; replaces Model 165 currently in use (systems valued at $12 million)
+
+Interdata Model 70 systems U.S. Army Electronics Command, Fort Monmouth, N.J. (2 systems) Use in experiments involving automated tactical surveillance and target acquisition
+
+NCR Century 101 system Radyne Limited, Great Britain An advanced inventory management and control system (system valued at $6.3 million)
+
+NCR Century 200 system Green Shield Trading Stamp Com- pany of Edgware, Colindale, England Expansion of automated stock control system for its gift houses and new Argos chain of catalog showrooms
+
+NCR Century 251 system Columbia EDP Centers, Inc., Columbia, Mo. General data processing services to a variety of customers including several banks
+
+Univac 1106 system British Gas Corp., Hinckley, England Assistance in controlling National Grid pipeline by performing forward simulations on a real-time, round-the-clock-basis; in addition, system will act as a service bureau to scientific and engineering departments within the Corporation
+
+University of Connecticut Medical Center, Farmington, Conn. All aspects of Medical Center's work including patient admissions, monitoring patient care, scheduling outpatient appointments, support of library information and research statistical programs, and general accounting and payroll processing chores (system valued at $1.3 million)
+
+Univac 1110 system Pacific International Computing Corp., Gaithersburg, Md. The first

@@ -1,0 +1,49 @@
+MONTHLY COMPUTER CENSUS
+
+Neil Macdonald Survey Editor
+
+COMPUTERS AND AUTOMATION
+
+The following is a summary made by COMPUTERS AND AUTOMATION of re- ports and estimates of the number of general purpose digital computers manufactured and installed, or to be manufactured and on order. These figures are mailed to individual computer manufacturers quarterly for their information and review, and for any updating or comments they may care to provide. Please note the variation in dates and relia- bility of the information. A few manufacturers refuse to give out, confirm, or comment on any figures.
+
+Part 1 of the Monthly Computer Census contains reports for United States manufacturers, A to H, and is published in January, April, July, and October. Part 2 contains reports for United States manufacturers, I to Z, and is published in February, May, August, and November. Part 3 contains reports for manufacturers outside of the United States and is published in March, June, September, and December.
+
+Our census seeks to include all digital computers manufactured any- where. We invite all manufacturers located anywhere to submit infor- that would help make these figures as accurate and complete as possible.
+
+The following abbreviations apply:
+
+(A) — authoritative figures, derived essentially from information sent by the manufacturer directly to COMPUTERS AND AUTOMATION
+
+C - figure is combined in a total
+
+(D) - acknowledgment is given to DP Focus, Marlboro, Mass., for their help in estimating many of these figures
+
+E - figure estimated by COMPUTERS AND AUTOMATION
+
+(N) - manufacturer refuses to give any figures on number of installations or of orders, and refuses to comment in any way on those numbers stated here
+
+(R) - figures derived all or in part from information released indirectly by the manufacturer, or from reports by other sources likely to be informed
+
+(S) — sale only, and sale (not rental) price is stated
+
+X — no longer in production
+
+- - information not obtained at press time and/or not released by manufacturer
+
+SUMMARY AS OF OCTOBER-15, 1973
+
+NAME OF MANUFACTURER NAME OF COMPUTER DATE OF FIRST INSTALLATION AVERAGE OR RANGE OF MONTHLY RENTAL (000) NUMBER OF INSTALLATIONS NUMBER OF UNFILLED ORDERS
+
+In U.S.A. Outside U.S.A. In World
+
+Part 2. United States Manufacturers I-Z
+
+IBM White Plains, N.Y. (N) (D) (Oct. 1973) 305 12/57 3.6 40 15 55 -
+
+650 10/67 4.8 50 18 68 -
+
+1130 2/66 1.5 2580 1227 3807 -
+
+1401 9/60 5.4 2210 1836 4046 -
+
+1401-G 5/6

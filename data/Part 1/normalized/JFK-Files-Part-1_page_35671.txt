@@ -1,0 +1,35 @@
+Julio 1 Lunes Dr. De la Vera # 120 Queratitis bulosa
+
+" 2 Martes Dr. Maceo # 121 No transitido. Cartas R
+
+" 3 Miércoles Dr. Maceo # 122 Bronquitis
+
+" 4 Jueves Dr Benach # 123 Enfermedades Seno
+
+" 5 Viernes Dr." # 124 " "
+
+" 6 Sabado Dr." # 125 " "
+
+" 8 Lunes Dr." # 126 " "
+
+" 9 Martes Dr. # 127 " "
+
+" 10 Miércoles Dr. Maceo # 128 Guerra bacteriologica
+
+" 11 Jueves Dr." # 129 " "
+
+" 12 Viernes Dr. Benach NO LLEGO CL AVION A LA EMISION REPITIÓN TAPES VIEJOS, # 130 Cancer
+
+" 13 Sabado Dr. Benach # 131 "
+
+" 15 Lunes Dr. Maceo # 132 "
+
+" 16 Martes Dr." # 133 "
+
+" 17 Miércoles Dr. # 134 Saracón I
+
+" 18 Jueves Dr." # 135 " II
+
+" 19 Viernes Dr. Maceo # 136 Varicela
+
+" 20 Sabado Dr." # 137 Poliomelitis I

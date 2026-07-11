@@ -1,0 +1,33 @@
+INDEX YES NO
+
+N-REF TO FILE NO.
+
+FILE BID RET. TO BRANCH
+
+DESTROY SIO.
+
+PERSON/UNIT NOTIFIED
+
+REPRODUCTION PROHIBITED
+
+DISSEM by 25/M
+
+ACTION UNIT TIME DY
+
+WH8
+
+RID COPY WH8 ....... .......
+
+FILE VR CCS-3, CSPS, OP2
+
+27 SEP F04563
+
+SECRET 271910Z CITE MEXICO CITY 8647 DIRECTOR
+
+REF DIRECTOR 38346*
+
+HMMW-1462D ANSWERED BY HMMT-7164, DATED-22 SEPTEMBER 1966.
+
+BT
+
+ITMM T-7164 requested a leave of absence without charge. A phone call from HMMT to Branch's officer, Mr. Nunez, states that Pacheco will be allowed to go home for the weekend.

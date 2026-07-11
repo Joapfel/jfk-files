@@ -1,0 +1,21 @@
+TO : MEXICO CITY FROM : DIRECTOR CONF : WH 8 INFO : S/C 2
+
+ROUTING
+
+1 4
+
+2 5
+
+3 6
+
+S I G . C E N D E F E R R E D
+
+R. ROUTINE
+
+OUT51096
+
+IS Mexico expecting hqs provide staff individual to replace rafanelli? IF so, pls confirm and explain as Mexico has heretofore said individual known to station personnel would be hired under contract.
+
+END OF MESSAGE
+
+Copy No.

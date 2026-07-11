@@ -1,0 +1,45 @@
+DISCHARGES
+
+DATE CHECK NO. APPROVAL AMOUNT TOTAL
+
+VENEZUELA (Cont.) Dec. 1 7195 100.00
+
+" 1 7194 250.00
+
+" 8
+
+704.00 1,654.00
+
+ECUADOR Dec. 1 Heruanco Ledon 7184 300.00
+
+" 1 Budget 7185 100.00
+
+" 1 Suelto Cervantes 7186 100.00
+
+400.00 100.00
+
+500.00
+
+GUATEMALA Dec. 1 Orlando Húmez Pérez 7204 300.00
+
+" 1 Budget 7205 200.00
+
+" 1 José Luis Valdés Martí 7206 200.00
+
+500.00 200.00
+
+700.00
+
+SALENDAR Dec. 1 Jose W. Tarafa 7207 300.00
+
+" 1 Pure Miamí-Salvador-Miami - Fermín Heróis 7235 187.60
+
+700.00 187.60
+
+487.60
+
+PANAMA Dec. 1 Heriberto Corona 7198 350.00
+
+" 1 Budget 7199 88.99
+
+750.00 88.99 </tr

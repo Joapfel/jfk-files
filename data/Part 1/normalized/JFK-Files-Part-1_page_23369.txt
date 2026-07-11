@@ -1,0 +1,42 @@
+CIA INTERNAL USE ONLY SECRET (When Filled-In)
+
+PERSONALITY (201) FILE REQUEST RE-PUNCH
+
+TO RI/ANALYSIS SECTION-04 APR 1960 ACTION
+
+OPEN AMEND CLOSE
+
+FROM RID-120 - ROOM NO. 10162 TELEPHONE 8514
+
+INSTRUCTIONS: Form must be typed or printed in block letters.
+
+SECTION I: List 201 number, name and identifying data in the spaces provided. All known aliases and variants (including maiden name, if applicable) must be listed. If the identifying data varies with the alias used, a separate form must be used. Write UNIDENTIFIED for items you are unable to complete.
+
+SECTION II: List cryptonym or pseudonym, if assigned. If true name is sensitive, obtain 201 number from 201 Control Desk and complete Section I and Section III. On a separate form, enter the 201 number and complete Section II and Section III. Submit each form separately.
+
+SECTION III: To be completed in all cases.
+
+SECTION I
+
+SENSITIVE 201 NO. 168881 SOURCE DOCUMENT
+
+NON-SENSITIVE
+
+NAME FIRST (Last) C ROZIER FIRST (Last) Ross MIDDLE (Title) LESTER SEX M
+
+NAME VARIANT Y
+
+TYPE NAME-2 (Last) (First) P first (Middle) P middle (Title) P title
+
+PHOTO-4 BIRTH DATE 5 COUNTRY OF BIRTH-6 CITY OR TOWN OF BIRTH-7 OTHER IDENTIFICATION 8
+
+YES NO USA ILLINOIS
+OCC/POS. CODE D.
+
+ORIENTATION/POSITION
+
+SECTION II
+
+CRYPTONYM PSEUDONYM
+
+<

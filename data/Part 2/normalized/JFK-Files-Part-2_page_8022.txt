@@ -1,0 +1,27 @@
+NEW CONTRACTS
+
+TO FROM FOR AMOUNT
+
+Sanders Associates, Inc., Nashua, N.H. CAE Electronics, Montreal, Canada Display system segment of Canadian Joint En-route Terminal System (JETS) Program: first phase consists of seven Enroute and two Terminal Systems for air traffic control 18.6 million
+
+ITT Creed Limited, Great Britain British Post Office 6000 machines — teleprinters and associated equipment — to be used mainly for Telex customer-to-customer teleprinter system $11 million
+
+Univac Div., Sperry Rand Corp., Blue Bell, Pa. Auto Tell Services, Inc., Villanova, Pa. 1100 Univac DCT-515 Data Communications Terminals to be used by automobile dealers who subscribe to ATS services on-line computerized services $7 million
+
+Computer Sciences Corp., El Segundo, Calif. National Aeronautics and Space Administration (NASA) Computer services support to Simulator Computer System Branch at Ames Research Center, Mountain View, Calif. $6.7 million
+
+Honeywell, Inc., Wellesley Hills, Mass. State of Arizona, Phoenix, Ariz. A Honeywell Multics (Multiplexed Information and Computing Service) system, for use by 13 state agencies $5+ million
+
+Computer Sciences Corp., El Segundo, Calif. National Aeronautics and Space Administration (NASA) Engineering and related services to NASA's Wallops Station, Wallops Island, Va. $5 million (approximate)
+
+Philco-Ford Corp. Willow Grove, Pa. U.S. Army Electronics Command, Fort Monmouth, N.J. Improving computerized communications network, identified as '73 AEP for AUTODIN Enhancement Program, at 10 overseas AUTODIN sites, Ft. Monmouth, N.J., and Fort Detrick, Md. $4.6 million
+
+Raytheon Data Systems, Norwood, Mass. Eastern Air Lines, Miami, Fla. Data display terminals and associated equipment as part of expansion of EAL's Automated Passenger Processing and Reservation System $2+ million
+
+National Cash Register Co., Dayton, Ohio Publix Super Markets, Inc., Lakeland, Fla. 30 NCR-255 supermarket checkout systems involving a total of 357 NCR-255 terminals and 30 NCR-726 in-store minicomputers plus 120 NCR-250 free-standing electronic cash registers $2 million (approximate)
+
+Computer Sciences Corp., El Segundo, Calif. National Aeronautics and Space Administration (NASA) Analysis and programming services to Langley Research Center, Hampton, Va. $1.2 million
+
+Interdata, Inc., Oceanport, N.J. DATRAN (Data Transmission Co.), Vienna, Va. Dual processor Model 55 data communications concentrators, with software and technical support, for an information network DATRAN is designed and installing on a turnkey basis for International Brotherhood of Teamsters $1+ million
+
+McDonnell Douglas Automation Co. (MCAUTO), St. Louis, Mo. Buffalo, New York, New York Southern California Computer processing of all company data; includes accounts payable, receivables, sales analyses, payroll, inventory control and statistics $725,000 (approximate) </

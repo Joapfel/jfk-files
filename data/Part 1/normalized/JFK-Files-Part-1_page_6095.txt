@@ -1,0 +1,27 @@
+ORIG: BRUCE MAG HAST : .i
+
+UNIT: SAS/MOD/PA-PROP INDEX
+
+EXT: 6055 NO INDEX
+
+DATE: 12 JUNE 1963
+
+R.E. Piling (check one): No CS Record Value. Destroy.
+
+R1 do this copy as indicated
+
+Branch copy filed as indicated
+
+RK Indesting (check one):
+
+Marked None required
+
+Signature:
+
+TO : SEE BELOW
+
+CONF: SAS-8
+
+INFO : DOP, CA 2, CA/PEG, CA/PROP, CI, CI/OPS, CI/OA, F1, WH 7, S/C
+
+PR

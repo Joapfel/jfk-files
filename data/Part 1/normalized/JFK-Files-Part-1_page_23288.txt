@@ -1,0 +1,67 @@
+TRAINING EVALUATION REPORT
+
+NAME OF STUDENT (Pseudonym) DATE (Day, month, year)
+
+VAIVADA, Arthur G. 26 April 1957
+
+TRAINING ALIAS PERIOD COVERED
+
+"VICKS" 11 April 1957 through 25 April 1957
+
+RATING DEFINITIONS
+
+SUPERIOR An extremely outstanding performance.
+
+EXCELLENT An outstanding performance, above average.
+
+SATISFACTORY Requirements met without distinction.
+
+POOR A deficient performance, below average.
+
+FAILURE An extremely deficient performance.
+
+TRAINING SUBJECTS RATINGS
+
+SUPERIOR EXCELLENT SATISFACTORY POOR FAILURE
+
+Security
+
+Cover
+
+Observation & Description
+
+Interviewing X
+
+Interrogation X
+
+Surveillance
+
+Telephones & Mikes (Theory)
+
+General CI Methods
+
+Contacting X
+
+Intrafield Communications X
+
+Recruiting of Agents X
+
+Training of Agents X
+
+13. Agent Management & Control X
+
+14. Double Agent Management & Control
+
+Reporting
+
+CE Operations
+
+Communist Theory
+
+Soviet IS
+
+Psychological Warfare
+
+Political Warfare
+
+<

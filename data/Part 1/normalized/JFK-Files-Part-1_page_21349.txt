@@ -1,0 +1,41 @@
+FIELD PERSONALITY (201) FILE REQUEST
+
+TO HEADQUARTERS, RI
+
+FROM Anan EERTER, EISIG. 1968J (22621)
+
+INSTRUCTIONS: Form must be typed or printed in block letters.
+
+SECTION I: All known aliases and variants (including present name, if applicable) must be listed. If the identity data varies with the alias used, a separate form must be used. Write LIVING for items you are unable to complete.
+
+SECTION II: Cryptonym or pseudonym will be entered in Headquarters.
+
+SECTION III: To be completed in all cases.
+
+SECTION I
+
+SENSITIVE 201 NO. SOURCE DOCUMENT
+
+NON-SENSITIVE 289247 HABW-6515-18 Oct 60
+
+NAME (Last) (First) (Middle) (Title) SEX
+
+TEDESCHI Luis
+
+NAME VARIANT
+
+TYPE (Last) (First) (Middle) (Title)
+
+COUNTRY OF RESIDENCE ARGENTINA CO
+
+ACTIVITY DECEIVED
+
+COMMENTS: CIT. ? 1943 was an active member of the Spanish Communist Party. Address 1943: Pichincha 969, Buenos Aires, Argentina. Suspected Soviet agent; detected 1943 in CS Copy 201-289247
+
+PERMANENT CHARGE RESTRICTED AREA SIGNATURE
+
+YES NO YES AAN Fentaz
+
+FORM 831a 10-57
+
+(38)

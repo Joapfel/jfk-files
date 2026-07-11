@@ -1,0 +1,51 @@
+Schedule B (Form 1040) 1987 Page 2
+
+Part V.—RETIREMENT INCOME CREDIT A.—General Rule
+
+A B
+
+If separate return, use column B only. If joint return, use columns A and B for wife and husband:
+
+Did you receive earned income in excess of $600 in each of any 10 calendar years before 1987 (and owned or widowed unless instructions, page 8-3)? Yes No Yes No
+
+If answer above is "Yes" in either column, furnish all information below in that column.
+
+1. Retirement Income for taxable year:
+
+(a) For taxpayers under 65 years of age:
+
+Enter only income received from pensions and annuities under public retirement systems (e.g., Fed., State Govts., etc.) included on page 1, line 9, Form 1040.
+
+(b) For taxpayers 65 years of age or older:
+
+Enter total of pensions and annuities, interest, and dividends included on page 1, line 9, Form 1040, and gross rents from Part II, column 2 of this schedule
+
+2. Maximum amount of retirement income for credit computation
+
+Deduct:
+
+(a) Amounts received as pensions or annuities under the Social Security Act, the Railroad Retirement Acts, and certain other exclusions from gross income. $1,524 $1,524
+
+(b) Earned income received (Does not apply to persons 72 years of age or over):
+
+(1) Taxpayers under 62 years of age, enter amount in excess of $300.
+
+(2) Taxpayers 62 or over but under 72, enter amount determined as follows:
+
+If $1,200 or less, enter zero.
+
+If over $1,200 but not over $1,700, enter 1⁄2 of amount over $1,200.
+
+or if over $1,700, enter excess over $1,450
+
+4. Total of lines 3(a) and 3(b)
+
+5. Balance (subtract line 4 from line 2)
+
+6. Line 5 or line 1, whichever is smaller
+
+7. (a) Total (add amounts on lines 6, columns A and B).
+
+If line 7(a) is less than $2,296 and this is a joint return and both husbands and wives are age 65 or over, complete the Alternative Computation in B below which may result in a larger credit.
+
+(b) Amount from line 7 of part B below,

@@ -1,0 +1,243 @@
+14-00009
+
+OUTGOING MESSAGE
+
+0 . . . . . . . . . . . . . . .
+
+CNF-0 0 0 0 0 0 0 0 0 0 0 0 0 0 0 0
+
+E2
+
+IMPOET
+
+CL BY: 06106b
+
+STAFF CONF:
+
+DATE-TIME GROUP D/TO: INFO: FILE
+
+S.n. Higley/Mayl
+
+AC/LA/COG: /N:
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY: 06106b
+
+E 2
+
+IMPOET
+
+CL BY

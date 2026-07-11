@@ -1,0 +1,53 @@
+1. Select a payment method: e.g., VISA, MasterCard, orAMEX.
+
+2. Enter your credit card details:
+
+3. Complete the form and submit it.
+
+Payment Method Information
+
+Name Address Line 1 Address Line 2 City / State
+
+Amex Home Home California
+
+VISA MasterCard MasterCard Northern California
+
+AMEX Credit Card Credit Card Oklahoma
+
+Secure Payment Information
+
+Date of Payment Method of Payment Payment Terms Amex Credit Card Details
+
+[Enter date] MasterCard Visa MasterCard VISA Amex [Enter Amex Credit Card Details]
+
+Check Number Description Date
+
+(Select payment method)
+
+(Enter street address)
+
+(Enter telephone number)
+
+(Enter e-mail address)
+
+(Enter shipping address)
+
+This image does not contain any recognizable text.
+
+AMEX VISA MasterCard AMEX (2000-85 Card Type) Credit Card [Enter mastercard details] [Enter vISA details] [Enter credit card details]
+
+1. Select a payment method: e.g., VISA, MasterCard, orAMEX.
+
+2. Enter your credit card details:
+
+3. Complete the form and submit it.
+
+Payment Method Information
+
+AMEX VISA MasterCard
+
+Date of Payment Method of Payment Payment Terms
+
+[Enter date] MasterCard Visa
+
+VISA

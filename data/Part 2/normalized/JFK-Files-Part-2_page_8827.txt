@@ -1,0 +1,29 @@
+2 B
+
+3 C
+
+ORIO:
+
+TO: No C4 Record Value. Destroy.
+
+FROM: RE C4 Record Val. (Destroy) If this copy is indicated Branch copy filed as Indicated
+
+CONF: K.E. Ind. and (Check one): Marked None required
+
+INFO: -3-
+
+OUT 97713
+
+TO INFO CITE DUE
+
+ABIJ ACCR ADDI ALGI AMMA ANCH ANKA ASUN
+
+ATHE BAGH BAGH BANG BEIR BELG BRLN BERN
+
+BOGO BOMB BONN BRAZ BRUS CAIR CALC CAPT
+
+CARA TRUJ COLO CNRY LISB COPE DKAR DAMA
+
+DARE DJAK FRAN GUAT HAGU HELS HONG HULA
+
+ISTA JIDD KABU KAMP KAHI KIMN KHAR KUAL</

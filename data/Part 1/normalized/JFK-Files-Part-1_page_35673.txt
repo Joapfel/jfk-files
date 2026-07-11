@@ -1,0 +1,33 @@
+Abril 1 Miércoles Dr. Maceo # 68 Trastornos de la voz
+
+" 2 Jueves Dr. Árias Alvarado # 69 Desarrollo emocional nño
+
+" 3 Viernes # 70
+
+" 4 Sabado # 71
+
+" 6 Lunes Dr. 5 # 72
+
+" 7 Martes Dr. Alonso Hernández # 73 La gota
+
+" 8 Miércoles Dr. # 74 "
+
+" 9 Jueves Dr. Cesar Lugones # 75 Denticion
+
+" 10 Viernes Dr. Maceo # 76 Mononucleosis infecciosa
+
+" 11 Sábado # 77 Amebiasis
+
+" 13 Lunes Dr. Benach # 78 Ginecología
+
+" 14 Martes # 79 "
+
+" 15 Miércoles # 80 "
+
+" 16 Jueves # 81 "
+
+" 17 Viernes # 82 "
+
+" 18 Sabado Dr. Maceo # 83 Cartas
+
+" 20 Lunes Dr. Maceo #

@@ -1,0 +1,57 @@
+FITNESS REPORT EMPLOYEE SERIAL NUMBER
+
+012773
+
+SECTION A GENERAL
+
+NAME (Last) (First) (Middle)
+DATE OF BIRTH
+SEX
+GRADE
+SO
+
+MILLER, Newton Scott 08/01/26 M 16 D
+
+S. OFFICIAL POSITION TITLE Ops Officer, CH BDF/CJ/OPS Washington, D.C.
+
+9. CHECK (A) TYPE OF APPOINTMENT (X = CURRENT, X = TEMPORARY)
+
+X CAREER NOREERVE TEMPORARY
+
+CAREER-PROVISIONAL (See Note (a) - Section C) X NORMATIVE REASSIGNMENT EMPLOYER
+
+SPECIAL (Specify)
+
+11. DATE REPORT DUE IN O.P. 31 March 1972 12. ESTIMATED PERIOD (Please note) 1 April 1970 - 29 February 1972
+
+SECTION B PERFORMANCE EVALUATION
+
+U-Unsatisfactory Performance is unacceptable. A rating in this category requires immediate and positive remedial action. The nature of the action could range from counseling, to further training, to placing on leave, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+M-Marginal Performance is deficient in some aspects. The reasons for assigning this rating should be stated in Section C and remedial actions taken or recommended should be described.
+
+P-Proficient Performance is satisfactory. Desired results are being produced at the manner expected.
+
+S-Strong Performance is characterized by exceptional proficiency.
+
+O-Outstanding Performance is so exceptional in relation to requirements of the job and in comparison to the performance of others doing similar work as to warrant special recognition.
+
+SPECIFIC DUTIES
+
+List up to six of the most important specific duties performed during the rating period. Insert rating letter which best describes the manner in which employee performs EACH specific duty. Consider ONL effectiveness in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to supervise. Indicate number of employees supervised.
+
+SPECIFIC DUTY NO. 1 RATING LETTER SPECIFIC DUTY NO. 2 RATING LETTER
+
+SPECIFIC DUTY NO. 3 RATING LETTER
+
+SPECIFIC DUTY NO. 4 RATING LETTER
+
+SPECIFIC DUTY NO. 6 RATING LETTER
+
+SPECIFIC DUTY NO. 8 RATING LETTER
+
+SPECIFIC DUTY NO. 9 RATING LETTER
+
+OVERALL PERFORMANCE IN CURRENT POSITION
+
+Take into account everything about the employee which influences his effectiveness in his current position such as performance of specific duties, productivity, conduct on job, cooperativeness, pertinent personal traits or habits, and particular limitations or talents. Based on your knowledge of employee's overall performance during the rating period, place the letter in the rating box corresponding to the statement which most accurately reflects his level of performance. </tr

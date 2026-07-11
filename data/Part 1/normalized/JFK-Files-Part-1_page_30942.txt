@@ -1,0 +1,11 @@
+SFC: 3103
+
+PERFORMANCE OF QUALIFYING SERVICE
+
+Is this employee performing any qualifying service? [YES] [NO, if "Yes", list periods of each service below]
+
+DECEMBER 31, 1985 (Date) EMPLOYEE TITLE LOCATION PCS TDY MONTHS DAYS
+
+Operations Officer Mexico City %
+
+<

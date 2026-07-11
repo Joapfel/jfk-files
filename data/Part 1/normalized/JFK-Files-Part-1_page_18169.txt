@@ -1,0 +1,53 @@
+ORIG: C. Bostos - Videla
+
+UNIT : WH/1
+
+EXT : 4507
+
+DATE : 10 March 65
+
+MESSAGE FORM /5 R,
+
+ROUTING
+
+1 5
+
+2 6
+
+3 7
+
+4 8
+
+TO MEXICO CITY
+
+FROM DIRECTOR
+
+CONF. WH. 8
+
+INFO OL 4, BPA, VRL, FILE
+
+MEXI
+
+LIEMPTY LIMOUSINE
+
+REFY MEXI 2732 (IN 19326)
+
+APPROVAL GRANTED DELAY INITIAL PAYMENT.
+
+END OF MESSAGE
+
+91487
+
+WH COMMENT Limousine wishes delay initial payment for limited property for 90 days.
+
+WH/Log J. Wisniewski TELECOORD OL/RECD Bill Cabanis, DC/MED/OL TACOORD DC/LOG, GEORGE MELLON
+
+Raford W. Herbert
+
+AC/WHD RELEASING OFFICER
+
+GROUP I Excluded from automatic downgrading and declassification
+
+AUTHENTICATING OFFICER
+
+Copy No.

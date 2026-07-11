@@ -1,0 +1,23 @@
+DATE NAME POSITION DEPARTMENT OFFICE REPORTS
+
+1975-66 Marion E. Smith Assistant Chief, Training and Research SAM-3/62 Dated: May 14, 1960
+
+28 Jul 1950 " Charles R. Bixby Chief, Staff SR-SO-4 Dated: July 26, 1950
+
+26 Aug 1950 " John M. Dearing Chief, Plans and Operations SR-SO-4 Dated: August 1, 1950
+
+27 Jun 1952 Off James H. Smith Assistant Director, Air Force's Special Projects Office SR-SO-5 Dated: June 27, 1952
+
+27 Aug 1952 Off Harry W. Grumley Assistant Director, Air Force's Special Projects Office SR-SO-5 Dated: August 2, 1952
+
+27 Sep 1952 Off James H. Grumley Assistant Director, Air Force's Special Projects Office SR-SO-5 Dated: September 2, 1952
+
+29 Dec 1952 Off Thomas J. Cline Assistant Director, Air Force's Special Projects Office SR-SO-5 Dated: December 29, 1952
+
+17 Jan 1953 " Gerald M. Coyle Director, Special Projects SR-SO-5 Dated: January 17, 1953
+
+14 Feb 1953 Off Eugene J. Foustek Director, Special Projects SR-SO-5 Dated: February 14, 1953
+
+21 Mar 1953 Off Eugene J. Foustek Director, Special Projects SR-SO-5 Dated: March 21, 1953
+
+28 Mar 1953 Off Eugene J. Foustek Director, Special Projects SR-SO-5 Dated: April 28, 1953</

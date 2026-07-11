@@ -1,0 +1,41 @@
+TYPE YEAR NUMBER I/I DOC. NO. NEW DOCUMENT RECORD
+
+Instructions for Divisions and Staffs: 1. Fill in shaded areas only. 2. Additional comments should be written on back of form.
+
+1 DOCUMENT DESCRIPTION (30 CHARACTERS) DAY MONTH YEAR
+
+CABLE
+
+DISPATCH
+
+2 FROM/ORIGINATOR (30 CHARACTERS) FBI-14 Jan 69
+
+SUBJECT (80 CHARACTERS) CSCI-316/00108-69
+
+3 Type of Review IAL Date of Review DAY MONTH YEAR
+
+4 Recommendations: A. Release in full text X E. Sustain initial denial in toto
+
+7 B. Release in sanitized form F. Sustain initial release of of sanitized version TO FENSTERWALD
+
+C. Deny in toto G. Release additional information
+
+D. Defer decision to coordinate with (Specify in Line 8)
+
+5
+
+6
+
+8 DEFER DECISION TO (10 CHARACTERS) COORDINATE WITH (10 CHARACTERS) NEW CLASS SIGNATURE AND OFFICE OF REVIEWING OFFICER
+
+9 EXEMPTIONS CLAIMED (40 CHARACTERS)
+
+10
+
+Classification (b)(1) (k)(1)
+
+2. Information from liaison with a Foreign Government (b)(3) (j)(1)(b)(c)
+
+3. Information pertaining to a liaison relationship with a Foreign Government (b)(3) (j)(1)(b)(c)
+
+4. Information which would/could identify the source (b)(3) (j)(1)(b) </

@@ -1,0 +1,16 @@
+(When Filled In)
+
+Serial No.
+Name
+Cost Center Number
+LWOP Hours
+
+07494 SMITH JOSEPH D. WH LD V
+
+OLD SALARY RATE NEW SALARY RATE
+
+Grade Step Grade Step Salary Effective Date PSI LSI ADJ.
+
+55 13 4 $11,415 06/03/67 13 5 $11,675 10/01/61
+
+(4-81)

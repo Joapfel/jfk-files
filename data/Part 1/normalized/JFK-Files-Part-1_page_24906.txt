@@ -1,0 +1,43 @@
+MENT OF CLAIM
+
+MEMBER NO. NAME VENDOR VOUCHER NUMBER LETTING RELATIONSHIP DATE CLAIM RECEIVED
+
+AUDIT BREAKDOWN
+
+1 Hospital Admission Date - 5-20-65 DUE-5-20-65
+
+2 Hospital Adm. Session Date - This Payment - 3 AMOUNTS AMOUNTS
+
+3 Hospital Room 6 Days @ 22.02 OF ACTUAL CHARGES PAYABLE UNDER
+
+4 Hospital Room 6 Days @ 22.02 222.22 220.00
+
+5 Indirect Hospital Misc (include Ambulances) 27.00 27.00
+
+6 Outpatient Hosp. Misc.
+
+7 Surgeons 103.32 103.00
+
+8 Anesthesist (Other than Hospital) (16.05) (16.00)
+
+9 Physician (Other than Surgeon) 5-26-65 5-27-65 70.60 X
+
+10 Drugs (Other than Hospital)
+
+11 Other Covered Expenses
+
+12 TOTAL DUE PLAN BENEFITS THIS WORKSHEET - 177.00
+
+13 Total Actual Charges 707.05
+
+14 Show All, Excess of Line 13 over Line 12 207.00
+
+15 Add Any Accumulation of Deductible Applicable
+
+16 Total Line 1 and Line 15 207.00
+
+17 If line 16 exceeds Deductible ($100, Plus Any Private Fee Charge Exceeding $25 a Day) Enter Amount of Excess 207.00
+
+18 PAYABLE-0/00% - 1 207.00 265.67
+
+19 PAYABLE-0/00% - 0 TOTAL MAJOR MEDICAL BEN

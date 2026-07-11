@@ -1,0 +1,45 @@
+(When Filed In)
+
+Name Cost Cst. Nom. 4. LWOP Hours
+
+525798 WILCOTT JAMES "J" JR DPB/FL 14 UV
+
+CEN SALARY RATE NEW SALARY RATE TYPE ACTION
+
+CS CS CS Sep. PSI ADI.
+
+05 4 5,840 09/18/60 05 5 5,005 09/17/61
+
+PAY CHANGE NOTIFICATION
+
+AES: 6 MAY 1960
+
+NOTIFICATION OF PERSONNEL ACTION
+
+Serial No. 525798
+Name (Last-First-Middle)
+Date Of Birth Mo. Da. Yr.
+
+09 27 31
+
+4. Vet. Pref. None-0 5 Pt-1 10 Pt-2
+
+5. Sex M 1 6. CS - EOD Mo: Dg. Yr.
+
+03 04 57
+
+WILCOTT JAMES B JR 10. Apmt. Alldav. Mo. Da. Yr.
+
+FEGLI Yes-1 No-2 Code
+
+LCD Mo. Dg. Yr.
+
+03 04 57
+
+13. Mil. Serv. Yes - 1 No - 2 Code
+
+SCD Mo. 06
+CSC Yes/ No - 2
+CSC Or Other Legal Authority Yes-1 No. 2 Code
+
+Apmt. Alldav. Mo.

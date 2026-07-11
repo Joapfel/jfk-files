@@ -1,0 +1,37 @@
+OUTGOING MESSAGE
+
+ADE COL ACF TYP AGE OBC
+
+OMF D 0 0 0 0 0
+
+SIGNAL CENTER USE OF:
+
+PAGE C PAGES
+
+2
+
+CLASSIFICATION
+
+MESSAGE HANDLING INDICATOR
+
+CONF: INFO: FILE
+
+CIA 133734.
+
+MESSAGE REFERENCE NUMBER
+
+D NO DECS NO MODE D RETURN TO PER
+
+ORIG: LA/CO/CI (FAUST X1325); COORD: DC/LA/CO (LATTARI)
+
+/V (AMORI); DC/LA/SR (DISTEFANO); AUTH: C/LAD (UARREN).
+
+REF: (KOHN) 3.8
+
+DATE: 30 NOVEMBER 1977 ORIG: OUEEN FAUST UNIT? : LA/CO/CI EXT: 1325 DC/LA/CO /V DC/LA/SR (C/LAD) COORDINATES OF LEAF (COORDINATING OFFICER) IMPDET CL BY: SECRET
+
+CLASSIFICATION
+
+E7 E3 '77
+
+... IMPDET CL BY: ... SECRET . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .

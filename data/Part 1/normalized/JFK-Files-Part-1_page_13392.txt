@@ -1,0 +1,43 @@
+DISPATCH
+
+TO Chief, WT
+
+INFO Chief, W/W/SA
+
+FROM COS, Brussels
+
+SUBJECT Cuban Travel
+
+ACTION REQUIRED REFERENCES
+
+REF: CBST-2278, 4 August 1965
+
+Attached is Cuban travel information received from NICALE during August.
+
+Diena G. WIGZELL
+
+Attachment: As stated above
+
+Distribution:
+
+&nbsp;&nbsp;3 - Chief, WT (w/att)
+
+&nbsp;&nbsp;1 - Chief, W/W/SA (w/o att)
+
+&nbsp;&nbsp;2 - Brussels (w/o att)
+
+DATE 3 September 1965 MESSAGE NUMBER PP-5231
+
+PROCESSING ACTION
+
+MAIN FOR INVOICE NO INVOicing REQUIRED ONLY QUALIFIED DELEGATES CAN USE INDICATING MICROFILM
+
+PROCESSED
+
+BY FOD
+
+CBST-2275 3 September 1965
+
+CLASSIFICATION MESSAGE NUMBER
+
+CONFIDENTIAL PP-5231

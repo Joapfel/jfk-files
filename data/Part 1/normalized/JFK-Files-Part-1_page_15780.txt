@@ -1,0 +1,41 @@
+Date Payment Description Amount
+
+9 Nov. '57 Cash, $200.00 2,400.00
+
+31 Oct. '57 Cash, $1,000.00 6,000.00
+
+13 Nov. '57 Cash, $590.00 To Finance Services, 4 months accrual - November - February 10.00
+
+(400.00) Cct. to Cash, Nov Salary -0-
+
+24 Nov. '59 $400.00 4,410.00
+
+Cash, Nov Salary -E. M.
+
+7 Dec. '59 $410.00 0
+
+Cash, (84,000.) E. M.
+
+21 Dec. '59 Cash Salary, Nov - Dec, $400.00 E.M.
+
+20 Jan. '60 Cash Salary, Dec. Jan., $0 E.M.
+
+20 Feb. '60 Cash Salary, Jan.-Feb., $1,000.00 Remainder E.M.
+
+1 Mar. '60 Cash Salary, Jan.-Feb., $75.00 Remainder E.M.
+
+16 Mar. '60 Cash Salary, Jan.-Feb., $75.00 Remainder E.M.
+
+20 Mar. '60 Cash Salary, Feb.-Mar., $400.00 E.M.
+
+20 April '60 Cash Salary, Mar.-April, $400.00 E.M.
+
+27 Apr. '60 Cash Salary, May-June, $75.00) E.M.
+
+20 May '60 Cash Salary, April-May, $400.00 E.M.
+
+20 June '60 Cash Salary, May-June, $400.00 E.M.
+
+20 July '60 Cash Salary, June-July, $400.00 E.M.
+
+20 Aug. '60 Cash Salary, July-Aug, $4,000.00 E.M.

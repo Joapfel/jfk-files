@@ -1,0 +1,53 @@
+SECRET REQUEST FOR PERSONNEL ACTION
+
+Serial No.
+Name (Last, First/Middle)
+Date Of Birth
+Vot Prof.
+Sex
+CS-FOD
+
+SCH Mo. Da. Yr. None-0 Code H I Mo. 12 Da. 36 Yr. 54
+
+CSC Form.
+Aprt. Alldav.
+FEGLI
+LCD
+MIL. Serw. Crnch. Co.
+
+Mo. Da. Yr. BSCD Yes-1 No-2 Code Yes-1 No-2 Yes-1 No-2
+
+17 11 1 2
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations 15. Location Of Official Station Station Code
+
+UDP WH BRANCH XXX-4 NAVAPO, CUBA STATION NAVAPO, CUBA 17085
+
+16. Dept.-Field 17. Position Title 17-10
+
+Dept. Code AUST ALL FCL OF 10 P.P. 0136.51
+
+USId. Frgn - 0116
+
+Grade & Step
+Salary Or Rate
+SD
+Date Of Grade
+PSI Due
+
+XXX-05 X X 13 Y XXX 8140 XXX 10970 23. SD Mo. Da. Yr. 03 168 157
+
+ACTION-09 09 60
+
+Nature Of Action Code
+Eff. Date Code
+Type Of Employee Code
+Separation Data
+
+PROMOTION 31 06 16 60 REGULAR
+
+PRESENT ASSIGNMENT
+
+31. Organizational Designation 32. Location Of

@@ -1,0 +1,15 @@
+Public Law 513, approved May 13, 1950, 81st Congress (2nd Session), is quoted verbatim herewith:
+
+"AN ACT
+
+"To enhance further the security of the United States by preventing disclosures of information concerning the cryptographic systems and the communications intelligence activities of the United States.
+
+"BE IT ENACTED BY THE SENATE AND HOUSE OF REPRESENTATIVES OF THE UNITED STATES OF AMERICA IN CONGRESS ASSEMBLED. That whoever shall knowingly and willfully communicate, furnish, transmit, or otherwise make available to an unauthorized person, or publish, or use in any manner prejudicial to the safety or interest of the United States or for the benefit of any foreign government to the detriment of the United States any classified information (1) concerning the nature, preparation, or use of any code, cipher, or cryptographic system of the United States or any foreign government or (2) concerning the design, construction, use maintenance, or repair of any device, apparatus, or appliance used or prepared or planned for use by the United States or any foreign government for cryptographic or communication intelligence purposes; or (3) concerning the communication intelligence activities of the United States or any foreign government, or (4) obtained by the processes of communication intelligence from the communications of any foreign government knowing the same to have been obtained by such processes, shall be fined not more than $10,000 or imprisoned not more than ten years, or both.
+
+"Sec 2. (a) The term 'classified information' as used herein shall be construed to mean information which, at the time of a violation under this Act, is, for reasons of national security, specifically designated by a United States Government Agency for limited or restricted dissemination or distribution
+
+"(b) The terms 'code' cipher', and 'cryptographic system' as used herein shall be construed to include in their meanings, in additions to their usual meanings, any method of secret writing and any mechanical or electrical device or method used for the purpose of disguising or concealing the contents, significance, or meanings of communications.
+
+"(c) The term 'foreign government' as used herein shall be construed to include in its meaning any person or persons acting or purporting to act for or on behalf of any faction, party, department, agency, bureau, or military force of or within a foreign country, or for or on behalf of any government or any person or persons purporting to act as a government within a foreign country, whether or not such government is recognized by the United States.
+
+"(d) The term 'communication intelligence' as used herein shall be construed to mean all procedures and methods used in the interception of communications and the obtaining of information from such communications by other than the intended recipients.

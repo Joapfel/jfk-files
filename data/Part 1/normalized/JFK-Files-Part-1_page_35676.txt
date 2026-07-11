@@ -1,0 +1,39 @@
+Día horario
+
+Cuatro 10 Viernes Dr. Macco # 1 Inaparación
+
+11 Sábado " # 2 Gastroenteritis
+
+dos 13 Lunes " # 3 Asma
+
+14 Martes " # 4 Sarampion, Varicela, Culebrilla
+
+15 Miércoles " # 5 Poliomielitis
+
+16 Jueves " # 6 Angina de Pecho
+
+17 Viernes " # 7 Parasitismo
+
+18 Sabado " # 8 Tetanos
+
+20 Lunes " # 9 Avitaminosis
+
+21 Martes " # 10 Neuronia
+
+22 Miércoles " # 11 Difteria
+
+23 Jueves " # 12 Artritis
+
+24 Viernes " # 13 Papulas
+
+25 Sábado " # 14 Calculos hepaticos
+
+27 Lunes " # 15 Paludismo
+
+28 Martes " # 16 Rabia
+
+29 Miércoles " # 17 Lepra
+
+30 Jueves " # 18 Alcoholismo
+
+31 Viernes " # 19 Cirrosis hepática

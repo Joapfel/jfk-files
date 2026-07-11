@@ -1,0 +1,5 @@
+con lo cual aparecería en la fecha de cierre del mes, un balance que - no sería fiel a la verdad, pues aparecería como un gasto, lo que en realidad es un activo.
+
+La partida denominada "TRANSFERENCIA" ($50,000.00) está compensada con un ingreso por la misma cantidad, y se originó al querer hacerse una transferencia de fondos a la cuenta "RASCO AND PAULA", para pagar a través de ella la nómina de asistencia social, pero por error se hizo el depósito del check No. 255 por $50,000.00 en la misma cuenta de "PAULA AND SOSA".
+
+amr.

@@ -1,0 +1,13 @@
+Name Title Sex POSITION CONTROL REGISTER Rank Date of Birth Age State of Residence SSN Photo ID DOB Last Name First Name Company Department Position Start Date End Date
+
+Unit Number Date of Birth SSN
+
+OFFICERS
+
+ROBERT ROBERT G Officer M A 0136.01 12 B 2793 D 56180012000
+
+GREG KOWIT V Officer M L 0136.01 11 2792 A 003215 C 27 K 10 030758 56180013000
+
+JOE RICCARDO J Officer M O 0136.01 10 2793 D 027075 C 31 K 10 111361 56180014000
+
+JOBBER JOHN G Officer

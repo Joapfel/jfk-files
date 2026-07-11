@@ -1,0 +1,45 @@
+TYPE YEAR NUMBER I/I DOC. NO. NEW DOCUMENT RECORD
+
+FRE-75 76 77 78 Instructions for Divisions and Staffs: 1. Fill in shaded areas only. 2. Additional comments should be written on back of form.
+
+DOCUMENT DESCRIPTION (30 CHARACTERS) DAY MONTH YEAR
+
+CABLE DISPATCH MEMO REPORT
+
+FROM/ORIGINATOR (30 CHARACTERS) TO/RECIPIENT (30 CHARACTERS)
+
+CIA - James Angloston FTB-1
+
+CLASS WHERE LOCATED (10 CHARACTERS) REFERRED BY (10 CHARACTERS) DDO-7 DO FILE NUMBER (20 CHARACTERS)
+
+SUBJECT (80 CHARACTERS)
+
+Conference of the Committee to Investigate Assassinations
+
+TYPE OF REVIEW I A L DATE OF REVIEW DAY MONTH YEAR
+
+Recommendations:
+
+A. Release in full text E. Sustain initial denial in toto
+
+B. Release in sanitized form F. Sustain initial release of of sanitized version
+
+C. Deny in toto G. Release additional information
+
+D. Defer decision to coordinate with (Specify in Line 8)
+
+DEFER DECISION TO (10 CHARACTERS) COORDINATE WITH (10 CHARACTERS) NEW CLASS
+
+EXEMPTIONS CLAIMED (40 CHARACTERS) N/A
+
+B1 B2 B3 B4 B5 B6 B7C OF FOIA J1 J1B J1C J1E J1F K1 OF PA 5B1 5B2 5B3 5B4 OF E.O. 11652
+
+Exemptions are being claimed to protect the following:
+
+Classification
+Information from liaison with a Foreign Government (b) (1) (k) (1)
+Information pertaining to a liaison relationship with a Foreign Government (b) (3) (j) (1) (b) (c)
+Information which would/could identify the source (b) (3) (j) (1) (b)
+Information pertaining to a source (b) (3) (j) (1) (b)
+Information pertaining to intelligence methods (b) (3) (j) (1) (b)
+Location* of CIA overseas installation

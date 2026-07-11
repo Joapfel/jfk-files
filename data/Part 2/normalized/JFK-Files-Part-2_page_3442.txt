@@ -1,0 +1,23 @@
+The Special Investigations Group of the CI Staff (CI/SIG)
+
+CI/SIG (the Special Investigations Group) did not exist prior to the establishment of the CI Staff in early 1955. Its major functions as described in CSI No. 70-1 of March 1955 are much more modest than the functions ascribed to it in a write-up by the Staff in early 1973. The 1955 description of functions is as follows:
+
+"Special Investigation Unit
+
+"Major Functions
+
+"Performs the CI investigation and analysis of any known or potential security leak in the Clandestine Services organization, whether in headquarters or in the field, from the standpoint of its effect on (1) existing operations, and (2) the cover of personnel. In performing this function, maintains close working relations with the Security Office, the latter being primarily concerned in such cases from Agency security rather than an operational security stand-point."
+
+By 1973 the description of tasks which had been assigned to CI/SIG or which they had absorbed during the course of events over a period of nearly two decades provides a much broader range of functions and responsibilities. They are listed as follows:
+
+"CI/Special Investigations Group
+
+"1. Conducts research into the long-range validity of CIA operations in terms of known or potential hostile capabilities, including penetrations, and of Agency security.
+
+"2. Carries out coordination with the Office of Security in such cases.
+
+"3. Maintains and uses sensitive counterintelligence holdings, including certain Comint and defector materials, to match these against operational and personality data and thus to derive operational leads.
+
+"4. Coordinates and cooperates with counterintelligence and security elements of other departments and agencies of the USG to detect, tabulate, and take counter-action against hostile plans or approaches abroad for the recruitment of American officials (American Targets Program).
+
+144

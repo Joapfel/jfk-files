@@ -1,0 +1,15 @@
+DESCRIPTION OF INDIVIDUAL
+
+CATEGORY 1 1. Has never observed this rule, hence the score is 0 for any individual.
+
+2. Has observed this rule, hence the score is 1 for any individual.
+
+3. Applied to the individual to the last pass/one degree
+
+4. Applied to the individual to an average degree
+
+CATEGORY 2 1. Applied to the individual to a limited degree
+
+CATEGORY 3 2. Applied to the individual to an average degree
+
+CATEGORY 4 3. Applied to the individual to an outstanding degree

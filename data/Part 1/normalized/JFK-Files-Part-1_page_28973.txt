@@ -1,0 +1,33 @@
+OFFICER EFFICIENCY REPORT (AR 600-183 and SR 600-185-1)
+
+SECTION I
+
+LAST NAME - FIRST NAME - MIDDLE INITIAL
+SERVICE NO.
+GRADE
+BRANCH
+COMPONENT
+
+CONEIN, Lucien E. 01 322 769 Major Inf USAR
+
+6. UNIT, ORGANIZATION, AND STATION OF RATED OFFICER PERIOD OF REPORT
+
+Support Group (8706) Washington 25, D. C. FROM (Da,mo,yr) To (Da,mo,yr) DUTY DAYS OTHER DAYS
+
+1 May 56 17 Oct 56 126 44
+
+REASON FOR REPORT Annual
+
+Change duty rated officer PCS rated officer Change duty rating officer PCS rating officer Other (Specify) Close daily contact Infrequent observation Frequent observation Reports and records
+
+9. BASIS FOR RATING OFFICER'S ENTRIES
+
+OFFICER CHARACTERISTICS
+
+How effective is this officer in the maintenance of supply discipline?
+
+How effective is this officer in utilization of personnel?
+
+FOR RATER ONLY - Does this officer possess the physical, mental, and moral qualities expected for his grade, branch, and length of commissioned service?
+
+FOR RATER ONLY - Could this officer be expected to serve adequately in any normal branch assignment commensurate with his grade? <input type="text" id="note5" name="note5" value="FOR RATER

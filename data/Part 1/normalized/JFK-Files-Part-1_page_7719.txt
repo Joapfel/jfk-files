@@ -1,0 +1,23 @@
+4.07 Teeth
+
+4.07.01 Shape Regular X Average Protruding _ Unusual
+
+4.07.02 Do you get the feeling he clenches his teeth? Yes No X If Yes, under what circumstances?
+
+4.07.03 Does he have any gold teeth or unusual dental work? Yes No X
+
+4.07.04 When he smiles, does he Show his teeth? Yes No X Purse his lips? Yes No Put hand over mouth? Yes No
+
+4.07.05 Does he put his hand over his mouth when talking? Never X Frequently Occasionally Always
+
+4.07.06 Color of teeth White X Dull Stained
+
+4.07.07 Is there anything unusual or striking about his teeth? If so, please describe:
+
+4.08 Posture:
+
+4.08.01 Straightness Round-shouldered Slumped Erect X Stiff
+
+4.08.02 Is posture maintained? Consistently X Variable
+
+4.08.03 Shoulders Broad-shouldered X Slaping Average Narrow _

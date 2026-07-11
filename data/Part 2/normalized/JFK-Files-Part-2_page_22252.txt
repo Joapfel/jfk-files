@@ -1,0 +1,15 @@
+PERSONS/ENTITIES: DATES: CATEGORIES:
+
+JOHNSON KILPATRICK MCCONE Sept.16,1963 MONGODB SPECIAL GROUP
+
+OCCURRENCE:
+
+On September 16, 1963 a memorandum reported that "all members of the special group have approved project GARAGE (having to do with certain EELING activities) in the area of Cuba.)"
+
+SOURCE: Memorandum dated 16 September 1963 for members of the Special Group from Mr. Parrott
+
+FILE:
+
+STAFF: Kelley DATE: 6/28/75
+
+6/28/75

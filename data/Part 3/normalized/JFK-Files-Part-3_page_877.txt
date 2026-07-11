@@ -1,0 +1,9 @@
+STATEMENT OF THE CASE
+
+In its initial decision in this case, the Court affirmed appellant's conviction of conspiracy to violate the espionage statute, 18 U.S.C. § 794(a) and (c). 384 F.2d 554 (1967). While appellant's certification petition was pending, the Solicitor General informed the Supreme Court that appellant had been electronically overheard. The Supreme Court considered the effect of such disclosures in this case and in one arising from the Tenth Circuit in Alderman v. United States, 394 U.S. 165 (1969) and remanded both cases to the respective District Courts:
+
+"for a hearing, findings, and conclusions (1) on the question of whether with respect to any petitioner there was electronic surveillance which violated his Fourth Amendment rights, and (2) if there was such surveillance with respect to any petitioner, on the nature and relevance to his conviction of any conversations which may have been overheard through that surveillance." 394 U.S. 186 (emphasis added)
+
+The Supreme Court, in elaborating on its instructions, repeated again that the scope of inquiry was to be confined to possible Fourth Amendment violations. It ordered that:
+
+The District Court should confine the evidence presented by both sides to that which is material to the question of the possible violation of a petitioner's Fourth Amendment rights, to the content of conversations illegally overheard by surveillance which violated those rights and to the relevance of such conversations to the petitioner's subsequent conviction. The District Court will make such findings of fact on those questions as may be appropriate

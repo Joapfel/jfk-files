@@ -1,0 +1,35 @@
+FITNESS REPORT EMPLOYEE SERIAL NUMBER.
+
+017974
+
+SECTION A GENERAL
+
+I. NAME (Last) (First) (Middle)
+
+Fox, Jerome (nm)
+
+II. OFFICIAL POSITION TITLE-8. DATE OF BIRTH
+
+Ops Officer M
+
+III. CHECK (R) TYPE OF APPOINTMENT 9. GRADE
+
+X CAREER RESERVE TEMPORARY GS-13
+
+IV. CHECK (R) TYPE OF REPORT ANNUAL X
+
+V. SPECIAL (Specify): SPECIAL (Specify)
+
+VI. DATE REPORT DUE IN O.P. 12. REPORTING PERIOD (From - To)
+
+28 February 1970 1 January 1970 - 30 April 1970
+
+SECTION B PERFORMANCE EVALUATION
+
+U-Unsatisfactory Performance is unacceptable. A rating in this category requires immediate and positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+M-Marginal Performance is deficient in some aspects. The reasons for assigning this rating should be stated in Section C and remedial actions taken or recommended should be described.
+
+P-Proficient Performance is satisfactory. Desired results are being produced in the manner expected.
+
+S-Strong Performance is characterized by exceptional proficiency.

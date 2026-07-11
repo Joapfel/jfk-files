@@ -1,0 +1,33 @@
+UNCLASSIFIED when blank - TOP SECRET when attached to Top Secret Document - Automatically downgraded to SECRET when filled in form is detached from controlled document.
+
+CONTROL AND COVER SHEET FOR TOP SECRET DOCUMENT
+
+DOCUMENT DESCRIPTION REGISTRY
+
+SOURCE CIA CONTROL NO.
+
+DOC. NO. MEMO FOR THE RECORD R. D. SHEA-1 June 1961 DATE DOCUMENT RECEIVED
+
+DOC. DATE
+
+COPY NO.
+
+NUMBER OF PAGES
+
+NUMBER OF ATTACHMENTS
+
+ATTENTION: This form will be placed on top of and attached to each Top Secret document received by the Central Intelligence Agency or classified Top Secret within the CIA and will remain attached to the document until such time as it is downgraded, destroyed, or transmitted outside of CIA. Access to Top Secret matter is limited to Top Secret Control personnel and those individuals whose official duties relate to the matter. Top Secret Control Officers who receive and/or release the attached Top Secret material will sign this form and indicate period of custody in the left-hand columns provided. Each individual who sees the Top Secret document will sign and indicate the date of handling in the right-hand columns.
+
+OFFICE RECEIVED RELEASED SEEN BY
+
+SIGNATURE DATE TIME DATE TIME SIGNATURE AND OFFICE DATE
+
+Mr.Shaffer [Signature] E june
+
+Mr.Dildine [Signature] 6/12
+
+Mr.Kirkpatrick
+
+Mr.Shea
+
+<

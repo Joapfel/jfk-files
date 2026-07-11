@@ -1,0 +1,43 @@
+FITNESS REPORT EMPLOYEE SERIAL NUMBER
+
+SECTION A GENERAL 003620
+
+NAME (Last) (First) (Middle)
+DATE OF BIRTH
+SEX
+GRADE
+SD
+
+VITALE Guy 16 Oct 17 M GS-08 D
+
+S. OFFICE DIVISION OF ASSIGNMENT 9. CURRENT STATION
+
+B. CHECK (X) TYPE OF APPOINTMENT DDP/WH/C
+
+Wash., D.C.
+
+10. CHECK (X) TYPE OF REPORT
+
+CAREER RESERVE TEMPORARY INITIAL REASSIGNMENT SUPERVISOR
+
+CAREER-PROVISIONAL (See instructions - Section C) ANNUAL REASSIGNMENT EMPLOYEE
+
+SPECIAL (Specify): XXXX
+
+II. DATE REPORT DUE IN O.P.
+
+REPORTING PERIOD (From lo-)
+
+1 July 1965 - 30 June 1966
+
+SECTION B PERFORMANCE EVALUATION
+
+W. Weak Performance ranges from wholly inadequate to slightly less than satisfactory. A rating in this category requires positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+A. Adequate Performance meets all requirements. It is entirely satisfactory and is characterized neither by deficiency nor excellence.
+
+P. Proficient Performance is more than satisfactory. Desired results are being produced in a proficient manner.
+
+S. Strong Performance is characterized by exceptional proficiency.
+
+O. Outstanding Performance is so exceptional In relation to requirements of the work and in comparison to the performance of others doing similar work

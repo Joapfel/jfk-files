@@ -1,0 +1,19 @@
+PRODUCT SALES REPORT
+
+Salesman
+
+Supervisor
+
+Date/moeting
+
+Dato/next mtg.
+
+Administrative
+
+Instructions to salesman
+
+Report by salesman
+
+Competition
+
+Supervisor's comments

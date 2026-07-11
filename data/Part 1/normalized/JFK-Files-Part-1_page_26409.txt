@@ -1,0 +1,115 @@
+MODEL □ Yes □ No
+
+CLASS TO S/M 3c
+
+TO FC S/N
+
+PRI NO ST 10 MARCH-89
+
+DISTRN S/M
+
+H G. ANDERSSON
+
+W/WD 11041 Road Galena, MI 49506 Calumet Shores, MI 49506 Eau Claire, WI 53703 S/SAS
+
+SECRET ROUTING
+
+1 4
+
+2 5
+
+3 6
+
+TO: DIRECTOR
+
+FROM: MEXICO CITY
+
+ACTION: E/SAS-5 C/W/H
+
+INFO: DDP, ADDP, C/CI, C/FI/D 4, CAM, VR
+
+C/SAS-5
+
+KAAR 0411
+
+29 JAN 6 1989 07726
+
+SECRET 2901132
+
+DIR INFO WAVE SDOM KNOS POSH CITE MEXI 7978
+
+TYPIC ZYKNICK
+
+REF KNOS 1097 (inc 3663)
+
+ROUTION INITIAL
+
+RSD/AM 2/2
+
+SCT/MKT-1/11
+
+LSD/D 11
+
+RHF-BS
+
+22/13/mix
+
+DESTROY
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y
+
+R I C O P Y

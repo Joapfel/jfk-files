@@ -1,0 +1,45 @@
+EXT.:
+
+MESSAGE FORM 34
+
+ROUTING
+
+1 6
+
+2 7
+
+3 8
+
+4
+
+TO : ALGI
+
+CONF: C1/1C2
+
+INFO V2, File, WEB, FEB, CAZ, CHILE, CALO, CL, CILIPS, FI, FILINTZ, AFB
+
+S/G DEN:
+
+98975
+
+TO ALGI RE DIR G.F.974 INFO.
+
+IDEN: RICHARD T. GIBSON
+
+END OF MESSAGE
+
+GROUP-1 Included from automatic downgrading and declARATION
+
+AUTHENTICATED OFFICER
+
+AHSGE
+
+P.S.
+
+AF 11A
+
+W.D.Mallany c.sdo for
+
+Lefebvre D.E.
+
+Copy No. 2

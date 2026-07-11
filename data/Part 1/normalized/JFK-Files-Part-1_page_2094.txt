@@ -1,0 +1,15 @@
+OFFICE CONTROL REGISTER
+
+DATE TIME EMPLOYEE S 1 M O F No. Title ID No. Promotion Level Rank Date of Promotion PC No. Unit Station Shift P.O. Box Page
+
+First Name Last Name Rank Level
+
+09-08-74 11:50 J. C. - V. A. - S L D S C R M I G T R K A N R P U O W S H E S
+
+05-09-75 1:45 F A B L A M B C J U J J M A S H Y W W A S S H R C A A
+
+06-10-75 1:40 J D I W I M A S R T J A R E C N S D T D W A S A A S T A
+
+06-10-75 1:40 W A R A I W M J R T W J E R P A A W A W A P A C T A W
+
+07-10-75 1:45 R C A W I M A S J W R A I E T C A W A W <

@@ -1,0 +1,23 @@
+4.07 Dientes
+
+4.07.01 Forma Regular __ Procedio Saliente Desusada.
+
+4.07.02 ¿Tiene usted la impresión de que aprieta los dientes? Sí No
+
+En caso afirmativo, ¿bajo cuáles circunstancias?
+
+4.07.03 ¿Tiene dientes de oro o trabajo dental poco común? Sí No
+
+4.07.04 Cuando sonríe, ¿Se le ven los dientes? Sí No ¿ Frunce los labios? Sí No ¿Se tapa la boca con la mano? Sí No
+
+4.07.C5 Al hablar, ¿se tapa la boca con la mano? Nunca Frecuentemente A veces Siempre
+
+4.07.06 Natis de los dientes Blanco Apagado Manchado
+
+4.07.07 ¿Tienen sus dientes alguna característica poco común o iluminativa? En caso afirmativo, describe:
+
+4.08 Porte
+
+4.08.01 Derechura Ligeramente encarvado Encarvado Erecto Tieso 4.08.02 Mantiene su postura Constantemente No siempre Hombros Ancho de hombros / De hombros caídos / Promedio / De hombros estrechos _
+
+4.08.03

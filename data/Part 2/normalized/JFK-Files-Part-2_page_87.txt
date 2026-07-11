@@ -1,0 +1,30 @@
+CIA INTERNAL USE ONLY SECRET
+
+(When Filled In)
+
+PERSONALITY (201) FILE REQUEST
+
+TO RI/ANALYSIS SECTION DATE 24/10/57 AUTO CLOSE
+
+FROM RIAN ROOM NO.
+
+INSTRUCTIONS: Form must be typed or printed in block letters. SECTION I: List 201 number, name and identifying data in the spaces provided. All known aliases and variants (including maiden name, if applicable) must be listed. If the identifying data varies with the alias used, a separate form must be used. Write UNKNOWN for items you are unable to complete. SECTION II: List cryptonym or pseudonym, if assigned. If true name is sensitive, obtain 201 number from 201 Control Desk and complete Section I and Section III. On a separate form, enter the 201 number and complete Section II and Section III. Submit each form separately. SECTION III: To be completed in all cases.
+
+SECTION I NAME VARIANT RECORD COPY OTHER IDENTIFICATION COPY OCC/POS. CODE COPIE SEXTATION SITUATION NUMBER IDENTITY
+
+SENSITIVE 201 NO. 205712 SOURCE DOCUMENT HRSA-01519 (Last Name) FERRE, Luis ALBERT (First Name) (Middle Name) (Title) #
+
+NOT SENSITIVE
+
+TYPE NAME-2 LAST (Last) FIRST (First) MIDDLE (Middle) PHONE NUMBER (Phone Number) BIRTH DATE (Date of Birth) SEX (Sex) COUNTRY OF BIRTH (Country of Birth) CITY OR TOWN OF BIRTH (City of Birth) OTHER IDENTIFICATION (Other Identification Number) OCC/POS. CODE (Other Code) SECTION II SECTION III
+
+PHOTO
+VISUAL ID VOUCHER NO ISSUED DATE DECE-17 '02 '04 F RR PONCE
+
+OCCUPATION/POSITION VIO-LIFE GENE INDUSTRY PUNCHED
+
+COUNTRY OF RESIDENCE PR ACTION DESK WH/3AN SECOND COUNTRY INTEREST W.H. JONES THIRD COUNTRY INTEREST JONES
+
+COMMENTS:
+
+PERMANENT CHARGE YES LH NO RESTRICTED FILE YES NO SIGNATURE Mr. Jones</

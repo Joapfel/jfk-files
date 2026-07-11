@@ -1,0 +1,51 @@
+FITNESS REPORT EMPLOYEE SOCIAL NUMBER
+
+SECTION A GENERAL
+
+NAME (First, Middle, Last)
+
+2. DATE OF BIRTH JUN 23 '64
+
+3. OFFICE POSITION TITLE Operations Officer
+
+9. CHECK (X) TYPE OF APPOINTMENT RESERVE TEMPORARY
+
+X CAREER CAREER-PROVISIONAL (See Instructions - Section C)
+
+SPECIAL (Specify):
+
+II. DATE REPORT DUE IN 5.P.
+
+2. DATE OF BIRTH JUN 23 '64
+
+7. OFFICE POSITION TITLE Operations Officer
+
+10. CHECK (X) TYPE OF REPORT INITIAL ANNUAL SPECIAL (Specify)
+
+REASSIGNMENT SUPERVISOR REASSIGNMENT EMPLOYEE
+
+EQUITY GS-14 J SWAVE-1 CURRENT STATION
+
+SECTION B PERFORMANCE EVALUATION
+
+W - Weak Performance ranges from wholly inadequate to slightly less than satisfactory. A rating in this category requires positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+A - Adequate Performance meets all requirements. It is entirely satisfactory and is characterized neither by deficiency nor excellence.
+
+P - Proficient Performance is more than satisfactory. Desired results are being produced in a proficient manner.
+
+S - Strong Performance is characterized by exceptional proficiency.
+
+O - Outstanding Performance is so exceptional in relation to requirements of the work and in comparison to the performance of others doing similar work as to warrant special recognition.
+
+PERFORMANCE EVALUATION
+
+W - Weak Performance ranges from wholly inadequate to slightly less than satisfactory. A rating in this category requires positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+A - Adequate Performance meets all requirements. It is entirely satisfactory and is characterized neither by deficiency nor excellence.
+
+P - Proficient Performance is more than satisfactory. Desired results are being produced in a proficient manner.
+
+S - Strong Performance is characterized by exceptional proficiency.
+
+<

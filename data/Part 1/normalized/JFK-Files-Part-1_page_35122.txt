@@ -1,0 +1,43 @@
+ESTADO "II"
+
+iloja No. 2
+
+F o c h a Check No. Description Importe
+
+Oct. 28 272 Desk Center 453.88
+
+" 28 274 Abel de Varona 125.00
+
+" 28 275 Jesús Valdés Crespo 900.00
+
+" 28 276 Tacuba Printing 300.00
+
+" 28 277 Tacuba Printing 150.00
+
+" 28 278 Tacuba Printing 200.00
+
+" 28 279 Máximo Sorondo 500.00
+
+" 29 280 The Flag Center 44.00
+
+" 29 281 Vicente Romeo 105.00
+
+" 29 282 Frank Zayas 125.00
+
+" 29 283 Manuel Cobo 117.00
+
+" 29 284 Humberto Figueras 375.00
+
+" 29 285 Nicolás Hernández 40.00
+
+" 29 286 José Peña 105.26
+
+" 29 287 Juan Sordo 126.33
+
+" 29 288 José M. Tarafa Jr. 726.40
+
+" 29 289 Armando de León S. 43.06
+
+Saldo en nuestros libros conciliado en 10-30-60 71,172.84
+
+amr.

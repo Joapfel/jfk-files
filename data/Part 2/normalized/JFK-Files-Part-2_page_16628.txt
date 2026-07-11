@@ -1,0 +1,41 @@
+PREPAY SPECCALL CLAIM
+
+PAY CALL CLAIM L1
+
+ED DEN D1 WAYS CLOSE L2
+
+TRANSF TOW
+
+REM DEN FROM W.O.
+
+NOT TOW PAY
+
+DEN RESTD
+
+NOT PV
+
+COLL CALL LA 00.155. JV.30 A15DN. CA
+
+200 UNITS Cl. Serv. 203 crcl D Tel. 243-2017
+
+FRED JOHNSON 2337 W. MONROE FLR-1 CHICAGO IL 60612
+
+S U I D O T B 11 65 27 88 87 00
+
+U.S. 13.04 AC 3.84
+
+DEC 13 69 000 81 616 Total 16 88
+
+Additional Units charged as follows: 642 120@4 3/4c 522@4 1/4
+
+/
+
+BAL.
+
+/
+
+BAL.
+
+* Additional charge due to State and City taxes.
+
+COMMERCIAL STUB

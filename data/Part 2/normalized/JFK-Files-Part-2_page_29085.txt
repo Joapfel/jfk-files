@@ -1,0 +1,57 @@
+SCHEDULE D FORM 540
+
+CALIFORNIA CAPITAL GAINS AND LOSSES
+
+Attach to Form 540 or 540NR
+
+Use this schedule to report gains and losses on stocks, bonds and similar investments, and gains (but not losses) on personal assets such as a home or jewelry.
+
+Name as shown on Form 540 or 540NR
+
+Social Security Number
+
+322127897
+
+PART I—Assets Held One Year or Less
+
+Kind of property and description (Example, 100 shares of "Z" Co.) b. Date acquired (mo., day, yr.) c. Date sold (mo., day, yr.) d. Gross sales price e. Cost or other basis as adjusted, cost of subsequent improvements (if not purchased, attach explanation) and expense of sale f. Gain or loss (d. less e.)
+
+1. YOD INTER RECTIFIER 1/17/73 2/22/73 3218 3729 C511
+
+100 LEVITZ-10/11/72 4/31/73 1281 2797 U516
+
+100 POTTER INST-3/19/73 6/29/73 348 695 G473
+
+100 ESSEX INT-4/3/73 6/29/73 1392 1759 G367
+
+2. Enter gain (or loss), if applicable, from line 18, Schedule D-1 (540) (attach copy)
+
+3. Enter your share of net gain or loss from partnerships and fiduciaries
+
+4. Net gain or loss, combine lines 1, 2 and 3
+
+PART II—Assets Held More Than One Year But Not More Than Five Years
+
+6. Enter gain (or loss), if applicable, from line 20, Schedule D-1 (540) (attach copy)
+
+7. Enter your share of net gain or loss from partnerships and fiduciaries
+
+8. Net gain or loss, combine lines 5, 6 and 7
+
+PART III—Assets Held More Than Five Years
+
+10. Enter gain (or loss), if applicable, from line 22, Schedule D-1 (540) (attach copy)
+
+11. Enter your share of gain or loss from partnerships and fiduciaries
+
+12. Net gain or loss, combine lines 9, 10 and 11
+
+PART IV—Summary of Capital Gains and Losses
+
+13. Enter amount from line 4 (2741)
+
+14. Enter 65% of the amount on line 8
+
+15. Enter 50% of the amount on line 12 (13322)
+
+16. Enter unused capital loss carryover from preceding taxable years (attach computation) (160

@@ -1,0 +1,64 @@
+SECTION XY MOTHER (Give same information for stepmother or stepfather as applicable.)
+
+FULL NAME (Last First Middle)
+LIVING / DATE OF DEATH
+CURRENT ADDRESS (If last address given, is deceased.)
+CAUSE OF DEATH
+
+2. DATE OF BIRTH-7. PLACE OF BIRTH (City, State, Country)
+
+9. IF BORN OUTSIDE U.S. DATE OF ENTRY-10. PLACE OF ENTRY
+
+FORMER CITIZENSHIP (Country(s))
+DATE U.S. CITIZENSHIP ACQUIRED
+WHERE ACQUIRED (City, State, Country)
+
+14. OCCUPATION 15. PRESENT EMPLOYER (Give last employer, if mother is deceased or unemployed)
+
+16. EMPLOYER'S BUSINESS ADDRESS OR MOTHER'S BUSINESS ADDRESS IF SELF-EMPLOYED
+
+17. DATES OF MILITARY SERVICE (First and Last) 18. BRANCH OF SERVICE
+
+COUNTRY
+
+20. DETAILS OF OTHER GOVERNMENT SERVICE, U.S. ON FOREIGN soil
+
+SECTION XVI BROTHERS AND SISTERS (Including Half, Step, and Adopted Brothers and Sisters)
+
+FULL NAME (Last First Middle)
+RELATIONSHIP
+CITIZENSHIP (Country)
+
+4. CURRENT ADDRESS (No., Street, City, Zone, State, Country) 5. LIVING / AGE YES NO
+
+FULL NAME (Last First Middle)
+RELATIONSHIP
+CITIZENSHIP (Country)
+
+4. CURRENT ADDRESS (No., Street, City, Zone, State, Country) 5. LIVING / AGE YES NO
+
+FULL NAME (Last First Middle)
+RELATIONSHIP
+CITIZENSHIP (Country)
+
+4. CURRENT ADDRESS (No., Street, City, Zone, State, Country) 5. LIVING / AGE YES NO
+
+FULL NAME (Last First Middle)
+RELATIONSHIP
+CITIZENSHIP (Country)
+
+4. CURRENT ADDRESS (No., Street, City, Zone, State, Country) 5. LIVING / AGE YES NO
+
+FULL NAME (Last First Middle)
+RELATIONSHIP
+CITIZENSHIP (Country)
+
+4. CURRENT ADDRESS (No., Street, City, Zone, State, Country) 5. LIVING / AGE YES NO
+
+FULL NAME (Last First Middle)
+RELATIONSHIP
+CITIZENSHIP (Country)
+
+4. CURRENT ADDRESS (No., Street, City, Zone, State, Country) 5. LIVING / AGE YES NO
+
+FULL NAME (

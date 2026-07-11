@@ -1,0 +1,49 @@
+DOHB-70-1-1 CHAPTER III, ANNEX B
+
+15 November 1974
+
+0002 CROIX, WILLIAM PENDLETON POB GERM, BERLIN-201-00326718
+
+1 SEX M DOB-12 APR 26 5 TYPE NAME T 9
+
+2 CIT GERM OCC PHARMACIST CI CODES AA XX-10 9
+
+3 REF AACD-12345, 20 JUN 53 OCC CODE CHEM RCD DATE 53 11
+
+SUBJECT RECENTLY ATTENDED THE SEVENTEENTH ANNUAL CONFERENCE OF THE INTERNATIONAL ASSOCIATION OF CHEMISTS AND PHARMACISTS HELD IN MUNICH, GERMANY FROM-22 THROUGH-29 OCTOBER.
+
+13 NOV 70 30 NOV 70 00833555 14
+
+Information About Subject
+
+Sequence Number and Name
+
+2. Sex and Date of Birth
+
+Citizenship
+
+Place of Birth
+
+Occupation
+
+Occupation Code
+
+Text
+
+Document Reference Data Group
+
+201 Number
+
+Name Type Indicator
+
+OI Codes
+
+Record Date (year only)
+
+Reference
+
+ISC Control Information
+
+13. Date of latest update of the record
+
+STAR Index Record Number

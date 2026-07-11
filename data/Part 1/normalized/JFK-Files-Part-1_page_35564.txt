@@ -1,0 +1,15 @@
+(When Filled In)
+
+DATE RECEIPT NO. DESCRIPTION OBJ. CL. COST ACCT. NO. COST PER OBJECTS
+
+ANSHADY-1 Deo salary $425.00
+
+AMBASAL-1 personnel(7) 1703.00
+
+AMBUD-3 script-writer 45.00
+
+AMBASAL-1 difference in salary- Rainforth Foundation 125.00
+
+Total-3295.00
+
+<

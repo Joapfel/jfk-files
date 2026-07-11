@@ -1,0 +1,25 @@
+DATE 20 September 1950
+
+BUILDING 100
+
+FLOOR-18 September 1950
+
+NAME OF EMPLOYEE Burphy, David Edward
+
+POSITION TITLE Intell. Officer SALARY $6000.00
+
+PAYROLL Vouchered DUTY STATION Washington, D. C.
+
+DATE SECURITY CLEARED Concurrent 17 August 1950
+
+DATE PERMANENT IDENTIFICATION REQUESTED N. A.
+
+DATE BRIEFD BY SECURITY N. A.
+
+DATE 24 MONTH AGREEMENT Signed N. A.
+
+EMPLOYEE'S EMERGENCY ADDRESS Mrs. Marian Burphy 2739 Buchanan St. Arlington, Va. 22209
+
+EMPLOYEE'S LOCAL ADDRESS Same as above
+
+REMARKS: Subject transferred from Unvouchered to Vouchered Fund.

@@ -1,0 +1,37 @@
+SECTION I
+
+MARITAL STATUS
+
+1 PRESENT STATUS (spouse, widower, separated, dissolved, divorced, widowed, separated, specif. No Change) 2 NAME OF SPouse (last): (first):
+
+3 DATE OF BIRTH-4 PLACE OF BIRTH (City, State, Country)
+
+5 OCCUPATION 6 PRESENT EMPLOYER
+
+7 CITIZENSHIP 8 FORMER CITIZENSHIPS COUNTRIES
+
+9 DATE U.S. CITIZENSHIP ACQUIRED
+
+SECTION II DEPENDENT CHILDREN AND DEPENDENTS OTHER THAN SPOUSE
+
+NAME RELATIONSHIP DATE AND PLACE OF BIRTH CITIZENSHIP PERMANENT ADDRESS
+
+Kirk Randall Son 6/19/51 Washington U.S. 1823 Dar Drive, Mchenry
+
+Thomas Randall Son 12/1/52 " "
+
+Jean Randall Dad 10/4/56 Dakota " "
+
+Barbara Randall 11/25/58 Alexandria " "
+
+PROFESSIONAL SOCIETIES AND OTHER ORGANIZATIONS DATE OF MEMBERSHIP
+
+FROM TO
+
+American Society of Inter- national Law ADDRESS (number, street, city, state, country) Washington, D.C. 1967 Present
+
+DATE SIGNATURE OF EMPLOYEE
+
+January 30, 1968 Fredrich P. Lande
+
+SECRET-7-

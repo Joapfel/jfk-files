@@ -1,0 +1,35 @@
+DCI/DDCI
+
+DDO Routine ..inp
+
+ACTION INFO. ACTION INFO.
+
+1 DCI-11 IC
+
+2 DDCI-12 IG
+
+3 S/MC 13 Compl.
+
+4 DDS&T 14 Ass't/DCI
+
+5 DDI-15 AO/DCI
+
+6 DDM&amp;S 16 Ex./Soc
+
+7 DDO X 17 D/Pers( for OPF) x
+
+8 D/DCI/IC 18
+
+9 D/DCI/NIO-19
+
+10 GC 20
+
+SUSPENSE
+
+Remarks:
+
+Please add my thanks to Mr. Keenan for a job well done.
+
+EDKuocle
+
+DCCR/DDCI

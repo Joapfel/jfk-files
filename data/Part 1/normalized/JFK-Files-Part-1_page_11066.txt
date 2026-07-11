@@ -1,0 +1,23 @@
+(When Filled In)
+
+PERSONALITY FILE ACTION REQUEST
+
+NOTE: Consult the 201 Control System Reference manual before completing this form. Form must be typed as printed in block letters.
+
+TO : RID/201 Section DATE 4-26-71 1. ACTION OPEN AMEND CLEAR
+
+FROM: [Signature] ROOM NO. 801 PHONE (201) 655-7100
+
+CHECK-2-4 FOR-201 REQUEST. DO NOT CHECK FOR IDN. 2. EXCLUDE TRUE NAME FROM MACHINE LIST YES NO 3. RESTRICTED YES NO
+
+4. 201 NO. [Signature] IDN NO. [Signature] 6. SOURCE DOCUMENT [Signature]
+
+- NAME (Last) [Signature] (First) [Signature] (Middle) [Signature]
+
+NAME VARIANT [Signature]
+
+O TYPE NAME (Last) (First) [Signature] (Middle) [Signature]
+
+NATION YEAR OF BIRTH PLACE OF BIRTH MODE OF DEATH AGE AT DEATH GROSS WEIGHT HEICAN NUMBER TYPE OF LOCATION OFFICE OR DISEASE OTHER INFORMATION
+
+</td

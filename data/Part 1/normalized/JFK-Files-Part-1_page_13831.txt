@@ -1,0 +1,22 @@
+Source and Comment
+
+Superiors: degree of intimacy.
+
+83. Subordinates: basic duties, BI data.
+
+84. Subordinates: special duties, BI data.
+
+85: Subordinates: degree of intimacy.
+
+Colleagues: functions, BI data.
+
+Liaison contacts: functions, BI data. ... function,
+I,
+1,
+..
+
+88. Servants & menials: functions, BI data.
+
+89. T/O interleafed? ...... Flow chart interleafed? ...
+
+90. Telephone contacts details of calls (See attachment item 90.)

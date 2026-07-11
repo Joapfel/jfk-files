@@ -1,0 +1,41 @@
+ORIG D. RONIS:tw UNIT SAS/EOD EXT :6172 DATE :8 OCTOBER 1963
+
+INDEX NO INDEX
+
+FILE IN-CS FILE NO. 19-6-78
+
+1 4
+
+2 5
+
+3 6
+
+TO MEXICO CITY
+
+CONF: SAS-8
+
+INFO : DDP, CI, CI/OPS, CI/OA, FI, FI/INT-2, WH 7, RF, VR
+
+CITE DIR Z4184
+
+TO PRITY HEXI INFO
+
+TYPIC AMONG
+
+IDENTITY A ALFREDO DAVINS IDENTITY B RONIS
+
+END OF MESSAGE
+
+Do Not Reproduce
+
+C/WB J. C. KING C/WHD
+
+COORDINATING OFFICE
+
+REDACTED A. HARRIS/JUS
+
+D4/3
+
+DISTRIBUTION STATEMENT: CONFIDENTIAL
+
+Reproduction and distribution of this document are restricted by law. Dissemination to others is permitted only if it is necessary for the performance of official duties or if it is required for national security purposes. Distribution to unauthorized personnel is strictly prohibited.

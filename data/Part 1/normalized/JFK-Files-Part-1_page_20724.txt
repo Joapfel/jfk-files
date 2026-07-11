@@ -1,0 +1,41 @@
+Serial No. 2 Name
+Cost Center Number
+LWOP Hours
+
+24345 PHILLIPS DAVID A DOP/WH 87 UV
+
+OLD SALARY RATE
+NEW SALARY RATE
+TYPE ACTION PST LSI ADJ.
+
+Grade Step Salary Last En Date Grade Step Salary Effective Date
+
+GS 14 3 $12,730 09/14/61 14 4 $12,990 09/17/61
+
+(When Filled In)
+
+Grade Step Salary Last En Date Grade Step Salary Effective Date PST LSI ADJ.
+
+GS 14 3 $12,730 09/14/61 14 4 $12,990 09/17/61
+
+NO EXCESS LWOP IN PAY STATUS AT END OF WAITING PERIOD IN LWOP STATUS AT END OF WAITING PERIOD
+
+NAME: PHILLIPS DAVID A SERIAL NO.: 024345 FUND: C Funds GFT ST SALARY: 64700 CF: 144 LWOP: S12990 GRST SALARY: 144 $14170
+
+Form 961 560 Date Prevous Eaion (451)
+
+(When Filled In)
+
+Serial No. 2 Name
+Cost Center Number
+LWOP Hours
+
+24345 PHILLIPS DAVID A DOP/WH 87 UV
+
+OLD SALARY RATE
+NEW SALARY RATE
+TYPE ACTION PST LSI ADJ.
+
+Grade Step Salary Last En Date Grade Step Salary Effective Date
+
+GS 14 3 $12,730 09/14/61

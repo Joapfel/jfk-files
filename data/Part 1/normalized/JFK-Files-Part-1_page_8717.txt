@@ -1,0 +1,23 @@
+13.02.04 En la zona donde ella vive, parece estar muy contenta Muy contenta
+
+13.03 ¿Ha estado usted alguna vez en su casa? No Sí No
+
+13.03.01 La vivienda de ellos es: Tépica de la zona Tépica de la zona
+
+13.03.02 Como anfitriones, les esposos son: Inusitadamente buenos Buenos Adecuados __ Algo deficientes
+
+13.03.03 Como anfitrión, la señora parece: Muy en su ambiente Bien adaptada Algo nerviosa
+
+13.03.04 Su vivienda: Refleja la personalidad de él Refleja la personalidad de ambos No refleja la personalidad de ninguno
+
+13.03.05 En general el mobiliario es convencional Descolorido De inusitado buen gusto
+
+13.03.06 La señora está: Visiblemente interesada en su casa Tan interesada en su casa como la mayoría de sus vecinas Visiblemente indiferente a la casa No sé si realmente se interesa o no
+
+13.03.07 El comportamiento social de ella en casa es: Más o menos el mismo que fuera de ella Más en su ambiente que fuera de ella Menos en su ambiente
+
+13.03.08 Normalmente son gente que: Recibe a rensudo y le gusta hacerlo Cumple con sus compromisos sociales y le gusta "bastante" Prefiere invitar sólo a sus íntimos Recibe sólo cuando es de obligación Prefiere no recibir a nadie
+
+13.04 ¿Critica él a su esposa? No Sí __ No
+
+En caso afirmativo, ¿qué es lo que se inclina más a criticar?

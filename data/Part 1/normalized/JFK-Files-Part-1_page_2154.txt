@@ -1,0 +1,27 @@
+POSITION CONTROL REGISTER
+
+Rank Name C.A. Military Unit Date Joining PWM Age Height BMI SitREP
+
+Lt. Col. Gus Dill Hans C. Coss 102 II 2/31/48 5'8" 160 6 Y
+
+Col. Charles M. Hatcher Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. John A. D. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. James E. R. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. George F. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. Walter F. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. Richard T. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. Robert L. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. George F. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. Richard T. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. Robert L. Harbison Ashley W. Hatcher 71 I 4/29/48 5'8" 160 6 Y
+
+Col. James E. R. Harbison Ashley W.

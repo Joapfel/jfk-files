@@ -1,0 +1,27 @@
+PROCESS SHEET FOR DOMESTIC CONTACT SERVICE COLLECTIONS
+
+FIELD OFFICE P.O. CODE CASE NUMBER FORWARDED
+
+10 12 13 14 15 16 17 18 19 20 X 21 22 23 24 25 26
+
+1 2 3 4 22 25 24 25 26 27 29 37 45 46 47 48 49 50
+
+A-31-14
+
+SUBJECT AND AREA
+
+Possible Identification and Surveillance of "CIA Agents" by the Algerian Security Service
+
+(ALGERIA)
+
+CONTACT (Name, Title, Organization, Address) INDIVIDUAL NO. TYPE CODE * NOT DIFFERENTIATED
+
+Justin F. Gleichauf Hackenbut Corporation 3200 Ponce De Leon Boulevard Coral Gables, Florida
+
+SOURCE (Name, Title, Organization, Address)
+
+Same as above.
+
+SUB-SOURCE (Name, Title, Organization, Address) ORGANIZATION NO. SUBJECT % NO PROCESSING ELEMENT INDIVIDUAL NO.
+
+1. SUPPLEMENTALLY BELIEVED KNOWN-01 52 13 24 1 9 0 V 2 1 N T 0 0 3 4 A L N <

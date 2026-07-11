@@ -1,0 +1,55 @@
+(When filled in)
+
+NOTIFICATION OF PERSONNEL ACTION
+
+MC0
+Date Of Birth:
+Vet. Prof.
+Sex
+CS-EDD
+
+Mo. Da. Yr. None-0 5 Pt-1 10 Pt-2 Code M 1 07 24 50
+
+11 11 25 1
+
+BAGLEY TENNENT H
+Apm. Affiliation
+FEGLI
+LCD
+Mgr. Yes/No
+
+7. SCD-8. CSC Retml. (Yes-1 Code) No-2 1 (Yes-1 Code) No-2 1 (Yes-1 Code) No-2 1 (Yes-1 Code) No-2 1
+
+Mo. Da. Yr. Yes-1 No-2 1 Yes-1 No-2 1 Yes-1 No-2 1
+
+04 08 47
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations Code 15. Location Of Official Station Station Code
+
+DOP EE POLAND BRANCH F1 OPERATIONS SECTION WASH. D. C.
+
+Dept - Field
+Position Title
+Position No. GS 0136.51
+
+Dept -1 Cdo 0118
+
+USlid -3 2
+
+Frgn -5 1.0. (FI)
+
+Grade & Stop
+Salary Or Rate
+SD
+Data Of Grade Mo. Da. Yr.
+PSD Due Mo. Da. Yr. 8 3100 20
+
+131 8990 01 1 1
+
+ACTION
+
+Nature Of Action Cdo
+Eff. Date Mo. Da. Yr.
+Type Of Employee Cdo

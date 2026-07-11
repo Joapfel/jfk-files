@@ -1,0 +1,47 @@
+CRN: FILE RID
+
+SALT: INDEX
+
+EAT: NO INDEX
+
+CATE: FILE IN CS FILE NO.
+
+TOTAL COPIES: ROUTING
+
+1 5
+
+2 6
+
+3 7
+
+4 8
+
+DISSEM EY __ PER # __ DESTROY RETURN TO BRANCH
+
+CONF: R&D COPY INFO: VR , FILE __
+
+(CLASSIFICATION)
+
+(GATE AND TIME FILED)
+
+(REFERENCING NUMBER)
+
+CITE DIRECTOR 03639
+
+3. KURIOT CAN ARBITRARILY SELECT DATA WHICH CANNOT BE FURNISHED.
+
+END OF MESSAGE
+
+TSD Comment: Requested information whether TSD can supply Greek passport, New York driver's license and pocket litter for flash identification in Mexico,
+
+Telecoordination: WH/1 - Jack Stewart (x3655) NE/Greece - Pete Dodge (x6808) WH/1 - Joseph H. Fisher (x2861)
+
+RICHARD A. KRUEGER ADC/TSD
+
+ROBERT O. BUSSEY
+
+AUTHENTICATING OFFICER
+
+COPY NO.
+
+REPRODUCTION OF OTHER THAN THE ISSUING OFFICE IS FORBIDGED.

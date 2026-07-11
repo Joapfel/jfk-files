@@ -1,0 +1,59 @@
+MESSAGE FORM 34
+
+ROTING
+
+1 S
+
+2 6
+
+3 7
+
+4 8
+
+WILLIAM BROWN SCR
+
+CA/34
+
+EXT 6761
+
+DATE 22 January 1965
+
+TO JOSWAY SANTIAGO PARIS/LCPIPIT
+
+FROM DIRECTOR
+
+CONF CA/0 4
+
+25 JAN 1965
+
+INFO VR,FILE, CA 2, WHAT, DDP, WITH/SA 8, WEG, C/0A, FI, FILINT-2
+
+TO WAVE CRS/UPD PARUEN
+
+REF: DIR 79560
+
+IDEN: ERRIQUE VELLARREA (CUBAN)
+
+END OF MESSAGE
+
+WE/P0/B
+
+WESN/AJ3 J Ott coordinated in draft
+
+DC/WH/SA [Signature]
+
+C/CA
+
+GEOFF
+
+Included from automatic
+
+overlapping and
+
+casing information
+
+AUTHENTICATING OFFICER
+
+Copy No. 5 4 3 2 1
+
+5 4 3 2 1

@@ -1,0 +1,54 @@
+(When Filled In)
+
+FITNESS REPORT
+
+EMPLOYEE SERIAL NUMBER
+
+SECTION A GENERAL
+
+I. NAME (Last) (First) (Middle)
+DATE OF BIRTH
+SEX
+GRADE
+
+KENT, William M. 9 May 1929 male GS-12
+
+B. SERVICE DESIGNATION G. OFFICIAL POSITION TITLE-9. TYPE OF REPORT
+
+Operations Officer
+
+C. CAREER STAFF STATUS
+
+NOT ELIGIBLE X MEMBER DEFERRED INITIAL REASSIGNMENT/SUPERVISOR
+
+PENDING DECLINED DENIED ANNUAL X REASSIGNMENT/EMPLOYEE
+
+10. DATE REPORT DUE IN O.P. SPECIAL (Specify)
+
+SECTION B EVALUATION OF PERFORMANCE OF SPECIFIC DUTIES
+
+List up to six of the most important specific duties performed during the rating period. Insert rating number which best describes manner in which employee performs EACH specific duty. Consider ONLY effectiveness in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to supervise (indicate number of employees supervised).
+
+Unsatisfactory
+Barely adequate
+Acceptable
+Competent
+Excellent
+Superior
+Outstanding
+
+SPECIFIC DUTY NO. 1 Supervising JMWAVE PW Section composed of 7 staff or contract personnel.
+
+RATING NO. 5 SPECIFIC DUTY NO. 4 Serving as Case Officer for a number of PW operations.
+
+SPECIFIC DUTY NO. 2 Planning PW operations against Latin America
+
+RATING NO. 6 SPECIFIC DUTY NO. 5 Handling Political Action contacts.
+
+SPECIFIC DUTY NO. 3 Planning PW operations against Cuba.
+
+RATING NO. 4 SPECIFIC DUTY NO. 6
+
+SECTION C EVALUATION OF OVERALL PERFORMANCE IN CURRENT POSITION
+
+Take into account everything about the employee which influences his effectiveness in his current position - performance of duties, productivity, conduct on job, cooperativeness, pertinent personal traits or habits, particular limitations or talents. Based your knowledge of employee

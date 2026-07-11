@@ -1,0 +1,67 @@
+VOUCHERED
+
+Classify According To Content.
+
+REQUEST FOR PERSONNEL ACTION
+
+Serial No.
+Name (Last, First, Middle)
+Date Of Birth
+Vot. Pref.
+Sex
+CS - LOD
+
+Mo Da Yr Mo Da Yr
+
+SCD-8. CSC Rarm
+
+Mo Da Yr Yes . 1 No - 2 Code
+
+PREVIOUS ASSIGNMENT
+
+14. Organizational Designations DDP/FE Branch 4 - Bangkok Station Counter Subversive Section Code 15. Location Of Official Station Bankok, Thailand Station Code
+
+Dept.- Field Dept. Valid. From Code
+Position Title Intell Officer (FI) (Police-Sec. Investigations)
+Position No. 2877
+Serv. GS
+Occup. Series 0136.51
+
+Grade & Step
+Salary Or Rate 11,355.00
+SC DI
+Date Of Grode Mo Do Yr
+PSI Due Mo Do Yr
+Appropriation Number 8-3785-55-040
+
+ACTION
+
+Nature Of Action Code
+Eff. Date
+Type Of Employee Code
+Separation Date
+
+Reassignment Regular
+
+PRESENT ASSIGNMENT
+
+31. Organizational Designations DDP/CJ Staff Ops Division Satellites Br. Code 32. Location Of Official Station Station Code
+
+57414 Washington, D.C.
+
+Dept.- Field Dept. Valid. From Code
+Position Title IO CJ PR CH
+Position No. 61
+Serv. GS
+Occup. Series 0136.53
+
+Grade & Step
+Salary Or Rate 11,355.00
+SC DT
+Date Of Grode Mo Do Yr
+PSI Due Mo Do Yr
+Appropriation Number 8-2705-27
+
+SOURCE OF REQUEST
+
+A. Requested By (Name And Title)

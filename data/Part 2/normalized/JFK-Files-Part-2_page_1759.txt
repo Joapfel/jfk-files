@@ -1,0 +1,38 @@
+FITNESS REPORT EMPLOYEE SERIAL NUMBER
+
+010032
+
+SECTION A GENERAL
+
+NAME (Last) (First) (Middle)
+DATE OF BIRTH
+SEX
+GRADE S. SO
+
+CHECK (X) TYPE OF REPORT &nbsp;
+
+INITIAL &nbsp;
+
+ANNUAL &nbsp;
+
+REASSIGNMENT SUPERVISOR &nbsp;
+
+REASSIGNMENT EMPLOYEE
+
+I. NAME (Last, First) WOODS, James S. 20 Feb 23 M GS-10 D
+
+2. OFFICIAL POSITION TITLE Records Admin Officer DDP/EUR/BCR London
+
+3. CHECK (X) TYPE OF APPOINTMENT 10. CHECK (X) TYPE OF REPORT
+
+CAREER RESERVE TEMPORARY X INITIAL REASSIGNMENT SUPERVISOR X ANNUAL REASSIGNMENT EMPLOYEE
+
+SPECIAL (Specify): SPECIAL (Specify): SPECIAL (Specify):
+
+11. DATE REPORT DUE IN O.P. 31 October 1969 12. REPORTING PERIOD (From - To) 18 November 1968-30 September 1969
+
+12. REPORTING PERIOD (From - To-)
+
+SECTION B PERFORMANCE EVALUATION W - Weak Performance ranges from wholly inadequate to slightly less than satisfactory. A rating in this category requires positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+A - Adequate Performance meets all requirements. It is entirely satisfactory and

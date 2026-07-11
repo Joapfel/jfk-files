@@ -1,0 +1,55 @@
+FITNESS REPORT
+
+EMPLOYEE SERIAL NUMBER
+
+009784
+
+SECTION A GENERAL GENERAL
+
+NAME (Last, First) (Fire) (MInitial) Male
+DATE OF BIRTH J. SEX
+GRADE S.SD
+
+O'CONNELL, J. P., Jr. 02/19/17 M GS-16 SS
+
+B. OFFICIAL POSITION TITLE CURRENT STATION
+
+Security Officer OS/PTOS/ODD Washington, D.C.
+
+C. CHECK (X) TYPE OF APPOINTMENT REPORT
+
+&nbsp; CAREER RESERVES TEMPORARY INITIAL
+
+REASSIGNMENT SUPERVISOR
+
+X ANNUAL REASSIGNMENT EMPLOYEE
+
+(SPECIAL (Specify): SPECIAL (Specify):
+
+11. DATE REPORT DUE IN O.P. REPORTING PERIOD (From - To)
+
+30 April 1972 1 April 1971 - 31 March 1972
+
+SECTION B PERFORMANCE EVALUATION PERFORMANCE EVALUATION
+
+U-unsatisfactory Performance is unacceptable. A rating in this category requires immediate and positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+Performance is deficient in some aspects. The reasons for assigning this rating should be stated in Section C and remedial actions taken or recommended should be described.
+
+Performance is satisfactory. Desired results are being produced in the manner expected.
+
+Performance is characterized by exceptional proficiency.
+
+Performance is so exceptional in relation to requirements of the work and in comparison to the performance of others doing similar work as to warrant special recognition.
+
+SPECIFIC DUTIES
+
+List up to six of the most important specific duties performed during the rating period. Insert rating letter which best describes the manner in which employee performs EACH specific duty. Consider ONLY effectiveness in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to supervise (indicate number of employees supervised).
+
+SPECIFIC DUTY NO. 1 RATING
+
+LETTER
+
+SPECIFIC DUTY NO. 2 RATING
+
+LETTER</

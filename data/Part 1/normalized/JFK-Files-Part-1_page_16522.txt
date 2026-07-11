@@ -1,0 +1,15 @@
+(When Filled In)
+
+POUCH SECURITY VIOLATION
+
+DISPATCH NUMBER DATE 7 April 72
+
+ENCLOSURE NUMBER PAGE NUMBER PARAGRAPH NUMBER-2
+
+SECURITY REGULATION(S) VIOLATED FR 10-315, 1 July 53 Para 2 b. (1) (a)
+
+SUBSTANCE OF VIOLATION Ref: UFAA 4018 UFAA 4019 Use of crypt + True identity in same UFAA 4020 Pouch. Specifically, this is the use of "Cuban defectors" in dispatch and sending the dispatch in pouch which has other dispatches of same format and basic subject, but using the crypt for Cuba.
+
+RID. ANALYST
+
+(36-43)

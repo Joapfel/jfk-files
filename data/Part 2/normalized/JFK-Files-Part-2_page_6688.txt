@@ -1,0 +1,13 @@
+FILE NUMBER IDENTIFICATION CLASSIFICATION VOLUME DISPOSITION INSTRUCTION
+
+28 Security File Review Log. Lists of security files received by External Activities Branch personnel in connection with external activities, requests, and cover and documentation matters. SECRET TEMPORARY. Destroy when 6 months old.
+
+29 Security Duty Office Reporting Files. Security Duty Office events reports. Duplicate copies of reports prepared by Security Duty Officers concerning individuals who contact the Agency. (Published in the Federal Register, CIA-51, Notification of Systems of Records, Privacy Act of 1974.) The Federal Register must be amended if this system is changed or discontinued. SECRET TEMPORARY. Destroy 5 years after cutoff. Cut off at end of each calendar year, hold in current files area for 2 years, transfer to AARC for 3 years, then destroy.
+
+30 Security Duty Office Operational and Instruction Files. a. Copies of survey reports, guard post instructions and duty officer rosters. b. Record copies of requests for telephone backstop orders. SECRET TEMPORARY. Destroy when superseded by obsolete, or no longer needed.
+
+31 Security Support Files. Record copies of correspondence and reports on operational activities in connection with Office on security projects. SECRET TEMPORARY. Destroy 3 years after cutoff. Cut off when backstop arrangement is terminated, hold in current files area for 3 years, then destroy.
+
+RECORDS CONTROL SCHEDULE RECORD INDICATION SHEET CLASSIFICATION (4)
+
+SECRET-35

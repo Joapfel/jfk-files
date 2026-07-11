@@ -1,0 +1,23 @@
+FIELD DOCUMENT ROUTING AND ACTION RECORD
+
+INSTRUCTIONS: Routing designations, either individuals or units, are to be placed in the 'TO' column. Comments are to be numbered to correspond to the number in the 'TO' column. Each comment is to be underlined with a line drawn across the "COMMENTS" column. Each recipient of the attached document is to place his initials in the proper space following the corresponding numbered routing. The date the document is forwarded to the next routing is to be placed in the proper column. The last routing on this sheet shall be the unit in which the basic document is to be filed. If the holding unit is other than the central files, the central file shall be the next to the last routing to ensure proper control clearances. THIS DOCUMENT ROUTING AND ACTION RECORD IS TO REMAIN ATTACHED TO THE BASIC RECORD DOCUMENT AS A PERMANENT RECORD. DOCUMENT SYMBOL AND NUMBER SR/DOB/60-2079
+
+DOCUMENT DATE 26 Oct. 60
+
+ACTION SUSPENSE DATE
+
+FROM DATE FORWARDED OFFICER INITIALS TO LOCATION
+
+SR/DOB/P.Crookham:cc 1062 J X-8331 Chief, AF Div. Attn: Dan Nesciar AFFIRME
+
+DOCUMENT PROCESSING DATA
+
+INDEXED
+
+ABSTRACTED
+
+FILE NUMBER
+
+FORM NO. 861 I DEC 55
+
+(40)

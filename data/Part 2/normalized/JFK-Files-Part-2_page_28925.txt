@@ -1,0 +1,31 @@
+1. [x] YOU AN EMPLOYEE IN 1965? a. Show amount of wages earned from January 1, 1965 through December 31, 1965 (gross wages before payroll deductions)
+
+[ ] YES If "yes" complete a & b [x] NO JAN FEB MAR APR MAY JUN JUL AUG SEP OCT NOV DEC
+
+1 2 3 4 5 0 7 8 9 10 11 12
+
+2. WERE YOU SELF-EMPLOYED IN 1965?
+
+[x] YES If "yes" complete a, b, c & d a. Show 1965 total receipts from self employment (farmers show gross profits). 5,130.24
+
+Show 1965 net earnings (or loss) from self-employment (If a loss, write "-" after the amount). 5,130.24
+
+State kind of trade or business W-r-iter
+
+Place "X" in box for each month, If any, in which you believe you did NOT render substantial services in your business and complete item 4 on the other side. JAN FEB MAR APR MAY JUN JUL AUG SEP OCT NOV DEC
+
+1 2 X X X 6 7 8 X 9 10 11 12
+
+3. DO YOU EXPECT TO EARN OVER $1,500 IN 1966?
+
+[ ] YES If "yes" complete a&b a. Show your expected total earnings for 1966. 0
+
+Are you now EITHER working for wages of over $125 a month OR rendering substantial services in self-employment? Y-E- NO
+
+DAT AND SIGNATURE DATE SOCIAL SECURITY CLAIM NUMBER
+
+4-5-66 Mrs. Marsha N. Porter 467 82 4034
+
+EAC HIP 2569 BACK
+
+N W 8 3 2 6 D oc ID: 3 2 2 4 5 1 2 8

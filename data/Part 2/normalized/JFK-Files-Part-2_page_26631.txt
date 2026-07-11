@@ -1,0 +1,23 @@
+SOVIET EARTH SATELLITE VEHICLES - COSMOS SERIES
+
+1962 - 1963
+
+APPROXIMATE TIME OF LAUNCH (GMT) LAUNCH SITE PERIOD (MINUTES) APOGEE (N.M.) PERIGEE (N.M.) ORBITAL INCLINATION STATUS
+
+Cosmos 1 (Sputnik 13) 12:00:00 (EST.) 16 Mar '62 Kapustin Yar 96.35 529 117 49° Decayed 25 May '62
+
+Cosmos 2 (Sputnik 14) 17:15:18 6 Apr '62 Kapustin Yar 102.5 842 115 49° Decayed 19-20 Aug '63
+
+Cosmos 3 (Sputnik 15) 04:00:12 24 Apr '62 Kapustin Yar 93.8 389 124 49° Decayed 17 Oct.'62
+
+Cosmos 4 (Sputnik 16) 10:02:56 26 Apr '62 Tyurotam 90.6 178 161 65° Recovered 29 Apr '62
+
+Cosmos 5 (Sputnik 17) 02:59:49 28 May '62 Kapustin Yar 102.75 865 110 49° Decayed 2 May '63
+
+Cosmos 6 (Sputnik 18) 16:00:00 (EST.) 30 June '62 Kapustin Yar 90.6 194 148 49° Decayed 8 Sept '62
+
+Cosmos 7 (Sputnik 19) 09:18:30 28 July '62 Tyurotam 90.1 199 113 65° Recovered 1 Aug '62
+
+Cosmos 8 (Sputnik 22) 05:00:00 (EST.) 18 Aug '62 Kapustin Yar 92.93 326 138 49° Decayed 17 Aug '63
+
+Cosmos 9 (Sputnik 26) * 09:40:00 27 Sept '62 Tyurotam 90.9 191 163</

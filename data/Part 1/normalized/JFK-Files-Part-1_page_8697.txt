@@ -1,0 +1,29 @@
+9.04 Edificios de beber
+
+9.04.31 Acostumbra beber Nunca _ Procedio Poco Macho
+
+9.04.02 Zete Colo (bebedor solitario) Con otros mayormente por ser anigable En ocasión de ceremonia Después del trabajo, en casa
+
+9.04.03 Parece beber Principalement por el gusto Principalement por el efecto Por ambos
+
+9.04.04 Prefiere beber Cerveza Vino Whiskey Vodka Ginebra No tiene preferencia
+
+9.04.05 Prefiere Cócteles Jáibols Licor casi puro Tragos sin mezcla
+
+9.04.06 Babe Despacio Normalmente Rápido
+
+9.04.07 Babe De un trago A sorbos
+
+9.04.08 Después de la primera bebida Se explica en conseguir la segunda Acostumbra esperar a que le ofrezcan otra Siempre espera a que le ofrezcan otra
+
+9.04.09 En cuanto a vinos Es muy entendido Le gustan pero no es muy entendido Le son indiferentes Ni los conoce ni le importa
+
+9.04.10 En cuanto a sus preferencias en la bebida Las explica en detalle (y con gran complacencia) No habla de ellas más de lo corriente Nunca habla de ellas
+
+902.11 En cuanto a las bebidas de su tierra natal
+
+¿Se enorgullece francamente de ellas e invita a probarlas? Sí No
+
+¿Las tiene en cuenta normalmente y las ofrece si corresponde? Sí No
+
+¿Las menciona raras veces, sin insistir en hacerlas probar? Sí _ No

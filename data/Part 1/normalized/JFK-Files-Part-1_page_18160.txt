@@ -1,0 +1,51 @@
+MESSAGE FORM
+
+TOTAL COPIES:
+
+ORIG: A. C. Numro(SLY) FILE RID UNIT: Wh/Logistics INDEX EXT : 6282 NO INDEX DATE: 26 October 66 FILE IN CS FILE NO.
+
+1 5
+
+2 5
+
+3 7
+
+4 8
+
+DIGEST BY 24 PER %
+
+CONF: WH-8 RID COPY
+
+DESTROY RETURN TO __________ BRANCH
+
+INFO: VR . FILE .LecOst
+
+(CLASSIFICATION) (DATE AND TIME FILLED) (REFERENCE NUMBER)
+
+SECRET-26 10 92 46928
+
+CITE DIRECTOR :
+
+TO MEXICO CITY
+
+LOGS LIEMPTY
+
+REF: A. MEXICO CITY 8920 (IN-22107) B. DIRECTOR 45720 C. MEXICO CITY 8962 (IN-25013)*
+
+MV-2823 APPLIES. COST NOT TO EXCEED $3200.
+
+END OF MESSAGE
+
+WH/COMMENT: Requested authority replace MV-2279 with panel truck at maximum cost of $3200. Approved disposal of MV-2279 and authorized replacement if project funds available. ***Provide MV number. Approximately $10,000. available.
+
+WII/1 C. Bustos (telecon).
+
+R. L. KING
+
+WILLIAM V. BROE C/WHD
+
+GROUP I Excluded from automatic de classification and declassification
+
+AUTHENTICATING OFFICER
+
+COPY NO.

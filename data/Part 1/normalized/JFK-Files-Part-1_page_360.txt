@@ -1,0 +1,27 @@
+Distribution:
+
+Orig & I - Adsc
+
+1 - DDO/ISS/IP/EIS
+
+1 - 10-4H (HSCA)
+
+1 - CS-2829 (DeMohrenschildt)
+
+1 - CS-1337 (Research Institute of America)
+
+1 - 18382 (Cherne, mentioned).
+
+1 - R.C. 2395 (Harvey)
+
+1 - MO-296 (International Rescue Committee).
+
+1 - R.C. 14876 (Helms)
+
+1 - R.C. 801 (Angleton)
+
+1 - R.C. 12860 (Rocca)
+
+1 - CS-2793 (Wackenhut)
+
+1 - CCS/PRG chrono via board

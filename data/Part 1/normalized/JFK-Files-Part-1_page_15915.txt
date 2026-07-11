@@ -1,0 +1,47 @@
+ORIG : John Kelly
+
+UNIT : AF/5
+
+EXT : 5-32
+
+DATE : 16 January 1963
+
+ROUTING
+
+1 8
+
+4 5
+
+5 3
+
+RE Filing (change as needed) No CS Record Value, Destroy RI file this copy at incursion Branch copy filed as indicated
+
+RE Indexing (check one): Marked None required
+
+Signature: J. Kille
+
+TO : FRAN INFO : LEOP CITE DIR : 12271
+
+RYPAT HARVARD TECHS WIROGUE
+
+per GSH-43-43
+
+12271
+
+RTPAT COPY
+
+RID/MIS Jk
+
+PUBS Jk
+
+RCS
+
+BESTROY
+
+DESECRETIZED
+
+per GSH-43-43
+
+FORM 1389a
+
+(35)

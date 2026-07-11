@@ -1,0 +1,9 @@
+Field Distribution: (1 copy each)
+
+COS/Athens COS/Barcelona COS/Berlin COS/Bern COS/Geneva COS/Vienna COS/Copenhagen COS/Stockholm COS/Helsinki COS/Oslo COS/Paris COS/Ottawa COS/London COS/Rome COS/The Hague COS/Brussels COS/Lisbon COS/Madrid COB/Barcelona COB/New York
+
+COS/San Juan COS/Sao Paulo COS/Santiago COS/Santos COS/Sarolong COS/Silwan COS/Teheran COS/Tokyo COS/Tehran COS/Tirana COS/Tbilisi COS/Tokyo COS/Yekaterinburg COS/Yerevan COS/Yugoslavia COS/Zagreb COS/Zurich COS/Zyprus REP/LANT COS/Algiers COS/Casablanca COS/Rabat COS/Tunis COS/Dar Es Salaam COS/Pretoria COS/Yaounde COS/Bamako COS/Conakry COS/Dakar COS/Kera COS/Lagos COS/Xinshasa COS/Bujumbura COS/Addis Ababa COS/Khartoum COS/Seoul COS/Bangkok COS/Saigon COS/Djakarta COS/Vientiane COS/Tokyo COS/Hong Kong COS/Jerusalem COS/Amman COS/East Rut COS/Cairo COS/Karachi COS/New Delhi COS/Colombo COS/Nicosia COS/Adelaide
+
+SECRET CODE: JCS0207
+
+SECRET CODE: D349695

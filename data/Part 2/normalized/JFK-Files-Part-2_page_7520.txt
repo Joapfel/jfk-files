@@ -1,0 +1,33 @@
+TRAVEL
+
+NAME DPOB OCC PP# DATE FROM-TO
+
+MOSKALEV, Juriy Ivanovich - Chem - [Sept 57] USSR France
+
+MOSKALEV, Yuriy 1920 - S-012960 Oct 62 Aust. USSR
+
+MOSKALEV, Yuriy 1920 - - Oct 62 USSR Aust.
+
+MOSKALEV, Yuriy 23/7/20 Biol. S-012960 Oct 62 USSR Aust.
+
+MOSKALEV, Yuriy 23/7/20 Phys. S-022766 May 63 USSR Aust.
+
+MOSKALEV, Yuriy 1920 - S-022766 30/6/63 Poland Aust.
+
+MOSKALEV, Yuriy 1920 - S-022766 8/6/63 Aust USSR
+
+MOSKALEV, Yuriy Ivanovich 23/7/20 Scie. S-012960 Oct 63 USSR USA
+
+MOSKALEV, Yuriy Ivanovich 23/7/20 Scie S-012960 Oct 63 USA Denmark
+
+MOSKALEV, Yuriy Ivanovich 23/7/20 Scie S-012960 Oct 63 USA Denmark
+
+MOSKALEV, Yuriy Ivanovich 23/7/20 Scie. S---------- Oct 63 USSR USA
+
+MOSKALEV, Yuriy Mikhailovich 23/7/20 -- S-012960 Oct 63 USA Denmark
+
+MOSKALEV, Yuriy Mikhailovich 23/7/20 -- S-012960 Oct 63 Denmark USSR
+
+MOSKALEV, Yuriy 23/7/20 Medl. S-022766 9/11/64 -- Aust.
+
+MOSKALEV, Yuriy 1920 -- S-022766 14/11/64 USSR Aust.

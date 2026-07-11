@@ -1,0 +1,37 @@
+257
+
+TO : DIRECTOR
+
+FROM: MEXICO CITY
+
+ACTION: WH 8 (WH NOTIFIED AND COPY SLOTTED AT 1615 14 JUN OH)
+
+INFO : COP, CI/0A, SAS-8, s/c 2
+
+ROUTING:
+
+1 4
+
+2 5
+
+3 6
+
+SECRET 141983Z
+
+PRITY DIR CITE NEXI
+
+PERUEN LITAMIL-9
+
+STATION WAS NO RECORD POA LITAMIL-9. PLEASE ADVISE US IF NEW
+
+SEP 2 T
+
+IN60150
+
+14 JUN 1983
+
+No lift except relaunch
+
+field was never notified that POA for training only was granted. Pending still not resolved to CI/0A's satisfaction.
+
+GROUP-1 EXCLUDING FROM AUTOMATIC DOVER- GRADING AND DECLASSIFICATION.

@@ -1,0 +1,15 @@
+POSITION CONTROL REGISTER Department Name Rank Grade Personnel Code Date of Birth Personnel Number Employee Number Work Group Unit of Employment Station Code Allotment Accounting Section Total Account
+
+Made By Name Date Code No. Grade PCG O/S DATE Check No. To
+
+BLA, JOHN C. STAFF
+
+AN OFFICER JW-3194.08 14 1 8/8/82 D 004737 C 21 M 10 130600 0760 37987
+
+HILL DILLARS D C-9184.01 13 3/5/82 D 37864
+
+SPORTS OFFICER S-6288.08 13 3 8/4/82 A 007169 C 16 F 10 030355 0499 37987
+
+LAVENDER WINNIE B B-0122.88 12 3/8/82 D 000421 C 21 M 10 060852 0584 37987
+
+KAGA GEORGE K G-0183.88 <

@@ -1,0 +1,47 @@
+MESSAGE FORM TOTAL COPIES: 13
+
+ORC : WJ. Kaufman
+
+UIT : WH/1
+
+DT : 4506
+
+BTE : 11 March 1966
+
+[ ] INDEX [ ] NO INDEX [ ] FILE IN CS FILE NO.
+
+ROLING
+
+1 5
+
+2 6
+
+3 7 SS
+
+4 8
+
+TO : Mexico City
+
+CONF: WH8
+
+INFO: VR . FILE [ ] RID COPY ciao, cilicz
+
+TO MEXI
+
+INFO Zernike
+
+87397
+
+LICOOKY-1 DEPARTED 11 MAR PLANS STOPOVER TULSA. ARRIVING MEXI SX&ER 13 OR 14 MAR. L-I ADVANCED TOTAL $295.
+
+END OF MESSAGE
+
+DC/WHD
+
+W.J. Kaufman C.WH/1
+
+GROUP I Included from automatically generated and do not contain
+
+AUTHENTICATING OFFICER
+
+COPY back.

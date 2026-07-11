@@ -1,0 +1,23 @@
+S-E-C-R-B-T
+
+ORIG: UNIT: EXT: DATE:
+
+ROUTING
+
+1 4
+
+2 5
+
+3 6
+
+15 Mar 20 21 UT
+
+OUT 54652
+
+per CSN-43-43
+
+17181
+
+17181 -
+
+DESK CONSENT: Reference HYBAT

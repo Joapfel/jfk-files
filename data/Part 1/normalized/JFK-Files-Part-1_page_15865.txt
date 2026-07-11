@@ -1,0 +1,61 @@
+ORIG: D. HESCATUR
+
+UNIT: AF/W/1
+
+EXT: 3969
+
+DATE: 16 November 1960
+
+TO: FRAZIER
+
+CONF: C/AF 3
+
+INFO: COP, C/EE 3, D/OS 2, S/C 2
+
+RE Filing (check one): No CS Record Value. Destroy.
+
+RI File this copy as Indicated.
+
+Branch copy filed as indicated
+
+RE Indexing (check one): Marked None required
+
+Signature: DP
+
+ROUTING
+
+I 4
+
+2 5
+
+3 6
+
+PRIORITY INITIALS
+
+X OPERATIONAL IMMEDIATE A L T
+
+94095
+
+CUT94095
+
+FRAH WIROCUE PJDUST RIBAT
+
+RE: DIR 08782 (OUT 86554)
+
+ROUTEING MAY
+
+SUBMIT MAY
+
+ACK
+
+BOT
+
+TRO
+
+R I COPY
+
+PREVIOUS ENTRY-1
+
+THE following has been amended or canceled. 18 Nov 1960
+
+(35)

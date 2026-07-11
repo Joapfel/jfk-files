@@ -1,0 +1,49 @@
+SCHEDULE D (Form 1040) U.S. Treasury Department Internal Revenue Service
+
+Gains and Losses From Sales or Exchanges of Property
+
+Attach this schedule to your income tax return, Form 1040
+
+Name and address as shown on page 1 of Form 1040
+
+Part I—CAPITAL ASSETS—Short-term capital gains and losses—assets held not more than 6 months
+
+Kind of property. Indicate security, real estate, or other (Specify) b. Description (Examples: 100 sh. of "Z" Co., 2 story brick, etc.) c. How acquired. Enter letter symbol (See instr.) d. Date acquired (mo., day, yr.) e. Date sold (mo., day, yr.) f. Gross sales price g. Depreciation allowed (or allowable) since acquisition h. Cost or other basis, cost of subsequent improvements (if not purchased, attach explanation) and expense of sale i. Gain or loss (f plus g less h)
+
+Stock Zero Mfg Pike Corp A 9-29-67 10-16-67 3,935.92 - 4483.26 ( 547.34 )
+
+Stock A 9-27-67 10-16-67 2,600.25 - 2,694.81 ( 99.56 )
+
+2 Enter your share of net short-term gain (or loss) from partnerships and fiduciaries.
+
+3 Enter unused short-term capital loss carryover from preceding taxable years (attach statement).
+
+4 Net short-term gain (or loss) from lines 1, 2, and 3.
+
+(644.90)
+
+Long-term capital gains and losses—assets held more than 6 months (12 months or more for certain livestock)
+
+5 Enter gain from Part II, line 3. Stock Beth Steel A 2-65 9-67 5,538.52 5,504.07 34.49
+
+Stock AMF A 6-63 9-67 2,269.95 1,873.50 396.45
+
+Stock Jupiter A 4-63 10-67 559.73 537.25 22.48
+
+Total long-term gross sales price.
+
+6 Enter the full amount of your share of net long-term gain (or loss) from partnerships and fiduciaries. . . . . . .
+
+7 Enter unused long-term capital loss carryover from preceding taxable years (attach statement). . . . . . .
+
+8 Capital gain dividends (see Form 1040 Instructions, page 6) . . . . . .
+
+9 Net long-term gain (or loss) from lines 5, 6, 7, and 8. . . . . . .
+
+453.42
+
+(188.48)
+
+10 Combine the amounts shown on lines 4 and 9, and enter the net gain (or loss) here.
+
+11 If line 10 shows a GAIN—Enter

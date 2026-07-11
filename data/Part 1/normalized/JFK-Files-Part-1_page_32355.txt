@@ -1,0 +1,44 @@
+FITNESS REPORT EMPLOYEE SERIAL NUMBER
+
+GENERAL 036130
+
+SECTION A OFFICE OFFICER
+
+I. NAME (Last) (First) (Middle)
+DATE OF BIRTH (J, F, M, A, S, O, N)
+GRADE
+SO
+
+Flores Daniel 4 Aug 1935 M GS-08 D
+
+SPECIAL (Specify) I/OH OFFICER-3. OFFICE OFFICER OF ASSIGNMENT HQS
+
+CAREER RESERVE TEMPORARY
+
+CAREER PROVISIONAL (See Instruction Section C)
+
+SPECIAL (Specify)
+
+11. DATE REPORT DUE IN O.R. 12. REPORTING PERIOD (From - To) 19 September 1968 - 30 April 1969
+
+SECTION B PERFORMANCE EVALUATION
+
+W - Mark Performance ranges from wholly inadequate to slightly less than satisfactory. A rating in this category requires positive remedial action. The nature of the action could range from counseling, to further training, to placing on probation, to reassignment or to separation. Describe action taken or proposed in Section C.
+
+A - Meets Performance meets all requirements. It is entirely satisfactory and is characterized neither by deficiency nor excellence.
+
+P - Proficient Performance is more than satisfactory. Desired results are being produced in a proficient manner.
+
+S - Satisfies Performance is characterized by exceptional proficiency.
+
+O - Outstanding Performance is so exceptional in relation to requirements of the work and in comparison to the performance of others doing similar work as to warrant special recognition.
+
+SPECIFIC DUTIES
+
+List up to six of the most important specific duties performed during the rating period. Insert rating letter which best describes the manner in which employee performs EACH specific duty. Consider ONLY effectiveness in performance of that duty. All employees with supervisory responsibilities MUST be rated on their ability to supervise (indicate number of employees supervised).
+
+SPECIFIC DUTY NO. 1 Operations officer handling the Headquarters direction and support of FI projects and activities. RATING LETTER S
+
+SPECIFIC DUTY NO. 2 Preparation of operational correspondence, dispatches, cables and special memoranda. RATING LETTER P
+
+SPECIFIC DUTY NO. 3 Coordination of operational matters with other components and desks. RATING LETTER P

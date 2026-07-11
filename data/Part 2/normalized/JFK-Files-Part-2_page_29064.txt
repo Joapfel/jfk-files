@@ -1,0 +1,43 @@
+Form 1040 (1973)
+
+Other Dependents (a) NAME (b) Relationship (c) Months lived in your home. If born or died during year, write B or D. (d) Did dependent have income of $750 or more? (e) Amount YOU furnished for dependent's support. If 100% write ALL. (f) Amount furnished by OTHERS including dependent.
+
+27 Total number of dependents listed in column (a). Enter here and on line 6d
+
+Part I: Income other than Wages, Dividends, and Interest
+
+28 Business income or (loss) (attach Schedule C) 28
+
+29 Net gain or (loss) from sale or exchange of capital assets (attach Schedule D) 29
+
+30 Net gain or (loss) from Supplemental Schedule of Gains and Losses (attach Form 4797) 30
+
+31 Pensions, annuities, rents, royalties, partnerships, estates or trusts, etc. (attach Schedule E). 31
+
+32 Farm income or (loss) (attach Schedule F) 32
+
+33 Fully taxable pensions and annuities (not reported on Schedule E—see instructions on page 8) 33
+
+34 50% of capital gain distributions (not reported on Schedule D) 34
+
+35 State income tax refunds (does not apply if refund is for year in which you took the standard deduction—others see instructions on page 8). 35
+
+36 Alimony received 36
+
+37 Other (state nature and source) 37
+
+38 Total (add lines 28, 29, 30, 31, 32, 33, 34, 35, 36, and 37). Enter here and on line 12 38
+
+Part II: Adjustments to Income
+
+39 "Sick pay." (From Forms W-2 and W-2P. If not shown on Forms W-2 or W-2P, attach Form 2440 or statement.) 39
+
+40 Moving expense (attach Form 3903) 40
+
+41 Employee business expense (attach Form 2106 or statement) 41
+
+42 Payments as a self-employed person to a retirement plan, etc. (see Form 4848) 42
+
+43 Total adjustments (add lines 39, 40, 41, and 42). Enter here and on line 14 43
+
+Part III: Tax Computation (Do not use this part if you use Tax

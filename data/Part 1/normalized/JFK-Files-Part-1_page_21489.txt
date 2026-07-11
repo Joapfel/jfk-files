@@ -1,0 +1,27 @@
+Series
+
+CORPS/CA
+
+AF/2
+
+AF/3
+
+AF/4
+
+AF/5
+
+AF/6
+
+FE/CAN
+
+CO/CO/CA
+
+SB/CA
+
+DO/CA
+
+CI/F&A
+
+S.E.P. DIVISION
+
+E/CA E/SC E/SNL E/7 E/I E/IB E/G E/AS E/BC E/4 E/4/AR E/4/CH E/4/P/U E/5 E/5/Brazil E/6 E/7 E/7/ST E/7/GU E/7/DR E/7/JTS

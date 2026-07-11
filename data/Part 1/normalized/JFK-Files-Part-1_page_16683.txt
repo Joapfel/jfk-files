@@ -1,0 +1,77 @@
+NO FOREIGN DISSEM
+
+- la -
+
+CS-311/01258-65
+
+HdQRS Dissem
+
+WH/COPS-1 WE/1 EE/GNVA
+
+WH/PO/A 1 WE/2 EE/ZURI
+
+WH/PO/B 1 WE/3 EE/HAMB
+
+WH/1 1 WE/4 EE/KAVA
+
+WH/2 13 WE/5
+
+WH/3 1 WE/BC FE/DJAK
+
+WH/3/V 1 WE/R FE/MEDN
+
+WH/4 1
+
+WH/5 1
+
+WH/6 1
+
+WH/R 1
+
+WH/SA/EOB-5
+
+WH/SA/NOB-5
+
+WH/SA/R 4
+
+WH/SA/Int 1
+
+WH/SA/CI 30
+
+WH/SA/SO/NS 1
+
+CI/Staff 5
+
+CI/Liaison 1
+
+CI/R&A 3
+
+AF/1 1
+
+AF/2 1
+
+AF/3 1
+
+AF/4 1
+
+AF/R 3
+
+AF/CI 1
+
+EE/K 1
+
+EE/SA 1
+
+EE/BR 1
+
+EE/YA 1
+
+EE/H 1
+
+EE/P 1
+
+EE/C 1
+
+EE/IIS-1
+
+FE/PMI/I</

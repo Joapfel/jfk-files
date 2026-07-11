@@ -1,0 +1,13 @@
+1 Send No 2 Name 3 Cost Center Number 4 LWOP Hours
+
+022592 ZAMBERNARDI ROBERT-41 575 CF
+
+Grade Step Salary Low PM Date Grade Step Salary Effective Date TYPE ACTION
+
+PSU IPI ADJ
+
+GS 10 2 3 7,945 04/14/63 GS 10 3 8,200 04/12/64
+
+PAY CHANGE NOTIFICATION
+
+(431)

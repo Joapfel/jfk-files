@@ -1,0 +1,13 @@
+stay in Russo v. Dime, U.S., 34 L. 30 (1972) and d... ing from the denial of a petition for certiorari in the same case; 409 U.S. 1013 (1972).
+
+As stated by the Court in Tagliacotti:
+
+Nothing in Alderman v. United States, Ivanov v United States, or Butenko v. United States, ante, p. 165, requires an adversary proceeding and full disclosure for resolution of every issue raised by an electronic surveillance. On the contrary, an adversary proceeding and disclosure were required in those cases, not for lack of confidence in the integrity of government counsel or the trial judge, but only because the in camera procedures at issue there would have been an inadequate means to safeguard a defendant's fourth Amendment rights. 394 U.S. at 317 (Emphasis added)
+
+As stated by Mr. Justice Stewart in Giordano:
+
+As we made explicit in Alderman, Butenko, and Ivanov, the requirement that certain products of governmental electronic surveillance be turned over to defense counsel was expressly limited to situations where the surveillance had violated the Fourth Amendment. 394 U.S. 310, 313 (Emphasis added)
+
+In Alderman, the Court concluded that although in camere procedures were sufficient to vindicate statutory rights, such as those under the Jencks Act and certain due process rights, such as the right to the disclosure of the identity of an informer (384 U.S. at 182-83, f.n. 14), such procedures "are unable to provide the scrutiny which the Fourth Amendment exclusionary rule demands" in those circumstances where there exist "a large volume of factual materials". 384 U.S. 183-84.
+
+Thus, Alderman cannot be read to require disclosure where there has been no violation of Fourth Amendment rights. Indeed, even in cases involving a possible violation of Fourth Amendment rights, Alderman can be read as not requiring disclosure.

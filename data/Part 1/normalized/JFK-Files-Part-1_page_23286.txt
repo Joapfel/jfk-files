@@ -1,0 +1,59 @@
+TRAINING EVALUATION REPORT DATE (Day, month, year)
+
+NAME OF STUDENT (Pseudonym) VAIVADA, Arthur G. 9 May 1957
+
+PERIOD COVERED-25 March to 10 April 57 and 26 April to 7 May 1957
+
+RATING DEFINITIONS
+
+SUPERIOR An extremely outstanding performance.
+
+EXCELLENT An outstanding performance, above average.
+
+SATISFACTORY Requirements met without distinction.
+
+POOR A deficient performance, below average.
+
+FAILURE An extremely deficient performance.
+
+TRAINING SUBJECTS RATINGS
+
+SUPERIOR EXCELLENT SATISFACTORY POOR FAILURE
+
+Security X
+
+Cover X
+
+Observation &amp; Description
+
+Interviewing X
+
+Interrogation X
+
+Surveillance X
+
+7. Telephones &amp; Mikes (Theory) X
+
+General CI Methods X
+
+Contacting
+
+Intrafield Communications
+
+Recruiting of Agents
+
+Training of Agents
+
+Agent Management &amp; Control
+
+14. Double Agent Management &amp; Control X
+
+Reporting X
+
+CE Operations X
+
+Communist Theory X
+
+Soviet IS X
+
+Psychological Warfare </td

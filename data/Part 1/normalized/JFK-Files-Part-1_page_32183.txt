@@ -1,0 +1,57 @@
+YES NO
+
+Write "YES" or "NO" in the appropriate column. If the answers to any of the following questions are "YES" you MUST give full details, using additional sheets if necessary, and numbering answers to correspond with questions.
+
+32. Have you had any serious illnesses or operations in the past 5 years?
+
+&nbsp;&nbsp;&nbsp;&nbsp;a) If so, describe and give dates
+
+&nbsp;&nbsp;&nbsp;&nbsp;b) Were you hospitalized?
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Dates: Hospital Location
+
+&nbsp;&nbsp;&nbsp;&nbsp;c) How many days' work have you lost in the past 5 years due to illness?
+
+&nbsp;&nbsp;&nbsp;&nbsp;d) Do you have any service disability?
+
+&nbsp;&nbsp;&nbsp;&nbsp;e) Percentage:
+
+33. Do you have any sources of income other than your salary?
+
+&nbsp;&nbsp;&nbsp;&nbsp;a) What are they?
+
+&nbsp;&nbsp;&nbsp;&nbsp;b) Total amount of such income
+
+34. Has your credit record ever been considered unsatisfactory, or have you ever been refused credit?
+
+&nbsp;&nbsp;&nbsp;&nbsp;a) If so, give dates, places, names of creditors and circumstances
+
+35. Are you now indebted to anyone?
+
+&nbsp;&nbsp;&nbsp;&nbsp;a) Name:
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Address Amount
+
+36. Have you ever been arrested (include traffic violations, but not parking tickets)? yes
+
+&nbsp;&nbsp;&nbsp;&nbsp;DATE PLACE CHARGE DISPOSITION DETAILS
+
+Jan.8,1973 Ft. Lauderdale speeding fined $10.00
+
+37. Has any member of your immediate family or close relative (including in-laws) ever been arrested for other than traffic violations? no
+
+&nbsp;&nbsp;&nbsp;&nbsp;NAME RELATION DATE PLACE CHARGE DISPOSITION
+
+38. Were you ever dismissed from a school, or was any disciplinary action, including scholastic probation, ever taken against you, during your scholastic career?
+
+School: Date: Type of Action:
+
+39. Have you ever been dismissed or asked to resign from any employment or position you have held?
+
+Employer's name: Date: Reasons:
+
+40. Have you ever been a defendant in a court action?
+
+(if so, give date, place, court, names of parties involved, nature of action, and final disposition)
+
+Attached Sheet

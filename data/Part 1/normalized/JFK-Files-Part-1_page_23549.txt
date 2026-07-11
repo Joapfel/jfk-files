@@ -1,0 +1,71 @@
+TRAINING EVALUATION REPORT
+
+Name of Student: Arthur G. VAIYADA (PSEUDEOTM)
+
+Training Alias : "VICKS"
+
+Date: 1 December 1953 (Day) (Month) (Year)
+
+Period Covered: 9 November 1953 through 25 November 1953
+
+Rating Definitions:
+
+Superior An extremely outstanding performance.
+
+Excellent An outstanding performance, above average.
+
+Satisfactory Requirements met without distinction.
+
+Poor A deficient performance, below average.
+
+Failure An extremely deficient performance.
+
+Training Subjects
+
+FAILURE POOR SATISFACTORY EXCELLENT SUPERIOR
+
+Security X
+
+Cover X
+
+Observation & Description
+
+Interviewing
+
+Interrogation
+
+Surveillance
+
+Telephones & Mikes (Theory)
+
+General CI Methods
+
+Contacting
+
+Intrafield Communications
+
+Recruiting of Agents
+
+Training of Agents
+
+Agent Management & Control
+
+14. Double Agent Management & Control
+
+Reporting
+
+CE Operations
+
+Communist Theory
+
+Soviet IS
+
+Psychological Warfare
+
+Political Warfare
+
+Economic Warfare
+
+Sabotage
+
+Counter-sabotage <

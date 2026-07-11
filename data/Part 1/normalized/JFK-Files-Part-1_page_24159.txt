@@ -1,0 +1,17 @@
+MEMORANDUM FOR: The Record
+
+FROM : Harvey G. FAHNRICH
+
+SUBJECT : Security of QREBONY/1 S/W Communications System
+
+REFERENCES : A. OFLA 3044 B. PALP 4385 C. FRAN 5087
+
+1. In early June of this year KUWOLF developmental agent QREBONY/1 (formerly STEBONY/1) was trained by KUWOLF Career Agent Rufus F. RODIGAST in the use of the S/W system prescribed by MXTOPAZ per Reference C. QREBONY/1 took one carbon sheet of the system with him on a brief trip to North Africa and used it for four messages in the latter part of June. Concurrently, Paris Station TECHS, on LCPIPIT's behalf, requested in OFPT 10348 that MXTOPAZ prepare for QREBONY/1's use an S/W carbon pad which would alleviate the carbon concealment problem for the agent. The pad was received subsequently and passed to QREBONY/1 on 18 July 1965, at which time his original single carbon sheet was withdraw.
+
+2. QREBONY/1 first used his new S/W pad for a message dated 22 July 1965, comments on which were transmitted to interested KUBARK Headquarters and Field components in Reference B. QREBONY/1 underwent a corrective briefing on the use of his pad on 4 August 1965, carbon No. 1 (rearmost of three in the back of his pad) was withdrawn since it bore an imprint of the 22 July message, and QREBONY/1 was authorized to use carbon No. 2 (middle of three) but only for "essential" messages. (a 24 July S/W message was also critiqued at the 4 August meeting--because the carbon impression was relatively weak.)
+
+3. On the basis of LCPIPIT's instruction to refrain from using his S/W pad except for "essential" messages, QREBONY/1 did not employ it again until 11 October 1965. The nature of the message indeed met the criteria for use of the pad, but as in the 22 July letter the message was clearly legible without development. To quote Paris Station TECHS:
+
+"SW impressions were clearly visible under Ultraviolet Light (short wave and long wave) and also under a plain desk light."
+
+On the basis of this report, QREBONY/1's previous performance in use of the pad, and the fact that the next point from which he was to use the pad would be Algiers, LCPIPIT determined that the risk of compromise outweighed the necessity of QREBONY/1 carrying this communications system with him and withdrew the S/W pad on 20 October 1965. LCPIPIT retains possession of

@@ -1,0 +1,27 @@
+(4)
+
+OCCUPATION __________________ LAST EMPLOYER _____________
+
+EMPLOYER'S OR OWN BUSINESS ADDRESS _________ (St. and Number) (City) (State) (Country)
+
+MILITARY SERVICE FROM ______ TO ______ BRANCH OF SERVICE _____________
+
+COUNTRY _____________ DETAILS OF OTHER GOVT. SERVICE, U. S. OR FOREIGN
+
+SEC. 1. BROTHERS AND SISTERS (Including half-step, and adopted brothers and sisters):
+
+1. FULL NAME (First) (Middle) (Last) AGE PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+
+2. FULL NAME (First) (Middle) (Last) AGE PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+
+3. FULL NAME (First) (Middle) (Last) AGE PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+
+4. FULL NAME (First) (Middle) (Last) AGE PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+
+5. FULL NAME (First) (Middle) (Last) AGE PRESENT ADDRESS (St. and Number) (City) (State) (Country) (Citizenship)
+
+SEC. 2. FATHER-IN-LAW
+
+FULL NAME (First) (Middle) (Last) NAME ADDRESS PHONE AGE LIVING OR DECEASED DATE OF DECEASE CAUSE PRESENT, OR LAST, ADDRESS (St. and Number) (City) (State) (Country) DATE OF BIRTH PLACE OF BIRTH IF BORN OUTSIDE U.S. INDICATE DATE AND PLACE OF ENTRY C.I.B. CITIZENSHIP WHEN ACQUIRED WHERE? (City) (State) (Country)
+
+OCCUPATION___________________ LAST EMPLOYER_____________________

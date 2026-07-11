@@ -1,0 +1,15 @@
+(Indicate page, name of newspaper, city and state.)
+
+20 Rocky Mountain News Denver, Colorado
+
+Date: 2-12-70
+
+Edition: Home
+
+Author: Alan Cunningham
+
+Editor: Jack Foster
+
+Title:
+
+THOMAS RIHA

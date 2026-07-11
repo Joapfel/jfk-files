@@ -1,0 +1,50 @@
+V or V 1 V to UV DATE PREPARED Mo 08 Do 44 Yr 60
+
+X UV to UV REQUEST FOR PERSONNEL ACTION
+
+Serial No.
+Name (Last-First-Middle)
+Date Of Birth Mo 03 Da 15 Yr 15
+Vet. Prof. None-0 Code 1 M
+P.I. 10 PI 2
+Sex M
+CS - LOD Mo 44 Do 03 Yr 06
+
+SCD B. CSC Rank CSC Rank
+CSC Or Other Legal Authority D. Appmt. Affiliation E. FIGL I
+FIGL I
+LCD F. Allt. Prof. Code LCD Mo 01 Do 44 Yr 01 Yes. 1 No - 2 Code 01 02
+
+No Do Yr Yes. 1 No - 2 Yes. 1 No - 2 Yes. 1 No - 2
+
+CURRENT ASSIGNMENT
+
+14. Organizational Designations Code 15. Location Of Official Station Station Code
+
+DUP WE IBERIAN BRANCH WASH., D. C.
+
+Dept.- Field Code 1
+Position Title ATTACHE OPS OFFICER D BR CH
+Position No.
+Serv. FSR GS
+Occup. Series 0136.01
+
+Dept. - Valid. From Code 5
+
+Grade & Step 05 14 3
+Salary Gr Rate 10,555 12,730
+SD D
+Date Of Grade Mo 12 Da 16 Yr 56
+PSI Due Mo 06 Da 11 Yr 61
+Appropriation Number 1136-1000-1000 22X666X00X22T
+
+ACTION
+
+Nature Of Action Code
+Eff.- Date
+Type Of Employee Code
+Separation Data
+
+Mo 07 Da 13 Yr 60 EX REGULAR
+
+REASSIGNMENT 67 05 124 16

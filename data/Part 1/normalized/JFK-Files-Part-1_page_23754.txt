@@ -1,0 +1,21 @@
+SECRET 292332Z
+
+REF TO FILE NO. &nbsp; 1 &nbsp;
+
+FILE ID [x] REF TO BRANCH [ ] 2 [x]
+
+DESTROY [ ] SIG [x] 3 [x]
+
+ACTION ADVANCE COPY UNIT TIME BY INFO &nbsp; FROM TO WHSA-8 WHSA-8, CL/C/OPs, C/IC/2, F1 VR. FILE DDE, WH7, CL/C/OPS, C/IC/2, F1
+
+R
+
+I
+
+C
+
+O
+
+P
+
+Y

@@ -1,0 +1,37 @@
+When filled in:
+
+SECTION A
+
+MARITAL STATUS
+
+1. PARENTAL STATUS (Single, Married, Divorced, Widowed, or Separated) NO CHANGE
+
+2. NAME OF SPOUSE Father's Name Mother's Name Married or Single
+
+3. DATE OF BIRTH A. PLACE OF BIRTH (City, State, Country)
+
+OCCUPATION B. PRESENT EMPLOYER
+
+5. CITIZENSHIP C. FORMER CITIZENS' COUNTRY(S)
+
+D. DATE U.S. CITIZENSHIP ACQUIRED
+
+SECTION X
+
+DEPENDENT CHILDREN AND DEPENDENTS OTHER THAN SPOUSE
+
+Name Relationship Date and Place of Birth Citizenship Permanent Address
+
+Judy Kay Miller Daughter SAPPORO, JAPAN-13 JUNE 1950 USA 5351 29TH ST. N.W. Washington, D.C.
+
+JANET LYNNE Miller Daughter YOKOSUKA, JAPAN-17 AUGUST 1951 USA 5351 29TH ST. N.W. Washington, D.C.
+
+SECTION XI
+
+PROFESSIONAL SOCIETIES AND OTHER ORGANIZATIONS
+
+NAME AND CHAPTER ACCESS Number Street City State Code DATE OF MEMBERSHIP
+
+FROM TO
+
+10 May 1967 Hastons S. Miller

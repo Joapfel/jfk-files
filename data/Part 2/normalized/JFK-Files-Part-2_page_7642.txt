@@ -1,0 +1,81 @@
+Headquarters Distribution for Book Dispatch No. 4726
+
+2 DDP-2 C/WE
+
+1 ADDP-1 C/WE/1
+
+1 C/OPSER-1 C/WE/2
+
+1 C/TSD-1 C/WE/3
+
+1 C/CA 1 C/WE/4
+
+1 C/CCS-1 C/WE/5
+
+1 C/SOD-1
+
+1 C/CI
+
+1 C/FI
+
+C/WH
+
+2 C/WH/1
+
+1 C/WH/2
+
+2 C/AF C/WH/2
+
+1 C/AF/1 C/WH/3
+
+1 C/AF/2 C/WH/4
+
+1 C/AF/3 C/WH/5
+
+1 C/AF/4 WH/COPS
+
+1 C/AF/5 WH/POA
+
+1 C/AF/6 WH/POB
+
+WH/Plans
+
+2 C/EE
+
+1 C/EE/G 2 CI/R&A
+
+1 C/EE/K 1 CI/LIA
+
+1 1 CI/OPS/AF
+
+1 CI/OPS/EE
+
+2 C/FE 1 CI/OPS/FE
+
+1 1 CI/OPS/NE
+
+1 1 CI/OPS/SS
+
+1 1 CI/OPS/WE
+
+1 1 CI/OPS/WH
+
+1
+
+1
+
+1 RID
+
+2 C/NE
+
+1 C/NE/1
+
+1 DC/NE/AA
+
+1 C/NE/4
+
+1 C/NE/5
+
+1 C/NE/6
+
+Originated by: Chief, CI/R&A, Ext. 7468/23 December 1964 and Mr. A.E. Dooley, Ext. 6748

@@ -1,0 +1,51 @@
+SCHEDULE D (Form 1040)
+
+Department of the Treasury Internal Revenue Service
+
+Capital Gains and Losses (Examples of property to be reported on this Schedule are gains and losses on stocks, bonds, and similar investments, and gains (but not losses) on personal assets such as a home or jewelry.)
+
+► Attach to Form 1040. ► See Instructions for Schedule D (Form 1040).
+
+1974
+
+Name(s) as shown on Form 1040
+
+Part I Short-term Capital Gains and Losses—Assets Held Not More Than 6 Months
+
+D
+
+Kind of property and description (Example, 100 shares of "Z" Co.) b. Date acquired (Mo., day, yr.) c. Date sold (Mo., day, yr.) d. Gross sales price e. Cost or other basis, as adjusted (see instruction D) and expense of sale f. Gain or (loss) (d less e)
+
+1 LOAN TO SUMMIT AGLE CORPORATION 1000
+
+2 Enter your share of net short-term gain or (loss) from partnerships and fiduciaries
+
+3 Enter net gain or (loss), combine lines 1 and 2
+
+4(a) Short-term capital loss component carryover from years beginning before 1970 (see Instruction G)
+
+(b) Short-term capital loss carryover attributable to years beginning after 1969 (see Instruction G)
+
+5 Net short-term gain or (loss), combine lines 3, 4(a) and (b)
+
+Part II Long-term Capital Gains and Losses—Assets Held More Than 6 Months
+
+6 CHIEFTAIN DEOXEL-11/21/73 6/10/74 653 1382 729
+
+CHIEFTAIN DEOXEL-11/21/73 6/19/74 678 1382 720
+
+TESORO PET-5/22/72 7/16/74 1622 2847- 1225
+
+UNIT RODE-5/15/72 9/19/72 358 1532 1174
+
+RCA-2/28/73 9/23/74 1055- 3062 2007
+
+7 Capital gain distributions 7
+
+8 Enter gain, if applicable, from Form 4797, line 4(a)(1) (see Instruction A) 8
+
+9 Enter your share of net long-term gain or (loss) from partnerships and fiduciaries 9
+
+10 Enter your share of net long-term gain from small business corporations (Subchapter S) 10
+
+11 Net gain or (loss), combine lines 6 through

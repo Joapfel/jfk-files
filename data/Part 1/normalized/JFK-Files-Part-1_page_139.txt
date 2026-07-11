@@ -1,0 +1,33 @@
+DOHB-70-1-1 CHAPTER III, ANNEX B
+
+15 November 1974
+
+Desk" blocks on the 201 Personality File Action Request (Form 831). The standard listings available are:
+
+(1) Alphabetic by surname, leading to a 201 number;
+
+(2) Alphabetic by given name, leading to a 201 number;
+
+(3) Alphabetic by cryptonym, leading to a 201 number;
+
+(4) Numerical, leading to a surname;
+
+(5) Numerical, leading to a cryptonym.
+
+NAME TYPE DOR BIRTHPLACE OCC. CIT. 201 201-1 ACT. LOC. INT.
+
+DA/NO./YR CITY CITY DIY DIY
+
+CHEN, SHOU-1 /7115/1343/90307 A 17JUL14 CHIN, KWANGTUNG DIPT CHIN-7 0165401 CHIN HK
+
+CHEN, SHOU-1 /7115/1343/00017 24JAN11 BUSP CCOM-7 0230959 CHIN CHIN
+
+CHEN, SHOU-1 /7115/1343/00018 90 CHIN, ANDY 0179653 CHIN
+
+CHEN, SHOU-1 /7115/1343/00019 04JAN19 CHIN, FUKIEN, PROV. 0043751 CHIN HK
+
+CHEN, SHOU-1 /7115/1343/00020 21OCT08 CHIN, PANGKAPIA, PORT ARTH 0234629 CHIN CUBA
+
+CHEN, SHOU-1 /7115/1109/001 A 12NOV22 CHIN, HUHAN DIPT CHIN-7 0179620 CHIN CHIN
+
+CHEN, SHOU-1 /7115/1109/002 12MAR45 CHIN PROF CHIN

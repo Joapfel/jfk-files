@@ -1,0 +1,47 @@
+Part III Gain From Disposition of Property Under Sections 1245, 1250, 1251, 1252—Assets Held More than Six Months (See Instruction F)
+
+Lines 18 and 19 should be omitted if there are no dispositions of farm property or farmland; or, if this form is filed by a partnership.
+
+Property (A) Property (B) Property (C) Property (D) Property (E)
+
+Correlate lines 10(A) through 10(E) with these columns ▷ ▷ ▷ ▷
+
+11 Gross sales price 28000-
+
+12 Cost or other basis and expense of sale. 28138-
+
+13 Depreciation allowed (or allowable). 12386-
+
+14 Adjusted basis, line 12 less line 13. 15752-
+
+15 Total gain, subtract line 14 from line 11 12248-
+
+If section 1245 property:
+
+(a) Depreciation allowed (or allowable) after applicable date (see instructions) 12386
+
+(b) Line 15 or line 16(a), whichever is smaller 12248
+
+If section 1250 property:
+
+(a) Enter additional depreciation after 12/31/63 and before 1/1/70.
+
+(b) Enter additional depreciation after 12/31/69
+
+(c) Enter line 15 or line 17(b), whichever is smaller.
+
+(d) Line 17(c) times applicable percentage (see instruction F.4)
+
+(e) Enter excess, if any, of line 15 over line 17(b)
+
+(f) Enter line 17(a) or line 17(e), whichever is smaller.
+
+(g) Line 17(f) times applicable percentage (see instruction F.4)
+
+(h) Add line 17(d) and line 17(g).
+
+If section 1251 property:
+
+(a) If farmland, enter soil, water, and land clearing expenses for current year and the four preceding years
+
+(b) If farm property, other than land, subtract line 1

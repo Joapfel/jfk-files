@@ -1,0 +1,353 @@
+ORIG, C. Eustos-V UNIT, III/1 X4506. EXT, DATE, 4 December 1964
+
+MESSAGE FARM
+
+2 S SS
+
+3 6
+
+4 7
+
+5 S Leg/C
+
+TO Mexico City
+
+FROM DIRECTOR
+
+CON WH 8
+
+INFO OL4, BPA, PG2, VCR, FILE
+
+RULES
+
+TO MEXI
+
+LIEMPTY
+
+REFERENCE: MEXI 1799 (IN 35305)
+
+1. WE DO NOT PLAN MAINT LIMOUSINE. PROVIDE INFORMATION AND REQUESTED DIR 68139 AFTER NEGOTIATING WITH HIM BEFORE CONCLUDING AGREEMENT.
+
+2. ANTENNA ROTATOR REQUESTED IS BEING PUCHED WEEK-7 DECEMBER.
+
+END OF MESSAGE
+
+OL/RECD/Edward Denison (phone)
+
+III/Lac/McDonon (phone)
+
+WII Comment:
+
+LIMOUSINE in States this week and probably could be reached if he wished discuss sale of LIEMPTY property in person. Station indicates LIEMPTY would be sold at land value only as house value not pertinent since house to be razed. Asked whether Antenna Rotator would arrive Station by Christmas.
+
+** Headquarters approves in principle selling LIMITED property to LIMOUSINE. Advise complete sales vice for his concurrence prior to concluding agreement with LIMOUSINE. Also attempt determine at least approximate rental cost for LIMITED apartment and advise.
+
+J. Haddad
+
+RACCORD & HERBERT AC/WIID
+
+5
+
+4
+
+3
+
+2
+
+1
+
+C O N S U L I D A T I O N
+
+A M B E R T
+
+E S U P T Excluded from automatic downgrade and decoupling
+
+AUTHENTICATING CREDITS
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1
+
+Copy No. 5
+
+4
+
+3
+
+2
+
+1

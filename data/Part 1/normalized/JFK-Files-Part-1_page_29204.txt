@@ -1,0 +1,15 @@
+Scatter Diagram: Relationship Between X and Y values FORM I
+
+X 10 20 30 40 50 60 70 80 90 100
+
+-5 .30 .15 .25 .10 .35 .20 .12 .22 .18 .10
+
+5 -.30 -.15 -.25 -.10 -.35 -.20 -.12 -.22 -.18 -.10
+
+10 -.50 -.30 -.20 -.10 -.50 -.20 -.12 -.20 -.18 -.10
+
+- Mnd: Minimum value - Max: Maximum value - SD: Standard Deviation - n: Number of data points - r: Correlation Coefficient - P-value: Probability that the correlation is not significant
+
+Form I:
+
+S = {n} where S is the standard deviation and n is the number of data points.

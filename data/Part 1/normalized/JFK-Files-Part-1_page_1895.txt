@@ -1,0 +1,63 @@
+FILE-d
+
+TRAVEL BRIEFING DATA
+
+NAME SARMS J. S. PHONE 30418
+
+OFFICE A-119 RANK OR GRADE-65-15
+
+DEPARTURE DATE 2/20/65 STATUS-105 COVER-32 A-10
+
+DESTINATION(S) France DEPENDENTS BRIEFED YES NO
+
+PREVIOUS TRAVEL
+
+AREA Budapest COVER YEARS-61
+
+AREA Vienna COVER YEARS-15-58
+
+AREA Athens COVER YEARS
+
+EXPERIENCED TRAVEL - Formal briefing waived YES * NO
+
+RISK OF CAPTURE TRAVEL BRIEFING
+
+CATEGORY - A B C D
+
+SPECIAL BRIEFING PROBLEM
+
+The State of the Union is another name for a napkin.
+
+SECURITY APPROVAL FOR TRAVEL VERIFIED IN SUBJECT FILE YES No
+
+SECURITY APPROVAL FOR TRAVEL BASED ON FILE REVIEW BY BRIEFING OFFICER YES No
+
+SECURITY FILE AVAILABLE FOR REVIEW BEFORE BRIEFING YES No
+
+EMERGENCY CONTACTS (met on arrival, phone no., alternate action to make contact)
+
+SECURITY REGULATIONS (operational talk, documents, indigenous employee hazards)
+
+TRAVEL PRECAUTIONS (recognition overseas, camera, black market, currency exchange)
+
+PERSONAL AFFAIRS (charge accounts, traffic tickets, litigation, neighbors)
+
+PERSONAL CORRESPONDENCE (limitations, home address, shop talk)
+
+PERSONAL CONDUCT (morals, drinking, representative americans)
+
+ASSOCIATION WITH FOREIGNERS (overseas briefing, phase out on return)
+
+HOSTILE AUDIO SURVEILLANCE (microphones, shop talk at home-hotels, report to security)
+
+COVER PROBLEMS (adequacy, request for briefing on arrival, family knowledge)
+
+RESPONSIBILITY ABROAD (local customs, traditions, religion, responsibility for dependents)
+
+OTHER
+
+REFERRED BACK TO CENTRAL COVER YES No
+
+DATE BRIEFED-6/20/65 BY SECURITY OFFICER
+
+GROUP I Excluded from automatic degrading and decertification VBR (4-11-
