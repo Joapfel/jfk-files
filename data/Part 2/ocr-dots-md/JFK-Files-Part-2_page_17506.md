@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17506.png
-
-Convert to MarkdownApril 19, 1969
+April 19, 1969
 
 ARGO, ILLINOIS, AREA BRANCH
 MICHAEL WHITE

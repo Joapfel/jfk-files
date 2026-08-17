@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10936.png
-
-Convert to Markdown# D. THE NEED AND THE POTENTIAL FOR FOREIGN INTELLIGENCE IN THE U. S.
+# D. THE NEED AND THE POTENTIAL FOR FOREIGN INTELLIGENCE IN THE U. S.
 
 In 1941, the U. S. allegedly had in its possession practically all of the foreign intelligence it needed regarding military and strategic targets in Japan. The information was scattered among various individuals who had personal knowledge or was located in libraries, various Government agencies, private business firms, institutions, et cetera. Tragically, the U. S. Government did not have any mechanism to collect, record and evaluate such information. Intelligence was badly needed in 1941, and we paid dearly in lives and financial resources to accomplish certain missions because the information was not readily available.
 

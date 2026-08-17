@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12605.png
-
-Convert to MarkdownFrom: EVC-15811, 10 Sept 68
+From: EVC-15811, 10 Sept 68
 75-6-41/3
 
 Subject: CIVILTY Operational Reporting for Aug 68

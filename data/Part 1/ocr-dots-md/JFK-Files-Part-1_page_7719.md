@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7719.png
-
-Convert to Markdown4.07 Teeth
+4.07 Teeth
 
 4.07.01 Shape Regular X Average
 Protruding ___ Unusual ___

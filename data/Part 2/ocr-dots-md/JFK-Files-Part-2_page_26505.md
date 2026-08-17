@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26505.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10. Voice radio transmitters in Caracas and in outlying cities have been heard in conversation with a voice transmitter in Cuba.
 

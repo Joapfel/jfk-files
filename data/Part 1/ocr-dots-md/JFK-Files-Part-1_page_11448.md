@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11448.png
-
-Convert to Markdown6 May 1964
+6 May 1964
 
 MEMORANDUM FOR: Chief, WH/3
 ATTENTION : Mr. John M. Whitten

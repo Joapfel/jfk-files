@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_808.png
-
-Convert to MarkdownRESUME
+RESUME
 
 CARLENE POLITE
 

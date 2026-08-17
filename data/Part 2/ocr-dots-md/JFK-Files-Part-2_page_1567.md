@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1567.png
-
-Convert to Markdown<html><body><table><tr><td>18</td></tr></table></body></html>
+<html><body><table><tr><td>18</td></tr></table></body></html>
 
 A CRONOLOGICAL HISTORY OF EMPLOYMENT FOR THE PAST 10 YEARS: ACCOUNTS FOR ALL PERIODS, INCLUDECasual employment; include also periods of unemployment. give addresses and state what you did during each period of unemployment. last position before employment by a departmental (state) government, together with the month and year of birth.
 

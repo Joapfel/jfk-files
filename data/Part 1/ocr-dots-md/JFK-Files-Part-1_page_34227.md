@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34227.png
-
-Convert to Markdown"VICTORIA... VICTORIA... VICTORIA" (U.R.U.L.)
+"VICTORIA... VICTORIA... VICTORIA" (U.R.U.L.)
 
 December 17, 1965:
 

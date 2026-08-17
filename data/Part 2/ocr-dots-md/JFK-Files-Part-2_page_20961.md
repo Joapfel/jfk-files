@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20961.png
-
-Convert to MarkdownUNITED STATE GOVERNMENT
+UNITED STATE GOVERNMENT
 Memorandum
 
 TO : ACTING DIRECTOR, FBI

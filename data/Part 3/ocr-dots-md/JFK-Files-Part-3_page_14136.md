@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14136.png
-
-Convert to Markdown(Continuation of footnote from previous page)
+(Continuation of footnote from previous page)
 
 "Reconnaissance of Cuba" it is stated: "The DCI pointed out that the Agency is now restricted to using the U-2 in the southeastern quadrant of Cuba, because of SAM sites. It was questioned whether this was a reasonable restriction at this time, particularly since the SAMs were almost certainly not operational." Beside this item in the summary memorandum, there appears the penciled notation "Also agreed should go all out for intel."
 

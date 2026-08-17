@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23279.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 material, would you recount for the Committee your understanding of what the United States government policy toward the Dominican Republic was in the winter and spring of '61 and what actions were taken to implement that policy.
 

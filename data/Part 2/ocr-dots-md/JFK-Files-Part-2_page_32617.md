@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32617.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the communist bloc and had postponed its plans to industrialize.
 

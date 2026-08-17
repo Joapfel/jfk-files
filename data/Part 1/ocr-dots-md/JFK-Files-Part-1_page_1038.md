@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1038.png
-
-Convert to MarkdownHSCA Request, 1 December 1977 (OLC #77-5333): for
+HSCA Request, 1 December 1977 (OLC #77-5333): for
 
 1. CD #347, 1/31/64
 2. CD #361, pp 1-95, 1/31/64

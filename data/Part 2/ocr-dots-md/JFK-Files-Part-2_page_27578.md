@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27578.png
-
-Convert to MarkdownAssassination Records Review Board
+Assassination Records Review Board
 Final Determination Notification
 
 AGENCY : HSCA

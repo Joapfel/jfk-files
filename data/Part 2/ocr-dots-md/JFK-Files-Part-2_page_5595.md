@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5595.png
-
-Convert to MarkdownChicago Tribune, October 3, 1993
+Chicago Tribune, October 3, 1993
 
 Poking in the garbage
 

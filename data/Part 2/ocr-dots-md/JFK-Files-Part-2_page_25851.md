@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25851.png
-
-Convert to MarkdownI reported this to Bundy on the 19th of November -- by the way, my call to Valao was the 18th -- he said that after their agenda had been received, the President wanted to see me at the White House and decide what to say and whether to go or what we should do next. That was the 19th of November, three days before the assassination.
+I reported this to Bundy on the 19th of November -- by the way, my call to Valao was the 18th -- he said that after their agenda had been received, the President wanted to see me at the White House and decide what to say and whether to go or what we should do next. That was the 19th of November, three days before the assassination.
 
 On the 29th of November, LaChuga had seen Miss Howard and he wondered where things stood now. I passed the word to him that I didn't know, but that until we were told differently that we would continue our conversation.
 

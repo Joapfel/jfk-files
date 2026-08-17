@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19349.png
-
-Convert to MarkdownForm No. 38-9
+Form No. 38-9
 April 1967
 
 OUTGOING CLASSIFIED MESSAGE

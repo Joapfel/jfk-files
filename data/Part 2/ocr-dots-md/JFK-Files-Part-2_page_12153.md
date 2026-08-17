@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12153.png
-
-Convert to Markdown[107G SECTION 107. [INTERNAL]SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+[107G SECTION 107. [INTERNAL]SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
 
 (4) Separate statements should be prepared for each meeting or separate activity in which informants engage and should be dictated by Agent as if informant were preparing them himself.
 

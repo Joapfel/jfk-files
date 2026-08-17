@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25798.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LIJERSEY-2 is the LILYRIC Base operator. He is a Captain in the Mexican Army Reserve and is also employed by Colgate-Palmolive Peet Company as an industrial engineer. He receives a monthly salary of $1,000.00 (MN) and he and his wife live rent and utilities free in the LILYRIC Base.
 

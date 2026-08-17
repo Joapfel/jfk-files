@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_382.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 10. Angloton, James
    DoB: 12/9/77

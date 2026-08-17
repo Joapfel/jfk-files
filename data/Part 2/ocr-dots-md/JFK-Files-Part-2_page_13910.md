@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13910.png
-
-Convert to MarkdownNR Ø16 NK PLAIN
+NR Ø16 NK PLAIN
 
 7:09PM 6/25/75 NITEL RXG
 

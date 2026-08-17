@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24287.png
-
-Convert to MarkdownSECRET
+SECRET
 
 as "radical," but it is an intellectual "radicalism," not revolutionary. Further, he is basically a theoretician not a personal activist by nature. He might be asked and might undertake an activist role—but it is felt that it would not sit naturally upon him and would probably not achieve whatever access might have been postulated. Within his theoretician, non-activist context it was nevertheless felt that the probably-to-be-expanded field of Chinese Communist activities in Europe provided the focus which might most usefully be explored. The expansion of Chinese Communist activities in Europe may come quite slowly but, in view of the probable shortage of assets in this field, it was a matter on which we should have some patience. It is also a field which could be explored without QRPHONE's needing to move. Whether he focusses on this field or another, however, QRPHONE needs to develop some job or organizational base which will make him interesting as a target himself to those we wish to focus him on. At the present time his cover does not provide a power or influence base and he is essentially completely dependent upon us.
 

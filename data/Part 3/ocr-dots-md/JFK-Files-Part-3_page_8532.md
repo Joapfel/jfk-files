@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8532.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 RD: INTERVIEW OF RETIRED FBI SA BY SSC
 

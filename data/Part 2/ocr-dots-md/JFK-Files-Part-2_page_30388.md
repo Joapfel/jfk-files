@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30388.png
-
-Convert to Markdown1.12
+1.12
 
 Mr. Goldsmith. Does the Agency today have a policy of,
 as a matter of routine operating procedure, debriefing return-

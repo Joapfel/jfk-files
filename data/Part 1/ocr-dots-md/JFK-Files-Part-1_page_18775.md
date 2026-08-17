@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18775.png
-
-Convert to MarkdownCOPY
+COPY
 
 Return and Change to lower grade effective 4 August 1948, to CAF-6, $301.50 per annum.
 

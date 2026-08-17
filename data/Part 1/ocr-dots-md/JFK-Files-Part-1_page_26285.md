@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26285.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 271105Z CITE ROME 1650 (GILANDER ACTING)
 

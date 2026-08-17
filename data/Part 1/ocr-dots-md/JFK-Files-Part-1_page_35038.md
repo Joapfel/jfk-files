@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35038.png
-
-Convert to Markdown# CIVIL SECTION BUDGET
+# CIVIL SECTION BUDGET
 
 STATEMENT "III"
 

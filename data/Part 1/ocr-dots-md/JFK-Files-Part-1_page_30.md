@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30.png
-
-Convert to Markdown1. On 9 July 1964 Mr. W. David Slawson and a representative of CIA discussed the question of apparent inconsistencies in material provided the Commission by CIA and by the Department of State. At that time the question was resolved to Mr. Slawson's satisfaction, and it was agreed that CIA would furnish a statistical breakdown of the cases on which CIA based the statements in paragraph 7 of its statement of
+1. On 9 July 1964 Mr. W. David Slawson and a representative of CIA discussed the question of apparent inconsistencies in material provided the Commission by CIA and by the Department of State. At that time the question was resolved to Mr. Slawson's satisfaction, and it was agreed that CIA would furnish a statistical breakdown of the cases on which CIA based the statements in paragraph 7 of its statement of
 
 6 April 1964.
 

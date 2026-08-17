@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13869.png
-
-Convert to MarkdownA regular CIA clandestine asset in Peru with close contacts in Peruvian left-wing circles reports that Cuba has given, and is still giving, training in Peruvians in Cuba - including demolition instructions, manufacture of explosives, and other aspects of guerrilla warfare.
+A regular CIA clandestine asset in Peru with close contacts in Peruvian left-wing circles reports that Cuba has given, and is still giving, training in Peruvians in Cuba - including demolition instructions, manufacture of explosives, and other aspects of guerrilla warfare.
 
 A 50-point questionnaire issued by the Cuban Government is said to
 "clearly pinpoint" Cuban interest in information which could be used

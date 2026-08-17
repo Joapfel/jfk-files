@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13962.png
-
-Convert to Markdown# INFORMATION OBTAINED FROM SOURCE "ELGIRO" ON 1 FEBRUARY 1970
+# INFORMATION OBTAINED FROM SOURCE "ELGIRO" ON 1 FEBRUARY 1970
 
 1. Peceto Isis PINERO Eirin, Third Secretary. PINERO is the favorite of DGI Center Director Orlando PADILLA Gutierrez, First Secretary, because PINERO is hard-working and "audacious". Source believes that PINERO is the DGI Center officer specializing in the handling of Cuban exile agent operations; PINERO "disappears" from the CHUM for 2 to 3 days at a time, and Source speculated that PINERO might be traveling to Miami to contact DGI agents. PINERO also continues to be active at night in lower Manhattan, and Source thought that he might be either making new contacts amongst youth/student circles in Greenwich and East Villages, or seeing existing contacts in those locations; this, of course, is only speculation on Source's part.
 

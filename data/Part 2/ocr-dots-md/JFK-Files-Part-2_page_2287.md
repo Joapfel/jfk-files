@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2287.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">23. RESIGNATION</td>

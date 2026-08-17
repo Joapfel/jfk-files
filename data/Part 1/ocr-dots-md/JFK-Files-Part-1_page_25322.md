@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25322.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (d) Coordination with the Cultural Office in the pressure group of certain films, books, and other propaganda material, and distribution of news.
 

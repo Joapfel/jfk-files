@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5265.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NO FOREIGN BISSEL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7399.png
-
-Convert to MarkdownCHECK CLASS:
+CHECK CLASS:
 
 SECRET
 

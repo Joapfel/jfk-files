@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1683.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 KKK: 22 JULY 76

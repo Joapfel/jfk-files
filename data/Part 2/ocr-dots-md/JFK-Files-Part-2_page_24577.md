@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24577.png
-
-Convert to MarkdownIn view of the issues raised by these documents we took testimony
+In view of the issues raised by these documents we took testimony
 from the principal participants in that meeting. In particular, we discuss
 below the testimony as to whether Lansdale's request for an assassination
 plan reflected the desire of the SGA or was contemplated by the SGA's decision

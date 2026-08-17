@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19597.png
-
-Convert to MarkdownST
+ST
 
 NY 100-172046
 

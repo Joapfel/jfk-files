@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27934.png
-
-Convert to Markdown# 'ROLL AUTHORIZATION FORM
+# 'ROLL AUTHORIZATION FORM
 
 (Please Use Typewriter
 or Ballpoint Pen)

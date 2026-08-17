@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23269.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 the way President Kennedy presided over those two meetings. He was annoyed by the Congo and irritated by it and he was worried that he had to spend so much bloody time on it, but he was damn well determined to see the thing through and he was continually goosing his staff to do just that, but in support of the U.N. We weren't going to do it all by ourselves. It couldn't have been clearer.
 

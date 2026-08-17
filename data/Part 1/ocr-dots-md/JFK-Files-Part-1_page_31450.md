@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31450.png
-
-Convert to MarkdownNational Committee for a Free Europe, Inc.
+National Committee for a Free Europe, Inc.
 
 110 WEST 57TH STREET
 

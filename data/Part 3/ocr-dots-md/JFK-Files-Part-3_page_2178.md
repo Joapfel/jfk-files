@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2178.png
-
-Convert to MarkdownU. S. Senate Select Committee
+U. S. Senate Select Committee
 
 Concerning Item 1(a), which requested predications for each investigation, it should be noted that in the incident involving the proposed assassination of a narcotics agent, there was no predication submitted by the Minneapolis Field Office. This was due to the fact that there was no FBI jurisdiction concerning this matter and consequently no investigation by the FBI.
 

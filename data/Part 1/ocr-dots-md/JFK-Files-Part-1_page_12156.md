@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12156.png
-
-Convert to MarkdownColombia/Costa Rica
+Colombia/Costa Rica
 
 Colombian Police report on Charles Linares
 Area Traffic in Costa Rica

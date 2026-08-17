@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24491.png
-
-Convert to Markdown"Senator Morgan: Mr. Bissell, it's a serious matter to attribute knowledge of this sort to the President of the U.S., especially one who cannot speak for himself. Is it fair to assume that out of an abundance of caution you are simply telling us that you have no knowledge unless you are absolutely certain?...I gather that you think ...it [assassination plot information] came out but because of the seriousness of the accusation you are just being extremely cautious...is that a fair assumption to make?
+"Senator Morgan: Mr. Bissell, it's a serious matter to attribute knowledge of this sort to the President of the U.S., especially one who cannot speak for himself. Is it fair to assume that out of an abundance of caution you are simply telling us that you have no knowledge unless you are absolutely certain?...I gather that you think ...it [assassination plot information] came out but because of the seriousness of the accusation you are just being extremely cautious...is that a fair assumption to make?
 
 Bissell: That is very close to a fair assumption, sir. It's just that I have no direct knowledge, first-hand knowledge of his [President Kennedy's] being advised, but my belief is that he knew of it [assassination plans]." (Bissell, 6/9, p. 56).
 

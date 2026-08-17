@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35210.png
-
-Convert to Markdown(5)
+(5)
 
 oficina del FRENTES, a la cantidad de $100.00. Este Fondo Fijo
 está bajo la custodia de Ana Villarreal.

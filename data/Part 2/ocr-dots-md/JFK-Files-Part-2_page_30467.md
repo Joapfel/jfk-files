@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30467.png
-
-Convert to Markdowncountries of the Hemisphere. The OAS recommended that;
+countries of the Hemisphere. The OAS recommended that;
 Mexico did not do it.
 
 So, when the refugee flow dried up in Florida, we probably

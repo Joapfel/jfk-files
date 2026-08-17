@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24743.png
-
-Convert to Markdownactual assassination plots against Castro already undertaken by the CIA (Bissell, 6/11/75, p. 47; 7/22/75, p. 31). Bissell was "quite certain" that he would not have expected Bundy to mention the executive action capability to the President. (Bissell, 7/22/75, p. 35). Bissell testified:
+actual assassination plots against Castro already undertaken by the CIA (Bissell, 6/11/75, p. 47; 7/22/75, p. 31). Bissell was "quite certain" that he would not have expected Bundy to mention the executive action capability to the President. (Bissell, 7/22/75, p. 35). Bissell testified:
 
 Q. Would you think the development of a capability to kill foreign leaders was a matter of sufficient importance to bring to the attention of the President?
 

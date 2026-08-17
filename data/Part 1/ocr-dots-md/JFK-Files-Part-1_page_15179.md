@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15179.png
-
-Convert to Markdown14-0002
+14-0002
 
 STANDARD FORM NO. 04
 

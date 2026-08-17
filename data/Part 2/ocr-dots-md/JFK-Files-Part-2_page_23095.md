@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23095.png
-
-Convert to Markdownbello Moreno (agente de la CIA, Luis David Rodríguez González, Ricardo Olmedo-Moreno, José A. López Rodríguez, Juan - Lucio Morales Sosa y otros.
+bello Moreno (agente de la CIA, Luis David Rodríguez González, Ricardo Olmedo-Moreno, José A. López Rodríguez, Juan - Lucio Morales Sosa y otros.
 
 Simultáneamente al atentado proyectaron ataques a locales de los Comités de Defensa de la Revolución y Milicias Nacionales Revolucionarias.
 

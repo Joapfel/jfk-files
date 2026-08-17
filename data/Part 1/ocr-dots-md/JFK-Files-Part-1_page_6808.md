@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6808.png
-
-Convert to MarkdownNEW AGGRESSION FROM THE CUBANS--The Cubans consider as a 'non-aggression against Cuba, by the United States, the measure taken by the Inter-American Defense Force preventing the Cuban delegate on the board to visit U.S. bases. (Mudar Trujillo, Radio Caribe, Oct. 13, 1960, 10:0 GMT--E)
+NEW AGGRESSION FROM THE CUBANS--The Cubans consider as a 'non-aggression against Cuba, by the United States, the measure taken by the Inter-American Defense Force preventing the Cuban delegate on the board to visit U.S. bases. (Mudar Trujillo, Radio Caribe, Oct. 13, 1960, 10:0 GMT--E)
 
 CUBAN-SOVIET COMMITTEE--In Moscow the Cuban-Soviet Committee was formed, which is sponsored by the Soviet Association for Friendship and Cooperation with the Latin American countries. Cuban Ambassador Faure Chauman and several other Cubans attended the installation ceremony. (Claud Trujillo, Radio Caribe, Oct. 13, 1960, 10:00 GMT--P) (UNCLASSIFIED)
 

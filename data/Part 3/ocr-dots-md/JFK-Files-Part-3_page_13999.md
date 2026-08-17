@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13999.png
-
-Convert to Markdownthat military intelligence activities are being centralized
+that military intelligence activities are being centralized
 in the Defense Intelligence Agency along the lines earlier
 recommended to the President by the Board. President Johnson
 expressed appreciation for the Board's views on this matter

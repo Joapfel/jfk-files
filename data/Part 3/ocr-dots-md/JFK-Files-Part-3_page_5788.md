@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5788.png
-
-Convert to MarkdownNY 100-99895
+NY 100-99895
 
 New York, New York
 

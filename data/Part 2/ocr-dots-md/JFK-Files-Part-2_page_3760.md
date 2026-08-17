@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3760.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 14 August 1981
 

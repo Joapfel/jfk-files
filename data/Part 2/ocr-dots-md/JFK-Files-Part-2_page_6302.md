@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6302.png
-
-Convert to Markdown# Talking Points - 2/18/98
+# Talking Points - 2/18/98
 Judge John R. Tunheim, Chair
 
 Assassination Records Review Board

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6689.png
-
-Convert to MarkdownThe ROYAL ORLEANS
+The ROYAL ORLEANS
 
 NEW ORLEANS, LOUISIANA • Telephono 529-5333
 

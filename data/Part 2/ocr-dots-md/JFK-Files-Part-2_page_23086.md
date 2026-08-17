@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23086.png
-
-Convert to MarkdownEn junio de 1961, se celebra una reunión con la asistencia de un elemento infiltrado en Cuba por la organización contra revolucionaria "Frente Revolucionario Democrático" (FRD), quien traía la orden de realizar un atentado al Comandante en Jefe Fidel Castro Ruz.
+En junio de 1961, se celebra una reunión con la asistencia de un elemento infiltrado en Cuba por la organización contra revolucionaria "Frente Revolucionario Democrático" (FRD), quien traía la orden de realizar un atentado al Comandante en Jefe Fidel Castro Ruz.
 
 Para ejecutar dicha acción fueron designados: Juan Basigalupe Hornedo, Higinio Menéndez Beltrán, Guillermo Coula Ferrer y otros, entregándoseles dinero para sufragar los gastos de la operación.
 

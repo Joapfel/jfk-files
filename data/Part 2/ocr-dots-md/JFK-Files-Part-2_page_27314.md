@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27314.png
-
-Convert to MarkdownA - Pencil or ink statements
+A - Pencil or ink statements
 
 B - 444 Federal Reporter, 2d Series - July 17, 1946
 

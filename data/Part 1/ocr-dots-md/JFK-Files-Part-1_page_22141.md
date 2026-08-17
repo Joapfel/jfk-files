@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22141.png
-
-Convert to Markdown**8. Arrest of BARGHOORN**
+**8. Arrest of BARGHOORN**
 
 a. Information from NOSENKO
 

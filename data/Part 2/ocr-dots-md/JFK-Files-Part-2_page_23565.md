@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23565.png
-
-Convert to Markdownthe night of the General's return in Algeria, passcode-by noted with agreement that the top floor was ab tense with lights. (I am informed that Ambasador Corin was able to secure entrance that might to the CIA offices only with difficulty.)
+the night of the General's return in Algeria, passcode-by noted with agreement that the top floor was ab tense with lights. (I am informed that Ambasador Corin was able to secure entrance that might to the CIA offices only with difficulty.)
 
 CIA is apparently now firmly committed to the CAS approach as a permanent solution for its problems. It is promising to have CIA samples given the rank of Ambassador. Before Stateless control of more and more of its presumed overseas personnel, and before CAS becomes permanently integrated into the Foreign Service, it would seem important (a) to assure every ambassador the firm control over the local CAS station nominally promised in the NEC Directive of January 19, 1961, and (b) to review the current CAS situation with an eye to a steady reduction of CAS personnel.
 

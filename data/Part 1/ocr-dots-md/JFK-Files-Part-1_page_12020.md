@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12020.png
-
-Convert to MarkdownOUTGOING - MESSAGE
+OUTGOING - MESSAGE
 
 <table><thead><tr><th>CLASSIFICATION</th></tr></thead><tbody><tr><td>SECRET</td></tr><tr><td>DISSEMINATION指示器</td></tr><tr><td>DATE OF GROUP</td></tr><tr><td>CIA</td></tr><tr><td>MESSAGE REFERENCE NUMBER</td></tr><tr><td>030328</td></tr><tr><td>NO. IN USE</td></tr><tr><td>DISSEMS BY:</td></tr><tr><td>#1</td></tr><tr><td>NO. IN USE</td></tr><tr><td>PER SOP</td></tr><tr><td>NO. IN USE</td></tr><tr><td>#132</td></tr></tbody></table>
 

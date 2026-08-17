@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16480.png
-
-Convert to MarkdownThis is why it is so important that the party make a tremendous impact upon the people before it is driven into secrecy.
+This is why it is so important that the party make a tremendous impact upon the people before it is driven into secrecy.
 
 At this time, the people know the party exists, and they will seek out further information on the activities of this underground party.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17523.png
-
-Convert to Markdown<table><thead><tr><td>DATE</td><td>TYPIST</td><td>DIVISION</td></tr></thead><tbody><tr><td>C/WHD</td><td>4 APR 1962</td><td>J. C. KING</td></tr></tbody></table>
+<table><thead><tr><td>DATE</td><td>TYPIST</td><td>DIVISION</td></tr></thead><tbody><tr><td>C/WHD</td><td>4 APR 1962</td><td>J. C. KING</td></tr></tbody></table>
 
 <table><thead><tr><th>CLASSIFICATION</th><th>OFFICE SYMBOL</th><th>DATE</th><th>OFFICER'S NAME</th><th>RELEASING OFFICER'S SIGNATURE</th><th>RELEASING DATE</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td></td><td></td><td>J. C. King</td><td>April 8, 1962</td></tr></tbody></table>
 

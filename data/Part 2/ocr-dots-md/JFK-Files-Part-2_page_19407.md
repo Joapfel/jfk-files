@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19407.png
-
-Convert to MarkdownTHE JEANNETTE RANKIN BRIGADE
+THE JEANNETTE RANKIN BRIGADE
 
 20 S. 12th St.
 Phila., Pa. 19107 - LO 4-5570

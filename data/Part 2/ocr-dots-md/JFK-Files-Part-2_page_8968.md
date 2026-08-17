@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8968.png
-
-Convert to MarkdownVINCENT THEODORO LEE.
+VINCENT THEODORO LEE.
 
 Escritor norteamericano, soltero, de 35 años de edad,
 

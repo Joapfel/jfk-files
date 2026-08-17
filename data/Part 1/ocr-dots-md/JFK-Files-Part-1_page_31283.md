@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31283.png
-
-Convert to MarkdownOffice of Logistics
+Office of Logistics
 Training Report:
 
 The Program: OBL 70-104.18

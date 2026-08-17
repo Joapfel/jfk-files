@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_615.png
-
-Convert to Markdown104-10069-10120
+104-10069-10120
 
 SECRET SENSITIVE
 

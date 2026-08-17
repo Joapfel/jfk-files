@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34170.png
-
-Convert to Markdown### f.- Number of new factories
+### f.- Number of new factories
 
 A new sugar mill is programmed for 1970. This new mill will have a capacity of 13,800.0 MT of sugarcane per 24 hours and a total production of 260,000.0 MT of sugar in 120 effective days of safra.
 

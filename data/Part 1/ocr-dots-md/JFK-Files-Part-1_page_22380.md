@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22380.png
-
-Convert to Markdown(Reported to the FBI on
+(Reported to the FBI on
 27 March 1964)
 
 20 May 1964 (Re-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23795.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 that you gave, Charlie.
 

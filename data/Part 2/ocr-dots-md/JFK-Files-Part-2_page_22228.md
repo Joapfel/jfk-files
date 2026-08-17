@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22228.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Gen Lansdale<br>Gilpatrick<br>Don Wilson</td><td>Oct 31, 1962</td><td>MONGOOSE<br>SCA<br>CUBA</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Gen Lansdale<br>Gilpatrick<br>Don Wilson</td><td>Oct 31, 1962</td><td>MONGOOSE<br>SCA<br>CUBA</td></tr></tbody></table>
 
 Lansdale spoke with USIA's Wilson, who confirmed that all CIA psychological assets had been turned over to USIA for operational use and were being used as desired by the President.
 

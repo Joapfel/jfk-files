@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22280.png
-
-Convert to Markdownthe last period in which NOSENKO had no supervisory responsibility
+the last period in which NOSENKO had no supervisory responsibility
 to divert his attention from personal operational duties.
 
 NOSENKO could not remember when he took over responsibility for the Army Attaches, and he named two other KGB officers before settling upon BUDYLDIN as the person from whom he received the Attaches' files. When belittling his earlier responsibilities for correspondents, he has said several times that he had been in that job "only about six months." Assuming that NOSENKO entered the KGB in the middle of March 1953, this would date his transfer to work against the Attaches in the fall of that year. In discussing this transfer itself, however, NOSENKO has consistently said that it took place in 1954. Asked when in 1954, NOSENKO has variously replied "at the beginning of 1954," January 1954, and May 1954. Under interrogation in early 1965, NOSENKO refused to estimate when he took over this responsibility. He has always said that he turned over these duties and transferred from the U.S. Embassy Section in June 1955, when the Tourist Department was established within the Second Chief Directorate.

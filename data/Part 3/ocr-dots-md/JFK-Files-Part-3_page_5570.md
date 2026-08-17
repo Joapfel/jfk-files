@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5570.png
-
-Convert to Markdown# ROUTE IN ENVELOPE
+# ROUTE IN ENVELOPE
 
 OPTIONAL FORM NO. 10
 MAY 1962 EDITION

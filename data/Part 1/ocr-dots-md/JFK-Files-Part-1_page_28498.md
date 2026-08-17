@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28498.png
-
-Convert to Markdown22 January 1951
+22 January 1951
 
 TO: Overseas Branch, ID
 

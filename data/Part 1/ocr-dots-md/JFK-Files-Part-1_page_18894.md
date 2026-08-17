@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18894.png
-
-Convert to MarkdownForm 088 1983
+Form 088 1983
 
 IRIS
 STATE DEPARTMENT

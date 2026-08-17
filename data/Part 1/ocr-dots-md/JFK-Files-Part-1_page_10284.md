@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10284.png
-
-Convert to Markdown# Base económica y superestructuras ideológicas
+# Base económica y superestructuras ideológicas
 
 Charles Bettelheim, Jacques Charriere
 

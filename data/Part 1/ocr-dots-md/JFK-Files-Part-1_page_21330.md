@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21330.png
-
-Convert to MarkdownS/4512
+S/4512
 
 There is continuous propaganda for the sending of volunteers as workers to Germany. Unwilling contingents of soldiers have left for the Blue Division.
 

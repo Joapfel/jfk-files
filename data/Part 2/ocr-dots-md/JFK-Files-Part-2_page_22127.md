@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22127.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Zogbey, Harvey ✓<br/>Halpern<br/>Helms McCONE</td><td>Dec 1961</td><td>Castro</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Zogbey, Harvey ✓<br/>Halpern<br/>Helms McCONE</td><td>Dec 1961</td><td>Castro</td></tr></table>
 
 **OCCURRENCE:**
 

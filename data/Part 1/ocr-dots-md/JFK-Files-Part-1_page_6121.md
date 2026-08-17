@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6121.png
-
-Convert to MarkdownF-77-147 JF (pls ack)
+F-77-147 JF (pls ack)
 
 910 North Michigan Avenue
 Chicago, Illinois 60611

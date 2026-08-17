@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10577.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OGC 67-1772
 

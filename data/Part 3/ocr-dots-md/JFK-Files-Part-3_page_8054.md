@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8054.png
-
-Convert to MarkdownMEMORANDUM FOR: Antonin S. Silia, Esq.
+MEMORANDUM FOR: Antonin S. Silia, Esq.
 Assistant Attorney General
 Office of Legal Counsel
 

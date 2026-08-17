@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24958.png
-
-Convert to MarkdownU.S. Officials Say Itkin Was an Agent, Reporting to F.B.I.
+U.S. Officials Say Itkin Was an Agent, Reporting to F.B.I.
 
 FIGURE IN MARCUS CASE SAID
 TO HAVE RISKED LIFE TO

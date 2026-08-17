@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27138.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 - An accelerating decline in the quality of our counterintelligence liaison relationships abroad. Here too there is a parallel with the problems that beset us in the past and that gave cause to General Magruder to express his concern in 1945.
 

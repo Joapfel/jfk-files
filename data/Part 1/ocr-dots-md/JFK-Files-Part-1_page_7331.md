@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7331.png
-
-Convert to MarkdownVII, MEDICAL
+VII, MEDICAL
 
 16. State of Health:
 

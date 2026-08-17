@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11915.png
-
-Convert to MarkdownACCOMPLISHMENTS
+ACCOMPLISHMENTS
 
 NEW LEFT GROUPS UNIT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10381.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 the periods 6-9 October, 27 October-10 December 1971 and on 3 January 1972. In addition to physical surveillance, an observation post was maintained in the Statler Hilton Hotel where observation could be maintained of the building housing his office. The surveillance was designed to determine Iden 180 sources of classified information of interest to the Agency which had appeared in a number of his columns.

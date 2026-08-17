@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attachment No. 1 to
 DQ/H5 Memorandum dated

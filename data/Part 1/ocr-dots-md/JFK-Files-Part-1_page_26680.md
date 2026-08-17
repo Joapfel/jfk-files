@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26680.png
-
-Convert to MarkdownATENTAS NEI TH
+ATENTAS NEI TH
 
 ESTRAGIO LPECTIVO, NO 1 N. L. CC.IK.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22960.png
-
-Convert to Markdown(8)
+(8)
 
 CLASSIFICATION GRADE
 FROM April 18, 1940 Apr. 18, 1949(IF IN FEDERAL SERVICE) T/Sgt.

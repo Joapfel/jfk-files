@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24468.png
-
-Convert to MarkdownO.: "But in any event, it is your judgment that he did not indicate that he was opposed to assassinations?
+O.: "But in any event, it is your judgment that he did not indicate that he was opposed to assassinations?
 
 Mr. Helms: "Not to me."
 

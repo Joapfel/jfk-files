@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17886.png
-
-Convert to Markdown24
+24
 
 COMMUNICATIONS SECTION
 

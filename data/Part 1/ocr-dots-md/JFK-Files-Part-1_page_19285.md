@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19285.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><thead><tr><th>FORM NO.</th><td colspan="2">33-27</td><th>EDITIONS OF FORMS 33-17, 33-28, 34-A, 34-4A.</th><td>33-69</td></tr><tr><th>OCT 1951</th><td colspan="2">SUPERSEDES PB</td><td>-807 AND 37-40 NUMBER MAY NOT BE USED.<br/>GOVERNMENT PRINTING OFFICE: 1951 - 3700M</td><td></td></tr></thead></table>
 

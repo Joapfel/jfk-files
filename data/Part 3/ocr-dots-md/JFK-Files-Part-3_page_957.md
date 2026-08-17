@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_957.png
-
-Convert to MarkdownWhile our representatives abroad are still FBI employees, they are well aware that the American Ambassadors hold authority through various Presidential directives over the entire American presence in their respective countries of assignment and that all matters of interest must be coordinated with Ambassadors and their staffs. This includes political intelligence information acquired by Legal Attaches.
+While our representatives abroad are still FBI employees, they are well aware that the American Ambassadors hold authority through various Presidential directives over the entire American presence in their respective countries of assignment and that all matters of interest must be coordinated with Ambassadors and their staffs. This includes political intelligence information acquired by Legal Attaches.
 
 **Issue** - Is the FBI to continue using Legal Attaches to meet its responsibilities abroad?
 

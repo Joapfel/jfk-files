@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8093.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 ab A-51 contains DISPATCH KFGA-29884 dated 11 April 1968.
 

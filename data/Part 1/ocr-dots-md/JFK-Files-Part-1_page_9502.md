@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9502.png
-
-Convert to Markdown<table><tr><td>14-00000</td></tr></table>
+<table><tr><td>14-00000</td></tr></table>
 
 6 April 1950
 

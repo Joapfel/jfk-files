@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15035.png
-
-Convert to MarkdownMemo for the record AYROGUE
+Memo for the record AYROGUE
 
 27 Feb. '63
 

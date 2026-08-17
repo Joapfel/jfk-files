@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7391.png
-
-Convert to MarkdownPROBLEMS
+PROBLEMS
 
 A. **House Subcommittee on Intelligence and Military Application of Nuclear Energy**
 

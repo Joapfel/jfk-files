@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2199.png
-
-Convert to MarkdownSTANDARD FORM NO. 64
+STANDARD FORM NO. 64
 
 # Office Memum • UNITED STATES GOVERNMENT
 

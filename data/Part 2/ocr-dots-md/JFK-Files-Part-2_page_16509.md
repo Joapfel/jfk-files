@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16509.png
-
-Convert to Markdown# On Subjectivism
+# On Subjectivism
 
 Subjectivism exists to a serious degree among some Party members, causing great harm to the analysis of the political situation and the guidance of the work. The reason is that subjective analysis of a political situation and objective guidance of work inevitably result either in opportunism or in putschism. As for subjective criticism, loose and groundless tale or spiteful news, such practices inside the Party often breed unprinciples disputes and undermine the Party organization.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11621.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>☐ UNCLASSIFIED</td>
         <td>☑ CIA INTERNAL<br/>ONLY</td>

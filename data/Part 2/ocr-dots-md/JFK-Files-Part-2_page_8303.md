@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8303.png
-
-Convert to MarkdownJUNAL LENICK RUFT
+JUNAL LENICK RUFT
 
 RELAYED
 3200

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21384.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ABBREVIATIONS
 

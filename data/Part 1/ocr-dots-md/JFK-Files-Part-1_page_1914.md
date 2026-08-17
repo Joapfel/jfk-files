@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1914.png
-
-Convert to Markdown0-892 217
+0-892 217
 
 **GRAY, Sara Sioux (Barnes)**
 

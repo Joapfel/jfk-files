@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31052.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>CO: CHARLOTTE L. ZD.</td></tr><tr><td>LNT: WJ/J/MEXICO 538</td></tr><tr><td>BII: 2555</td></tr><tr><td>DATE: 31 OCTOBER 1960</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8608.png
-
-Convert to MarkdownSECRET
+SECRET
 
 US government that he might oust certain intelligence installations from his island. The CIA had a major interest in the matter, so it operated a Foreign Broadcast Information Service (FBIS) listening post there, and the Pentagon was also concerned about the possible loss of its large electronic surveillance facilities. The view in the intelligence community was that Makarios had to be mollified at practically all costs.
 

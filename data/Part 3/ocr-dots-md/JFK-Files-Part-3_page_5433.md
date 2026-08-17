@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5433.png
-
-Convert to Markdownconclusion. I can assure you absolutely that this is my policy, is the policy of the Bureau, and that we will pursue them as vigorously as we possibly can. There's nothing worse in my estimation than the betrayal of trust and that's what we have when one of your own people defects and gives sanctuary and assistance to the criminal world.
+conclusion. I can assure you absolutely that this is my policy, is the policy of the Bureau, and that we will pursue them as vigorously as we possibly can. There's nothing worse in my estimation than the betrayal of trust and that's what we have when one of your own people defects and gives sanctuary and assistance to the criminal world.
 
 **QUESTION:**
 

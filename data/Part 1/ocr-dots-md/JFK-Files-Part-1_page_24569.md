@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24569.png
-
-Convert to MarkdownCOUNTRY: PERU/USER
+COUNTRY: PERU/USER
 
 DOI: 12 MAY 1969
 

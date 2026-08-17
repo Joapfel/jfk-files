@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24756.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 his living quarters, he spent a great deal of time at the Soviet Embassy proper, going out frequently for his many meetings. He was popular among his wide contacts among newspapermen in Mexico and his most intimate press contact was Luis SUAREZ Lopez, a Spanish Communist journalist with the Marxist weekly magazine, Siempre. LEONOV saw SUAREZ very frequently on press placements and possibly other matters. SUAREZ has a long history of pro-Soviet activities, is a member of the Communist front International Organization of Journalists, and has traveled extensively in the Soviet bloc, Communist China, and Cuba.
 

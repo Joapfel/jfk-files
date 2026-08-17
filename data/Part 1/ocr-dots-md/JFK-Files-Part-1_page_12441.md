@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12441.png
-
-Convert to MarkdownEjemplo.- Aprovechamiento del Diamante Industrial.-
+Ejemplo.- Aprovechamiento del Diamante Industrial.-
 
 Instituto Vozolano de Investigaciones Cientificas.-
 

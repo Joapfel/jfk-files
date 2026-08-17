@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19621.png
-
-Convert to MarkdownSUMMARY OF AGENCY EMPLOYMENT
+SUMMARY OF AGENCY EMPLOYMENT
 
 NAME: James P. O'Connell
 ADDRESS: 1333 Elsinore Avenue, McLean, Virginia

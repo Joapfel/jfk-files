@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1336.png
-
-Convert to Markdownseverely damage the morale and motivation of anti-regime Cubans both inside and outside of Cuba, which will make it increasingly difficult for us to recruit agents, maintain agents already recruited, and continue or intensify our intelligence and other efforts against Cuba and the Castro-communist regime.
+severely damage the morale and motivation of anti-regime Cubans both inside and outside of Cuba, which will make it increasingly difficult for us to recruit agents, maintain agents already recruited, and continue or intensify our intelligence and other efforts against Cuba and the Castro-communist regime.
 
 F. Despite the above factors, Higher Authority probably will continue heavy pressure on the CIA for a maximum effort against Cuba and may even continue to contend that the ultimate objective is the overthrow of the Castro-communist regime. This is an unrealistic objective, however, except on a very long-term basis as the United States Government, we believe, will be unwilling in the immediate future to commit troops to support such an overthrow. The United States Government in its overt dealings with the Cuban exiles probably will not express the above factors to them in the context or with the bluntness stated here.
 

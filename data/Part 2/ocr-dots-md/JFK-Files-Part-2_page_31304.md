@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31304.png
-
-Convert to Markdown(NW 88326
+(NW 88326
 DocId:32277339 Page 4
 
 # PAYROLL AUTHORIZATION FORM

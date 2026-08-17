@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25720.png
-
-Convert to Markdown29 July 1963
+29 July 1963
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

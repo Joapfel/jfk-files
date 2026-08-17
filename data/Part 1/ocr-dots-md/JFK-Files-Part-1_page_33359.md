@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33359.png
-
-Convert to Markdown# Allendes missstag
+# Allendes missstag
 
 — Den sverkska debattaren är ensidig. Man har på ett lärande sätt dokumenterat juntans grupperna mot man drar ingen lårdom av utverkningen i Allendes Chile. Det är viktigt att kunna krävissa det som var fel i utverkningen, annars kan man inte lara sig nägotning.
 

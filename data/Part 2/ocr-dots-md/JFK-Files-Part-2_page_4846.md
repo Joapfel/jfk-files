@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4846.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and realize that certain things are not for discussion even at
 that level. I think a DCI has to glad-hand the people on the

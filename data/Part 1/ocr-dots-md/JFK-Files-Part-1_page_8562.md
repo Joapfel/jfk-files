@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8562.png
-
-Convert to Markdownthis fact and would appreciate whether it is contained in the files)
+this fact and would appreciate whether it is contained in the files)
 
 7. With regard to Victor I. RANCS P. (or A) there is little to be said which was not mentioned in the Attachment A 1. His calling card had the following phones printed: 46-77-13; 46-15-78 and on the back was written 32-09-95. I am not inclined to take at the face value LOG's statement that he knew nothing about RANCS, especially, in view of the fact that RANCS ought to be attending the IICRC for some time to be able to speak some Russian and pronounced well. L-1 is willing to make the translation RANCS wants if he finds no difficulty in handling the terminology.
 

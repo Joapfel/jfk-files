@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30577.png
-
-Convert to Markdown17 July 1947
+17 July 1947
 
 TO J Security Division
 

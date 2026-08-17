@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7965.png
-
-Convert to Markdown# DESCRIPTION
+# DESCRIPTION
 
 **Age:** 36, born July 20, 1931 (not supported by birth records)
 **Height:** 5'8" to 5'11"

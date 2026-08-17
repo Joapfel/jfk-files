@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27039.png
-
-Convert to MarkdownII. CIA PERSONNEL TO BE INTERVIEWED OR DEPOSED
+II. CIA PERSONNEL TO BE INTERVIEWED OR DEPOSED
 
 The following list indicates the CIA personnel the Committee has thus far decided to interview, or depose.* Where known, specific persons are identified. In all other cases, the position or program responsibility and pertinent years are provided so that CIA can identify the appropriate per- sons; if the person is no longer with the Agency, the Agency should pro- vide the last known addresses.
 

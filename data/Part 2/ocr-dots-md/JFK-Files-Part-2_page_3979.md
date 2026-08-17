@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3979.png
-
-Convert to MarkdownTELEGRAM
+TELEGRAM
 
 CONFIDENTIAL HCM231
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12108.png
-
-Convert to MarkdownEqbal Ahmad
+Eqbal Ahmad
 
 It is suggested that consideration be given to issuing instructions to the field to institute an intensive full field investigation of this subject particularly with respect to his national origin, travel and residences in foreign countries and involvement in foreign political activities.
 

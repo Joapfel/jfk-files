@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2901.png
-
-Convert to Markdown1 crime, investigations of conspiracies to commit crime rather than to leave this very difficult to define and control area of political ideas?
+1 crime, investigations of conspiracies to commit crime rather than to leave this very difficult to define and control area of political ideas?
 
 4 Mr. Kelley. I don't know whether I understand your last statement of involving the area of political ideas. I say that I feel that certainly we should be vested and should continue in the field of criminal investigations as an investigatory objective. These are conclusions, of course, which are based on statutes in the so-called security field, national or foreign.
 

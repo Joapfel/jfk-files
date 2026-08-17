@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28549.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">PAYROLL AUTHORIZATION FORM</td>

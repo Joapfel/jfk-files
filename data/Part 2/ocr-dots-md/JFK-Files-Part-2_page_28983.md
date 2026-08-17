@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28983.png
-
-Convert to MarkdownSchedule A&B—Itemized Deductions AND
+Schedule A&B—Itemized Deductions AND
 Dividend and Interest Income
 
 Department of the Treasury

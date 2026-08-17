@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13949.png
-
-Convert to MarkdownAssistant for National Security Affairs, the Director of Central Intelligence, and the Heads of the several intelligence agencies.
+Assistant for National Security Affairs, the Director of Central Intelligence, and the Heads of the several intelligence agencies.
 
 (7) Frequent meetings of the full Board.
 

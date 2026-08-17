@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29077.png
-
-Convert to MarkdownNarrative Comments (continued): (Charlotte Z. Bustos-Videla)
+Narrative Comments (continued): (Charlotte Z. Bustos-Videla)
 
 papers for the Branch because of her innate talents and established reliability. She never failed to impress her supervisor with her production, writing ability and energy. Her overall performance is clearly in excess of her grade level.
 

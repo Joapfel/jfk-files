@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32540.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # CIA Intelligence Annex
 

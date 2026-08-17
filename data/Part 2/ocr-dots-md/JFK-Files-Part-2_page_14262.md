@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14262.png
-
-Convert to MarkdownS 7055
+S 7055
 
 shall notify every member of the Committee
 of the time and place of the meeting and

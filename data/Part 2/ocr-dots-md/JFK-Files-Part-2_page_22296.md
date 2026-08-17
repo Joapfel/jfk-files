@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22296.png
-
 , presenting all
 22 of this evidence, frankly at the time not knowing if the King
 23 himself had a piece of the action --

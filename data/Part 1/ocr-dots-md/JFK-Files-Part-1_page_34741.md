@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34741.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM</td></tr><tr><td>TOTAL COPIES</td></tr></table>
+<table><tr><td>MESSAGE FORM</td></tr><tr><td>TOTAL COPIES</td></tr></table>
 
 <table><tr><td colspan="2">ORIG: N.GRATZ/yb<br/>UNITS: WH/COG<br/>DATE: 13 MARCH 1967</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>☐ INDEX ☐ DESTROY ☐ RETURN TO:</td></tr><tr><td>BY: 28 PEE. ●</td><td>☑ NO INDEX ☐ FILE IN C FOR DCS</td></tr><tr><td>CONFIDENTIAL</td><td>☑ RID COPY</td></tr></table>
 

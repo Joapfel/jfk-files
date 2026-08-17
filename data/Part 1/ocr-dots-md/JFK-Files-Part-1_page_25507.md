@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25507.png
-
-Convert to MarkdownJ.J. Barry
+J.J. Barry
 C.AH-1 FI/CI
 3107/1973
 13 Jul 73

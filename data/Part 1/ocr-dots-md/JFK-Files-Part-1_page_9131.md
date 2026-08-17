@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9131.png
-
-Convert to MarkdownThe Poetics Group - I think guess that Barbara offers my views for Bob. On one particular evening when I took the Bungenis to dinner at one of your restaurants, we
+The Poetics Group - I think guess that Barbara offers my views for Bob. On one particular evening when I took the Bungenis to dinner at one of your restaurants, we
 
 I went into a restaurant with my wife. Pollope Huamte (he's one of the brothers who own Huamte y Cie.), one of Spain's largest con- sumption companies and a client of Bob's), and both the fiestas pushed over Barbara and begot her to drop by for a Sunday brunch since Bob would be out of town on business.
 

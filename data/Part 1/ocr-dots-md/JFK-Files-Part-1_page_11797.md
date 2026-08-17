@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11797.png
-
-Convert to MarkdownSantiago
+Santiago
 
 March 3, 1945
 

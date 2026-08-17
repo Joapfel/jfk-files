@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5821.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. Mrs. CUESTA told the FBI in 1969 that she arrived in the U.S. 9 June 1963 at Miami, Florida.
 

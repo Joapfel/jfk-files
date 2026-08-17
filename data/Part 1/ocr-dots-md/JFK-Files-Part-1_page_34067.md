@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34067.png
-
-Convert to MarkdownCUBAN TRADING
+CUBAN TRADING
 
 Economic Research Bu.
 Unidad Revolutionaria,

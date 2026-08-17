@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16661.png
-
-Convert to Markdown## To It Ordained by the City Council of the City of Chicago:
+## To It Ordained by the City Council of the City of Chicago:
 
 SECTION 1. The Municipal Code of the City of Chicago is amended by adding Chapter 11.2 as follows:
 

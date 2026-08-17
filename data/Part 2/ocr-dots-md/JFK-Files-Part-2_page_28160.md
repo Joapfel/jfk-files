@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28160.png
-
-Convert to Markdown<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Sidney Jonathan Cole Blackmer</td><td>November 2, 1976</td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>243-74-5787</td><td><input type="checkbox" checked disabled/> Appointment</td></tr><tr><th>Employing Office or Committee</th><td><input type="checkbox" disabled/> Salary Adjustment</td></tr><tr><td>Select Committee on Assassinations</td><td><input type="checkbox" disabled/> Termination (At close of business on effective date)</td></tr></tbody></table>
+<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Sidney Jonathan Cole Blackmer</td><td>November 2, 1976</td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>243-74-5787</td><td><input type="checkbox" checked disabled/> Appointment</td></tr><tr><th>Employing Office or Committee</th><td><input type="checkbox" disabled/> Salary Adjustment</td></tr><tr><td>Select Committee on Assassinations</td><td><input type="checkbox" disabled/> Termination (At close of business on effective date)</td></tr></tbody></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

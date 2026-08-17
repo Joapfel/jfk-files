@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23898.png
-
-Convert to Markdown(under the name of Peter Fryer, published 1962. I can't remember the title. She speaks Portuguese. May be- apparently is connected with the
+(under the name of Peter Fryer, published 1962. I can't remember the title. She speaks Portuguese. May be- apparently is connected with the
 
 Troskyist group.))
 

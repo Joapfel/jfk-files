@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8571.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 gardless of who they may be, to have anything to do with Mexican oil industry.
 

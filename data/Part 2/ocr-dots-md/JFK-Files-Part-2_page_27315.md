@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27315.png
-
-Convert to MarkdownA - Ltr from Knoche to Roethe - 23 Apr 75 SECRET
+A - Ltr from Knoche to Roethe - 23 Apr 75 SECRET
 
 B - Memo for Knoche from Inspector General - 22 Apr '75 SECRET
 

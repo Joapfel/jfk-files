@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16416.png
-
-Convert to MarkdownEverything reactionary
+Everything reactionary
 is the same; if you don't
 hit it, it won't fall. This
 is also like sweeping the

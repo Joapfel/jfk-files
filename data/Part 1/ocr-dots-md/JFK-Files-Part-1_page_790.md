@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_790.png
-
-Convert to Markdown14-00090
+14-00090
 
 On 14 May 63, I met LITANIL-9 at visual
 suspicious point and we drove to outlying area to hold meeting.

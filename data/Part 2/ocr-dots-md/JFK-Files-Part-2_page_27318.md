@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27318.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 a. Memo for Dir. of Security - 1 Apr 71 SECRET
 

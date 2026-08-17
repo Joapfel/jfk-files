@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6374.png
-
-Convert to MarkdownInternal Revenue Service
+Internal Revenue Service
 Washington, DC 20530
 
 Date: JUL 2 1968 In reply refer to:

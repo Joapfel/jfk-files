@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33878.png
-
-Convert to Markdown# Provisions of Proposed Agreement between NFF and CDA
+# Provisions of Proposed Agreement between NFF and CDA
 
 It is proposed that an agreement which will include the following be entered into by NFF and CDA.
 

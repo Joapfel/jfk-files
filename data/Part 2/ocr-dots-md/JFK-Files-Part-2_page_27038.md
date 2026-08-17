@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27038.png
-
-Convert to Markdown10. All correspondence, memoranda or other documents prepared within or received by CIA in connection with the 1965 order of President Johnson barring wiretapping and electronic eavesdropping by federal personnel.
+10. All correspondence, memoranda or other documents prepared within or received by CIA in connection with the 1965 order of President Johnson barring wiretapping and electronic eavesdropping by federal personnel.
 
 11. Appointment calendars of Richard Helms and Robert Cushman
    1969-1973.

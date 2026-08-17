@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25286.png
-
-Convert to Markdown# How U.S. Made Unholy Alliance With the Mafia
+# How U.S. Made Unholy Alliance With the Mafia
 
 By PAUL MESKIL
 *Fourth of a series*

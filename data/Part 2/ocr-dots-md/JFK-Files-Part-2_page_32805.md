@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32805.png
-
-Convert to Markdown# REPORT CONCERNING POSSIBLE RETALIATORY ACTIONS BY THE CASTRO GOVERNMENT
+# REPORT CONCERNING POSSIBLE RETALIATORY ACTIONS BY THE CASTRO GOVERNMENT
 
 1. The numbering of the subparagraphs below corresponds to the numbering of those actions for which specific or related military contingency plans exist. A brief summary of the action contemplated by those plans is also provided.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2958.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5 December 1963 President Johnson holds first NSC meeting; McCone presents intelligence briefing.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24162.png
-
-Convert to MarkdownHOLY SITUATION
+HOLY SITUATION
 
 My wife was rather hostile to my news about my contacts with the Chinese comrades. She said she was sorry I couldn't work something out with Metropolitan Features. I hadn't done enough work for them because I was lazy, she said. She said if I weren't careful I'd be treated by the Chinese just like? What future was there in that? She asked. Anyway, she added, I ain't really give a dam about the Chinese.
 

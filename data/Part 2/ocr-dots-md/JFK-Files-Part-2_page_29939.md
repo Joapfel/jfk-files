@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29939.png
-
-Convert to Markdown2/24/78
+2/24/78
 Page Two
 
 2. Since Leber was transferred to Hqs. TAC at Langley AFB in 1970, he only knew STANLEY for approximately 2-3 months (exact time unknown). However, during this period of time, LEBER does not recall any conversation with STANLEY relative to the JFK assassination, Russia, Cuba and/or Mexico.

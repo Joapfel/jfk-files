@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27170.png
-
-Convert to Markdown**Agency Information**
+**Agency Information**
 
 AGENCY : ROCKCOM
 RECORD NUMBER : 178-10004-10420

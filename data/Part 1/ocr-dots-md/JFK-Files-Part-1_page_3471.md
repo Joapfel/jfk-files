@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3471.png
-
-Convert to MarkdownAMWORLD Meeting in San Juan, P. R., 2-3 May 1964
+AMWORLD Meeting in San Juan, P. R., 2-3 May 1964
 
 SUBJECT: Reality of Autonomy
 

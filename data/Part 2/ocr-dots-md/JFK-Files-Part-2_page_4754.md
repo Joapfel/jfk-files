@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4754.png
-
-Convert to MarkdownSECRET
+SECRET
 
 long after, without even being able to do my own paperwork, because my door
 was always open, everybody knew it. And people would come in at all hours,

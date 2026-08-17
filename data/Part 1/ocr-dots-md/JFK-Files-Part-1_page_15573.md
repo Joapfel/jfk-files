@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15573.png
-
-Convert to MarkdownRYBAT
+RYBAT
 
 14-00000
 

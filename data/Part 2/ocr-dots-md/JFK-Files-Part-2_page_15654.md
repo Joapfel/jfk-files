@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15654.png
-
-Convert to Markdown# I'VE MOLLYON THE MURDER OF FRED HAMPTON.
+# I'VE MOLLYON THE MURDER OF FRED HAMPTON.
 
 MURDER. Isn't that what you have to call it when a man is gunned down in bed?
 

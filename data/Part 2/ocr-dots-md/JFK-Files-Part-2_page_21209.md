@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21209.png
-
-Convert to Markdown(It is noted that [SHAMROCK] described SHAKHOV as an agent rather than an officer of KGB.)
+(It is noted that [SHAMROCK] described SHAKHOV as an agent rather than an officer of KGB.)
 
 TOP SECRET
 

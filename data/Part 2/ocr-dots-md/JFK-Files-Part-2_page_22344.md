@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22344.png
-
-Convert to MarkdownMr. Debelius stated that he had carefully reviewed his own situation as a former employee of the Office of Security within the CIA and that he had concluded that there was no prospect that he would be called as a witness either by the Commission or by any Congressional or other committee. Hence, he did not feel that there would be any conflict in his representation of Mr. Osborn under the canons of ethics applicable to the legal profession.
+Mr. Debelius stated that he had carefully reviewed his own situation as a former employee of the Office of Security within the CIA and that he had concluded that there was no prospect that he would be called as a witness either by the Commission or by any Congressional or other committee. Hence, he did not feel that there would be any conflict in his representation of Mr. Osborn under the canons of ethics applicable to the legal profession.
 
 ## Background of Mr. Osborn
 

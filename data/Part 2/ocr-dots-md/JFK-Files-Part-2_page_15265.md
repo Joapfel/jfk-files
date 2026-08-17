@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15265.png
-
-Convert to Markdown1 - Wannall
+1 - Wannall
 1 - Ruehl
 
 3-26-64

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19366.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">DECODED COPY</td>
    </tr>

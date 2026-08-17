@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27921.png
-
-Convert to Markdown## SEC. IV. AREA KNOWLEDGE
+## SEC. IV. AREA KNOWLEDGE
 
 1. List below any foreign countries or regions of which you have knowledge gained as a result of residence, travel or study. Study can mean either academic study, or study of a foreign country resulting from an intelligence, military, commercial or professional work assignment.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23814.png
-
-Convert to Markdownundue influence on those people.
+undue influence on those people.
 
 Senator Huddleston. Joe, is it accurate to say that
 pressures were often brought to bear?

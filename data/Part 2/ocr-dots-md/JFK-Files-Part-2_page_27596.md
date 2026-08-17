@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27596.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 1: General Information -->
         <tr>

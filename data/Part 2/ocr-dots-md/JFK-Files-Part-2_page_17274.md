@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17274.png
-
-Convert to MarkdownChicago, Illinois
+Chicago, Illinois
 
 July 16, 1969
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10803.png
-
-Convert to MarkdownDCID's 4/2 and 4/3 relate to the Defector Program abroad and domestically, respectively. The latter one dwells on division of responsibilities between FBI and CIA in the handling of defectors within the continental limits of the United States. It provides that exploitation of such defectors shall be conducted:
+DCID's 4/2 and 4/3 relate to the Defector Program abroad and domestically, respectively. The latter one dwells on division of responsibilities between FBI and CIA in the handling of defectors within the continental limits of the United States. It provides that exploitation of such defectors shall be conducted:
 
 1. To obtain internal security information or other data required by FBI in view of its statutory responsibilities in the internal security field.
 

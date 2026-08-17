@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24598.png
-
-Convert to MarkdownSorensen, who participated in these meetings, testified that the "widest possible range of alternatives" were discussed, but that "assassination was not even on the list". (Sorensen, 7/21/75, p. 4.) He said that consideration of possible options such as forcing "a non-Communist solution in Cuba by all necessary means" did not encompass assassination:
+Sorensen, who participated in these meetings, testified that the "widest possible range of alternatives" were discussed, but that "assassination was not even on the list". (Sorensen, 7/21/75, p. 4.) He said that consideration of possible options such as forcing "a non-Communist solution in Cuba by all necessary means" did not encompass assassination:
 
 "[this] could not have included or implied assassination. Instead, it expressly referred to 'the development of pressures' and 'gradual escalation of the confrontation in Cuba' to produce an overthrow of the regime, including 'a willingness to use military force to invade Cuba'. Such a course was obviously not adopted by the President, and in any event expressed an approach far different from assassination". (Sorensen affidavit, 7/25/75, p. 4).*
 

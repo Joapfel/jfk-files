@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25676.png
-
-Convert to Markdown### Questions to be answered from reading 1967 to report -
+### Questions to be answered from reading 1967 to report -
 - who is GTWN? what are his name & other principal agents and their sub-agents - required for 2 Rifle activities?
 - Dr. Edward "Manny Gunn" involved in Operational Planning, asked to treat cigars w/ Ethanol material)
 - Jake Eslin's was head of Cuba task force pre Bayard Pigs days.

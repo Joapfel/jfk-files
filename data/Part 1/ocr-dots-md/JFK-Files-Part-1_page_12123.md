@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12123.png
-
-Convert to Markdown15. (cont'd)
+15. (cont'd)
 
 RADVANSKAYA took over the camp after Subject's wife left Mexico. RADVANSKAYA asked Subject's wife to tell her (RADVANSKAYA's) daughter to enter the institute when she saw her in Moscow.
 

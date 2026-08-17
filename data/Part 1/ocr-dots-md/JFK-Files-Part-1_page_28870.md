@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28870.png
-
-Convert to Markdown28 September 1973
+28 September 1973
 
 Ben -
 

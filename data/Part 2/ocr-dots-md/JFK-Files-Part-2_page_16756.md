@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16756.png
-
-Convert to MarkdownDate 2/25/70
+Date 2/25/70
 
 Z.
 

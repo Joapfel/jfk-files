@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14075.png
-
-Convert to Markdown# Agenda For August 7: (Continued)
+# Agenda For August 7: (Continued)
 
 | Item | Time | Subject |
 | :--- | :--- | :--- |

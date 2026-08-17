@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27782.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">SECTION D</td></tr><tr><td>NARRATIVE COMMENTS</td><td>Must note significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance State suggestions made for improvement of work-performance. Of a compensatory nature only. Indicate if the change is due to performance, if required, to current position. Amplify or explain ratings given in Section C to provide best basis for determining future personnel action. Manner of performance of management or supervisory duties and cost contribution in the use of personnel, space, equipment and funds, must be commented on, if applicable. If extra space is needed to complete Section D, attach a separate sheet of paper.</td></tr><tr><td colspan="2">SEE ATTACHED MEMORANDUM IN LIEU OF FITNESS REPORT</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20928.png
-
-Convert to MarkdownFURIES
+FURIES
 
 10/15/25 DSC
 

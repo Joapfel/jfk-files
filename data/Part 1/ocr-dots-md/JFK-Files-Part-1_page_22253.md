@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22253.png
-
-Convert to Markdown660.
+660.
 
 5. The BELITSKIY Case
 

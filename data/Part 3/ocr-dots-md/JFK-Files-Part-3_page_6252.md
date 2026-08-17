@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6252.png
-
-Convert to MarkdownBENJAMIN J. DAVIS
+BENJAMIN J. DAVIS
 
 A confidential source advised on January 21, 1964, that as of that date, BENJAMIN J. DAVIS was National Secretary of the CP, USA.
 

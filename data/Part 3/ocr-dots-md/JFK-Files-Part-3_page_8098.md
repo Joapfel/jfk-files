@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8098.png
-
-Convert to Markdown20. A list of any COINTELPRO type activities that the prepared statement of Attorney General Saxbeek, the House Judiciary Committee on November 26, 1975, and were engaged in by the FBI subsequent to April 20, 1976.
+20. A list of any COINTELPRO type activities that the prepared statement of Attorney General Saxbeek, the House Judiciary Committee on November 26, 1975, and were engaged in by the FBI subsequent to April 20, 1976.
 
 III. Other Specific FBI Practices and Programs
 

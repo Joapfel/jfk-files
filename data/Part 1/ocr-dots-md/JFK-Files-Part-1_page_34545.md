@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34545.png
-
-Convert to Markdown12. You stated that no KGB officer was ever in contact with Oswald. How could you make such a statement if you did not read the file? You were not responsible for it, and, according to your information, you did not visit Minsk to study the Oswald case.
+12. You stated that no KGB officer was ever in contact with Oswald. How could you make such a statement if you did not read the file? You were not responsible for it, and, according to your information, you did not visit Minsk to study the Oswald case.
 
 Note: Oswald's diary clearly shows that most of the students he met were most likely not students at all. They were more likely KGB officers under cover as students.
 

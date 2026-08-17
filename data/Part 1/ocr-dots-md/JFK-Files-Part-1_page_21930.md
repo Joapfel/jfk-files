@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21930.png
-
-Convert to Markdown# NOSENKO'S KGB CAREER
+# NOSENKO'S KGB CAREER
 
 ## A. Introduction
 

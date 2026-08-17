@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23908.png
-
-Convert to Markdownappearances, was that there was no White House urging for the creation of the executive action project, although tacit approval for the "research" project was probably given by Bundy after it was established.
+appearances, was that there was no White House urging for the creation of the executive action project, although tacit approval for the "research" project was probably given by Bundy after it was established.
 
 First, he was shown the Harvey notes which had been preserved and which, without any mention of the White House, indicated Harvey had received his assignment prior to January 25/26, 1961. Those dates -- just 5 days after the change of administration -- made Bissell conclude that it was "very unlikely that that assignment to [Harvey] was taken as a result of White House urging or consultation" (Bissell, 7/17/75, p. 10). Bissell said that Bundy did not have any influence on the performance of his Agency duties before the Presidential inauguration (Bissell, 7/22/75, p. 23). Bissell added that he did not remember meeting with anyone in the new administration on matters prior to the inauguration (Bissell, 7/22/75, p. 23).
 

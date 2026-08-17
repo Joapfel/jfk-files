@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4010.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 December 14, 1959
 

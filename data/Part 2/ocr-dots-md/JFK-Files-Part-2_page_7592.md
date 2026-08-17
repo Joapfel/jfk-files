@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_7592.png
-
 to Timofeyev, Head of Biological Dept, Sungul Institute. Moskalev, a nerve physiologist and party man, worked with Catsch (and subsequently succeeded him) on research on curing or preventing radiation damage. (Source is Dr Wilhelm Henke (STIB), a returned German scientist who gave information on Soviet personalities at the Nuclear Research Institutes at Sukhumi, between 1945 and 1955.) SOURCE: CIA, CS-G-82811, 1 Mar 56, SECRET/NOFORN RELEASABLE TO U.K./CONTINUED CONTROL</td>
     <td></td>
    </tr>

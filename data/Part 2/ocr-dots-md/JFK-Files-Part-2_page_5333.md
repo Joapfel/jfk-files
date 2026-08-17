@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5333.png
-
-Convert to Markdowna. First, note again that the three elements are joined by an "AND" meaning all elements must be met to satisfy a postponement.
+a. First, note again that the three elements are joined by an "AND" meaning all elements must be met to satisfy a postponement.
 
 b. Second, the first requirement of living or traveling outside of the U.S. is not tied to "cover." Many officers who do not work under cover all of the time are, in fact, provided cover for overseas TDY's. Thus, <u>any</u> officer who might "reasonably" be expected to travel outside of the U.S. would warrant postponement of his/her true name. This would seem to include every CIA employee, contract employee and independent contractor, past and present.
 

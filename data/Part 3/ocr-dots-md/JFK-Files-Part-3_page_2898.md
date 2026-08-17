@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2898.png
-
-Convert to Markdown1 staff, to your knowledge?
+1 staff, to your knowledge?
 
 2 Mr. Kelley. Senator, I think that they have been reviewed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3703.png
-
-Convert to MarkdownTOP SECRET DINAR
+TOP SECRET DINAR
 
 The Communist World
 

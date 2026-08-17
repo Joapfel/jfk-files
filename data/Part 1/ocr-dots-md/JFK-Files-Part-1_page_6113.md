@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6113.png
-
-Convert to MarkdownAdministrative - Internal Use Only
+Administrative - Internal Use Only
 
 4 November 1975
 

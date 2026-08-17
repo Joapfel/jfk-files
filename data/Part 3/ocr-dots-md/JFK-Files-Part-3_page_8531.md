@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8531.png
-
-Convert to MarkdownSECRET
+SECRET
 CONFIDENTIAL
 
 RE: INTERVIEW OF RETIRED FBI SA BY ESC - 

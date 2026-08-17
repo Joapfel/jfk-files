@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9213.png
-
-Convert to MarkdownThe BPP office and headquarters are located
+The BPP office and headquarters are located
 at 2228 Bewick.
 
 DE T-5

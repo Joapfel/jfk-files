@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14162.png
-
-Convert to Markdown(71. 8/30/62 Continued)
+(71. 8/30/62 Continued)
 
 (c) other actions (such as covert measures to eliminate Cuban nuclear launch installations) would be less effective than full scale military intervention and would produce only partial or temporary results.
 

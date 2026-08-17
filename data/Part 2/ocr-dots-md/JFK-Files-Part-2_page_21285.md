@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21285.png
-
-Convert to Markdown# FEDERAL BUREAU
+# FEDERAL BUREAU
 ## JOHN W. LAUDUIN
 
 Title of case

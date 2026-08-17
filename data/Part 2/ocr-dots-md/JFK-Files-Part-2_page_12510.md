@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12510.png
-
-Convert to MarkdownA. GENERAL GUIDELINES
+A. GENERAL GUIDELINES
 
 1. Investigative jurisdiction
 FBI investigations under this section are based on specific statutory jurisdiction and Departmental instructions.

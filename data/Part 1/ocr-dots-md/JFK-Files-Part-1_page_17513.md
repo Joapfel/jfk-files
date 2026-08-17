@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17513.png
-
-Convert to Markdownb. Selected Satellite officials office and home phones.
+b. Selected Satellite officials office and home phones.
 
 c. Selected private phones being used by known and suspected Satellite intelligence personnel,
 

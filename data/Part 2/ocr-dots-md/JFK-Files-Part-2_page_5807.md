@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5807.png
-
-Convert to Markdownassassination-related records in its possession, in order to
+assassination-related records in its possession, in order to
 make such records available to the public.
 
 5. There are six attachments to this declaration,

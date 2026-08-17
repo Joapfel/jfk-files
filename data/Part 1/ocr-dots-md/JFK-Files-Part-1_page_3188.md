@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3188.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATE</td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPY</td></tr><tr><td colspan="2">PERSON/UNIT NOT FLD</td><td colspan="2"></td></tr><tr><td colspan="4"><input type="checkbox" checked disabled/> SECRET (When Filled In) GROUP 1</td></tr><tr><td colspan="4"><input type="checkbox" checked disabled/> REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td colspan="4"><input type="checkbox" disabled/> INDEX: YES <input type="checkbox" disabled/> NO</td></tr><tr><td colspan="3">CLASSIFIED TO CS FILE NO. <input type="text" disabled/> Oct 2 7 15 PM '69</td><td>A-REF TO CS FILE NO. <input type="text" disabled/> ACTION COPY</td></tr><tr><td>DATED BY <input type="text" disabled/> PER <input type="text" disabled/></td><td colspan="2"><input type="checkbox" disabled/> FILE RD <input type="checkbox" disabled/> RETURN TO <input type="text" disabled/></td><td>BRANCH <input type="text" disabled/></td></tr><tr><td>ACTION UNIT <input type="text" disabled/> C/S86</td><td colspan="3">FILE, VR <input type="text" disabled/> WHB, cRILSD, DDP, A&P, scuel62</td></tr><tr><td>ACTION NO.<br/>278</td><td colspan="3"></td></tr></table>
 

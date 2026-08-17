@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29001.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="2">SCHEDULE<br>D<br>FORM 540</td>
     <td>CALIFORNIA</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27292.png
-
-Convert to MarkdownLtr from Olsen to Knoche - 30 Apr 75
+Ltr from Olsen to Knoche - 30 Apr 75
 
 Highlights of Civil Disturbances and Other Disorders in U.S.
 (1967-1972)

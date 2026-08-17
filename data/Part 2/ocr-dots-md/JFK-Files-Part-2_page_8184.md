@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8184.png
-
-Convert to MarkdownJaime Carrero
+Jaime Carrero
 Departamento de Arte
 Universidad Interamericana
 San German, Puerto Rico 00753

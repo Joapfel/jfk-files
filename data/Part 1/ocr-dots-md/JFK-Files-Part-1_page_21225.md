@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21225.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><thead><tr><td colspan="2">1. EMP. SERIAL NO.</td><td>2</td><td>NAME</td><td>3</td><td>ASSIGNED ORGAN.</td><td>4</td><td>FUNDS</td></tr></thead><tbody><tr><td colspan="2">525798</td><td colspan="2">WILCOTT JAMES B JR</td><td colspan="2">DDP/FE 14</td><td colspan="2">UV</td></tr></tbody></table>

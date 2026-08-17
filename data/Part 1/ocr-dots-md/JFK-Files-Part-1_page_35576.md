@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35576.png
-
-Convert to Markdown17 December
+17 December
 
 64
 

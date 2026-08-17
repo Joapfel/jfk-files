@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33794.png
-
-Convert to Markdownsuggest, have your full approval, and that consequently you will
+suggest, have your full approval, and that consequently you will
 will to make some statement at an early staff meeting indicating
 your satisfaction with these plans. Otherwise, I very much fear
 that the prevalent attitude within OPC which is one of general

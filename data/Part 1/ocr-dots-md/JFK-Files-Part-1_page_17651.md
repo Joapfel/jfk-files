@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17651.png
-
-Convert to MarkdownDESENSITIZED
+DESENSITIZED
 OFFICIAL DISPATCH
 
 per CSR 43-43

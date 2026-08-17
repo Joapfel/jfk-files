@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16299.png
-
-Convert to Markdown## 11. REVOLUTIONARY SOLIDARITY
+## 11. REVOLUTIONARY SOLIDARITY
 
 Revolutionary solidarity with all oppressed peoples of all countries and races defeats the divisions created by the narrow interests of cultural nationalism.
 

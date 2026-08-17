@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15640.png
-
-Convert to MarkdownFrank Rappaport, white male, age 36, who was killed by a shotgun blast in the face.
+Frank Rappaport, white male, age 36, who was killed by a shotgun blast in the face.
 
 Donald Miley, white male, age unavailable, shot in face and arm by a shotgun blast and lost his right eye; is hospitalized and his condition is serious;
 

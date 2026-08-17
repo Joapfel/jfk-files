@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22725.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 level -- that the defector in question was probably a provocation, and the Bureau ceased contact with that individual, and I would say they have not had any contact with him since 1965.
 

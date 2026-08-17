@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18353.png
-
-Convert to MarkdownMr. W. F. Wannall
+Mr. W. F. Wannall
 
 F. J. Cassidy
 

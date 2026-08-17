@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_934.png
-
-Convert to Markdown# FILES AND THEIR DISCLOSURE
+# FILES AND THEIR DISCLOSURE
 
 ## I. Problem:
 

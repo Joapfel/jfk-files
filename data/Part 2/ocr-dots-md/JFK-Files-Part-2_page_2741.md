@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2741.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>OFFICE OF PERSONNEL</caption>

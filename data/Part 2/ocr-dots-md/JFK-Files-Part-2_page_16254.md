@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16254.png
-
-Convert to MarkdownROBERT BRUCE, Captain Chairman, West
+ROBERT BRUCE, Captain Chairman, West
 Suburban Branch, Illinois BPP
 
 MERRILL HARVEY, Captain Defense, West

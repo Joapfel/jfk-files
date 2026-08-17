@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32568.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 h. The one-sided contest is even more marked in a comparison of the broadcast output of the USSR alone, without the satellites, against Europe. It subjects Spain, Greece and Italy together, for instance, to 140 hours of broadcasts per week. The combined broadcasts of these three countries to the USSR, however, number only 19 hours per week. France and Turkey who, together, receive 64 hours per week from the USSR, make no broadcasts at all to the USSR.

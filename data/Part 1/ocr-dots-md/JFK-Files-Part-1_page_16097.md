@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16097.png
-
-Convert to Markdown# TIME AND COST ESTIMATE
+# TIME AND COST ESTIMATE
 
 TIME PERIOD COVERED: ____ months
 

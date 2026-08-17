@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2422.png
-
-Convert to MarkdownSECRET
+SECRET
 
 COUNTRY: Panama/El Salvador/Chile
 

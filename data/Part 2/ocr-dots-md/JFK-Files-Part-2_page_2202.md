@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2202.png
-
-Convert to Markdown1 October 1968
+1 October 1968
 
 Mr. C F. Loche
 Director

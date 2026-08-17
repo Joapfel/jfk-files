@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13726.png
-
-Convert to Markdown**Congress of the United States**
+**Congress of the United States**
 
 House of Representatives
 Washington, D.C. 20515

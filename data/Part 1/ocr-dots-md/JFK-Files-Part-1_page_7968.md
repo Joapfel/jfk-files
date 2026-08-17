@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7968.png
-
-Convert to Markdown104-10173-10170
+104-10173-10170
 
 SECRET
 DAILY RTO

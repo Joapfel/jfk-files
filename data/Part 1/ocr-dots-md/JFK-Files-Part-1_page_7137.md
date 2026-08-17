@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7137.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Mr. Boonstra
 Minister-Counselor

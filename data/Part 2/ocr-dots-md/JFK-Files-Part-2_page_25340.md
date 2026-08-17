@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25340.png
-
-Convert to MarkdownLIEBENGOOD ROUTH NOTES FROM U. S. V. VECIANA, ET AL
+LIEBENGOOD ROUTH NOTES FROM U. S. V. VECIANA, ET AL
 
 DATE: December 1, 1976
 

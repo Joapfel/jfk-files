@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_781.png
-
-Convert to MarkdownOn the night of 10 May 63, I met LITAMIL-9 at a usualwendous point and we drove to outlying district of city where debriefing took place. NO SECURITY PROBLEMS NOTED.
+On the night of 10 May 63, I met LITAMIL-9 at a usualwendous point and we drove to outlying district of city where debriefing took place. NO SECURITY PROBLEMS NOTED.
 
 The usual end of a debriefing is:
 

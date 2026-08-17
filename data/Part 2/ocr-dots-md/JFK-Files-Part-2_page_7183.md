@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7183.png
-
-Convert to Markdown13-00000
+13-00000
 
 CABLE SEC DIGESM BY ________ PER ________
 TOTAL COPIES ________ RUN BY ________

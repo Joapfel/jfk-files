@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22374.png
-
-Convert to Markdown# 2. NOSENKO's Background and Career
+# 2. NOSENKO's Background and Career
 
 ## Date of Information
 Source

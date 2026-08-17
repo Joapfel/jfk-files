@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27189.png
-
-Convert to MarkdownG.R.H
+G.R.H
 
 This Notice, Ex试traed 1 July 1956
 

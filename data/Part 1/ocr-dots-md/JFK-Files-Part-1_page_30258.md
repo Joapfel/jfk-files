@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30258.png
-
-Convert to MarkdownSTANDARD FORM 50
+STANDARD FORM 50
 REV. APR. 1971
 PROPRIETARY
 

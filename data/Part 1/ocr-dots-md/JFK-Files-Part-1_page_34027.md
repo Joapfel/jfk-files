@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34027.png
-
-Convert to MarkdownECONOMIC RELATIONS BETWEEN
+ECONOMIC RELATIONS BETWEEN
 CUBA AND THE SOVIET UNION: HOW MUCH DEPENDENCY?
 
 Cuba's dependency on the Soviet Union is known. The question is: how much de-

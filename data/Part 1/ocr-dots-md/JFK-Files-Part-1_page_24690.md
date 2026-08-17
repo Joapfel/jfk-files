@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24690.png
-
-Convert to Markdown# Rubén Figueroa Come
+# Rubén Figueroa Come
 ## Ave De Las Tempestad
 
 Al margen de la polémica, que siguió mantenida en esta parte del informe -o quizás como consecuencia de ello- Rubén Figueroa, hizo una proposición que constituye novedad en la materia; advirtiendo que no se vaya a interpretar mal su opinión y se piense que él sè propone proscribir la enseñanza superior en Guerrero. Lo que desea es -aclaró- contribuir a la búsqueda de una solución pronta, eficaz y realista a este problema. Su gobierno está en posibilidad de aplicar una parte equitativa de su gasto educativo en becas otorgadas a alumnos de escasos recursos que deberían asistir a lo que llamó la Universidad compartida y solidaria. En el ambiente quedó una interrogante que demandaba una explicación de este concepto sorpresivamente nuevo. No flotó por mucho tiempo, pues acto seguido el gobernador contestó así: "Entiendo por Universidad compartida y solidaria un sistema nacional de enseñanza superior que, independientemente del que existe en el Valle de México, pueda instituir en cada entidad federativa una o varias escuelas, institutos o facultades que adopten aquellas especialidades que reclamen las características y las más ingentes necesidades de cada estado, a fin de que no se despilfarren recursos ni se malogren esfuerzos en la repetición de las mismas especialidades o profesiones, lo que redunda en la formación de profesionales frustrados, que no tienen ocupación".

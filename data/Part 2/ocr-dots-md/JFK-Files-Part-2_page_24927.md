@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24927.png
-
-Convert to Markdown(4) The theory that authority granted, or assumed to be granted, by one director or one administration could be presumed to continue without the necessity for reaffirming the authority with successor officials.
+(4) The theory that authority granted, or assumed to be granted, by one director or one administration could be presumed to continue without the necessity for reaffirming the authority with successor officials.
 
 (5) The creation of capabilities without careful review and authorization by policymakers, and the risk that such capabilities might be used without further authorization.
 

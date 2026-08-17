@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3065.png
-
-Convert to Markdown8 de enero de 1969
+8 de enero de 1969
 
 CARRETE CR 026
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12037.png
-
-Convert to MarkdownRACIAL INFORMANTS
+RACIAL INFORMANTS
 
 4-H
 

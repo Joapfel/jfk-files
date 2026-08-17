@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31363.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>TITLE</td>
         <td colspan="3">PAUL ARNOLD MARRIOTT<br/>Male Born: 5 Jun 15, OK<br/>Lt Col. 513 10 4326FR<br/>Eglin AFB, FL</td>

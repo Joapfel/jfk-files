@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8838.png
-
-Convert to MarkdownCaja de Tratados Paraguayos, Sociedad Extranjera.
+Caja de Tratados Paraguayos, Sociedad Extranjera.
 
 Havana MUS.0703.2174-2 C509 75,000 Dólares. C. OJ
 

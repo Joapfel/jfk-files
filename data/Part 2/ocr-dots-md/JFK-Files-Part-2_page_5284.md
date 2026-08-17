@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5284.png
-
-Convert to Markdown104-10331-10132
+104-10331-10132
 
 SECRET - Working Paper
 

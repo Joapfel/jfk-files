@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29653.png
-
-Convert to MarkdownDLS: 3 JULY 64
+DLS: 3 JULY 64
 
 SECRET
 (When Piled On)

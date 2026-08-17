@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12344.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET (When Filled In)</td></tr><tr><td>REPRODUCTION OF THIS COPY PROVIDED</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☑ SLIPPED</td></tr><tr><td>BY: <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u> AT: <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u></td></tr><tr><td>DISTRIBUTION BY: <u>&nbsp;&nbsp;&nbsp;&nbsp;4/15&nbsp;&nbsp;&nbsp;&nbsp;</u> SOP. <u>&nbsp;&nbsp;&nbsp;&nbsp;.103&nbsp;&nbsp;&nbsp;&nbsp;</u></td></tr><tr><td>ACTION UNIT: WH6</td></tr><tr><td>ACTION NO.: 615 FILE, VR: JPL/AN C/NARC 2 &nbsp; 41 &nbsp; CHI 000 A000</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET (When Filled In)</td></tr><tr><td>REPRODUCTION OF THIS COPY PROVIDED</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☑ SLIPPED</td></tr><tr><td>BY: <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u> AT: <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u></td></tr><tr><td>DISTRIBUTION BY: <u>&nbsp;&nbsp;&nbsp;&nbsp;4/15&nbsp;&nbsp;&nbsp;&nbsp;</u> SOP. <u>&nbsp;&nbsp;&nbsp;&nbsp;.103&nbsp;&nbsp;&nbsp;&nbsp;</u></td></tr><tr><td>ACTION UNIT: WH6</td></tr><tr><td>ACTION NO.: 615 FILE, VR: JPL/AN C/NARC 2 &nbsp; 41 &nbsp; CHI 000 A000</td></tr></tbody></table>
 
 SECRET 092120Z MAR 73 STAFF
 

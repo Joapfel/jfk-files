@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15420.png
-
-Convert to Markdown# SUPPLEMENTARY PERSONAL INFORMATION
+# SUPPLEMENTARY PERSONAL INFORMATION
 FLIGHT CREW
 
 Name and Rank: Daurindo J. Tito Jr. (Ret)

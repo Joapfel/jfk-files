@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3103.png
-
-Convert to MarkdownNEW56 WA CODE
+NEW56 WA CODE
 
 5:35PM NITEL 5-20-75 PAM
 TO ALL SACS

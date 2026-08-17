@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2438.png
-
-Convert to MarkdownNOSENKO did not take a physical examination in connection with his processing for KGB entry, and that such a medical examination was a routine and mandatory part of the processing of a KGB candidate. This statement makes no allowance for the influence of General KOBULOV; but, in addition, does not consider the fact that the Naval RU dossier on NOSENKO was available to the KGB (MVD).
+NOSENKO did not take a physical examination in connection with his processing for KGB entry, and that such a medical examination was a routine and mandatory part of the processing of a KGB candidate. This statement makes no allowance for the influence of General KOBULOV; but, in addition, does not consider the fact that the Naval RU dossier on NOSENKO was available to the KGB (MVD).
 
 The previous summary also failed to note that the MVD would have had independent information in regard to NOSENKO since the MVD would have conducted any necessary inquiry in connection with the entry of NOSENKO into the Naval RU. As of 1953, the MVD undoubtedly also had a dossier on the father of NOSENKO since this was still the STALIN era.
 

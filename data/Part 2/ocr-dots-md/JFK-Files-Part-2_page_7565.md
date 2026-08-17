@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7565.png
-
-Convert to MarkdownYuriy Ivanovich MOSKALEV (cont.)
+Yuriy Ivanovich MOSKALEV (cont.)
 
 TRAVEL : Second International Symposium on Delayed Effects of Bone-Seeking Radionuclides, Sun Valley, Idaho, September 1967; visit, Salt Lake City, Utah, September 1967; visit, Montreal, September 1967; visit, UK, April 1968.
 

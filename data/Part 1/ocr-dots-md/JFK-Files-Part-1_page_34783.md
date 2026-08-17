@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34783.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>FORMS 8-64</td>
     <td>53a</td>

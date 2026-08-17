@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2483.png
-
-Convert to MarkdownSECRET 162040Z DEC 76 STAFF
+SECRET 162040Z DEC 76 STAFF
 
 C.I.E. DCD/MIAMI 13718
 

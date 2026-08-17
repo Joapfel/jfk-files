@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31422.png
-
-Convert to MarkdownConti. ation Sheet for AF Form 1168 and r 1169
+Conti. ation Sheet for AF Form 1168 and r 1169
 
 I further state that I have read this entire statement, initialed all pages and corrections, and signed this statement, and that it is correct and true as written.
 

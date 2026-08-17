@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24500.png
-
-Convert to Markdownwith the discussion of "research" into the capability. (Bissell, 6/11/75,
+with the discussion of "research" into the capability. (Bissell, 6/11/75,
 pp. 50-51)).
 
 (iii) TAYLOR/KENNEDY BAY OF PIGS INQUIRY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12907.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SSC
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 "Set forth below are questions asked by Seidel (unless otherwise indicated) and the writer's answers. These questions and answers are not set forth chronologically.
 

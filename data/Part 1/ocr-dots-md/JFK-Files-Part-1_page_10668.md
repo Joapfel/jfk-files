@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10668.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This, according to O'Brien, accounts for Souza's inability to provide information of real value. O'Brien did indicate, however, that the usual P.I. requirements had no punch. He cited, for example, the requirements after Souza's return from Hawaii, which in effect amounted to: What's new?
 

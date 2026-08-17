@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31487.png
-
-Convert to Markdownor Pole -- a citizen of . country whose people were promised
+or Pole -- a citizen of . country whose people were promised
 at Yalta certain rights and privileges which they have not
 received because of the violent interference of a Communist
 Russia. This is also the fundamental theoretical reason for

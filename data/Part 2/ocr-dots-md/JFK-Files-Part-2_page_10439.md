@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10439.png
-
-Convert to MarkdownTOP SECRET UMBRA
+TOP SECRET UMBRA
 EYES ONLY
 
 7 May 1973

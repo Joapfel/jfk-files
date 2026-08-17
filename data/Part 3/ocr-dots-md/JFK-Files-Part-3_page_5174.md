@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5174.png
-
-Convert to MarkdownBerkeley RA handling primarily criminal matters and they are SAs WILLIAM H. SMITH, JR., TUVAL V. FARQUHAR, ROBERT F. PEVAHOUSE and LEON H. BLAKENEY.
+Berkeley RA handling primarily criminal matters and they are SAs WILLIAM H. SMITH, JR., TUVAL V. FARQUHAR, ROBERT F. PEVAHOUSE and LEON H. BLAKENEY.
 
 Due to the varied nature of the criminal work existing in the Berkeley RA and the relatively small area covered by the Berkeley RA, no specific targets have been designated for informant development, but all agents working criminal matters are constantly alert to the necessity of having good informant coverage. The following informants have been developed:
 

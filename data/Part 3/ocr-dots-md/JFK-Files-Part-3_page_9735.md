@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9735.png
-
-Convert to MarkdownDakota, as well as a visit to Mt. Rushmore. FDR did not return to the White House until Sunday, Sept. 6, 1936, at 10:02 AM.
+Dakota, as well as a visit to Mt. Rushmore. FDR did not return to the White House until Sunday, Sept. 6, 1936, at 10:02 AM.
 
 The White House Usher's Appointment Book further reflects that FDR, during the period July 10, 1936, to Aug. 10, 1936, was away from the White House campaigning. FDR returned to the White House on 8/10/36, and remained there until 8/13/36, when he again departed on a trip and returned on 8/24/36. FDR also departed from the White House on 8/25/36, and returned on 9/6/36.
 

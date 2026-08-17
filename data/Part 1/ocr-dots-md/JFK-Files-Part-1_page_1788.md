@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1788.png
-
-Convert to MarkdownCable Secretariat
+Cable Secretariat
 
 We have examined the Cable Secretariat which is currently located in the office of the DCI and reports to the Executive Officer. We believe it should continue to be in the office of the Director under the careful supervision of the Executive Director. We are concerned that as it now operates requirements for cables have not been adequately coordinated, and cables have been disseminated too often on the judgment of junior officers. We believe this needs careful study.
 

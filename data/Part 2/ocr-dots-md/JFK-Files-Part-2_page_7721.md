@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7721.png
-
-Convert to MarkdownMarch 1972:
+March 1972:
 
 A KGB defector, LYALIN, reported that he knew
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24895.png
-
-Convert to Markdownbreak out in various parts of Latin America or Spain.
+break out in various parts of Latin America or Spain.
 
 The recent Univ. of Mexico riots would be my point of departure.
 

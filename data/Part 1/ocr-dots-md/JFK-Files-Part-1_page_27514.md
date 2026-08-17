@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27514.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><td colspan="3">Form 7-80 580</td><td colspan="2">Complete Previous Edition</td></tr><tr><td colspan="6"><b>SECRET</b></td></tr><tr><td colspan="4"></td><td style="text-align: right;">(4-51)</td></tr><tr><th scope="row" colspan="4"></th><th scope="col" style="text-align: center;">M</th></tr><tr><th scope="row">Name</th><td colspan="3">CHRIST, DAVID L.</td><td></td></tr><tr><th scope="row">Title</th><td colspan="3">CO-OP/TS</td><td>A</td></tr><tr><th scope="row">Date</th><td colspan="3">05/09/90</td><td></td></tr><tr><th scope="row">Department</th><td colspan="3">SALARY RATE</td><td></td></tr></thead><tbody><tr><th scope="row">Grade</th><td>Step</td><td>Salary</td><td>Last EH Date</td><td>PSI</td></tr><tr><td>C-5</td><td>15</td><td>314,380</td><td>12/27/90</td><td>L</td></tr><tr><th scope="row">Action</th><td colspan="4"></td></tr><tr><td colspan="5">NO EXCESS LWOP</td></tr><tr><td colspan="5">IN PAY STATUS AT END OF WAITING PERIOD</td></tr><tr><td colspan="5">IN LWOP STATUS AT END OF WAITING PERIOD</td></tr><tr><td colspan="5">PAY CHANGE NOTIFICATION</td></tr></tbody></table>

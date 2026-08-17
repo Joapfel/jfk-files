@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24603.png
-
-Convert to Markdownwhether to go or what we should do next". (Id., p. 9.) Four
+whether to go or what we should do next". (Id., p. 9.) Four
 days later, on November 22, 1963, (the same day AM/LASH was given
 the poison pen), Jean Daniel was meeting with Castro. On that
 same day, President Kennedy was assassinated. With the change of

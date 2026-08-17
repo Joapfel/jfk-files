@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5294.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JFK Working Paper - Internal Use Only
 

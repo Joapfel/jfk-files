@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11663.png
-
-Convert to MarkdownChief, Finance Division
+Chief, Finance Division
 
 23 October 1950
 

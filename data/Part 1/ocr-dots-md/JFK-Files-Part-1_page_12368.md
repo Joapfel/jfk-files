@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12368.png
-
-Convert to Markdown14-0060
+14-0060
 
 CIVILIAN
 # SECRET

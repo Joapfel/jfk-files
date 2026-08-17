@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24563.png
-
-Convert to MarkdownCOBREO AEREO
+COBREO AEREO
 
 Из 2.5.1969 г.
 

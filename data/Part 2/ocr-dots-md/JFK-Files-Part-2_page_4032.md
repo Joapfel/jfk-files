@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4032.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 The subject stated that he and his wife obtained an interlocutory decree of divorce in Los Angeles County on October 16, 1962. He said that one of the terms of this decree was that he was to have 'reasonable visitation' rights with his two small children. He said that his wife has not complied with this court order so he had her subpoenaed into court for contempt.
 

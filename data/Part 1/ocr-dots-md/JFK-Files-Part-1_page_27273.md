@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27273.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>STANDARD FORM 50<br/>BY ORDER FOR<br/>PROHIBITED BY<br/>U.S. CIVIL SERVICE COMMISSION<br/>CHAPTER 81, FEDERAL PERSONNEL REGULATIONS</td>
         <td><b>INTELLIGENCE AGENCY</b></td>

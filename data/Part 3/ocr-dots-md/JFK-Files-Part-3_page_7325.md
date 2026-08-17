@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7325.png
-
-Convert to Markdown<table><tr><td>FD-350 (Rev. 7-16-63)</td></tr></table>
+<table><tr><td>FD-350 (Rev. 7-16-63)</td></tr></table>
 
 (Mount Clipping in Space Below)
 

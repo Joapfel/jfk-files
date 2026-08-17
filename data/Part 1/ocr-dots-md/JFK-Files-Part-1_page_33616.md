@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33616.png
-
-Convert to Markdown21 Mar 1952
+21 Mar 1952
 
 RECORDED FOR THE RECORD
 

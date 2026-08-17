@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21216.png
-
-Convert to Markdownpreviously failed to acknowledge that he knew some of these individuals. NOSENKO's current reactions to their names or photographs are set forth below
+previously failed to acknowledge that he knew some of these individuals. NOSENKO's current reactions to their names or photographs are set forth below
 
 A.A. LEBEDEV
 

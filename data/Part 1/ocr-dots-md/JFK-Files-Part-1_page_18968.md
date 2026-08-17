@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18968.png
-
-Convert to MarkdownQUALIFICATIONS & EXPERIENCE
+QUALIFICATIONS & EXPERIENCE
 
 12 Nov. 1945
 

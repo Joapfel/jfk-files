@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8713.png
-
-Convert to Markdown- 35 -
+- 35 -
 
 CALLER : Asks if LLAGOSTERA heard the news that an attempt was made on life of Kennedy.
 

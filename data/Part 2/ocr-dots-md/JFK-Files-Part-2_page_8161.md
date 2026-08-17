@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8161.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 5. Is there any indication that Ray had any connection with any foreign intelligence service? If so, please provide all possible details.
 

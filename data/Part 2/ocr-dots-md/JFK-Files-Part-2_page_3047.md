@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3047.png
-
 , Tracy Barnes, is all
 over him. One of J. C. King's few very
 good men, Jacob D. Esterline, is pulled

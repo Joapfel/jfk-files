@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7454.png
-
-Convert to MarkdownRe: Interview of Retired Special Agent (SA) by Senator Walter F. Mondale and Staff Members of the Senate Select Committee (SSC)
+Re: Interview of Retired Special Agent (SA) by Senator Walter F. Mondale and Staff Members of the Senate Select Committee (SSC)
 
 notes regarding the activity that occurred in Atlantic City during the Democratic Party Nominating Convention during the summer of 1964. Devlin advised that he did not retain any notes but subsequent to the original contact of him by Epstein, Devlin called SA John Connelly of the FBI Office in Newark in an effort to review any available material that might refresh his recollection. Connelly advised Devlin that all materials and notes retained by the Newark Office were forwarded to FBI Headquarters. This information was conveyed to the interviewers on the occasion of the May 19, 1975, interview.
 

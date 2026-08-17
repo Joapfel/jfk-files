@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16190.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1 AUG 1974
 

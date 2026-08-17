@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1515.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. Furnished Quarters. If you and your dependents are furnished quarters by the Government while PCS Honolulu, Hawaii, you will be charged a reasonable rental therefor, as established under the Hawaii rental rate schedule of this organization.
 

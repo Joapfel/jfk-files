@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24511.png
-
-Convert to Markdown# “Sindicalistas” Soviéticos Pretenden Colonizarnos
+# “Sindicalistas” Soviéticos Pretenden Colonizarnos
 
 Entre risas, protestas y estupor, se ha recibido la noticia de que dos "sindicalistas" rusos han estado en enjuagues con pretendidos dirigentes del sindicalismo peruviano.
 

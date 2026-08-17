@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3250.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 a plan would force the USSR (then facing a shortage of tanker bottoms in the world market) to transport its own crude to Cuba and to "provide technicians and make modifications in existing refineries to process their crude." This, in turn, was supposed to alienate Venezuela and Mexico, normally among Cuba's crude suppliers.* 39/
 

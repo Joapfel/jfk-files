@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17521.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO : SAC, CHICAGO
 DATE: JUN 2 4 1969

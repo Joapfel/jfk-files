@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9547.png
-
-Convert to Markdown20 February 1950
+20 February 1950
 
 MEMORANDUM FOR Chief, I & S - Attention: Mr. George Laker
 THROUGH: CCF and SSC/OPC

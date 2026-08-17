@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16886.png
-
-Convert to Markdown## Education
+## Education
 
 Completed John Marshall High School, Chicago, August, 1966, Lincoln University, Jefferson City, Missouri, September, 1965-1968
 

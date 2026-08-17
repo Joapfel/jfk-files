@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3499.png
-
-Convert to Markdown capability to do so. Mr. McCone said he was inclined to believe that the second alternative would be followed, and obviously the intelligence effort should be at a maximum to discover Russian intentions.
+capability to do so. Mr. McCone said he was inclined to believe that the second alternative would be followed, and obviously the intelligence effort should be at a maximum to discover Russian intentions.
 
 5. Mr. Murphy said obviously there should be an all out effort to penetrate the Cuban government. The DCI said yes, that every effort should be made to exploit cracks in the top in their monolithic structure and that more and more agents should be put it. He noted that only this week a team had been infiltrated and another team exfiltrated. Mr. Murphy asked how many there were in a team and the Director replied [24] three to five.
 

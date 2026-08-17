@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29450.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of Section C/Narrative Comments
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9325.png
-
-Convert to MarkdownTHE CATECHISM OF THE REVOLUTIONIST
+THE CATECHISM OF THE REVOLUTIONIST
 
 The Revolutionist's Attitude Toward Himself
 

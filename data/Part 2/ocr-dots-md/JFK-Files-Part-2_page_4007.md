@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4007.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 On May 20, 1963, a second source advised that the National Headquarters of the FPCC is located in Room 329 at 799 Broadway, New York City. According to this source, the position of National Office Director was created in the fall of 1962 and was filled by VINCENT "TED" LEE, who now formulates FPCC policy. This source observed LEE has followed a course of entertaining and accepting the cooperation of many other organizations including the CP and the SWP when he has felt it would be to his personal benefit as well as the FPCC's. However, LEE has indicated to this source he has no intention of permitting FPCC policy to be determined by any other organization. LEE feels the FPCC should advocate resumption of diplomatic relations between Cuba and the United States and support the right of Cubans to manage their revolution without interference from other nations, but not support the Cuban revolution per se.
 

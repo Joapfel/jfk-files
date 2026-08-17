@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27156.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM 3-62 610 USE PREVIOUS EDITIONS
 

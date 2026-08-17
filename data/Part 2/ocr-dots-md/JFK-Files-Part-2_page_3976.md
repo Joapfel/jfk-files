@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3976.png
-
-Convert to Markdown9C943
+9C943
 
 Department of State
 

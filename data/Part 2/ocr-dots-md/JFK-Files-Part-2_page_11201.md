@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11201.png
-
-Convert to Markdown(10) Communist infiltrate of mass organizations program
+(10) Communist infiltrate of mass organizations program
 
 (a) Submit semia. ... 1 letters March 1 and September 1 under
 caption of a : program, Buprofile 100-3-106, using following

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33346.png
-
-Convert to Markdown<table><tr><td>Western Hemisphere</td></tr></table>
+<table><tr><td>Western Hemisphere</td></tr></table>
 
 ENCOUNTER, London
 

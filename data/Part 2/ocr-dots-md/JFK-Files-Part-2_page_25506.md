@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25506.png
-
-Convert to MarkdownFS: Now when you went back to Havana you saw Fidel where?
+FS: Now when you went back to Havana you saw Fidel where?
 Cause we'll go over this lightly.
 
 ML: I was in the...

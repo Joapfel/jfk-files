@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8664.png
-
-Convert to MarkdownSECRET
+SECRET
 WHEN FILLED IN!
 
 # ROUTING AND RECORD SHEET

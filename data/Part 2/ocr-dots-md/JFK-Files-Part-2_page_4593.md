@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4593.png
-
-Convert to Markdown(2) Deputy Chief, ICG, CI Staff: Action responsibility for penetration of Cuban Communist Party via third countries, using Cubans as agents (as agreed to by Chief, WH Division and Deputy Chief, CI Staff). Coordination will be effected with WH/4/CI and all traffic will be released by WH/4.
+(2) Deputy Chief, ICG, CI Staff: Action responsibility for penetration of Cuban Communist Party via third countries, using Cubans as agents (as agreed to by Chief, WH Division and Deputy Chief, CI Staff). Coordination will be effected with WH/4/CI and all traffic will be released by WH/4.
 
 (3) Victor Wallen, Operations Division, CI Staff: Responsibility for compiling records and studies on Cuban Intelligence and Security Services. To this end, Victor Wallen will:
 

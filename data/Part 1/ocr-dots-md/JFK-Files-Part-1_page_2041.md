@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2041.png
-
-Convert to MarkdownWH/C #65-200
+WH/C #65-200
 10 May 1965
 
 MEMORANDUM FOR: C/FI/INT/IE

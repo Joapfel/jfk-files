@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_190.png
-
-Convert to Markdown# Un Agente de la FDI en el México de la Antigua Colonia
+# Un Agente de la FDI en el México de la Antigua Colonia
 
 ## on la Asociación de Escribas y Intercitores
 

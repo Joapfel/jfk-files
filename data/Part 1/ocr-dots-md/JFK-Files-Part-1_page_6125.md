@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6125.png
-
-Convert to Markdown4. All directives, letters, memoranda, orders, reports, investigations or other records which describe, analyze or otherwise relate to racism in the United States Marine Corp.
+4. All directives, letters, memoranda, orders, reports, investigations or other records which describe, analyze or otherwise relate to racism in the United States Marine Corp.
 
 Since none of the statutory exemptions from the Freedom of Information Act's mandatory disclosure provision applies, access to the requested records should be granted within ten (10) working days.
 

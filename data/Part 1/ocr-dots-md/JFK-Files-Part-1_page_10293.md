@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10293.png
-
-Convert to Markdown14-0000G
+14-0000G
 
 <table><tr><td rowspan="5">23 W. J. FAUPHYAP<br/>8 C/WH/2<br/>9354<br/>T: 23 November 1968</td><td>MESSAGE FORM</td><td>ROUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>SECRET</td><td>EJ</td></tr><tr><td colspan="2">S I C R E T</td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td>US SECRETARY AT DISSEMINATION</td><td>[ ] DIPLEX</td><td>[ ] RETURN TO ____________ BRANCH [ ] FILE ID</td></tr><tr><td>8</td><td>[ ] NO DIPLEX</td><td>FILE IN AS FILE NO.: 201-798301; x-ref 340938</td></tr><tr><td>PER: C/WH 6</td><td>REFC: FRE: [Signature]</td><td>[Signature] 12/5/68</td></tr></table>
 

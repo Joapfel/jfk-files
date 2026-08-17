@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8326.png
-
-Convert to MarkdownMay 8, 1969.
+May 8, 1969.
 
 (P-11,712)
 

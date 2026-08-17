@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8788.png
-
-Convert to MarkdownAldo VERA Serafin, then in Miami, formerly with the Department of Technical Investigation (of the DIER - Department of Investigations of the Revolutionary Army), was considered for use in the AMTRUNK Operation. (VERA was assassinated in October 1976 in San Juan, Puerto Rico.) VERA reportedly was receiving financial aid from Santos TRAFFICANTE and the Mafia for arms and ammunition, but there is no indication that such activity was related to the Agency.
+Aldo VERA Serafin, then in Miami, formerly with the Department of Technical Investigation (of the DIER - Department of Investigations of the Revolutionary Army), was considered for use in the AMTRUNK Operation. (VERA was assassinated in October 1976 in San Juan, Puerto Rico.) VERA reportedly was receiving financial aid from Santos TRAFFICANTE and the Mafia for arms and ammunition, but there is no indication that such activity was related to the Agency.
 
 AMTABBY Operation
 

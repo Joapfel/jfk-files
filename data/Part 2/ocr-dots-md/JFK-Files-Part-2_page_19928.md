@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19928.png
-
-Convert to MarkdownHere it is, the long-awaited first call upon women to join the Jeannette Rankin Brigade. I'm enclosing copies -- hope you can find means to duplicate these for your community.
+Here it is, the long-awaited first call upon women to join the Jeannette Rankin Brigade. I'm enclosing copies -- hope you can find means to duplicate these for your community.
 
 Much has happened since I talked to you -- exciting things, much response, and some firm dates. A great deal of time was spent with Miss Rankin in order to do this in the way that she felt was best. A there were other very important things already in the hopper, such as Women Strike for Peace in Washington on Sept. 20, and the tremendous Stop the Draft Week of Oct. 16 - 21, all taking the time and energies of the peace groups.
 

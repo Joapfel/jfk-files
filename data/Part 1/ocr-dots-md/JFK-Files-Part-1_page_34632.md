@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34632.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (1) Subject to the provisions of work you are here in,
 authorized twenty-one (21) working days vacation with pay per

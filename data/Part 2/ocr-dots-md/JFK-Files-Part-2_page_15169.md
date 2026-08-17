@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15169.png
-
-Convert to MarkdownFBI NATIONAL ACADEMY
+FBI NATIONAL ACADEMY
 LAW ENFORCEMENT ASSISTANCE ACT OF 1965
 
 The 79th Session of the FBI National Academy begins Monday, March 20, 1967. There will be 100 law enforcement officers in attendance with representatives from 45 states, the District of Columbia, Puerto Rico, and 7 foreign officers from 5 foreign countries (Australia, Canada, Colombia, Malaysia and Thailand). (The Attorney General presented diplomas to the graduating class of the 75th Session of the National Academy on May 26, 1965, when he was Deputy Attorney General.)

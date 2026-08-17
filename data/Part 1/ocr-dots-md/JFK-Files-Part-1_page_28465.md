@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28465.png
-
-Convert to MarkdownS-E-A-F-E-T
+S-E-A-F-E-T
 
 TO Registrar, Office of Training
 

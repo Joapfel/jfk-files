@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6932.png
-
-Convert to Markdown8
+8
 
 FBI supervisor named Long had kept a tickler on the King assassination. A tickler is a file containing extra copies of documents kept at hand so it can be immediately retrieved. The FBI first denied that such a tickler file had been kept. Then it claimed that it could not locate it. After a long period of resistance, the Justice Department finally located the Long tickler exactly where Weisberg had suggested they look for it. When finally located, most of the file had been gutted.
 

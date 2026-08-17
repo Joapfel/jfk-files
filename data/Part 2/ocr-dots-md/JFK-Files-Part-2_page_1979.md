@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1979.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 DATE: 21 August 1945
 

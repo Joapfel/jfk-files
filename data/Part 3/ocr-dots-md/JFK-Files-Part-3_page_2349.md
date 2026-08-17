@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2349.png
-
-Convert to Markdown## TOP SECRET
+## TOP SECRET
 
 Shortly after his return to the United States in August, 1967, he advised reliable sources that he had returned "to do a job" for the Chinese communists. He outlined a three-fold mission: (1) to form a national coalition of domestic Marxist-Leninists sympathetic to Mao Tse-tung thought and the Communist Party of China; (2) to develop and forward information of interest to the Chinese communists; and (3) to recruit politically trusted youth who would travel to Communist China for an indeterminable period of cadre training after which they would return to this country and operate in behalf of Communist China in a nonpublic or submerged fashion. There is a strong presumption these latter individuals would be utilized as recruited intelligence agents operating clandestinely in behalf of China.
 

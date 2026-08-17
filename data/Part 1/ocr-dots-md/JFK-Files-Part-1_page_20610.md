@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20610.png
-
-Convert to Markdown6 January 1965
+6 January 1965
 
 MEMORANDUM TO: Benefits & Services Division
 SUBJECT: Cause of Illness - E. Howard Hunt

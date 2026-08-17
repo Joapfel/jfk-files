@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28894.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">INTERNAL STAFF OR DIVISION CLEARANCES (Add or delete as applicable)</th></tr><tr><th>COMPONENT</th><th>CLEARED BY</th><th>DATE</th><th>REMARKS</th></tr></thead><tbody><tr><td>FINANCE</td><td></td><td></td><td></td></tr><tr><td>LOGISTICS</td><td></td><td></td><td></td></tr><tr><td>PERSONNEL</td><td></td><td></td><td></td></tr><tr><td colspan="3">CONTRACT APPROVING OFFICER</td><td>CLEARED BY (Signature)</td></tr></tbody></table>
 

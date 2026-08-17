@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31554.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mfm
 
 > "the Vietnam Day Committee and am prepared to be arrested in opposition to U.S. intervention in Vietnam. I am joining this committee to organize my political defense." The statement was signed by SUGAR, who listed his address as 1048 Francisco, Berkeley, phone 549-1385.

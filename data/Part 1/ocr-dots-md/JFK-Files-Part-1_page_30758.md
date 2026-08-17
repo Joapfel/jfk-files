@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30758.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 c. A portion of your annual leave and all the sick leave which has accrued to your credit at the time of your integration shall be transferred to your cover facility. The remainder of your leave will be held by this organization in escrow pending the completion of your integration. If the sum of your accumulated annual leave with your cover facility and this organization exceeds the maximum accumulation entitlement afforded you under the regulations of this organization, the excess will be forfeited. If possible, such forfeiture will be accomplished by reducing the leave credit in your escrow account with this organization. While integrated, you will be permitted annual leave, sick leave, home leave, and leave without pay in accordance with the regulations of your cover facility in lieu of the leave benefits of this organization. Upon completion of your integration, your accrued annual and sick leave will be transferred to your credit with this organization. If security conditions require that your cover facility make a lumpsum payment for accrued annual leave, you will be required to pay the gross amount thereof to this organization including income taxes withheld by your cover facility.
 

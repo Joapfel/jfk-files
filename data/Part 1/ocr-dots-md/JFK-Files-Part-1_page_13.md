@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13.png
-
-Convert to Markdown13-00000
+13-00000
 
 ① Do s/o's normally permit S/O. e.g. gets married to foreigner to emigrate from S/L to homeland of s/none?
 

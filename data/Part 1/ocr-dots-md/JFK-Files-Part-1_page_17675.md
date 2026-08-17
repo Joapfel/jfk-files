@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17675.png
-
-Convert to Markdown# PROJECT LIFETIME
+# PROJECT LIFETIME
 ## PART II
 
 ### 16. Estimated Costs

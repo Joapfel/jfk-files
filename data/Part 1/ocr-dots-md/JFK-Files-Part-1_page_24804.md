@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24804.png
-
-Convert to MarkdownCopy of letter from Edward G. TICHBORN
+Copy of letter from Edward G. TICHBORN
 
 "On or about September 10, 1966 I had a meeting with three or four gentlemen in Washington (as I recall, they were Jerry Droller, Jack Kaufman, Paull Kittredge and someone else) and I informed these gentlemen that my moving expenses had been considerably more than I had estimated. However, I told these gentlemen that rather than ask for an additional amount, I wished to serve a moratorium of loan payments for six months. One of these men (with a nod from another) said "okay--don't worry about it-- just don't ask for an additional allotment. We'll take care of it."
 

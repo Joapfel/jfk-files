@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17746.png
-
-Convert to MarkdownIC-75-1951
+IC-75-1951
 
 28 March 1975
 

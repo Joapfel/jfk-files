@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25845.png
-
-Convert to Markdown-2-
+-2-
 
 (8) Spotting
 Cuck and Investigations

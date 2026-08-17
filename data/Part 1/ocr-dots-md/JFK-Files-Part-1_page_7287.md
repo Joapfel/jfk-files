@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7287.png
-
-Convert to Markdown4.09.03 Size of hands Very large ____ Large X Average ____ Small ____ Very small ____
+4.09.03 Size of hands Very large ____ Large X Average ____ Small ____ Very small ____
 
 4.09.04 His use of his hands is Graceful ____ Average X Awkward ____
 

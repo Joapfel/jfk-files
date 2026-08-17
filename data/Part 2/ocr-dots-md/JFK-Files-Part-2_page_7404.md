@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7404.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 personnel strengths broken down by component, and a listing
 by cryptonyms and funding levels of all OPACTS. They have

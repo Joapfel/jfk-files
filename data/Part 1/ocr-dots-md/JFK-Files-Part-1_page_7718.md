@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7718.png
-
-Convert to Markdown4.05 Face:
+4.05 Face:
 
 4.05.01 Expressiveness Expressive ____ Average x Inexpressive ____
 Very expressive ____ Very inexpressive ____

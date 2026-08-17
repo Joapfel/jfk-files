@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10742.png
-
-Convert to MarkdownPH 52-7165 Sub S
+PH 52-7165 Sub S
 
 The following description of FORSYTH was taken through
 observation and review of his personal effects:

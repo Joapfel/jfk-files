@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22635.png
-
-Convert to Markdown15 March 1960
+15 March 1960
 
 MEMORANDUM FOR: FD/HAAS
 FROM : Chief, MID

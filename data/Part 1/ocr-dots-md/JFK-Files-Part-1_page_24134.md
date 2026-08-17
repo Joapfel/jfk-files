@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24134.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">TO<br/>Chief of Station, London For LCPIPIT</td>

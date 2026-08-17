@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27263.png
-
-Convert to Markdown1. Case 52722/Officers Briefed - 3 Feb 70 SECRET/SENSITIVE
+1. Case 52722/Officers Briefed - 3 Feb 70 SECRET/SENSITIVE
 
 2. Expansion of Black Panther Activities - 19 Feb 70 SECRET -EYES ON!
 

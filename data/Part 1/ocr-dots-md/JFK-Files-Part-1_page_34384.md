@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34384.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED TO udSAGE</td></tr><tr><td>SECRET</td></tr><tr><td></td><td>mm</td></tr><tr><td>ISSUED COPY</td><td>A</td></tr><tr><td>UNCLASSIFIED</td><td>T</td></tr></table>
+<table><tr><td>CLASSIFIED TO udSAGE</td></tr><tr><td>SECRET</td></tr><tr><td></td><td>mm</td></tr><tr><td>ISSUED COPY</td><td>A</td></tr><tr><td>UNCLASSIFIED</td><td>T</td></tr></table>
 
 D. FILE
 

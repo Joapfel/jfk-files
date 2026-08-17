@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26753.png
-
-Convert to MarkdownReel 73-RICO-30
+Reel 73-RICO-30
 
 From 1325, 3 May (Wednesday) to 0625, 6 May 1965
 

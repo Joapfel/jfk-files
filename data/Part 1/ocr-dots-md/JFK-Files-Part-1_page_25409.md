@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25409.png
-
-Convert to MarkdownSECRET
+SECRET
 
 COUNTRY: - -
 

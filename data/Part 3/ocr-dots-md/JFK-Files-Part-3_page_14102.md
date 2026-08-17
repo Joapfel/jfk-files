@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14102.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Secretary of Defense. (Dr. Killian expressed the view that the DCI, as coordinator of the overall U. S. intelligence effort, should certainly have the right to look at the budget of any element of the intelligence community, and Mr. McCone said he thought that he could work this out.) The DCI went on to say that the total Department of Defense Budget is $3 billion whereas the CIA budget is around $400 million and the Defense budget is up over the previous $2½ billion figure because the Secretary of Defense has added the cost of the reconnaissance program. The result is, Mr. McCone said, that the USIB is unable to look at this large budget and therefore Mr. McCone is endeavoring to discuss it with Secretary McNamara.
 

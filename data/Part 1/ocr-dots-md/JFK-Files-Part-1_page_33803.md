@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33803.png
-
-Convert to MarkdownMay 7, 1952
+May 7, 1952
 
 Washington 25, D.C.
 

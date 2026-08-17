@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12785.png
-
-Convert to Markdown(b) Satisfactory notes or statements of informants necessary from which to refresu their recollection in the event they called upon to testify at such future date. Such notes and statements must be in sufficient detail to serve this purpose, and must contain no material which would make their use advisable or inadmissible.
+(b) Satisfactory notes or statements of informants necessary from which to refresu their recollection in the event they called upon to testify at such future date. Such notes and statements must be in sufficient detail to serve this purpose, and must contain no material which would make their use advisable or inadmissible.
 
 (c) Informant's original notes or statements not to be blocked, stamped, serialized, or mutilated in any way which would render them unsatisfactory for use in Federal proceedings
 

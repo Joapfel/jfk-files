@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2423.png
-
-Convert to MarkdownStudent Mobilization Committee (SMC)
+Student Mobilization Committee (SMC)
 
 The SMC is headquartered at New York City. It is dominated by members of the SWP and/or members of the YSA. The SMC has been active in demonstrations against United States policy. Its aims are to bring about the withdrawal of American troops from Vietnam, to end university "complicity" with the war, and to establish self-determination for Vietnam and "black America." It currently publishes the "Student Mobilizer."
 

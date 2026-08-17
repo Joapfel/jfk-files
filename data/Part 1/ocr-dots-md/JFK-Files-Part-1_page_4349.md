@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4349.png
-
-Convert to Markdown# INSTRUção NO DE 19.8.63
+# INSTRUção NO DE 19.8.63
 ## DIPONTO PARA O SERVIÇO DA PÚBLICA
 
 INSTRUCIÓNS

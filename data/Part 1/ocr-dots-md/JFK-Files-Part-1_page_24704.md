@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24704.png
-
-Convert to Markdown3. In his article, highly praising Fidel Castro, Leonov reviews Castro's life and his accomplishments as a "revolutionary leader". The author revealed that when Castro lived in Mexico, 1955-56, he established contact with Alberto Bayo, former colonel of the Spanish Republican Army, who emigrated to Mexico after the Spanish Civil War, and who became Castro's military instructor". Also, in Mexico Castro was joined by Che Guevara, who became his close friend. The author briefly mentioned that the CIA had planned "a physical liquidation of Fidel Castro".
+3. In his article, highly praising Fidel Castro, Leonov reviews Castro's life and his accomplishments as a "revolutionary leader". The author revealed that when Castro lived in Mexico, 1955-56, he established contact with Alberto Bayo, former colonel of the Spanish Republican Army, who emigrated to Mexico after the Spanish Civil War, and who became Castro's military instructor". Also, in Mexico Castro was joined by Che Guevara, who became his close friend. The author briefly mentioned that the CIA had planned "a physical liquidation of Fidel Castro".
 
 In 1963 Castro was awarded the title Hero of the Soviet Union.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11243.png
-
-Convert to Markdownmanpower to review security index cases.
+manpower to review security index cases.
 
 (e) Names shall be included in the security index only when investigation has established and reports [show] sufficient facts and evidence to justify the inclusion of each subject in the security index.
 

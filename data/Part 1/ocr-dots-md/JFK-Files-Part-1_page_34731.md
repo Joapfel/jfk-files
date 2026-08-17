@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34731.png
-
-Convert to Markdown-2-
+-2-
 
 7) LILIA FERNANDEZ (Case #102) $ 175.00
 Widow of Rolando Tamargo

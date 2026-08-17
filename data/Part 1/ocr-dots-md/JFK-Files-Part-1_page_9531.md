@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9531.png
-
-Convert to MarkdownE. IF BORN OUTSIDE U.S. WHEN DID YOU FIRST ARRIVE IN THIS COUNTRY? NA
+E. IF BORN OUTSIDE U.S. WHEN DID YOU FIRST ARRIVE IN THIS COUNTRY? NA
 PORT OF ENTRY? ________ ON PASSPORT OF WHAT COUNTRY? ________
 LAST U.S. VISA ________ NA
 Number Type Place of Issue Date of Issue

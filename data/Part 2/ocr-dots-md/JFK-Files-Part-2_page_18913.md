@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18913.png
-
-Convert to Markdownestablished but who has furnished reliable information in the past, identified Georgiy Nikitovich Bolshakov as a Colonel in GRU (Soviet Military Intelligence) who in 1962-63 worked under cover as a department chief in APN.)
+established but who has furnished reliable information in the past, identified Georgiy Nikitovich Bolshakov as a Colonel in GRU (Soviet Military Intelligence) who in 1962-63 worked under cover as a department chief in APN.)
 
 In Jaffe's opinion, Bruk has always been a "name-dropper" and during his conversation with Jaffe, Bruk mentioned seeing or hearing from several American millionaire friends of his. Bruk indicated he had contacted, apparently telephonically, Armand Hammer, head of Occidental Petroleum Corporation, in Los Angeles. He claimed to be in touch with Charles Stewart Mott, philanthropist and former General Motors Corporation executive; with industrialist Cyrus Eaton, and with a Vice President of Morgan Guaranty Trust Company, name not recalled, who lives in a plush apartment on 5th Avenue in New York City.
 

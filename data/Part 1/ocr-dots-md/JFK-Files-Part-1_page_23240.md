@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23240.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE</td>
     <td colspan="2">330 MRL/LSB</td>

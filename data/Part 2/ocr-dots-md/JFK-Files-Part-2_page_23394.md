@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23394.png
-
-Convert to Markdown1. Mr. Baron. This contains the following language: "You
+1. Mr. Baron. This contains the following language: "You
 2. will note from cable through normal channel currently being
 3. transmitted" then it continues "on YOPROP suggestions. You
 4. will probably receive more along these lines as stumbling

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17521.png
-
 160
 
 Christmas bonus (in accordance with local custom,

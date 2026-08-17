@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23934.png
-
-Convert to MarkdownThese events are discussed below under subheading A.
+These events are discussed below under subheading A.
 
 Evidence reflecting the degree of knowledge of those events
 possessed by senior American officials is treated thereafter.

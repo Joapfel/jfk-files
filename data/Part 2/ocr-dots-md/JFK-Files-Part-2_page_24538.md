@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24538.png
-
-Convert to Markdownwere operating as we were supposed to operate, that these things if
+were operating as we were supposed to operate, that these things if
 not specifically authorized, at least were authorized in general terms."
 
 (Helms, 6/13, p.61)

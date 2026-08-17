@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19557.png
-
-Convert to MarkdownUpon informing the Capitol Police of their planned march to the Capitol building to present their petition, the women were threatened with arrest under 18 U.S.C. 193 (a) et seq. which, after defining the area considered Capitol Grounds, states:
+Upon informing the Capitol Police of their planned march to the Capitol building to present their petition, the women were threatened with arrest under 18 U.S.C. 193 (a) et seq. which, after defining the area considered Capitol Grounds, states:
 
 "It is forbidden to parade, stand, or move in processions or assemblages in said United States Capitol Grounds, or to display therein any flag, banner, or device designed or adapted to bring into public notice any party, organization, or movement...."
 

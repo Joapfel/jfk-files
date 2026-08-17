@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5977.png
-
-Convert to MarkdownATTACHMENT TO 10 MARCH 1998 MEMORANDUM RE: CIA-IR-36
+ATTACHMENT TO 10 MARCH 1998 MEMORANDUM RE: CIA-IR-36
 
 1. Per the Review Board staff's request the following is a brief explanation of how the Directorate of Operations (DO) processed cables in the 1963/1964 time-frame. As we are unable to locate any definitive records on the subject, and in all probability none ever existed, the information provided is based solely on the memory of DO officers familiar with procedures in place at the time.
 

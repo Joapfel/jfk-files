@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21722.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. with real certainty that no such conversation took place and
 2. that even in terms of exploring the possibility of assassination

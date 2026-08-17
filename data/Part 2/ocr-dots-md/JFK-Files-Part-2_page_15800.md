@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15800.png
-
-Convert to MarkdownVERLINA BREWER, Negro female, age 17, residing at 125 West 107th Street. BREWER was wounded in the legs.
+VERLINA BREWER, Negro female, age 17, residing at 125 West 107th Street. BREWER was wounded in the legs.
 
 BLAIR ANDERSON, Negro male, age 18, residing at 6943 South Justine. ANDERSON received a groin and leg wound.
 

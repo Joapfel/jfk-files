@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12429.png
-
-Convert to Markdownb. Pamphlets, brochures, etc., prepared by private company for distribution or sale to public. (This does not include highly technical pamphlets, even if unclassified, which are prepared for limited use and not intended for release to public.)
+b. Pamphlets, brochures, etc., prepared by private company for distribution or sale to public. (This does not include highly technical pamphlets, even if unclassified, which are prepared for limited use and not intended for release to public.)
 
 4. Retention of copies of passed material
 

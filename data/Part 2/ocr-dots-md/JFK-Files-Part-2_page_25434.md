@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25434.png
-
-Convert to MarkdownBook V, p. 65 The FBI reports on Alpha 66 furnished the Warren Commission noted the attack on the Soviet vessel in March of 1963 but did not detail that group's continued activity in planning and carrying out their military operations against Cuba. The FBI reports did not show that Alpha 66 had been involved with the New Orleans anti-Castro training camp.
+Book V, p. 65 The FBI reports on Alpha 66 furnished the Warren Commission noted the attack on the Soviet vessel in March of 1963 but did not detail that group's continued activity in planning and carrying out their military operations against Cuba. The FBI reports did not show that Alpha 66 had been involved with the New Orleans anti-Castro training camp.

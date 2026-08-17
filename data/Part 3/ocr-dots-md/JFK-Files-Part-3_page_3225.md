@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3225.png
-
-Convert to Markdown1837
+1837
 
 referred to something I never heard of before called a no-contact list. He did it jokingly because he said when the Pope agreed to see Martin Luther King, he was sure he would be put on the no-contact list thereafter.
 

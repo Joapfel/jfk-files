@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15291.png
-
-Convert to Markdown# CONTENTS.
+# CONTENTS.
 
 Pages:
 

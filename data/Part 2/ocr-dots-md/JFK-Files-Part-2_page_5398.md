@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5398.png
-
-Convert to Markdown7 June 1995
+7 June 1995
 
 Memo for File
 

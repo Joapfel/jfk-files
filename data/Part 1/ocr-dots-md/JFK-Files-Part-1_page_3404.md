@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3404.png
-
-Convert to Markdownnals and return to the rule of law.
+nals and return to the rule of law.
 
 Q. - Do you believe Cuban national interests when freed from communism will be better served if the nation is placed in a position of international neutrality?
 

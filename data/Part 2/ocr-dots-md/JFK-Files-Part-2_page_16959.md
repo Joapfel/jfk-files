@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16959.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 See appendix for characterization of BPP.
 

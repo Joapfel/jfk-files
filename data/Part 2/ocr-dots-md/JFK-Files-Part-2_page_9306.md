@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9306.png
-
-Convert to MarkdownROBINSON returned from California on the evening of April 26, 1971.
+ROBINSON returned from California on the evening of April 26, 1971.
 
 DE T-3
 April 29, 1971

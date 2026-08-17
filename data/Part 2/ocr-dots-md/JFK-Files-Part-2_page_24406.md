@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24406.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 duals on whom he intended to rely: "Sam Gold", who would
 serve as a "back-up man" (Roselli, p. 15), or "Key" man

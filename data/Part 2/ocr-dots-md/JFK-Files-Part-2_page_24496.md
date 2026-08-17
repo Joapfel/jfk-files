@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24496.png
-
-Convert to MarkdownFurthermore, Bundy testified that he was never told by anyone at any time that assassination efforts were being conducted against Castro (Bundy, p. 63). Bundy said that Richard Bissell never informed him about CIA involvement in assassination attempts against any foreign leader (Bundy, p. 41). Bundy acknowledged, however, that he had once been briefed by Richard Bissell on the development of an "executive action capability" at the CIA (see Section infra).*
+Furthermore, Bundy testified that he was never told by anyone at any time that assassination efforts were being conducted against Castro (Bundy, p. 63). Bundy said that Richard Bissell never informed him about CIA involvement in assassination attempts against any foreign leader (Bundy, p. 41). Bundy acknowledged, however, that he had once been briefed by Richard Bissell on the development of an "executive action capability" at the CIA (see Section infra).*
 
 
 

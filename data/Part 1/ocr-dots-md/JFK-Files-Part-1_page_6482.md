@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6482.png
-
-Convert to Markdown<table><tr><td>MICROFILMED</td></tr><tr><td>July 2 5 1965</td></tr><tr><td>F.O.B. MICRO F.</td></tr></table>
+<table><tr><td>MICROFILMED</td></tr><tr><td>July 2 5 1965</td></tr><tr><td>F.O.B. MICRO F.</td></tr></table>
 
 RESTRICTED - SECURITY INFORMATION
 

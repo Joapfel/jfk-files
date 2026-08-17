@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16086.png
-
-Convert to MarkdownUnit of a unit, after leaving been fired on by a Viet Cong sniper. The team searched the area for snipers and the Viet Cong sniper discovered a team at 720 meters distance. While one team was covering the land using the M16s, scope, the other ran first and round, killing the Viet Cong sniper.
+Unit of a unit, after leaving been fired on by a Viet Cong sniper. The team searched the area for snipers and the Viet Cong sniper discovered a team at 720 meters distance. While one team was covering the land using the M16s, scope, the other ran first and round, killing the Viet Cong sniper.
 
 (v) Light Hunter Operations
 

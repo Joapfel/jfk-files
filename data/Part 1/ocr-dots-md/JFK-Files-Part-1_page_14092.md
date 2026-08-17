@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14092.png
-
-Convert to Markdown12 July 1960
+12 July 1960
 
 MEMORANDUM FOR: Chief, Finance Division
 ATTENTION: C/C & TAB o4

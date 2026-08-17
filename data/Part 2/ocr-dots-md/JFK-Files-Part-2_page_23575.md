@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23575.png
-
-Convert to Markdown2. It was decided that our public posture toward Cuba should be as quiet as possible -- trying to ignore Castro and his island.
+2. It was decided that our public posture toward Cuba should be as quiet as possible -- trying to ignore Castro and his island.
 
 3. Our covert activities would now be directed toward the destruction of targets important to the economy, e.g., refineries, plants using U.S. equipment, etc. This would be done within the general framework of covert operations -- which is based on the principle that para-military activities ought to be carried out through Cuban revolutionary groups which have a potential for establishing an effective political opposition to Castro within Cuba. Within that principle we will do all we can to identify and suggest targets whose destruction will have the maximum economic impact.
 

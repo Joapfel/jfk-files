@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23258.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 What would these assets have been used for, what was the search for assets all about?
 

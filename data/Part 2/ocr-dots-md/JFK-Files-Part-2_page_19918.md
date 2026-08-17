@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19918.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 maximum number of persons present at any one time during the day would be estimated at between 400 to 500. The workshops primarily related to the building of WONAAC throughout the United States, fund raising and regional work, with ideas being exchanged between individuals attending from various areas of the country, including Boston. The major theme appeared to be how to strengthen awareness of WONAAC, which was reportedly in need of financial support. Literature tables were set up on the periphery of the workshops and among organizations identified with the tables was the YSA.
 

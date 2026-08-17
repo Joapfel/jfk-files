@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11074.png
-
-Convert to Markdown# SECTION 87. SECURITY INVESTIGATIONS
+# SECTION 87. SECURITY INVESTIGATIONS
 
 Communist Party members, review of field office files, pretext interviews, surveillances, Special Agents attending mass meetings, etc.
 

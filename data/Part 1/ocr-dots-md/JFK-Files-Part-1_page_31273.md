@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31273.png
-
-Convert to MarkdownSEC. II. WORK EXPERIENCE (CONT'D.)
+SEC. II. WORK EXPERIENCE (CONT'D.)
 
 2. Previous Employment: Describe your previous work experience in sufficient detail to permit full recognition of your qualifications. Include military work experience. List last position first.
 

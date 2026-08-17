@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24679.png
-
-Convert to MarkdownMy feeling definitely is that it was for a specific purpose, and was just not an all-purpose capability there begin held for targets of opportunity, unspecified targets. (O'Donnell, 9/11/75, p. 49.)
+My feeling definitely is that it was for a specific purpose, and was just not an all-purpose capability there begin held for targets of opportunity, unspecified targets. (O'Donnell, 9/11/75, p. 49.)
 
 At several points, O'Donnell stated that he did not think that Lumumba was the target specified for the use of the virus (O'Donnell, 6/9/75, p. 17; 9/11/75, p. 48). But he allowed for that possibility:
 

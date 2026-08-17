@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22797.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG : RICHARD F. GILLESPIE
 JUNIT : WH/4/PERSOHEL

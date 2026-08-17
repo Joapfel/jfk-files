@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30115.png
-
-Convert to MarkdownSECRET
+SECRET
 (As Used In)
 
 <table><thead><tr><th colspan="3">SECTION E NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</th></tr></thead><tbody><tr><td colspan="3">Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and what he believes to be greater responsibilities. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.</td></tr><tr><td colspan="3">Subject continues to perform his duties as Supervisor of this complex A&R activities in a competent manner. His knowledge of the technical aspects of his Sections' many functions help to insure a continuation of work flow and his ability to absorb and retain technical data related to his field of endeavor serves as an aid in the presentations of his numerous oral briefings.<br/><br/>One apparent weakness, which he continues to retain, is in his work relations with technical personnel; he has a tendency to drift from main topic under discussion to unrelated subjects, which, while they may be informative, decreases not only the Subject's productive capability, but, also that of the technical personnel.</td></tr></tbody></table>

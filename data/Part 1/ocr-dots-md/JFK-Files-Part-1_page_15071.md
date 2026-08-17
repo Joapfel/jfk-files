@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15071.png
-
-Convert to MarkdownMemo for the Record
+Memo for the Record
 
 28 August 1962
 

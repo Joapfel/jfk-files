@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24615.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr><td>(f) Testimony of Bissell and Tweedy About the Degree of Support for and Perpetration of the Assassination Plot</td><td>41</td></tr>
         <tr><td>(i) Tweedy Had No Recollection of the Operation To Poison Lumumba</td><td>41</td></tr>

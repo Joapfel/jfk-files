@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24740.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CBC1-316/03740-69
 

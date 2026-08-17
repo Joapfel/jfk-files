@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14714.png
-
-Convert to MarkdownASSASSINATION OF MARTIN LUTHER KING, JR.
+ASSASSINATION OF MARTIN LUTHER KING, JR.
 
 The entire facilities of the FBI were committed
 to the investigation of the assassination of Martin Luther

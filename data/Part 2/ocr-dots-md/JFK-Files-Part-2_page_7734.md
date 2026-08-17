@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7734.png
-
-Convert to Markdown15 Nov. 1962: An FBI source reported that the KGB was aware of Subject's presence in the U.S.A. and ordered all Soviet IS personnel to report immediately any information which they may obtain regarding Subject.
+15 Nov. 1962: An FBI source reported that the KGB was aware of Subject's presence in the U.S.A. and ordered all Soviet IS personnel to report immediately any information which they may obtain regarding Subject.
 
 27 Nov. 1962: Subject met Mr. McCONE, DCI, and protested treatment by the Agency.
 

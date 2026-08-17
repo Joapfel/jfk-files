@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7032.png
-
-Convert to MarkdownAlthough each request had unique characteristics, all began as a request by the Board or an ARRB staff member on behalf of the board for information. The requests fell generally into five broad categories as follows:
+Although each request had unique characteristics, all began as a request by the Board or an ARRB staff member on behalf of the board for information. The requests fell generally into five broad categories as follows:
 
 a. Requests for access to basic information which would help the board understand the CIA, its organizational structure and how it operated around the time of the assassination which included: Requests for organizational charts, briefings, mission statements, etc.; review of over ______ histories of CIA offices and projects; a review of the so-called "Breckinridge files;" and, a search for an IG index of Oswald reports.
 

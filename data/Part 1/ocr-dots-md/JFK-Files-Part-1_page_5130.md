@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5130.png
-
-Convert to MarkdownVI. 17 Nov 76
+VI. 17 Nov 76
 
 N 1
 

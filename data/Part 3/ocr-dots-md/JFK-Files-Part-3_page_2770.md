@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2770.png
-
-Convert to Markdownsince about 1795 I guess, or some period like that, had
+since about 1795 I guess, or some period like that, had
 authorities that almost border on what a sheriff has. We
 are the investigative agency of the Department of Justice,
 and during these times the Department of Justice had us

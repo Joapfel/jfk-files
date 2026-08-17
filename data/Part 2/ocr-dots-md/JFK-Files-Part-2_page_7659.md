@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_7659.png
-
 to the Director.
 
 Reports in which there is a controversial issue or where statements have

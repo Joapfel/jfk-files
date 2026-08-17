@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12938.png
-
-Convert to Markdown14-0000
+14-0000
 
 1 Sept 71 Subj notified that he to accompany Venezuelan Minister of Interior (LoreAZo Fernandez) on a 4 to 6 week trip to Europe. Trip speculated to be Fernandez' touching base for political reasons prior announcing his presidential candidacy upon return.
 

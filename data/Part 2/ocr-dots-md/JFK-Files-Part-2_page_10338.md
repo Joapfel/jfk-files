@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10338.png
-
-Convert to MarkdownTSD/SDB Memo #138-73
+TSD/SDB Memo #138-73
 
 8 May 1973
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3120.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The President concluded the meeting, by saying that he would like to urge caution with respect to the danger of making false moves, with the result of starting something before we were ready for it.* 93/
 

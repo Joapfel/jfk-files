@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21507.png
-
-Convert to MarkdownTO : Chief, Security Research Staff
+TO : Chief, Security Research Staff
 FROM : Interrogation Research Division
 SUBJECT : Yuriy Ivanovich NOSENKO
 

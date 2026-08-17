@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11248.png
-
-Convert to Markdown(2) Inclusion in security index
+(2) Inclusion in security index
 
 In recommending key facility employee for inclusion in security index, FD-122 is to contain:
 

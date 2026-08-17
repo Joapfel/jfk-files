@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12028.png
-
-Convert to Markdown14-0000
+14-0000
 
 Page No. 86-6
 (Dec. 27)

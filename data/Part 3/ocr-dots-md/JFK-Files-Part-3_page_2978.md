@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2978.png
-
-Convert to Markdown1. Soviet espionage where they can put one person in this country and they supported him with total resources of the Soviet Union, false identification, all the money he needs, communications networks, satellite assistance, and everything, and you're working with a paucity of information.
+1. Soviet espionage where they can put one person in this country and they supported him with total resources of the Soviet Union, false identification, all the money he needs, communications networks, satellite assistance, and everything, and you're working with a paucity of information.
 
 6 The same problem exists to a certain extent in domestic security. You don't have a lot of black and white situations. So someone reports something to you which you feel, you take a quick look at and there's nothing to it, and I think that's what they did.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24486.png
-
-Convert to Markdownsupporting Moscow. Precisely in order to revitalize this organization, which had been reduced to the most precarious status thanks to the patriotic efforts of the armed forces, an official of the Soviet Embassy handed over the sum of 100,000 dollars to Colombian communist Feliciano Fachon Choconta in Mexico.
+supporting Moscow. Precisely in order to revitalize this organization, which had been reduced to the most precarious status thanks to the patriotic efforts of the armed forces, an official of the Soviet Embassy handed over the sum of 100,000 dollars to Colombian communist Feliciano Fachon Choconta in Mexico.
 
 Fortunately, he was found and captured when he was on the point of successfully completing his prophetic mission. On the subject of this notorious matter which had worldwide repercussions at the time, the Lima daily *La Tribuna* identified a Russian called Lenov in a series of recent reports, as "the Soviet official who gave Fachon the money in Mexico," and, on the basis of information obtained from Interpol; it added that Lenov is traveling with two other KGB agents, Alexander Opezbunov and Victor Mednikov, all claiming to be "trade union leaders," on a fantastic tour which covers precisely the countries mentioned in the Buenos Aires *La Prensa* as the targets of the new communist plans for violence, that is to say, Colombia, Venezuela, Ecuador, Peru and Bolivia.
 

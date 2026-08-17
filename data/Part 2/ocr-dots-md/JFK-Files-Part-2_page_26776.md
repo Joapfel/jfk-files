@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26776.png
-
-Convert to Markdown10 of 16 St, S.E., Washington, D.C. 20003
+10 of 16 St, S.E., Washington, D.C. 20003
 
 SECRET
 

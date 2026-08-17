@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5976.png
-
-Convert to MarkdownLetter to Division
+Letter to Division
 
 E: COOPERATIVITIES PROGRAM
 197-0-4

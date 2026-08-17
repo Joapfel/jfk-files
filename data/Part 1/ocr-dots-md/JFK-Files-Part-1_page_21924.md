@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21924.png
-
-Convert to MarkdownOksana and himself. He said that he and his wife refer to her as his "double" (kopiya). His wife, in a letter after the defection, referred to Oksana as NOSENKO's kopiya.
+Oksana and himself. He said that he and his wife refer to her as his "double" (kopiya). His wife, in a letter after the defection, referred to Oksana as NOSENKO's kopiya.
 
 NOSENKO's father, the Shipbuilding Minister, died of stomach cancer in August 1956, three years after NOSENKO says he entered the KGB Second Chief Directorate. The period of time surrounding his father's death was, according to NOSENKO, a turning point in his personal and professional life. It was then that he "found himself" after an irresponsible past, drinking and wenching, and indifference to his work.
 

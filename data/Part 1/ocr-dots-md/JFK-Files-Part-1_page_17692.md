@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17692.png
-
-Convert to Markdownas banking transactions, landscaping activities, evidences of internal construction, etc. Examples of this type of report are M-2375 and M-2448.
+as banking transactions, landscaping activities, evidences of internal construction, etc. Examples of this type of report are M-2375 and M-2448.
 
 ### f. Military Activities of the Soviet Embassy
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1360.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 support the operation. The two principals, MORENO (AMICE-27) and Miguel A. DIAZ Isalgue (AMICE-14) claimed to have contact with high-level GOC officials. They completed four infiltration missions to Cuba and were terminated in March 1964.
 

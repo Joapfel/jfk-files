@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8055.png
-
-Convert to Markdown11 March 1975
+11 March 1975
 
 MEMORANDUM FOR: General Counsel
 

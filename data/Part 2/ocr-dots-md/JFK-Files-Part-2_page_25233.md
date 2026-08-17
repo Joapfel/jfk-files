@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25233.png
-
-Convert to Markdown<table><thead><tr><th>SOURCES/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>COLBY</td><td rowspan="2">November 1, 1963</td><td rowspan="2">DIEM ✓</td></tr><tr><td>LODGE, H.C.</td></tr></tbody></table>
+<table><thead><tr><th>SOURCES/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>COLBY</td><td rowspan="2">November 1, 1963</td><td rowspan="2">DIEM ✓</td></tr><tr><td>LODGE, H.C.</td></tr></tbody></table>
 
 **OCCURRENCE:** When DIEM called LODGE directly preceding his death, COLBY states that the message that he saw of the summary of the conversation was that DIEM, "...said that he was going to require his officers to have filled their oaths of loyalty to the constitution, the Vietnamese constitution, in his office as president. He was very stiff about his position President." p. 67
 

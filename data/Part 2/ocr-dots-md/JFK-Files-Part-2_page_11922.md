@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11922.png
-
-Convert to Markdowng. Prior to any prosecution or administrative hearing, advise trial attorney that informant not only furnished information concerning instant case but also provided other statements not pertinent to case at issue. Trial attorney will thus be prepared in event informant testifies on direct examination or cross-examination that he furnished information in addition to his testimony.
+g. Prior to any prosecution or administrative hearing, advise trial attorney that informant not only furnished information concerning instant case but also provided other statements not pertinent to case at issue. Trial attorney will thus be prepared in event informant testifies on direct examination or cross-examination that he furnished information in addition to his testimony.
 
 2. Recording written and oral information
 

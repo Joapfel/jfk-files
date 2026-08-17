@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23820.png
-
-Convert to MarkdownTO: Chief, TO Desk
+TO: Chief, TO Desk
 FROM: Chief of Station, London
 Attachment No. 2 to OLA-43,237
 4 June 1965

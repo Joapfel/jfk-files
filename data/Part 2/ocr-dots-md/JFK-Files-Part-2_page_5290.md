@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5290.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This information was cabled to Headquarters for traces and identifying data. After the assassination of President Kennedy on 22 November 1963 in Dallas, Texas, the Mexico City Station spent several months investigating leads in connection with Oswald's visit to Mexico. (55)
 

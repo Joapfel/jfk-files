@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7098.png
-
-Convert to Markdown# Task Force Three - Domestic Activities
+# Task Force Three - Domestic Activities
 
 This Task Force will concern itself with intelligence organizations engaged in domestic activities and including the FBI, those parts of the CIA that relate to domestic matters, and possibly Army counterintelligence activities. The staffing for this Task Force is still in process and no Task Force Director has yet been appointed.
 

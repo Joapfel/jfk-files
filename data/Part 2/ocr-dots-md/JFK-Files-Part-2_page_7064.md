@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7064.png
-
-Convert to Markdownclashed with the CIA's strong evidence in support of postponement. Initially, the Board was inclined to release Scelso's true name, but the Agency argued convincingly against release. CIA provided evidence on the current status of the individual, shared correspondence sent by him, and even arranged an interview between him and a Review Board staff member. As an interim step, the Review Board inserted his prior alias "Scelso" as substitute language. (See illustration.) Then, at its May 1996 meeting, Board members determined to release "Scelso's" true name in five years or upon his death.
+clashed with the CIA's strong evidence in support of postponement. Initially, the Board was inclined to release Scelso's true name, but the Agency argued convincingly against release. CIA provided evidence on the current status of the individual, shared correspondence sent by him, and even arranged an interview between him and a Review Board staff member. As an interim step, the Review Board inserted his prior alias "Scelso" as substitute language. (See illustration.) Then, at its May 1996 meeting, Board members determined to release "Scelso's" true name in five years or upon his death.
 
 c. *Information that identifies CIA officers.*
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31038.png
-
-Convert to Markdown1. The following information and/or documents are submitted in compliance with reference display:
+1. The following information and/or documents are submitted in compliance with reference display:
 
 a. Original Form 84-69 signed in possession.
 

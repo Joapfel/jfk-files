@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_606.png
-
-Convert to Markdown02/
+02/
 
 ADV LA 1900Z
 

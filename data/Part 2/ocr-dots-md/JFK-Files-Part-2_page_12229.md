@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12229.png
-
-Convert to Markdown4. Recording investigative activity
+4. Recording investigative activity
 
 All investigative activity must be made a matter of record in the field office files with all sources of information being completely identified. Sources include all confidential informants - criminal, security, [and racial.] Agents must not have and use informants known only to the individual Agents personally.
 

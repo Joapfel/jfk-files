@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6038.png
-
-Convert to MarkdownForm No. G-13
+Form No. G-13
 (Ed. 3-9-61)
 
 From

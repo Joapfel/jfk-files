@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16466.png
-
-Convert to Markdown# Students for a Democratic Society
+# Students for a Democratic Society
 
 subscribe to
 new left notes

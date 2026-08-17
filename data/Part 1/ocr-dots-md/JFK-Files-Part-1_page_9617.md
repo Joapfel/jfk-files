@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9617.png
-
-Convert to MarkdownSUGEST
+SUGEST
 
 8 June 1949
 

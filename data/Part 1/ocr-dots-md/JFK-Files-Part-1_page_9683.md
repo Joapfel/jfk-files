@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9683.png
-
-Convert to Markdown26 June 1964
+26 June 1964
 
 MEMORANDUM FOR: Chief, CI/OA
 SUBJECT : Amendment of LICOCKY-1 Operational Approval

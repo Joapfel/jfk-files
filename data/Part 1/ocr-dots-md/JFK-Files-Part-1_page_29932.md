@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29932.png
-
-Convert to MarkdownTO : David E. Murphy
+TO : David E. Murphy
 
 SUBJECT: Annual Fitness Report
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21698.png
-
-Convert to Markdownat all times on the above trip, that they found a "repairman"
+at all times on the above trip, that they found a "repairman"
 in their hotel room when they unexpectedly returned, and
 that on another occasion an "attractive and available Soviet
 female" was believed to have been planned in their train

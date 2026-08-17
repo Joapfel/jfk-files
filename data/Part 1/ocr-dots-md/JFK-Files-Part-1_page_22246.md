@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22246.png
-
-Convert to Markdownc. Operations Involving Other Westerners
+c. Operations Involving Other Westerners
 
 (i) Introduction
 

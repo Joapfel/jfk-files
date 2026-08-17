@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24034.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 When Filled In
 
 7 January 1975

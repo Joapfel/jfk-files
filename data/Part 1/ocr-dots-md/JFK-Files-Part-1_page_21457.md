@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21457.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>PAGE NO</th></tr></thead><tbody><tr><td>(TO<br/> Chief, TS) Attention: Chief, SR</td><td>SECRET</td><td>55817</td></tr><tr><td>HEADQUARTERS PHONE NO:</td><td></td><td>202-555-3200</td></tr><tr><td>FROM<br/>Chief of Station, Paris</td><td>DATE<br/>7 DEC 1960</td><td></td></tr><tr><td>RECEIVED: KONAK (aka Celia) &amp; KOZAK</td><td>RE 433 - (CHECK ONE):</td><td></td></tr><tr><td>ACTION REQUIRED:<br/>For information</td><td>X MARKED FOR INDEXING</td><td></td></tr><tr><td colspan="3">NO INDEXING REQUIRED</td></tr><tr><td>REFERENCE(S):</td><td colspan="2">INDEXING CAN BE JUDGED BY QUALIFIED NO DESK ONLY</td></tr></tbody></table>
 

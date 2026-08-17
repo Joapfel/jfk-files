@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1307.png
-
-Convert to Markdown- 4 -
+- 4 -
 
 : eph B. Smith
 

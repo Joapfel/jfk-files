@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19090.png
-
-Convert to Markdown# Russia's Changing, Says ABC Newsman
+# Russia's Changing, Says ABC Newsman
 
 By Rick Friedman
 

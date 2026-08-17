@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20414.png
-
-Convert to Markdown14-0000
+14-0000
 
 B. LAST U.S. PASSPORT - NUMBER, DATE, AND PLACE OF ISSUE:
 

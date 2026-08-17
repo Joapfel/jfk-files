@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6132.png
-
-Convert to Markdown56 Md. L. Rev. 1, *4
+56 Md. L. Rev. 1, *4
 
 release, only twenty-nine percent of the public believed that Oswald was solely responsible for the assassination of President Kennedy; following its release a year later, in 1964, that number increased to eighty-seven percent. However, two years later, in 1966, only thirty-six percent of Americans indicated they [*5] believed the Report. n18 By the time JFK opened in the movie houses of America, n19 public confidence in the Commission's Report had sunk even further, with about seventy percent of Americans concluding that Oswald did not act alone. n20 The movie, therefore, tapped a deep wellspring of distrust of the Report rather than, as is sometimes implied, n21 fostered it.
 

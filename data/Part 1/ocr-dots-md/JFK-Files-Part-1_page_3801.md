@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3801.png
-
-Convert to MarkdownCentral South Internacional Inc.
+Central South Internacional Inc.
 
 P. O. BOX 1429 LITTLE RIVER STATION, MIAMI, FLA. 33108
 CABLE: CENSOIN

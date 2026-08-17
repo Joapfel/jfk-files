@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15033.png
-
-Convert to MarkdownMemorandum to Mr. Sullivan
+Memorandum to Mr. Sullivan
 
 RE: LUNCHEON ENGAGEMENT OF THE DIRECTOR
 WITH THE ATTORNEY GENERAL AND

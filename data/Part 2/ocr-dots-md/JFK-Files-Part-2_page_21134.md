@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21134.png
-
-Convert to Markdownwhile NOSENKO was still the case officer responsible for
+while NOSENKO was still the case officer responsible for
 Army Attaches. He was reported to the Russians as an
 Assistant Army Attache on permanent assignment although it
 was actually a temporary assignment.

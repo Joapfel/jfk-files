@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14048.png
-
-Convert to MarkdownLiable via Commin-Talent-Keystone
+Liable via Commin-Talent-Keystone
 
 it is up to the Board to ascertain specifically whether the President desires that
 the Board go into covert action programs deeply, and if that is the President's

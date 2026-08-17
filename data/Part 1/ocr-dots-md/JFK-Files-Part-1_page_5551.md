@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5551.png
-
-Convert to Markdownon five different occasions. He is reported to be available to serve as captain on a fishing boat, and to train a crew.
+on five different occasions. He is reported to be available to serve as captain on a fishing boat, and to train a crew.
 
 h. The S.S. Evangeline sails every two weeks from Miami direct to Port Antonio, and could be employed for the delivery of supplies and even a boat to Robin Moore.
 

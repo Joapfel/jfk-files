@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14752.png
-
-Convert to Markdown11/20/70
+11/20/70
 
 1 - Mr. W. C. Sullivan
 1 - Mr. C. D. Brennan

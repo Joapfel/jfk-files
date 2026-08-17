@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24231.png
-
-Convert to Markdown# VII. BEYOND "DOING BUSINESS": PEAK NON-GOVERNMENT SECURITY INVESTMENTS BY PROPRIETARIES ACTIVE AS OF DECEMBER 31, 1974
+# VII. BEYOND "DOING BUSINESS": PEAK NON-GOVERNMENT SECURITY INVESTMENTS BY PROPRIETARIES ACTIVE AS OF DECEMBER 31, 1974
 
 As described infra, MHMUTUAL (the insurance and pension complex) has invested heavily in both domestic and foreign securities markets. Its portfolio runs the gamut of notes, bonds, debentures, etc. But other proprietaries have also used this investment route as a method of increasing capital and insuring adequate cover.
 

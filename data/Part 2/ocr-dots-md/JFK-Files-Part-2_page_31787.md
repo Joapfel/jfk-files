@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31787.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH/dp
 
 On August 23, 1968, NICK DELLERE, Del Mar Rental Company, Municipal Airport, Manhattan, Kansas, advised that on the late afternoon of August 19, 1968, ROBERT SCHEER was picked up by charter aircraft at Municipal Airport, Kansas City, Missouri, and was flown to Manhattan, Kansas. On the morning of August 20, 1968, SCHEER was returned to the airport at Kansas City, Missouri, by charter aircraft which charter flights were arranged for and paid for by a representative of NSA.

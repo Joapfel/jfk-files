@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24838.png
-
-Convert to MarkdownThe next day, October 8, Headquarters cabled the Station in response
+The next day, October 8, Headquarters cabled the Station in response
 to the Wimert-Lt. Colonel meeting. Headquarters took note of Schneider's
 resistance to coup plans and stated:
 

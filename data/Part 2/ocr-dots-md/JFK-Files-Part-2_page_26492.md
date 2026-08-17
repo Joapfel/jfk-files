@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26492.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Students: Randolfo Espinsosa Mourra, Rolando Orellano Cruz, Oscar Duron, Ulises Ekonomo Torres, Carlos Falck Contreras, Jorge Arturo Reina Idiaquez, Leonidas Velasquez Funes, and Rodil Rivera Rodil.
 

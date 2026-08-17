@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5172.png
-
-Convert to MarkdownRegarding the Government reservations, it is noted that specific liaison assignments have been made in regard to these but inasmuch as persons normally contacted on these bases are Government employees contacted on an official basis, they are not considered appropriate for development as CIs and are bound to furnish information as part of their duties. It is noted, however, that the Hunters Point Naval Shipyard is in a predominantly Negro area and two PRIs, 170-845 and 170-241, are under development at that location by SAs assigned to this squad.
+Regarding the Government reservations, it is noted that specific liaison assignments have been made in regard to these but inasmuch as persons normally contacted on these bases are Government employees contacted on an official basis, they are not considered appropriate for development as CIs and are bound to furnish information as part of their duties. It is noted, however, that the Hunters Point Naval Shipyard is in a predominantly Negro area and two PRIs, 170-845 and 170-241, are under development at that location by SAs assigned to this squad.
 
 Regarding the air piracy and crime aboard aircraft violations, it is noted all major airports are located within Resident Agency territories and coverage at these locations will be covered there.
 

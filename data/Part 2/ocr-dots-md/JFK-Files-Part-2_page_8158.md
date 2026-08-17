@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8158.png
-
-Convert to Markdown5. Is there any indication that Ray had any connection with any foreign intelligence service? If so, please provide all possible details.
+5. Is there any indication that Ray had any connection with any foreign intelligence service? If so, please provide all possible details.
 
 6. Is there any indication that Ray had any connection with foreigners in the United States, especially Cubans and Soviets?
 

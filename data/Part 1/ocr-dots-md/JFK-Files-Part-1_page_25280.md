@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25280.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ADY-2038
 Page 7.

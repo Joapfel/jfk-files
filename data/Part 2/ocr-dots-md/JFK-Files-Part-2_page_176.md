@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_176.png
-
-Convert to Markdown**Miss Joyce H. Piseisch**
+**Miss Joyce H. Piseisch**
 
 **Miss Piseisch**
 

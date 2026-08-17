@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23922.png
-
-Convert to MarkdownAmerican leaders, such as President Betancourt of Venezuela, pressed the United States to take affirmative action against Trujillo to dispel criticism that the U.S. opposed dictatorships of the left only. A belief that Castro's road to power was paved by the excesses of Batista led to concern that the Dominican Republic might also eventually fall victim to a Castro-style Communist regime. (Rusk, pp. 8,9)
+American leaders, such as President Betancourt of Venezuela, pressed the United States to take affirmative action against Trujillo to dispel criticism that the U.S. opposed dictatorships of the left only. A belief that Castro's road to power was paved by the excesses of Batista led to concern that the Dominican Republic might also eventually fall victim to a Castro-style Communist regime. (Rusk, pp. 8,9)
 
 ## II. Initial Contact with Dissidents and Request for Arms
 

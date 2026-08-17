@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21518.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A. Is NOSENKO identical to the person whom he claims to be?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20893.png
-
-Convert to MarkdownPERSONAL HISTORY STATEMENT - (Appendix I)
+PERSONAL HISTORY STATEMENT - (Appendix I)
 
 Listed below are names of organizations identified by the Attorney General, under his responsibility pursuant to Executive Order 10450, dated 27 April 1953, to list the names of each foreign or domestic organization, association, movement, group or combination of persons which he designates as Totalitarian, Fascist, Communist, or subversive, or as having adopted or having shown a policy of advocating or approving the commission of acts of force or violence to deny others their rights under the Constitution of the United States, or as seeking to alter the form of government of the United States by unconstitutional means.
 

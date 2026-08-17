@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24571.png
-
-Convert to Markdownrecalled that the question of a Castro assassination was raised) declared
+recalled that the question of a Castro assassination was raised) declared
 that the discussion was not related to his assassination activity with Ro-
 selli. (Harvey, 7/11, pp. 48-50). Harvey further testified that he did not
 view the August 10, 1962, discussion of a Castro assassination as authoriza-

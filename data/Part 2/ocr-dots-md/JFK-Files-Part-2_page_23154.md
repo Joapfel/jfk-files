@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23154.png
-
-Convert to Markdown1 was a WAVE cable, that I personally released it. I don't happen
+1 was a WAVE cable, that I personally released it. I don't happen
 2 to recall it, but I am familiar with the article and the thrust
 3 of it.
 

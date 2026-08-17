@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34458.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (4) Subject is to receive a haircut, the shorter the better.
 

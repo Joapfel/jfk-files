@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13542.png
-
-Convert to MarkdownEMBAJADA DE CURA.-
+EMBAJADA DE CURA.-
 
 L 30. N 30. TEL. 14-13-26.-
 10 septiembre 62.-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20088.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. It is difficult to place in the proper perspective the contribution of this senior staff agent to Paris Station operations. On the one hand, Subject has established superb cover in the scientific and technical field which should have afforded him virtually unlimited access to persons of interest to us, both Soviet and potential access agents. In evaluating the manner in which the employee set up and managed this cover, I would tend to agree with his comments to the fitness report on the managerial demands on him, although those comments are somewhat overdrawn.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4433.png
-
-Convert to Markdown11 March 1974
+11 March 1974
 
 SUBJECT: Bernard Barker
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11740.png
-
-Convert to MarkdownTHE WINDFALL
+THE WINDFALL
 
 BY
 ERSKINE CALDWELL

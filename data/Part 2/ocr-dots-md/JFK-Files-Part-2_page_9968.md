@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9968.png
-
-Convert to MarkdownSecurity Requirements for Government
+Security Requirements for Government
 Employment
 
 Executive Order 11785. June 4, 1974.

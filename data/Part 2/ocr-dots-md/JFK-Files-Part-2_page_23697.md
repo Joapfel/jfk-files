@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23697.png
-
-Convert to Markdownof the defense report, which is the substance of that has been discussed at great length with the Defense Department and they are happy with it except -- well, happy with it may be an exaggeration but they have no problems with it except for the numbers and the Committee itself will have to step up to the question of whether the large number or any subsets of numbers will be released.
+of the defense report, which is the substance of that has been discussed at great length with the Defense Department and they are happy with it except -- well, happy with it may be an exaggeration but they have no problems with it except for the numbers and the Committee itself will have to step up to the question of whether the large number or any subsets of numbers will be released.
 
 The internal oversight, the Office of General Counsel and Inspector General has not been.
 

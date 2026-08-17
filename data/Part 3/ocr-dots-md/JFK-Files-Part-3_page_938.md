@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_938.png
-
-Convert to Markdown1. Beginning in 1939, various Presidential directives requested all law enforcement officers to report information regarding espionage, sabotage, subversive activities and related matters to the FBI. These directives charge the FBI with the responsibility of correlating the material and referring matters under jurisdiction of other Federal agencies to the appropriate agencies.
+1. Beginning in 1939, various Presidential directives requested all law enforcement officers to report information regarding espionage, sabotage, subversive activities and related matters to the FBI. These directives charge the FBI with the responsibility of correlating the material and referring matters under jurisdiction of other Federal agencies to the appropriate agencies.
 
 2. The Delimitations Agreement between the FBI and the Armed Forces intelligence agencies provides that the responsibilities assumed by one organization in a given field carries with it the obligation to exchange freely and directly with other subscribing organizations all information of mutual interest. In addition, a supplemental agreement provides that certain information of general interest to the intelligence services of the Armed Forces be furnished them.
 

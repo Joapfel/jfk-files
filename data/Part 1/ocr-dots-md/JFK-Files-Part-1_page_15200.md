@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15200.png
-
-Convert to Markdown4-00000
+4-00000
 
 Sao Pau., le 29 octobre 1959
 

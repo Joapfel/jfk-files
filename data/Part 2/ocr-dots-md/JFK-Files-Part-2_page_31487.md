@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31487.png
-
-Convert to MarkdownCOMMITTEE TO UPHOLD THE RIGHT TO TRAVEL
+COMMITTEE TO UPHOLD THE RIGHT TO TRAVEL
 
 A source advised on August 1, 1963, and October 4, 1963, that at a meeting sponsored by Progressive Labor and held on July 31, 1963, at Stiles Hall, Berkeley, California, it was decided that a committee be formed in behalf of the San Francisco Bay Area students who had traveled to Cuba in June, 1963, in defiance of the ban by the United States Department of State on travel to Cuba. The name decided upon was the Committee to Uphold the Right to Travel (CURT).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19231.png
-
-Convert to MarkdownPD 100-10983
+PD 100-10983
 
 Enclosed for the Bureau are twelve copies, for San Francisco two copies and 120 copies of a Letterhead Memorandum (LMM) suitable for dissemination concerning proposed anti-aircraft defense. 12/15/68. Portland, Oregon, in support of Defense. Requesting Air Force policy in Salem, Washington, D.C. 1/15/58. Sources utilized in this LMM, who have furnished reliable information in the past, are as follows:
 

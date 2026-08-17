@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5345.png
-
-Convert to Markdown13-00000
+13-00000
 
 C O N F I D E N T I A L
 

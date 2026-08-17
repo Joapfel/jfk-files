@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27221.png
-
-Convert to Markdown# INDEX
+# INDEX
 
 ## (Chronological)
 

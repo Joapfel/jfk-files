@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9747.png
-
-Convert to MarkdownTELETYPE TO ALL OFFICES
+TELETYPE TO ALL OFFICES
 
 RE:: SENSTUDY 75
 62-116395

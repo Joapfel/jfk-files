@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4919.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">FON 128<br/>TITULO 3º</td></tr><tr><td>CABLE SEC D'ÉCEN BY HER<br/>PERSONAL NOTIFIED</td><td>TOTAL COPIES<br/>SECRET</td></tr><tr><td colspan="2" style="text-align: right;">IN PRODUCTION BY OTHER THOSE<br/>ISSUING OFFICE IS ASSUMED</td></tr><tr><td>ADANCE COPY ISSUED SLIPPED BY AT <br/>STAFF</td><td></td></tr><tr><td>ACTION UNIT<br/>INFO</td><td>RF. FILE VR.<br/><table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr><tr><td>ACTION #</td><td></td></tr><tr><td>T 324085 EIA383</td><td>PAGE 92 IN 077831<br/>TORI221529Z OCT 76 MANA 12534</td></tr></table>
 

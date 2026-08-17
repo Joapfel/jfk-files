@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6143.png
-
-Convert to Markdownn80. See id. at 10.
+n80. See id. at 10.
 
 n81. See Hinckle & Turner, Deadly Secrets, supra note 44, at 271 (concluding that the HSCA suffered from lack of funding and that too much time had passed between the assassination and the Committee's investigation).
 

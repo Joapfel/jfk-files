@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7825.png
-
-Convert to MarkdownSECRET
+SECRET
 
 201 CONSOLIDATION INSTRUCTIONS (See DOI 70-20)
 

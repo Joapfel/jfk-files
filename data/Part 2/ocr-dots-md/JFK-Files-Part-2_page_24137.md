@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24137.png
-
-Convert to Markdownthe United States; the company has accepted commercial charter flights from non-Agency customers for income and cover purposes.
+the United States; the company has accepted commercial charter flights from non-Agency customers for income and cover purposes.
 
 ## Media Publications
 

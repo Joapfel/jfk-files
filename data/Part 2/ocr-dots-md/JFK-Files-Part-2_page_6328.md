@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6328.png
-
-Convert to Markdownthe date of enactment unless, in the case of executive branch records, the President demonstrates that public disclosure will result in an identifiable harm to the national security, intelligence operations, or foreign relations of the United States.
+the date of enactment unless, in the case of executive branch records, the President demonstrates that public disclosure will result in an identifiable harm to the national security, intelligence operations, or foreign relations of the United States.
 
 The Assassination Records Review Board is an independent agency within the executive branch. The five-member Review Board will be appointed by the President with the advice and consent of the United States Senate. The confirmation hearings will be conducted by the Committee on Governmental Affairs. The Act requires that the Review Board include at least one historian and one attorney, and that each member is a national recognized professional in his or her field. The legislation requires that prior to making the appointments, the President is required to consider recommendations from the American Historical Association, the Organization of American Historians, the Society of American Archivists, and the American Bar Association.
 

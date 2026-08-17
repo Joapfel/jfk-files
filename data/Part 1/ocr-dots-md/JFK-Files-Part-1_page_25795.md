@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25795.png
-
-Convert to MarkdownSECRET
+SECRET
 
 would be if GERENDE were arrested by one of the local police agencies and interrogated in detail. Also, the Station must forever be aware that the local police agencies are certainly capable, for only a few dollars, of selling information concerning KUBARK to the Soviets and/or Satellites.
 

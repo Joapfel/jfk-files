@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20479.png
-
-Convert to MarkdownAT 100-7300
+AT 100-7300
 
 Copies of the enclosed LHM are being furnished to 111th MIG, Region V, Ft. McPherson, Ga.; U.S. Secret Service, Atlanta, Ga.; NIS, Charleston, S.C.; OSI, Robins AFB, Ga.; and USA, Atlanta, for their information.
 

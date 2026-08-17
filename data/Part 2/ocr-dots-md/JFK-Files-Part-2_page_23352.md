@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23352.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 which this lethal material could be administered through
 Lumumba's food or toothpaste or something that he would ingest.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23412.png
-
-Convert to MarkdownPRIORITY
+PRIORITY
 
 IN 1898
 LEAP 1820

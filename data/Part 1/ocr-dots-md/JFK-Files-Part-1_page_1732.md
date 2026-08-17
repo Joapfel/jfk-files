@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1732.png
-
-Convert to Markdown# CABOT, Thomas D., Jr. - #4-0906
+# CABOT, Thomas D., Jr. - #4-0906
 
 Thomas D. CABOT, Jr. was approved for contact use on 17 August 1951. At the time he was Vice President and Director of International Relations Texas A&M University and Chemical Corporation. He was residing in Lausanne, Switzerland. Contact interest was for briefing him on Agency interests in economic and political developments in various European countries; chemical, industrial development, etc. He was the subject of a favorable background investigation in 1952.
 

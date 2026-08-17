@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3645.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>MARKED FOR SHIPPING</td></tr><tr><td>NO DOCUMENT REQUIRED</td></tr><tr><td>ONLY QUALIFIED CASE (CAR JUDGES INCLUDING)</td></tr><tr><td>MAY BE IN LATE</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9519.png
-
-Convert to Markdown5. Russia (continued)
+5. Russia (continued)
 
 Vera Figner was a great Russian revolutionary and a militant fighter for freedom. Also a woman of extraordinary beauty and moral integrity. She was known in the Tsarist fortress prison where she spent most of her life, as the "Nella of the Schluesselburg."
 

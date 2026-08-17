@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15755.png
-
-Convert to Markdownbut he's here tonight. We have Mr. BOBBY RUSH who is the Illinois Chairman of the Black Panther Party. Deputy Minister of Defense. Okay. I got one out of three.
+but he's here tonight. We have Mr. BOBBY RUSH who is the Illinois Chairman of the Black Panther Party. Deputy Minister of Defense. Okay. I got one out of three.
 
 It's not bad. Miss ARLENE HUGHES (phonetic), Chicago celebrated psychic. We have Mr. GEORGE PENECOSTIN (phonetic) and DONALD CLEMEN (phonetic) tonight who are the stars of the play in town called "The Boys in the Band." Mr. MORRIS RENNEK (phonetic), author of the new book called "Siam Miami" (phonetic) and SONNY BROWN (phonetic) who represents the Atlas Galleries and we'll show you too in a little while some magnificent paintings that you'll be able to buy in various stores that are just out of this world and so reasonable.
 

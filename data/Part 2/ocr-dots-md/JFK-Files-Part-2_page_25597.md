@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25597.png
-
-Convert to MarkdownIn 1923, while he was on bail awaiting trial in the narcotics and larceny cases, Filippo Sacco jumped bail in both cases and disappeared from East Boston. The Government narcotics informant, Fisher, disappeared about the same time and Government sources believe that he may have been killed to prevent him from testifying. Because of his fugitive status, both indictments against Sacco were dropped.
+In 1923, while he was on bail awaiting trial in the narcotics and larceny cases, Filippo Sacco jumped bail in both cases and disappeared from East Boston. The Government narcotics informant, Fisher, disappeared about the same time and Government sources believe that he may have been killed to prevent him from testifying. Because of his fugitive status, both indictments against Sacco were dropped.
 
 After Sacco's flight from his home in 1923, he spent some time in New York and Chicago, and finally made his appearance in Los Angeles in 1924 under the fictitious name "John Roselli." Sources indicate that Sacco engaged in bootlegging and hijacking during this period and police records show he was frequently arrested on such charges as carrying concealed weapons, and suspicion of robbery.
 

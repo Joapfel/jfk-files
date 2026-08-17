@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27943.png
-
-Convert to MarkdownHer acute and inquisitive mind has been an
+Her acute and inquisitive mind has been an
 asset to my staff, and I believe she would be an asset
 to yours.
 

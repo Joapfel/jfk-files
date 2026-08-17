@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24866.png
-
-Convert to Markdown12 JUL 58 M 5517%
+12 JUL 58 M 5517%
 
 
 SECRET !22240Z CITE MEXICO CITY 7395

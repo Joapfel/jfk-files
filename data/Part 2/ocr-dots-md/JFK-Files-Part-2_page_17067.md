@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17067.png
-
-Convert to MarkdownOn November 4, 1968, RUSH returned to Chicago and stated that the Chicago Chapter would follow the policy of the National BPP in all regards.
+On November 4, 1968, RUSH returned to Chicago and stated that the Chicago Chapter would follow the policy of the National BPP in all regards.
 
 ( 1, 11/7/68)
 

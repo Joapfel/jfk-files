@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3896.png
-
-Convert to MarkdownAtt. No. 14 to UFGA-21593
+Att. No. 14 to UFGA-21593
 
 UFGA-21693/14
 

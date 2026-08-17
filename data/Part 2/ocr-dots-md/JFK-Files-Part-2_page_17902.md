@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17902.png
-
-Convert to MarkdownMAR 25 1975
+MAR 25 1975
 
 NR 005 ME PLAIN
 

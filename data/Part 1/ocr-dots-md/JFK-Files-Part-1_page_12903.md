@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12903.png
-
-Convert to MarkdownSUBJECT: Data for Inclusion in Draft Memorandum
+SUBJECT: Data for Inclusion in Draft Memorandum
 To Secretary of State
 
 REFERENCE: LIX-0714, 19 October 1976

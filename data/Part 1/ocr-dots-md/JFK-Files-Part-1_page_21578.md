@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21578.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that NOSENKO was dispatched by the KGB. NOSENKO has during
 current interviews satisfactorily sourced his information in al.m st

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7174.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. ISAYEV asked what his fishing plans were. Nick said that he was so busy with his many problems at the new plant that he would not be going fishing during June. Nick then suggested that they go on the weekend of 1 July. However, he added "but just you and me. Don't bring any of your friends like tbat rude Pablo (YATKOV)." ISAYEV answered "Not even Anatoliy (KARABACH?" Nick answered that Anatoliy was okay and he could come. This date is tentative and will be confirmed.
 

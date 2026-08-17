@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30207.png
-
-Convert to MarkdownAdmiral Stansfield Turner OCR
+Admiral Stansfield Turner OCR
 
 photos had been tampered with, and the investigation which
 the staff thereafter conducted, including the identification

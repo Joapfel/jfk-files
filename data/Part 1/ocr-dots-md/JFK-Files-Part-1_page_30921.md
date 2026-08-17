@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30921.png
-
-Convert to Markdown<table><tr><td colspan="2">MESSAGE FORM<br/>TOTAL COPIES: 19</td></tr><tr><td>WSR personnel</td><td>SECRET</td></tr><tr><td>WII Contracts</td><td></td></tr><tr><td>4460</td><td></td></tr><tr><td>13 July 1970</td><td></td></tr></table>
+<table><tr><td colspan="2">MESSAGE FORM<br/>TOTAL COPIES: 19</td></tr><tr><td>WSR personnel</td><td>SECRET</td></tr><tr><td>WII Contracts</td><td></td></tr><tr><td>4460</td><td></td></tr><tr><td>13 July 1970</td><td></td></tr></table>
 
 <table><tbody><tr><td>C/C (index)</td><td>[ ] NO INDEX</td><td>[ ] RETURN TO ____________</td><td>[ ] FILE RID</td></tr><tr><td colspan="4">FILE IN CS FILE NO. _________________</td></tr></tbody></table>
 

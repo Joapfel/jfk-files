@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20193.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Date: 13 October 1963
 

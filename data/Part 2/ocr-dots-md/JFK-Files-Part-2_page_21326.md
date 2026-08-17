@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21326.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Gerardo Gabriel Antonio Hernandez Perez (105-113456), residence, Miami, Fla., advised on 8/3/62, that he and many other Cubans had a poor opinion of Jose Miro Cardona, President of the Cuban Revolutionary Council, Manuel Ray Rivero, former member of the council, and Eloy Gutierrez Menoyo, because they were once with the Castro regime and probably would have stayed if there had been sufficient opportunity for them to advance politically and financially. Ray was considered the most anti-American of any of the exiled leaders.
 

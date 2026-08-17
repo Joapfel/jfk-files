@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7663.png
-
-Convert to MarkdownIV CONVINCION CONGULAR INTERAMERICANA (Abril 11 - 15 en Panamá,Rep,Panamá)
+IV CONVINCION CONGULAR INTERAMERICANA (Abril 11 - 15 en Panamá,Rep,Panamá)
 
 Nuestro estimado Colón, Honorable Emilia Arosaenza, Consul General de —
 Panamá en México, ha recibido una comunicación del del Honorable Sr. An

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15767.png
-
-Convert to MarkdownFAYE:
+FAYE:
 
 I say the armed forces I'm talking about
 the Department of Justice and the state

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15852.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>UNIT</td><td>D. NIESCIUR</td></tr><tr><td>EXT</td><td>AF/W/2</td></tr><tr><td>DATE</td><td>19 December 1960</td></tr></table>
 

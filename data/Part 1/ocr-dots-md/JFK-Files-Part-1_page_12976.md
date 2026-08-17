@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12976.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">SECRET</td>
     <td>When filed in:</td>

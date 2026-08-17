@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13417.png
-
-Convert to Markdownamg 18
+amg 18
 
 these days, because there are those who are out to bring the
 United States down, and they are working away at it, not only

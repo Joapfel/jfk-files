@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12710.png
-
-Convert to MarkdownCABLE BBC D100EN BY ____ PROCESSED BY ____
+CABLE BBC D100EN BY ____ PROCESSED BY ____
 
 PERSON/UNIT NOTIFIED
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11598.png
-
-Convert to Markdown4-E
+4-E
 
 III. Soviet Illegal Operations
 

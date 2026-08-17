@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15000.png
-
-Convert to Markdown# CLIFFORD A. JONES
+# CLIFFORD A. JONES
 PERJURY
 
 Clifford A. Jones, former Lieutenant Governor of Nevada who is closely allied with Nevada gambling interests, was indicted January 5, 1966, on three counts of perjury as a result of his having testified falsely before the Bobby Baker grand jury. This testimony concerned payments Jones arranged through one of his companies of $10,000 to Baker through Wayne Bromley, a close associate of Baker. U. S. District Court Judge Gasch presently has taken under advisement pretrial motions of Jones for continuance of trial and change of venue.

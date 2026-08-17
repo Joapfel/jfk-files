@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2463.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 STANDARD FORM NO. 64
 

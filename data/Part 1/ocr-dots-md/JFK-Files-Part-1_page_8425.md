@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8425.png
-
-Convert to MarkdownPAG. 2 C.
+PAG. 2 C.
 
 ## Fiesta Nacional de Islandia
 

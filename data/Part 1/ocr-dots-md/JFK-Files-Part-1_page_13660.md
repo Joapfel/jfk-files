@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13660.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 03:28:18
 

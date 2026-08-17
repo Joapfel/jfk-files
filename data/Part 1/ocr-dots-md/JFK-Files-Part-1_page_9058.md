@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9058.png
-
-Convert to MarkdownAs you know, ICAP Corporation and BANIF own approximately equal shares of ICAP Iberia. ICAP Iberia, in turn, gives first refusal on all consulting work to BANIF, but receives what amounts to a 30% override on such work. In other words, our indirect interest in consulting work which we get for BANIF through ICAP Iberia is 15%, which comes off the top.
+As you know, ICAP Corporation and BANIF own approximately equal shares of ICAP Iberia. ICAP Iberia, in turn, gives first refusal on all consulting work to BANIF, but receives what amounts to a 30% override on such work. In other words, our indirect interest in consulting work which we get for BANIF through ICAP Iberia is 15%, which comes off the top.
 
 We would be pleased to allocate to you a share in our interest in any such work brought in through your efforts (and recognized for fee purposes by ICAP Iberia and BANIF) as follows: 7% (i.e., half of our indirect interest) of all fees during the first year after the actual commencement of billings for each client; 5% during the second year; and 2% of all subsequent business.
 

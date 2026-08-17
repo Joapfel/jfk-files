@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5852.png
-
-Convert to Markdown# <u>Attachment V</u>
+# <u>Attachment V</u>
 
 ## Specific Requests From the Board
 

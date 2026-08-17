@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16676.png
-
-Convert to MarkdownFEDERAL DUREAU OF INVESTIGATION
+FEDERAL DUREAU OF INVESTIGATION
 
 Date January 16, 1970
 

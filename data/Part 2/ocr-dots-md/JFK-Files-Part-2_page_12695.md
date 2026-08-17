@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12695.png
-
-Convert to Markdownb. Definition
+b. Definition
 
 Top functionary is individual who is on high-policy level in CPUSA, other subversive organizations, or unorganized groups, to whom it is necessary to give continuous investigative attention because of his importance. Term "top functionary" does not require that individuals actually hold official positions in organizations but is given broad construction to include others of equal importance because of their influence in movement itself, or their position and activities outside movement in labor, front, or similar organizations. Consider black nationalist extremists whose importance justifies continuous investigative attention.
 

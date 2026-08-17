@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30393.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 vehicle for that would have been the Domestic Contact Division
 which I think handled most of the contacts referred to in this

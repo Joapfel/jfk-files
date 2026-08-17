@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6800.png
-
-Convert to MarkdownFirst, how will agencies and others who hold records define the universe of "relevant" Kennedy assassination materials? It is important to be able to go beyond the frame of reference of previous inquiries of commissions and committees, but the question must be asked: Where will the search for documents end?
+First, how will agencies and others who hold records define the universe of "relevant" Kennedy assassination materials? It is important to be able to go beyond the frame of reference of previous inquiries of commissions and committees, but the question must be asked: Where will the search for documents end?
 
 Second, the definition and search for "relevant assassination material" also raises important questions of human resources and costs to organize and make material available to the Review Board. How much will this cost?
 

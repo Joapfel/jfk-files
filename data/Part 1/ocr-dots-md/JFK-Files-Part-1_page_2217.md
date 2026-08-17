@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2217.png
-
-Convert to Markdown03/30/
+03/30/
 
 ADV C/LA 1606Z
 

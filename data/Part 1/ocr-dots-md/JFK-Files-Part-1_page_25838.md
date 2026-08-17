@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25838.png
-
-Convert to Markdown11. **Time Table:** Instruction will commence 10 June and be completed on or about 13 July 1957.
+11. **Time Table:** Instruction will commence 10 June and be completed on or about 13 July 1957.
 
 12. **Training Area:** Training will take place in the Washington area in a safehouse secured by the Division.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22041.png
-
-Convert to Markdown**Question:** GOLITSYN told us that KOSOLAPOV was travelling to Helsinki to meet a code clerk in November 1960. You understand what I'm telling you?
+**Question:** GOLITSYN told us that KOSOLAPOV was travelling to Helsinki to meet a code clerk in November 1960. You understand what I'm telling you?
 
 **NOSENKO:** Yes, I understand. And KOSOLAPOV must tell him about the code clerk, but we found out that Paul JENNER is not a code clerk when he began to work at the Embassy.
 

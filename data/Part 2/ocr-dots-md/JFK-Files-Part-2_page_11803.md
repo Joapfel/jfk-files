@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11803.png
-
-Convert to Markdown4. Except in espionage and foreign nationality matters where contact is maintained on a periodic basis dependent on circumstances, contact potential informants personally at least once every two weeks.
+4. Except in espionage and foreign nationality matters where contact is maintained on a periodic basis dependent on circumstances, contact potential informants personally at least once every two weeks.
 
 5. Advise Bureau of progress being made at least every six months. Submit letters (FD-401) concerning potential informants who are not being paid on Bureau authorization on UACB basis; include summary of information furnished during past six months and certifications regarding stability and indoctrination against disclosure. Follow form indicated under § 107L, item 3b, below, except those items concerning payments.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25479.png
-
-Convert to MarkdownFRED KRAYCOV:ml
+FRED KRAYCOV:ml
 WR/1/FI/CI
 4167/1973.
 

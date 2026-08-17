@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27583.png
-
-Convert to MarkdownRESUME ROUTING FORM
+RESUME ROUTING FORM
 
 Received 8-10-nn
 

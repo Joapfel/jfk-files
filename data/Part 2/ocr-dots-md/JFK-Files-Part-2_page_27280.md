@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27280.png
-
-Convert to MarkdownA. Prior Hearings and Testimony re CIA Involvement in Watergate
+A. Prior Hearings and Testimony re CIA Involvement in Watergate
 
 B. Receipt returned to E. Henry Knoche, 27 June 75 (not signed)
 

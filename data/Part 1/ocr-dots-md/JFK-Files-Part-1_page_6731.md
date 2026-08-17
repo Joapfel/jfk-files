@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6731.png
-
-Convert to MarkdownMiami, Agosto 19 de 1963
+Miami, Agosto 19 de 1963
 
 Dear Mr. Teels:
 

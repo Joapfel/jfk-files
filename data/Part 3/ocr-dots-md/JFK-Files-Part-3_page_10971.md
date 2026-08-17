@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10971.png
-
-Convert to Markdown# Technical Surveillance of Targets
+# Technical Surveillance of Targets
 
 Coverage in this field will be divided into the following categories:
 

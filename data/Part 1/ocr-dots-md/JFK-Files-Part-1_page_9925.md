@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9925.png
-
-Convert to Markdown3.
+3.
 
 forty-six years of age, and that her son, aged about 17, is a very
 husky teen-ager who was trained in guerrilla warfare by the Cubans.

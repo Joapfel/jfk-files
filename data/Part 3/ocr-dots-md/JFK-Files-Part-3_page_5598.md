@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5598.png
-
-Convert to Markdown**Intelligence Division**
+**Intelligence Division**
 
 P. O. Box 1631
 Birmingham, Alabama 35201

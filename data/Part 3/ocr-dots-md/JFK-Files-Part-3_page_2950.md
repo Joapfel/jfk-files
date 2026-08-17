@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2950.png
-
-Convert to MarkdownNR050 WA: PLAIN
+NR050 WA: PLAIN
 
 336PM NITEL 12/10/75 GHS
 

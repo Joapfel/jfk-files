@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22187.png
-
-Convert to Markdownand asked whether the Russian people had been told about it. GAMKRELIDZE replied that they had not been told officially, but knew it had taken place since there was "quite a grapevine" in Moscow. As an example, he said that it was in this way that he had heard about the NOSENKO defection and its significance. Ex-panding, GAMKRELIDZE stated that the "grapevine" indicated that the defection "was very damaging to Soviet Intelligence in that NOSENKO was the Chief of the American Section, and he knew the identities of all Soviet agents in the United States."
+and asked whether the Russian people had been told about it. GAMKRELIDZE replied that they had not been told officially, but knew it had taken place since there was "quite a grapevine" in Moscow. As an example, he said that it was in this way that he had heard about the NOSENKO defection and its significance. Ex-panding, GAMKRELIDZE stated that the "grapevine" indicated that the defection "was very damaging to Soviet Intelligence in that NOSENKO was the Chief of the American Section, and he knew the identities of all Soviet agents in the United States."
 
 ## 7. GOLITSYN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2023.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="4">SECRET</td>

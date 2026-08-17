@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13721.png
-
-Convert to MarkdownEXCERPT
+EXCERPT
 
 24 July 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31648.png
-
-Convert to Markdown4
+4
 SF 14-207
 FSP:mb
 

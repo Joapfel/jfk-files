@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9858.png
-
-Convert to Markdown2.
+2.
 
 with him to the FAR headquarters in the Sierra Niza on his forthcoming
 trip so that L/3 could get first-hand requirements from the FAR supply

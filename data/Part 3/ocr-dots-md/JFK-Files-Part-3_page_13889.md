@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13889.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 October 1, 1964 Agenda (Continued):
 

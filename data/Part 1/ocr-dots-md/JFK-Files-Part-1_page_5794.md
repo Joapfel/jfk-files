@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5794.png
-
-Convert to MarkdownTO: Mr. and Mrs. Charles Joseph Jeannerot
+TO: Mr. and Mrs. Charles Joseph Jeannerot
 
 FROM: H. Z. Jeannerot, S.A. Engineer
 CS Research & Evaluation Service

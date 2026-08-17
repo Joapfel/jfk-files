@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7228.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th>TOTAL COPIES</th><th>RUN B</th></tr></thead><tbody><tr><td>SECRET</td><td></td></tr></tbody></table>
 

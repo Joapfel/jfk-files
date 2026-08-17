@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20971.png
-
-Convert to MarkdownSecurity Information
+Security Information
 
 13 June 1952
 

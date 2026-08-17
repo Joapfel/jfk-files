@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3871.png
-
-Convert to Markdown<table><tr><td rowspan="2">DISPATCH</td><td>TO</td><td colspan="2"></td></tr><tr><td>AQ.</td><td colspan="2">Chief of Station, San Jose</td></tr><tr><td colspan="2">FROM</td><td colspan="2">Chief, WH Division</td></tr><tr><td colspan="2">SUBJECT</td><td colspan="2">AMBIDDY-1 Discussions with Frank MARSHALL and Daniel ODUBER</td></tr></table>
+<table><tr><td rowspan="2">DISPATCH</td><td>TO</td><td colspan="2"></td></tr><tr><td>AQ.</td><td colspan="2">Chief of Station, San Jose</td></tr><tr><td colspan="2">FROM</td><td colspan="2">Chief, WH Division</td></tr><tr><td colspan="2">SUBJECT</td><td colspan="2">AMBIDDY-1 Discussions with Frank MARSHALL and Daniel ODUBER</td></tr></table>
 
 ACTION REQUIRED - REFERENCES
 

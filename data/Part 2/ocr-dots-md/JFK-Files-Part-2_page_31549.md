@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31549.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mfm
 
 together liberals and radicals, activists and scholars, students and faculty. It feels the urgency to put forth a radical, democratic program counterposed to authoritarian movements both of Communism and the domestic Right.

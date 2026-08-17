@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15230.png
-
-Convert to MarkdownLetter to SAC, WFO
+Letter to SAC, WFO
 RE: NATIONALITY GROUP COVERAGE - CHILE
 105-97459-207
 

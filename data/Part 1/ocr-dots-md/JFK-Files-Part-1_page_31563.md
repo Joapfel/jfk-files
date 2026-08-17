@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31563.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">UNCLASSIFIED RESTRICTED CONFID. TOTAL SECRET<br/>(SENDER WILL CIRCLE CLASSIFICA) (TOP AND BOTTOM)<br/><br/>CENTRAL INTELLIGENCE AGENCY DD/P 5288<br/><br/>OFFICIAL ROUTING STEP</td>
   </tr>

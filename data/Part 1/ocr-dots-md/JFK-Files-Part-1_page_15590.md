@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15590.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 9 MAR 61</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : LEOPOLDVILLE</td></tr><tr><td>ACTION : AF 7</td></tr><tr><td>INFO : COP, DPD 4, CA 2. CA/EAG, CA/PROP, FI, F1/F4T 2, IV 2, F1/D, WE 4, DD/I, AD/C1, S/C 2</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 9 MAR 61</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : LEOPOLDVILLE</td></tr><tr><td>ACTION : AF 7</td></tr><tr><td>INFO : COP, DPD 4, CA 2. CA/EAG, CA/PROP, FI, F1/F4T 2, IV 2, F1/D, WE 4, DD/I, AD/C1, S/C 2</td></tr></table>
 
 <table><tr><td colspan="3">REJOICING</td></tr><tr><td>1</td><td>C</td><td>F-84E I</td></tr><tr><td>2</td><td></td><td>EAGLE</td></tr><tr><td>3</td><td>C</td><td>I-W</td></tr></table>
 

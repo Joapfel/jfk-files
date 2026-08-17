@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25931.png
-
-Convert to Markdown524 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
+524 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
 
 Senator MUSKIE. What do they need to do to become members in the Tampa area?
 

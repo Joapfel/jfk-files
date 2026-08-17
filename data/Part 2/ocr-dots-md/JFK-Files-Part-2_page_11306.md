@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11306.png
-
-Convert to Markdown87D
+87D
 
 (b) Satisfactory notes or[statements]from informants necessary from which to refresh their recollection in the event they are called upon to testify at some future date. Such notes [and statements] must be in sufficient detail to serve this purpose and must contain no material which would make their use inadvisable or inadmissible.
 

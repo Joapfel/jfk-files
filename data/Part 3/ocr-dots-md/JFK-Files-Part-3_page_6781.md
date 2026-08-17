@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6781.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 for the SCLC, was advised by O'Dell that he, O'Dell, had
 a big mailing list coming up in August. Finnerty asked

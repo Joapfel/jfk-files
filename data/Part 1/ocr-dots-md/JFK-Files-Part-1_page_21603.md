@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21603.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Embassy in Moscow, concerning his contact with CIA and
 that he did not wish to be contacted and would not recognize any attempted
 contact within the Soviet Union. NOSENKO also furnished information as

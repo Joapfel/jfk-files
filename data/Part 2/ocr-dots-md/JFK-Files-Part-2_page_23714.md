@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23714.png
-
-Convert to MarkdownI don't think we're really necessarily closing the barn door to some enormous abuse.
+I don't think we're really necessarily closing the barn door to some enormous abuse.
 
 Mr. Kirhow. I had never heard of one in that area.
 

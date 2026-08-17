@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10907.png
-
-Convert to Markdownc. Director of Central Intelligence Directives
+c. Director of Central Intelligence Directives
 
 To implement the National Security Act of 1947 as amended and the various National Security Council Intelligence Directives issued pursuant thereto, the Director of Central Intelligence has issued numerous Directives (DCID's). The first of these having a direct bearing on jurisdictional matters is DCID No. 2/3, captioned "Domestic Exploitation of Nongovernmental Organizations and Individuals." NSCID No. 2, paragraph 7, states that CIA shall be responsible for the selective exploitation within the U. S. of such organizations and individuals as sources of foreign intelligence information. We, therefore, have avoided, and should avoid, any operations among nongovernmental organizations and individuals designed solely to produce foreign intelligence without CIA prior approval or nullification of these provisions.
 

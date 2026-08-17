@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16.png
-
-Convert to Markdown13-00000
+13-00000
 
 ① 724 immeuble vénus couvert (j. Amenc.bare)
 de fig 5/1 - Dec 6/3

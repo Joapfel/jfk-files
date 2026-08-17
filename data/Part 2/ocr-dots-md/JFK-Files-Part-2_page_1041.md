@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1041.png
-
-Convert to MarkdownSECRET
+SECRET
 (Must be Filled In)
 
 <table><tr><td>19. POSITION TITLE</td><td>(14)</td></tr><tr><td>15. OCCUPATIONAL SERIES</td><td>1712.32</td></tr><tr><td>16. GRADE AND STEP</td><td>14 5</td></tr><tr><td>17. SALARY OR RATE</td><td>$17,198</td></tr></table>

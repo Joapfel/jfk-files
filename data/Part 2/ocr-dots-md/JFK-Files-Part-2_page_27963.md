@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27963.png
-
-Convert to MarkdownMEMO
+MEMO
 
 from Cecelia Norton
 

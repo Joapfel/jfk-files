@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26822.png
-
-Convert to Markdown<table><tr><td>ASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr><tr><td>P.O. Box 12345</td></tr><tr><td>GUADELMALI</td></tr><tr><td>WH-8</td></tr><tr><td>Extract Copy ☐</td></tr><tr><td>☐ ...</td></tr><tr><td>UNIT TIME</td></tr><tr><td></td></tr><tr><td>DATE</td></tr></table>
+<table><tr><td>ASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr><tr><td>P.O. Box 12345</td></tr><tr><td>GUADELMALI</td></tr><tr><td>WH-8</td></tr><tr><td>Extract Copy ☐</td></tr><tr><td>☐ ...</td></tr><tr><td>UNIT TIME</td></tr><tr><td></td></tr><tr><td>DATE</td></tr></table>
 
 V.R. FILE, C.I. C/SC, CA-2 Cn/rksp. c2/crs -z/tc., DDP WHTN-9
 

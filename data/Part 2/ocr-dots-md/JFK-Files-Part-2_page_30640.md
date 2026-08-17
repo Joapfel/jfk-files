@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30640.png
-
-Convert to Markdown* HMMA 24229, 9/3/64
+* HMMA 24229, 9/3/64
 1. reporting American contact
 2. couriers in operation.
 * Project Renewal request 1/11/65. HMM25-141 1/15-65 (?)

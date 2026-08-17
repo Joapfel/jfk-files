@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7083.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td colspan="2">TO:</td></tr><tr><td colspan="2">FROM:</td></tr><tr><td colspan="2">ACTION:</td></tr><tr><td>INFO.</td><td>PAGE 2</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31286.png
-
-Convert to Markdownas the Agency relied upon the FBI for reporting the results of interviews it may have conducted in connection with its responsibility for internal security matters. The Agency further stated that there were no manuals or regulations for the period of 1958-1963 which specifically address the subject of American defectors. (Ibid.)
+as the Agency relied upon the FBI for reporting the results of interviews it may have conducted in connection with its responsibility for internal security matters. The Agency further stated that there were no manuals or regulations for the period of 1958-1963 which specifically address the subject of American defectors. (Ibid.)
 
 In fact, the two persons with whom the CIA admitted speaking had contact did not strictly meet the specific requirements as required in the HSCA's request. Some of the two individuals had not actually defected to the USSR during the period 1958-1963 but had resided in the USA from January 1957 and were subsequently debriefed after 1963.
 

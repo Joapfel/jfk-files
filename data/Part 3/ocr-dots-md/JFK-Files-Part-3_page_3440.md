@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3440.png
-
-Convert to MarkdownDr. Martin Luther King, Jr.
+Dr. Martin Luther King, Jr.
 
 Tennessee, at about 10:30 a.m. on April 3, 1968. (Information contained in report of SA Joe C. Hester dated April 17, 1968, Memphis, captioned "UNSUB, aka, Eric Starvo Galt, et al., Civil Rights" page 48. See attached FD-302 reflecting interview with Reverend Ralph David Abernathy).
 

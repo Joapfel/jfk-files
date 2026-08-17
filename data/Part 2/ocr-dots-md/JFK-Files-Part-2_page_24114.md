@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24114.png
-
-Convert to Markdownneed for proprietaries has declined as a result of a general shift in
+need for proprietaries has declined as a result of a general shift in
 emphasis away from covert action; transfer of Radio Free Europe and
 Radio Liberty to the Board of International Broadcasting with funding
 through State Department; continuing liquidation of the assets of the

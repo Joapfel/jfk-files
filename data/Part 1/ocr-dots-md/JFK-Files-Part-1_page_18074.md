@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18074.png
-
-Convert to Markdown<html><body><table><thead><tr><td>DISPATCH</td><td>CLASSIFICATION</td><td>PROCESSING STATUS</td></tr></thead><tbody><tr><td>TO<br/>Chief, WH Division</td><td>SECRET</td><td>MARRED FOR INVOICE</td></tr><tr><td>INFO.</td><td>X</td><td>NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td></td><td>ONLY QUALIFIED DESK CAN ADOLESCENTS</td></tr><tr><td>SUBJECT<br/>LIONION Project Renewal Request</td><td></td><td>MICROFILM</td></tr><tr><td colspan="3">ACTION REQUIRED - REFERENCES</td></tr></tbody></table></body></html>
+<html><body><table><thead><tr><td>DISPATCH</td><td>CLASSIFICATION</td><td>PROCESSING STATUS</td></tr></thead><tbody><tr><td>TO<br/>Chief, WH Division</td><td>SECRET</td><td>MARRED FOR INVOICE</td></tr><tr><td>INFO.</td><td>X</td><td>NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td></td><td>ONLY QUALIFIED DESK CAN ADOLESCENTS</td></tr><tr><td>SUBJECT<br/>LIONION Project Renewal Request</td><td></td><td>MICROFILM</td></tr><tr><td colspan="3">ACTION REQUIRED - REFERENCES</td></tr></tbody></table></body></html>
 
 Reference: HMMW-15195, 24 January 1967
 

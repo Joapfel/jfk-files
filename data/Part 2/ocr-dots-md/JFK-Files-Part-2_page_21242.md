@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21242.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 period 1957-59 and possibly in 1959. NOSENKO stated that
 possibly the name of the young man was [\"ERIC.\"] (9)

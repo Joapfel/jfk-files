@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22004.png
-
 s.* NOSENKO was also made responsible for maintaining certain files in the section. On 19 February 1965 NOSENKO signed an interrogation protocol which he agreed contained a listing of his principal responsibilities during 1960 and 1961. It read in part:
 
 "During the entire period in the First (U.S. Embassy) Section, First (American) Department in 1960 and 1961 my position was Deputy Chief of Section. My responsibilities were the following:

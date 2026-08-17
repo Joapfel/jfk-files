@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15296.png
-
-Convert to Markdownprovide accurate up-to-date intelligence information. We now have 28 actual and 29 potential live sources at the establishments of 33 non-Soviet-bloc countries. The principal cost involved in this phase relates to Agent time devoted to investigations of sources and time spent in handling these source
+provide accurate up-to-date intelligence information. We now have 28 actual and 29 potential live sources at the establishments of 33 non-Soviet-bloc countries. The principal cost involved in this phase relates to Agent time devoted to investigations of sources and time spent in handling these source
 
 ## 2. Positive Results Achieved
 

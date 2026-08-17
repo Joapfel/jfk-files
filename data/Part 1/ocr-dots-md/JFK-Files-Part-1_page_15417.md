@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15417.png
-
-Convert to Markdown14-0600
+14-0600
 
 EMPLOYMENT - In the spaces provided below describe every position which you have held since you first began to work, including any active military service. Start with your present position and move back to the first position which you held. Account for any periods of unemployment. USE CONTINUATION SHEET IF NECESSARY.
 

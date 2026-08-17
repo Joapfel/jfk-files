@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8867.png
-
-Convert to Markdown14-00030
+14-00030
 
 <table><tr><td>ORIG.</td><td>C.HALLIWELL</td></tr><tr><td>UNIT.</td><td>WH/1</td></tr><tr><td>DST.</td><td>4523</td></tr><tr><td>DATE:</td><td>25 MARCH 1965</td></tr></table>
 

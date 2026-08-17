@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28530.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">AUDITORY RATE</th><th rowspan="3"></th><th colspan="7">NEW SALARY RATE</th></tr><tr><th>Grade</th><th>Step</th><th>Rank</th><th>Date</th><th>Grade</th><th>Step</th><th>Salary</th><th>(March Date)</th><th>PAY (ADJ.)</th></tr></thead><tbody><tr><td>68</td><td>15</td><td>1</td><td>914,965</td><td>09/10/67</td><td>68</td><td>15</td><td>2</td><td>315,045</td><td>09/15/63</td><td></td></tr></tbody></table>
 

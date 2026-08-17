@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15581.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## AFRICAN-AMERICAN HERITAGE ASSOCIATION
 

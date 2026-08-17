@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17391.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG: A.D. WEDENSTEIN:Jp
 UNIT: WH/3/Mexico

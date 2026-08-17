@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30280.png
-
-Convert to Markdown# FITNESS REPORT
+# FITNESS REPORT
 
 James W. McCord, Jr.
 

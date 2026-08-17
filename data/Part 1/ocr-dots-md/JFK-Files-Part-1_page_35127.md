@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35127.png
-
-Convert to MarkdownACTIVOS
+ACTIVOS
 
 ANEXO "I-D"
 Hoja No. 2

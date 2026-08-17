@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_12477.png
-
-Convert to Markdown14-009A
+14-009A
 
 <table><thead><tr><th>SEC. CL.</th><th colspan="2">ORIGIN</th><th></th><th>CONTROL NO.</th></tr><tr><td></td><td>S</td><td>O/S/IRU</td><td></td><td>TRD-72501</td></tr><tr><th>DATE OF DEP</th><th>DATE REC'D</th><th>DATE OUT</th><th>PENSE DATE</th><th>CROSS REFERENCE ON POINT OF FILING</th></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><th>TO</th><td>WU/3</td><td></td><td>3.8.2.27</td><th rowspan="2">ROUTING</th><th rowspan="2">DATE SENT</th></tr><tr><th>FROM</th><td>O/S/IRU</td><td></td><td>1 F 16</td></tr><tr><th>SUB</th><td>CIFENCE/4</td><td></td><td></td><td></td><td>11/30/78</td></tr><tr><td></td><td>Rec'd by</td><td colspan="2">Sauers J.G.</td><td></td><td></td></tr><tr><td></td><td>Date</td><td colspan="2">Dec. 1978</td><td></td><td></td></tr><tr><td colspan="4"></td><td></td><td></td></tr><tr><td colspan="4">PLEASE REARRANGE THE ORIGINAL OF THIS TRD TO O/S/TRD 1 F 16.</td><td></td><td></td></tr><tr><th>COURIER NO.</th><th>ANSWERED</th><th>NO REPLY</th><td></td><td></td><td>2</td></tr></thead></table>

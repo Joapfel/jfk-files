@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20745.png
-
-Convert to MarkdownLetter to Philadelphia
+Letter to Philadelphia
 
 Re: Women's National Abortion
 Action Coalition

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9419.png
-
-Convert to MarkdownNational Press Club
+National Press Club
 Washington
 
 speed with which French, Italian, British and US organizations respond with lots of money for the purpose! Butties and I had a quiet talk after the conference this afternoon and he is entirely in sympathy with my point of view, anxious to cooperate and not entirely sure that Lasky is the right man to go single handed to Paris. This guy Neilson is a peach. Sharp, keen, responsive and a worker - sticks out all over him.

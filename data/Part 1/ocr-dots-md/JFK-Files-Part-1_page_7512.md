@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7512.png
-
-Convert to MarkdownOn 3 January 1936, ISAACS visited Mr and Mrs. NOLLS while they were on a hunger strike in prison.
+On 3 January 1936, ISAACS visited Mr and Mrs. NOLLS while they were on a hunger strike in prison.
 
 On 14 January 1936, the parents of ISAACS, Mr and Mrs I.H. ISAACS arrived in Shanghai from Los Angeles: During their stay in Shanghai they resided at the Metropolitan Hotel Annex. On 20 February they left Shanghai for Fort Said en route to Marseilles on the 33 Rawalpindi.
 

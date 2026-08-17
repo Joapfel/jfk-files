@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9391.png
-
-Convert to Markdownthe Polish and Russian delegates. The committee on which they were represented, amended it. However, later on not the amended text which was adopted by the Congress but the original draft was released to the press, thus creating additional resentment.
+the Polish and Russian delegates. The committee on which they were represented, amended it. However, later on not the amended text which was adopted by the Congress but the original draft was released to the press, thus creating additional resentment.
 
 ⁸Yergin was not in a happy mood when he left. A public meeting had been arranged for him and Schyler where they read their papers in full. However, they did not like the way they were treated insofar as speaking time at the Congress meetings was concerned and Max made remarks to the effect that now the Communists will say they had been Jim-crowed since they had to present their case in a special meeting. They also mentioned the fact that the permanent committee elected by the Congress does not contain any representative of the colored race. It would, of course, have been difficult to appoint one of them to the committee since the representation of the United States was limited on purpose so as to create the impression of American domination. However, the right of cooptation granted by the Congress to the permanent committee should be used to introduce as soon as possible in the committee intellectuals from India, Japan and other non-white areas.
 

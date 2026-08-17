@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22011.png
-
-Convert to Markdownthese times. The only specific responsibility KOVSHUK had which I handled in his absence was to report to the Chief of the First Department about all mail going out of the First Section. I did not meet any of KOV-SHUK's agents during his absences because there was no necessity to do so. His only Russian agent whom I remember was Ilya GLAZUNOV [KGB cryptonym "VRUBEL"]], whom he transferred to FEDYANIN in 1960, I think. The only other agent of KOVSHUK's whom I remember was the correspondent Edmund STEVENS.* The only thing that was different for me as Acting Chief of the Section was that I had to go every day to see the Chief of the De-partment.
+these times. The only specific responsibility KOVSHUK had which I handled in his absence was to report to the Chief of the First Department about all mail going out of the First Section. I did not meet any of KOV-SHUK's agents during his absences because there was no necessity to do so. His only Russian agent whom I remember was Ilya GLAZUNOV [KGB cryptonym "VRUBEL"]], whom he transferred to FEDYANIN in 1960, I think. The only other agent of KOVSHUK's whom I remember was the correspondent Edmund STEVENS.* The only thing that was different for me as Acting Chief of the Section was that I had to go every day to see the Chief of the De-partment.
 
 c. Supervisor of all Code Clerk Operations
 

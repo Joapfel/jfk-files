@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10693.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 GRADING OF SOURCE A. Computer search B. Unchecked C. Forgiven D. Not usually reliable E. Not reliable Applied to sources of southern Haiti or order, regard as their competence. F. Reliability cannot be judged. Applied to untested or sufficiently tested sources.
 

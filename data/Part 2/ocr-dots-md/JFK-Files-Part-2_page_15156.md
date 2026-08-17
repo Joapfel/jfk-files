@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15156.png
-
-Convert to MarkdownJAMES RIDDLE HOFFA; ET AL.
+JAMES RIDDLE HOFFA; ET AL.
 OBSTRUCTION OF JUSTICE
 
 Hoffa and three others are presently serving

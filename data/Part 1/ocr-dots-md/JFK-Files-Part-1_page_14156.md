@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14156.png
-
-Convert to Markdown8. Other accomplishments include the following;
+8. Other accomplishments include the following;
 
 (a) **Operational Reporting:** During the last two years Hunkeler has traveled to and submitted operational and/or intel reports about Mexico, the Dominican Republic, Haiti, Jamaica, Venezuela, Panama and Costa Rica, in addition to reports originating in the WAVE area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7124.png
-
-Convert to Markdownthat I really didn't know since I had never asked him.
+that I really didn't know since I had never asked him.
 I changed the topic of conversation by saying that if he
 reported that SILNIKOV wanted a girl for this Sunday,
 I would return the machine to him on Saturday, 6 November.

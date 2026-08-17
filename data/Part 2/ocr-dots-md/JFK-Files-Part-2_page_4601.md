@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4601.png
-
-Convert to Markdown-6-
+-6-
 
 e. Activate a records center in Miami and provide it with sanitized record data.
 

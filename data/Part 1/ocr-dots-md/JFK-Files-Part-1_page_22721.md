@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22721.png
-
-Convert to Markdown<table><tr><td rowspan="2">CLASSIFIED MESSAGE</td><td colspan="3"></td></tr><tr><td colspan="3"><table><tbody><tr><td>116 BD/MK/BM</td><td>10 SEPT 1957</td></tr></tbody></table></td></tr><tr><td>DATE</td><td colspan="2">: DIRECTOR</td></tr><tr><td>FROM</td><td colspan="2">: HAVANA</td></tr><tr><td>ACTION</td><td colspan="2">: WH 5</td></tr><tr><td>INFO</td><td colspan="2">: CI, CI/OPS, CI/OA, FI/RI 2, PP 2, PP/OPS, S/C 2</td></tr></table>
+<table><tr><td rowspan="2">CLASSIFIED MESSAGE</td><td colspan="3"></td></tr><tr><td colspan="3"><table><tbody><tr><td>116 BD/MK/BM</td><td>10 SEPT 1957</td></tr></tbody></table></td></tr><tr><td>DATE</td><td colspan="2">: DIRECTOR</td></tr><tr><td>FROM</td><td colspan="2">: HAVANA</td></tr><tr><td>ACTION</td><td colspan="2">: WH 5</td></tr><tr><td>INFO</td><td colspan="2">: CI, CI/OPS, CI/OA, FI/RI 2, PP 2, PP/OPS, S/C 2</td></tr></table>
 
 <table><tr><th colspan="3">ROUTING</th></tr><tr><td>1</td><td>4</td><td></td></tr><tr><td>2</td><td>5</td><td></td></tr><tr><td>3</td><td></td><td></td></tr></table>
 

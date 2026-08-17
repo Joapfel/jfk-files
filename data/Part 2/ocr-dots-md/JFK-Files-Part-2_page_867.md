@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_867.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## Reviewing Comments (continued)
 

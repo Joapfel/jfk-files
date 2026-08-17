@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14969.png
-
-Convert to Markdown8. **Serge TSOUADZE**
+8. **Serge TSOUADZE**
 
 Born in Georgia. Ca. 41 years old. Educated in France. (Picture included in AEPADDLE's movies.) Graduate of Paris Medical School. French Army 1939 - 1940) worked for French underground in WW II in Communist section. Was eager Communist at end of war; member of Party. Asked for permission to return to Georgia after war, but did not actually go until March 1958. Married to French girl, Madeleine, also Communist. Wife attended Moscow Youth Festival 1957. Have son and daughter. TSOULADZE is 5'10", 185 lbs., Reddish moustache, heavy face, grey curly hair. Illegally practiced medicine in France. Subject's oldest sister Tamara TALY (TALASHASHVILI) told AEPADDLE's wife that only two days before receiving Soviet visa Subject had stated his intention to remain in France, take French citizenship, and become a legal doctor. Subject has another sister, Ninouka, who is married to Shota KALAIOZI. She and her husband are considering repatriating, but since Shota was in the SS, he is afraid of the consequences. Shota and Serge TSOULADZE devised a code to advise Shota whether he should repatriate or not. Shota is to inform AEPADDLE of any such message. Shota was formerly an engineer, is now a taxi driver. AEPADDLE feels that Serge TSOULADZE is no longer a firmly convinced Communist. Serge stated that he plans to do research at the University of Tiflis, and to keep out of politics. He plans to see Helene TSITSICHVILI in Tiflis.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3172.png
-
-Convert to MarkdownNo. 3459
+No. 3459
 
 Personalidad del Avion de la Misión Sovietica
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2968.png
-
-Convert to Markdownof assets commencing with a close per-
+of assets commencing with a close per-
 sonal relationship between the station
 chief and the President of Mexico, high-
 level telephone taps, photographic sur-

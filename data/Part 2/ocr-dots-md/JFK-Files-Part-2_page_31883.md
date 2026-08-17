@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31883.png
-
-Convert to MarkdownGPIN-SP (8 Apr 69) 1st Ind (FOUO)
+GPIN-SP (8 Apr 69) 1st Ind (FOUO)
 
 SUBJECT: MARTI, Manuel (NMN), PFC, US 52 773 870
 DPOB: 17 May 1946; San Juan, Puerto Rico

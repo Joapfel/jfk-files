@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5177.png
-
-Convert to MarkdownAgents handling Selective Service matters and deserter matters are SAs ROBERT M. LEONARD, DONALD E. LOVEJOY, GEORGE W. SMITH and GEORGE P. WILLIAMS, JR. In this regard, the following informants have been developed:
+Agents handling Selective Service matters and deserter matters are SAs ROBERT M. LEONARD, DONALD E. LOVEJOY, GEORGE W. SMITH and GEORGE P. WILLIAMS, JR. In this regard, the following informants have been developed:
 
 137-5342
 

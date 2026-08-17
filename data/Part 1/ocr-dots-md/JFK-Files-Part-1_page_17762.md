@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17762.png
-
-Convert to Markdown...1.-
+...1.-
 
 EMILIAJADA DOMINICANA.- 28-77-85.
 

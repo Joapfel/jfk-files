@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17278.png
-
-Convert to MarkdownDENNIS CUNNINGHAM
+DENNIS CUNNINGHAM
 
 This BPP lawyer drives a red and white Volkswagen, bearing 1969 Illinois license DR 4708.
 

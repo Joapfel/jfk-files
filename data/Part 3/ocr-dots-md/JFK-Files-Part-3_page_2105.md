@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2105.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>Case Agent</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27099.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CABLE DEC DISSEMINATED BY</td>
     <td>PER</td>

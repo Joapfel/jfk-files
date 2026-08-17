@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32648.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANNEX F - VENEZUELA
 

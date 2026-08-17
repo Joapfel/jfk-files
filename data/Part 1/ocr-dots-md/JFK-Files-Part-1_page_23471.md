@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23471.png
-
-Convert to MarkdownSECRET
+SECRET
 
 : Chief of Mission, Habana
 

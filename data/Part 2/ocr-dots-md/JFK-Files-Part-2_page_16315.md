@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16315.png
-
-Convert to Markdown# IV. FINANCES
+# IV. FINANCES
 
 Anyone wishing to show the film "American Revolution II" must pay the YP and BPP $150.00 per showing and allow a representative of the YP and BPP to give a talk and take up a collection at the showing.
 

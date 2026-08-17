@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14358.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75
 
 recognized that certain aspects of intelligence activities must receive special consideration and treatment (a copy of Colby's letter is attached). By letter dated 3/12/75, Senator Church confirmed the receipt of Colby's letter and again stated that in the event the SSC inquiry touches on such sensitive areas, Senator Church and Colby should discuss jointly what procedures should be followed (copy of Senator Church's letter is attached).

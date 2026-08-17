@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6525.png
-
-Convert to Markdownto the Latin who, like the American, believes what he reads:
+to the Latin who, like the American, believes what he reads:
 
 (c) Distribute Anti-Communist Literature
 

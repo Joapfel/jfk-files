@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24709.png
-
-Convert to Markdown- As Johnson stated, his testimony standing alone is "a clue, rather than precise evidence of Presidential involvement in decision-making with respect to assassinations" (Johnson, 6/18/75, p. 5). To determine the significance of this "clue," it must be placed in the context of the records of the NSC meetings attended by Johnson, testimony about those meetings, and the series of events that preceded the dispatch of poisons to the Congo for Lumumba's assassination.
+- As Johnson stated, his testimony standing alone is "a clue, rather than precise evidence of Presidential involvement in decision-making with respect to assassinations" (Johnson, 6/18/75, p. 5). To determine the significance of this "clue," it must be placed in the context of the records of the NSC meetings attended by Johnson, testimony about those meetings, and the series of events that preceded the dispatch of poisons to the Congo for Lumumba's assassination.
 
 In the Summer of 1960, there were four NSC meetings where developments in the Congo were discussed at which Robert Johnson was present. The President was not in attendance at two of those occasions -- July 15 and July 21 (NSC Minutes, 7/15/60; NSC Minutes,
 

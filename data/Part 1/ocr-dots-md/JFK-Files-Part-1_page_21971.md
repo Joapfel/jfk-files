@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21971.png
-
-Convert to Markdownwhose name NOSENKO did not reappear, at the hotel Metro-pol in Moscow during the summer of 1959, possibly in August. The approach was based on homosexual compromise involving NOSENKO's agents VOLFOV and YELFEMOV (see Part V.B.2.).
+whose name NOSENKO did not reappear, at the hotel Metro-pol in Moscow during the summer of 1959, possibly in August. The approach was based on homosexual compromise involving NOSENKO's agents VOLFOV and YELFEMOV (see Part V.B.2.).
 
 Investigation Results:
 

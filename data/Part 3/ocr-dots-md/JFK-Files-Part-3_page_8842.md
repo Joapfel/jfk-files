@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8842.png
-
-Convert to Markdown**INSTRUCTIONS**
+**INSTRUCTIONS**
 
 * Type or print clearly in ink.
 

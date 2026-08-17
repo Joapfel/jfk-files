@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26685.png
-
-Convert to MarkdownSECRET
+SECRET
 
 E-1 said Galán has also made propaganda films which were shown to the guerrillas in Guatemala. They were simple films which could be made in the home, generally just consisting of someone giving a talk or lecture.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16573.png
-
-Convert to MarkdownDEC 11 1969
+DEC 11 1969
 
 Director
 Personal Bureau of Investigation

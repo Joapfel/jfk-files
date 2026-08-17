@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4312.png
-
-Convert to Markdown14-00000
+14-00000
 
 # NO FOREIGN PRESS CONTROLLED DISSEM
 

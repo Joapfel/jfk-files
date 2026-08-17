@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_143.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8 August 1967
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29665.png
-
-Convert to Markdown**Classification:**
+**Classification:**
 
 (This form is to be filled out forрусified documents.)
 

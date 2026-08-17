@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23127.png
-
-Convert to MarkdownEMBAJADA DE LA REPUBLICA DE CUBA
+EMBAJADA DE LA REPUBLICA DE CUBA
 
 Junio 16 de 1967
 

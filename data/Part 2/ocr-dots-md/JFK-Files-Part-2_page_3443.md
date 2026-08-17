@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3443.png
-
 , Jean Evans, played a major role in directing the handling of the Golitsyn leads (or "Serials" as Angleton invariably called them). The activity continued throughout the sixties reaching its apex in the period 1964-65 when the HONETOL investigations (of CIA staff officers) was at its most
 
 *The term Special Investigations Group (SIG) became common usage in the sixties but no exact date can be assigned for this change.

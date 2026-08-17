@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29810.png
-
-Convert to MarkdownTodays date is August 9, 1976, the time is 1615 hours, the person to be interviewed is Doris Ann Duafala, DOB 08/24/55, 1800 Sohn Road, Aliquippa, Pennsylvania, phone 412-375-1013, attends Edonboro State College where she will be a senior this fall, majoring in sociology, College address: Douglas #2, Heather Apartments, Edenboro, Pa. 16412. Present during the interview is D/Sgt. S. Michaleski and D/Cpl. R. Swain, Montgomery County Police.
+Todays date is August 9, 1976, the time is 1615 hours, the person to be interviewed is Doris Ann Duafala, DOB 08/24/55, 1800 Sohn Road, Aliquippa, Pennsylvania, phone 412-375-1013, attends Edonboro State College where she will be a senior this fall, majoring in sociology, College address: Douglas #2, Heather Apartments, Edenboro, Pa. 16412. Present during the interview is D/Sgt. S. Michaleski and D/Cpl. R. Swain, Montgomery County Police.
 
 Code:
 

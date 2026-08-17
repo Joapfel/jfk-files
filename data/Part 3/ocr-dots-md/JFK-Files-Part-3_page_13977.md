@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13977.png
-
-Convert to Markdownand other available intelligence information are considered; (2) the views of intelligence community members are fully taken into account; (3) recognition is given to the possibility of widely-varying interpretations of a given body of evidence; (4) consideration is given to the advisability of preparing two or more estimates when evidence is susceptible of more than one interpretation -- even though under current practice dissents are noted in footnotes to estimates; and (5) that every precaution be taken to avoid adherence to isolated opinions or preconceived notions.
+and other available intelligence information are considered; (2) the views of intelligence community members are fully taken into account; (3) recognition is given to the possibility of widely-varying interpretations of a given body of evidence; (4) consideration is given to the advisability of preparing two or more estimates when evidence is susceptible of more than one interpretation -- even though under current practice dissents are noted in footnotes to estimates; and (5) that every precaution be taken to avoid adherence to isolated opinions or preconceived notions.
 
 (13) That the effectiveness of the National Reconnaissance Office be strengthened through specific measures separately summarized in Rec. #23.
 

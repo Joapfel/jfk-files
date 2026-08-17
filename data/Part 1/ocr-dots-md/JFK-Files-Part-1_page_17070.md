@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17070.png
-
-Convert to Markdown-9-
+-9-
 
 4. **Foreign Currency:** There is no special need for foreign currency. No non-CIA funds are used.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15774.png
-
-Convert to MarkdownMARTY FAYE
+MARTY FAYE
 
 There's killings, the apartment is left open, and now the coroner wants to close it, and now they reopen it. And so many different groups are getting together trying to investigate the thing. Mr. GARRY, do you know if anyone at all is legally empowered to test this out?
 

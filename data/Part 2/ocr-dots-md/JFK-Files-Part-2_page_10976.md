@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10976.png
-
-Convert to MarkdownMarch 29, 1965
+March 29, 1965
 
 # MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 151

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29886.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # NOTIFICATION OF PERSONNEL ACTION
 ARE: 7 AUG 1959

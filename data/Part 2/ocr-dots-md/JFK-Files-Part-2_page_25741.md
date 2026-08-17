@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25741.png
-
-Convert to MarkdownSECRET - EYES ONLY
+SECRET - EYES ONLY
 
 Jan. 9, 1964
 

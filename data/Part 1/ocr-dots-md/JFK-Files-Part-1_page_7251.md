@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_7251.png
-
-Convert to Markdownwas put into contact with BLANCO by another Soviet, probably MECHIPOKHEKO or YATSEKOV. It is interesting to note that, although CASAMADRID has been in contact with MECHIPOREHO and BLANCO has been in contact with LOGINOV, there is no previous indication that either knew YATSEDV. YATSEDV is the KGB chief of both MECHIPOREHO and LOGINOV.
+was put into contact with BLANCO by another Soviet, probably MECHIPOKHEKO or YATSEKOV. It is interesting to note that, although CASAMADRID has been in contact with MECHIPOREHO and BLANCO has been in contact with LOGINOV, there is no previous indication that either knew YATSEDV. YATSEDV is the KGB chief of both MECHIPOREHO and LOGINOV.
 
 8. Attached is a copy of a memorandum concerning LOGINOV.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31184.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECTION B (Cont.) SPECIFIC DUTIES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17777.png
-
-Convert to MarkdownEMBARRAS DOMINICANA.- 28-77-65.
+EMBARRAS DOMINICANA.- 28-77-65.
 
 6 mayo 66.
 

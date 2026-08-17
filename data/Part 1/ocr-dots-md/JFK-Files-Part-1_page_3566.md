@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3566.png
-
-Convert to MarkdownC-82064
+C-82064
 
 SECRETARY
 

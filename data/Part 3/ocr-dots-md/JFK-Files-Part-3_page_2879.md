@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2879.png
-
-Convert to MarkdownWARD: GSH
+WARD: GSH
 
 .12/10/75
 Tap 2

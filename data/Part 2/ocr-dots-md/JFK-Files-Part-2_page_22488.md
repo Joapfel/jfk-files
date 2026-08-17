@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22488.png
-
-Convert to MarkdownSECRET
+SECRET
 
 During this period Papich developed a good relationship with Jim Angleton of Counterintelligence and found that he could work effectively with Angleton. In the early 1960's the relationship between the two agencies was probably the best that it ever got. While some flaps continued to occur, both agencies seemed to be making an effort to learn the responsibilities and jurisdiction of the other.
 

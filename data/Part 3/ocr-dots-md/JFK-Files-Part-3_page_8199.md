@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8199.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 # mo16
 BY SPAM HM 1995

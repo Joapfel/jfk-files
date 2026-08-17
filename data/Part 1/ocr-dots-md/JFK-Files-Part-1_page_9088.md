@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9088.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, WH/BAF
+MEMORANDUM FOR: Chief, WH/BAF
 
 SUBJECT : Reimbursement of Proprietary Project WUERIHY for Salary and Expenses of Edward C. TICHBORR (P) (201-253203)
 

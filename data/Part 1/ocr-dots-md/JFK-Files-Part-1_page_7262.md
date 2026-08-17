@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7262.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LICOWL General Notes Turned in on 6 October 1966
 

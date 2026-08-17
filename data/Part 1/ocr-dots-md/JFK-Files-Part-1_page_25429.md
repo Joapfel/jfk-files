@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25429.png
-
-Convert to Markdown29 July 1954
+29 July 1954
 
 HcdONALD
 

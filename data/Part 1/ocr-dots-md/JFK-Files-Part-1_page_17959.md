@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17959.png
-
-Convert to MarkdownTO :J. MAI
+TO :J. MAI
 
 UNLESS OTHERWISE SPECIFIED:
 

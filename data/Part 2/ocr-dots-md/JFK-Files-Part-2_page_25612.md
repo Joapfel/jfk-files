@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25612.png
-
 , Les Whitten, are attached hereto and included therewith are copies of the columns, set forth as Exhibits A and B. Exhibits A and B were published on the 18th and 19th of January, 1971. Attached as Exhibit C is a follow-up column which appeared on February 24, 1971, and Exhibits D and E which are copies of the office records of columnist Jack Anderson, which were released and published on April 18th and April 27th, 1971.
 
 The undersigned is informed that at no time prior to the sentencing of defendant were the matters set forth in Exhibits A and B of the attached affidavits brought to the Court's attention. It is the belief of the undersigned that had these matters been brought to the Court's attention they would have materially affected the sentence handed down by the Court in this case.

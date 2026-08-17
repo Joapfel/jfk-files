@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2868.png
-
-Convert to Markdownsmn 8
+smn 8
 
 Phone (Area 202) 544-6000
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13758.png
-
-Convert to MarkdownUNITED STATE
+UNITED STATE
 # MENT
 
 Memorandum

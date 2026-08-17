@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15688.png
-
-Convert to Markdown90 year old fool come in a courtroom
+90 year old fool come in a courtroom
 and attempt to try a young black man
 from a poor, oppressed black community.
 And the same (garbled) fool attempt to

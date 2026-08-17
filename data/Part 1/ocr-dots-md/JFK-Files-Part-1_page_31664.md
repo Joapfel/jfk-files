@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31664.png
-
-Convert to Markdown<table><tr><td>Executive摘要</td></tr><tr><td>3-1228</td></tr></table>
+<table><tr><td>Executive摘要</td></tr><tr><td>3-1228</td></tr></table>
 
 DEPARTMENT OF STATE
 UNITED STATES INTERNATIONAL INFORMATION ADMINISTRATION

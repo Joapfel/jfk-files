@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23784.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Senator Mathias. My role here seems to be the Devil's advocate.
 

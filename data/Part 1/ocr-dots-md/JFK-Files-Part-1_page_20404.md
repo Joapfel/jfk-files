@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20404.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 50 (8 PART)<br/>UNITED STATES<br/>CIVIL SERVICE COMMISSION<br/>OCTOBER 1946</td>
     <td>RETIRED APPROVED<br/>BUDGET BUREAU NO 3-524</td>

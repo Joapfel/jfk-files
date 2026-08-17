@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13146.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Some organization ( I do not know the name) has already sent telegrams. FRASTO can be of great assistance to us.
 

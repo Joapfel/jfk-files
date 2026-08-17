@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32750.png
-
-Convert to MarkdownTo assist the Source Selection Board, an Evaluation Group was established, consisting of approximately 235 Navy and Air Force officers, advisors and consultants, divided into teams to make the detailed analyses and to evaluate each of the proposals in the areas of technical design, operational effectiveness, logistics, management strength, production efficiency, and suitability for use on aircraft carriers.
+To assist the Source Selection Board, an Evaluation Group was established, consisting of approximately 235 Navy and Air Force officers, advisors and consultants, divided into teams to make the detailed analyses and to evaluate each of the proposals in the areas of technical design, operational effectiveness, logistics, management strength, production efficiency, and suitability for use on aircraft carriers.
 
 The findings of the Evaluation Group were submitted to the Source Selection Board. The Board's recommendations were reviewed by appropriate commands within the Navy and the Air Force, as well as by the Air Council, the Chief of Staff of the Air Force, and the Chief of Naval Operations, and finally, by the Secretaries of the Navy and Air Force who made their recommendations to me.
 

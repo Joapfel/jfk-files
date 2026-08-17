@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7325.png
-
-Convert to Markdowna visit is considered essential, a special request must be negotiated with the host country in advance.
+a visit is considered essential, a special request must be negotiated with the host country in advance.
 
 Senate Select Committee principals and staff should understand the distinction between U.S. intelligence installations abroad and joint U.S.-foreign intelligence installations or foreign intelligence installations supported by the U.S. intelligence community. Access to the former is at the discretion of the U.S. Ambassador; access to the latter two is at the discretion of the foreign government involved.
 

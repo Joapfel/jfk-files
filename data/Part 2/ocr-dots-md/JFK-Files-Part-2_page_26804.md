@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26804.png
-
-Convert to MarkdownSECRET
+SECRET
 
 be requested and that is about it.
 

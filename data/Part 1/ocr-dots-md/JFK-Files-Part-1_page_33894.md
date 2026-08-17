@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33894.png
-
-Convert to Markdownmany talented refugees who need employment and who can supply RFE's
+many talented refugees who need employment and who can supply RFE's
 need for script writers, actors, announcers, etc. Accordingly, desk
 staffing has been accomplished by examining the qualifications of duly
 recommended individuals, whether the recommendations come from political

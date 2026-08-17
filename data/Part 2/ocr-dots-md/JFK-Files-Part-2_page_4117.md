@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4117.png
-
-Convert to MarkdownRe: Teams 25 & 26, U.S. Army Coordinating Detachment (USACRAPE 8177 A.U.), Korea. 1956-1957. And ROA HID operations sponsored and directed by U.S. Military Intelligence.
+Re: Teams 25 & 26, U.S. Army Coordinating Detachment (USACRAPE 8177 A.U.), Korea. 1956-1957. And ROA HID operations sponsored and directed by U.S. Military Intelligence.
 
 "Completely true!"
 

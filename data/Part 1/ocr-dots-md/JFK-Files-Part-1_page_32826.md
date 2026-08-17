@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32826.png
-
-Convert to MarkdownSECRET
+SECRET
 
 83/0/MH J. NOLAN, IN DRAFT
 TSO/AOB E. BRENNAN, BY PHONE

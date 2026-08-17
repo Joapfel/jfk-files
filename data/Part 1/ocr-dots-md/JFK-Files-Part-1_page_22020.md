@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22020.png
-
-Convert to Markdownwhat his response should be if the KGB accused him of confessing
+what his response should be if the KGB accused him of confessing
 to American Intelligence and asked his interviewers to brief
 him in this regard. During the final CIA meeting on 13 July
 1965 PREISFREUND said that he had decided that the situation

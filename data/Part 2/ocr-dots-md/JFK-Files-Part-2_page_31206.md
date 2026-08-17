@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31206.png
-
-Convert to Markdown5. If symbol letter is an
+5. If symbol letter is an
 character, tend to reinforce thought
 that details were made known to
 classified by decision or see memo-

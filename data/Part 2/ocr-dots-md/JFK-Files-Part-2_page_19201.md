@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19201.png
-
-Convert to Markdown# Violence permeates our culture --
+# Violence permeates our culture --
 Where racism erodes all of our hard-won victories, and millions have been subjected to the worse kinds of indignities, simply because some of us are black.
 
 IT IS UTTER MADNESS TO SPEND 2½ BILLION DOLLARS A MONTH TO KILL AND BE KILLED IN VIETNAM WHEN THERE IS A CRYING NEED FOR FUNDS TO ELIMINATE HUNGER, AND POVERTY AT HOME.

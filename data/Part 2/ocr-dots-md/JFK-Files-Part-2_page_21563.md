@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21563.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1 Little cocktail party for him, I think it was in San Francisco.
 2 And we had that gal, we got in touch with her again, and she did

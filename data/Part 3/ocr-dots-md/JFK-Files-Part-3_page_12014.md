@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12014.png
-
-Convert to MarkdownBy letter to all offices dated 2/27/70, approved by the Director, offices having BPP investigations were instructed to submit intelligence reports on the BPP every six months in compliance with instructions in the Manual of Instructions. Previously offices were submitting quarterly reports on the BPP. The changes made on the basis of a recommendation by a Racial Informants Conference of field supervisors to eliminate some paper work in the field.
+By letter to all offices dated 2/27/70, approved by the Director, offices having BPP investigations were instructed to submit intelligence reports on the BPP every six months in compliance with instructions in the Manual of Instructions. Previously offices were submitting quarterly reports on the BPP. The changes made on the basis of a recommendation by a Racial Informants Conference of field supervisors to eliminate some paper work in the field.
 
 All field offices having a BPP investigation are also required to submit a monthly report containing evidentiary data required by the Department. Original instructions in this regard were issued by Bureau airtel 12/3/68 and the continued submission of this monthly report is necessary in view of possible prosecution of the BPP.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8795.png
-
-Convert to Markdownto deliver the letter to her soonest. Included in
+to deliver the letter to her soonest. Included in
 the letter was the name of the Mexican Ambassador
 in Cuba given as an emergency contact for wife of
 AMLEO-3. COMMENT: If AMLEO-3 was an agent of

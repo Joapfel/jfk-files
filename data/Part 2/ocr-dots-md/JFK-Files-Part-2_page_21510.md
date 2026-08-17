@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21510.png
-
 to get into the Cuban matter. And he will testify that he was told that they would proceed to overthrow the Castro government, and that there were no holds barred.
 
 He will then describe the way in which they worked with the Special Group.

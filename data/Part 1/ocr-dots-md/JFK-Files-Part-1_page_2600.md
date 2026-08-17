@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2600.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 ## CHAPTER I
 # FOUNDATIONS OF NOSENKO'S CLAIMS

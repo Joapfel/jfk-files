@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10025.png
-
-Convert to MarkdownIS CIM
+IS CIM
 
 ONE AGENT       30 PERCENT        50 PERCENT
 ONE AGENT       40 PERCENT        20 PERCENT

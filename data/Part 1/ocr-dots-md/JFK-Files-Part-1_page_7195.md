@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7195.png
-
-Convert to MarkdownALVAREZ, Jose Luis
+ALVAREZ, Jose Luis
 
 (Michoncan)
 

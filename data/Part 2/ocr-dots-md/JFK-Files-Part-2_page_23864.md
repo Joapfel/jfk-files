@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23864.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 writing, publication, distribution within the United States
 or its territories, of any book, magazine, article and so forth.

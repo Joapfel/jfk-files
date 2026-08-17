@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22387.png
-
-Convert to Markdownthe time of the defection, GRIBANOV was a personal friend of NOSENKO and had more or less treated NOSENKO as a protégé and had taken many steps to further NOSENKO's career within the KGB.* It was felt that GRIBANOV should have been aware of NOSENKO's plans to defect.
+the time of the defection, GRIBANOV was a personal friend of NOSENKO and had more or less treated NOSENKO as a protégé and had taken many steps to further NOSENKO's career within the KGB.* It was felt that GRIBANOV should have been aware of NOSENKO's plans to defect.
 
 Three of GRIBANOV's deputies were also expelled from the KGB, one of whom was a Major General BANNIKOV. Of the 11 other Second Chief Directorate Employees expelled, some were found to have been personal friends of NOSENKO and some of them were found to have confided to NOSENKO details of operations in which they were working.
 

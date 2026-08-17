@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14169.png
-
-Convert to Markdown79. 8/31/62 - A column by Henry J. Taylor (date and newspaper not identified) was inserted into the Congressional Record of 8/31/62 page A6569, by Congressman William C. Cramer:
+79. 8/31/62 - A column by Henry J. Taylor (date and newspaper not identified) was inserted into the Congressional Record of 8/31/62 page A6569, by Congressman William C. Cramer:
 
 ". . . we help Cuba mightily by having no policy at all. Admittedly, enemy rocket sites are available there from which to reach Miami, Cape Canaveral, and even Washington (only 1,139 miles), New York (1,317), Boston (1,801), Chicago (1,333), Kansas City (1,497), Denver (1,819), Los Angeles-San Diego (2,299), and easily as far as Seattle (2,843) on a pinpoint basis. Why does the administration consistently pooh-pooh and soften the indications these rocket sites are being built? It you were Khrushchev wouldn't you build them? Disliking the inevitable does not make it less inevitable . . ."
 

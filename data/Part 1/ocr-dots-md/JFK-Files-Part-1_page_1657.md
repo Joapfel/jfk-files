@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1657.png
-
-Convert to Markdown5.
+5.
 
 SECRET/SENSITIVE
 

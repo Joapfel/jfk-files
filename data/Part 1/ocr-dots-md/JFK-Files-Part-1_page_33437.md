@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33437.png
-
-Convert to MarkdownOUTGOING MESSAGE:
+OUTGOING MESSAGE:
 
 <table><thead><tr><th colspan="7">SIGNAL CANTEN YUSO ONLY</th></tr><tr><th>DATE</th><th>TIME</th><th>CANTEN</th><th>ALP</th><th>SIGNATURE</th><th>FULL NAME</th><th>PAGE</th></tr></thead><tbody><tr><td>01F</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>1</td></tr><tr><td colspan="7">CLASSIFICATION<br>SECRET</td></tr><tr><td colspan="7">MESSAGE-LEVEL INDICATOR<br>STAFF</td></tr><tr><td>CONF.:</td><td>Cl/118</td><td>INFO:</td><td>FILE</td><td>221721Z</td><td>DIRECTOR</td><td>MESAGE REFERENCE NUMBER<br>458535</td></tr><tr><td colspan="7">DISSEMIN BY:<br>0 MODE<br>0 NO INFORM<br>0 RETURN TO PER 28<br>0 UP DATE #</td></tr></tbody></table>
 

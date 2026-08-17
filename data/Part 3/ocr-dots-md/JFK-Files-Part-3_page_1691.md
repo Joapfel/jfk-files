@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1691.png
-
-Convert to MarkdownLS 65-26:12
+LS 65-26:12
 
 E F T O PAGE. TWO
 

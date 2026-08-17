@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30631.png
-
-Convert to Markdown14-0000
+14-0000
 
 STANDARD FORM 50 (7 PART)
 REV. APRIL 1981

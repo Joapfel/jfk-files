@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25109.png
-
-Convert to Markdown12. INTELLIGENCE AFFILIATION (including justification, sources and narrative discussion):
+12. INTELLIGENCE AFFILIATION (including justification, sources and narrative discussion):
 
 Subject is a known KGB Officer probably from the 13th Department of the First Chief Directorate, identified as such through the AEBURBLE case. (See Intelligence Activities). (38)
 

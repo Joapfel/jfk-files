@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11031.png
-
-Convert to Markdown<table><tr><td>TO : D. GUTIERREZ</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>RE: (ACTION) TFM 10 * (TFM COPY SLOTTED AT: 1500 21 DEC/M4)</td></tr><tr><td>INFO : CDP, ACDP, CA 2, CA/FED, CA/FRED, CA/0 4, CI/CRS, CI/IC 2, FI, FI/IMT 2, W7, S/C 2</td></tr></table>
+<table><tr><td>TO : D. GUTIERREZ</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>RE: (ACTION) TFM 10 * (TFM COPY SLOTTED AT: 1500 21 DEC/M4)</td></tr><tr><td>INFO : CDP, ACDP, CA 2, CA/FED, CA/FRED, CA/0 4, CI/CRS, CI/IC 2, FI, FI/IMT 2, W7, S/C 2</td></tr></table>
 
 JN39430
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16783.png
-
-Convert to Markdownrespectively, reveal three paints which are similar in
+respectively, reveal three paints which are similar in
 physical characteristics and composition and indicate
 that the door and hinge were painted at least three times
 as a unit.

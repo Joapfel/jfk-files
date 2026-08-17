@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11130.png
-
-Convert to MarkdownSECRET
+SECRET
 
 be stored in the Remington Rand safes. The documents in the
 Remington Rand safes can be drawn by anyone on the staff, but

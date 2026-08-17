@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2379.png
-
-Convert to Markdownduring the Democratic National Convention at Chicago in
+during the Democratic National Convention at Chicago in
 August, 1968; and the demonstrations during the Presidential
 Inauguration ceremonies in January, 1969. Its officers include
 ~~who has travelled to the Soviet Union~~,

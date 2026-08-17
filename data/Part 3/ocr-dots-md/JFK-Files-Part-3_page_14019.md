@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14019.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 USSR from the Middle East); Clemens and Felfe (who served 9 years in the West German counterespionage service, and were uncovered through a Polish defector's tip to CIA); Cox (a U. S. citizen who took $500 from the Soviets, returned the money, suffered a heart attack, and the case dropped by U. S. authorities); Ethel and Harry Houghton (uncovered through a tip from a Polish defector); the Krugers (a U. S. couple whose real names were Cohen and who disappeared in 1950); the Lansdale case in England; Vassalls (a homosexual clerk in the British Admiralty); and Wennerstrom (CIA didn't give the Swede's a direct lead to this Soviet agent, but CIA laid out to officials of Sweden the manner in which the Soviets would effect a penetration, and when the Swede's surveyed their situation they found that Wennerstrom fit the prototype, with the result that Wennerstrom confessed when confronted.) Mr. Helms also presented another chart dealing with cases of espionage penetrations by other Soviet bloc intelligence services including Czechs, East Germans, Poles and Yugoslavs.
 

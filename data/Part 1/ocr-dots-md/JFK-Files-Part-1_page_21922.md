@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21922.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 July 1965 NOSENKO said: "I met my wife in a House of Rest. I had been at Sosno in January but didn't like it. I tried Dyatkino and met her.
 

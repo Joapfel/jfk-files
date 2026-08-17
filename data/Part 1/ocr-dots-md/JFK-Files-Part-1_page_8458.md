@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8458.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. In the presence of all VIDIELLA boasted about his great Soviet Friend, Valentino, the consul (this is obviously LOGINOV). The two students and MORISSET all seemed to know LOGINOV personally. One of the students asked VIDIELLA if he had been invited to the Soviet I May celebration. He said that he hadn't. He then asked Subject, if he knew any Soviets. Subject answered as casually as he could that he had known one casually with whom he used to go fishing and changed the subject. Subject didn't feel that VIDIELLA was fishing for information but I am not so sure.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8257.png
-
-Convert to Markdown3 March 1951
+3 March 1951
 
 DIMITROV signed a memorandum certifying that he had received three hundred dollars from Lawrence F. MacBRIDE, literary agent, representing a sum paid for a complete and unabridged option on the use and possible publication of three books written by me and brought to Mr. MacBRIDE, in Greek translation, by [ ] who acted in this instance purely informally and as a friend. The option is effective as of this date for a period of c six calendar months.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25352.png
-
-Convert to Markdown# I. Carry-over from Church report
+# I. Carry-over from Church report
 
 ## A. Relationship between agencies and Warren Commission
 

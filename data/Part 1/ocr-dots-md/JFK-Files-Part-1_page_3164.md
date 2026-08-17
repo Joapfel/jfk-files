@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3164.png
-
-Convert to MarkdownSECRET
+SECRET
 
 29 June 70
 

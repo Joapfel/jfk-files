@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13686.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In other words, it was not part of the operational plan to provide him with any such devices for the purposes of assassinating Castro. The rifles and the grenades and all of this was something that was necessary to start a coup.
 

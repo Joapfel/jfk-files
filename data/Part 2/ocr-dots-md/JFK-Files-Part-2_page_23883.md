@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23883.png
-
-Convert to Markdown1 What record of abuse do we have?
+1 What record of abuse do we have?
 
 2 Senator Hart of Michigan. Any record of significant
 

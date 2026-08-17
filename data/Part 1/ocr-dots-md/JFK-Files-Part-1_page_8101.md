@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8101.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CABLE, SEC DISSEM BY: 22 PER</td><td>TOTAL COPIES 19-3 RUN BY:</td></tr><tr><td>PERSON/UNIT NOTIFIED:</td><td>SECRET</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED SLOTTED: BY: AT:</td></tr><tr><td>ACTION UNIT: C/WH8</td><td>RF FILE: VR CLAN, CSS3 c/p 5eg3</td></tr><tr><td>ACTION INFO:</td><td></td></tr></table>
 

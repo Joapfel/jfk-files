@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28928.png
-
-Convert to MarkdownSECRET
+SECRET
 
 14. Term. This contract is effective as of 12/30/61, and shall continue thereafter for an indefinite period unless sooner terminated:
 

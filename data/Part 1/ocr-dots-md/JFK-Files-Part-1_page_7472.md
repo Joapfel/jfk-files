@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7472.png
-
-Convert to MarkdownOCT 15
+OCT 15
 
 RETURN TO: Tainor
 10/14/63 caw

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16241.png
-
-Convert to Markdown# C. Officers of Rockford Branch BPP
+# C. Officers of Rockford Branch BPP
 
 During July, 1969, the following individuals listed in alphabetical order were reported by sources as officers of the Rockford Branch, Illinois BPP:
 

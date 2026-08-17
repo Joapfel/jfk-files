@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12067.png
-
-Convert to Markdownwhich handles approximately 1,400 pending cases and is responsible for over 7,000 subjects on the Bureau's Special Indices. A moratorium on routine communist investigations in effect at the time of the last inspection, which curtailed the work of this Unit, has been removed and the case load increases daily. The removal of the moratorium warranted the expansion of this Unit from a two to three-man Unit at the time of reorganization but for all practical purposes, the Unit has functioned as a two-man Unit with the third man (Schwartz) on loan for the majority of the period to the Research Section for a special project.
+which handles approximately 1,400 pending cases and is responsible for over 7,000 subjects on the Bureau's Special Indices. A moratorium on routine communist investigations in effect at the time of the last inspection, which curtailed the work of this Unit, has been removed and the case load increases daily. The removal of the moratorium warranted the expansion of this Unit from a two to three-man Unit at the time of reorganization but for all practical purposes, the Unit has functioned as a two-man Unit with the third man (Schwartz) on loan for the majority of the period to the Research Section for a special project.
 
 6. When Special Agent supervisory personnel currently assigned, temporarily on loan to other Sections, are returned, we will have adequate personnel to handle existing case load.
 

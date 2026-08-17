@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4507.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 GABRIEL MANNARINO, Aka.
 

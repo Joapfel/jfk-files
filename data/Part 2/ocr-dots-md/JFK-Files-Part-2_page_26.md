@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26.png
-
-Convert to MarkdownF. B. citizens. Subject has four brothers and one sister (see Appendix II). He is Vice President of the Ferro Industries, which comprises the following group:
+F. B. citizens. Subject has four brothers and one sister (see Appendix II). He is Vice President of the Ferro Industries, which comprises the following group:
 
 Ponce Cement Corporation, Ponce, P. R.
 Puerto Rico Iron Works, Ponce, P. R.

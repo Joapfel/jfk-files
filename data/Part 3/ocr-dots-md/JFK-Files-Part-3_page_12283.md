@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12283.png
-
-Convert to MarkdownV. FUNDS
+V. FUNDS
 
 The money by which the Black Panther Party operates comes from a number of
 sources. There are substantial private contributions; fees for public appearances,

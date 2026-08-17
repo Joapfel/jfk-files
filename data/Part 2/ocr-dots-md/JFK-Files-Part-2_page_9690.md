@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9690.png
-
-Convert to MarkdownNow our goals are within our grips and our armies are beginning
+Now our goals are within our grips and our armies are beginning
 to activate. A large segment of the left and the right are no
 longer shooting at each other. Yes, the fear of our enemies
 is now realistic. The bullets of all pro-American revolution-

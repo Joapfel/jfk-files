@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27230.png
-
-Convert to MarkdownA - Memo for Commission from the President - 19 Feb 75
+A - Memo for Commission from the President - 19 Feb 75
 
 B - Memo to Mr. Manfredi from Ruth E. Johnson - 29 Apr 75
 

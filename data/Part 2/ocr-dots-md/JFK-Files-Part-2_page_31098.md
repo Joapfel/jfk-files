@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31098.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ⑥ 5 Jan. 1963
 Able to Director from JUWAVE

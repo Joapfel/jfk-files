@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22027.png
-
-Convert to MarkdownNOSENKO was interrogated by CIA on the JENNER case on 15 February 1965. On the basis of this interrogation, a protocol was drawn up in question-and-answer form, incorporating NOSENKO's responses, and on 19 February 1965, NOSENKO signed the protocol, attesting to its accuracy. The following is taken from this signed statement:
+NOSENKO was interrogated by CIA on the JENNER case on 15 February 1965. On the basis of this interrogation, a protocol was drawn up in question-and-answer form, incorporating NOSENKO's responses, and on 19 February 1965, NOSENKO signed the protocol, attesting to its accuracy. The following is taken from this signed statement:
 
 **Question:** Did you supervise the work against JENNER?
 

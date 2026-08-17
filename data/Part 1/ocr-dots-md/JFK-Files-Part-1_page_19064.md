@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19064.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 KEHARD, LUDWIG. Prosperity through competition. New York,
 Praeger, 1958. 260p. HC286.5.E7313 DLC.

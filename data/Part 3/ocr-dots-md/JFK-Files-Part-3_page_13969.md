@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13969.png
-
-Convert to Markdown# Board Report of October 5, 1962
+# Board Report of October 5, 1962
 
 (Based on an on-the-scene review by Board representatives of U. S. foreign intelligence and related activities in Southeast Asia and the Far East)
 

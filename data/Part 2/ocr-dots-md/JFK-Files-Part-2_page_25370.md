@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25370.png
-
-Convert to MarkdownJohnny Roselli, 1975. upper right and. counterclockwise from upper left: Fidel Castro in Sam Giancana in President John Kennedy in Dade County; Port Lt. Gary Minni and the Floridian home where Roselli lived before death.
+Johnny Roselli, 1975. upper right and. counterclockwise from upper left: Fidel Castro in Sam Giancana in President John Kennedy in Dade County; Port Lt. Gary Minni and the Floridian home where Roselli lived before death.
 
 Photos by The Washington Post; The Chicago Daily News. AP
 

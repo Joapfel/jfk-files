@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12423.png
-
-Convert to MarkdownCon el nivel de producción actual y la riqueza potencial existente es hace necesario efectuar modificaciones en la forma de aprovechamiento, introduciendo técnicas industriales de trabajo.
+Con el nivel de producción actual y la riqueza potencial existente es hace necesario efectuar modificaciones en la forma de aprovechamiento, introduciendo técnicas industriales de trabajo.
 
 Igualmente es de señalar que la ley y reglamento actuales de Mínoas catan del año 1944, cuando la producción diamantífera no alcanzaba ni acquiera el 10% de los niveles actuales. Su modificación es imperativa a efectos de introducir nuevas regulaciones cónsonantes con las técnicas existentes inclusive en países menos developedos que Venezuela.
 

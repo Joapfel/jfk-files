@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32555.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. Bolivia - Station has been urging Bolivian government to adopt stricter travel controls, without apparent results so far. Names of travellers known to have returned from Cuba are being furnished to the Bolivian government. Thus far, no action is known to have been taken by the Bolivian government on the strength of such information. Station comments that problem with Bolivia is not in lack of information available to government on Cuban subversion, but in getting Bolivia to do something about it. The station has also furnished considerable information, including some surreptitiously acquired documents, to the Ambassador for his use in urging Bolivian government action against Cuba. Considerable information is also being obtained through the interrogation of Peruvian guerrillas captured attempting to cross into Peru early in June.
 

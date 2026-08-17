@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3381.png
-
-Convert to Markdown# Issues and Options for Discussion with Former Attorneys General Rogers, Katzenbach, and Clark
+# Issues and Options for Discussion with Former Attorneys General Rogers, Katzenbach, and Clark
 
 MDR-16
 ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26742.png
-
-Convert to MarkdownKeel 72-ICO-28
+Keel 72-ICO-28
 
 From 0620, 3 May (Monday) to 0620, 4 may 1965
 

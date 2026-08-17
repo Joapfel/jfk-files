@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14194.png
-
-Convert to Markdown(152. 10/11/62 Continued)
+(152. 10/11/62 Continued)
 
 "officials would be briefed, but no material would appear in formal intelligence publications without the approval of the USIB principals. These instructions were first issued orally, (CIA does not say when) and later on October 11, 1962 formalized by USIB in the 'PSAIM' system. The key passages in USIB's order were 'such information or intelligence will be disseminated outside each USIB intelligence component only to specific individuals on an EYES ONLY basis who by virtue of their responsibilities as advisers to the President have a need to know', and 'there is no intent, hereby, however, to inhibit the essential analytic process.'"
 

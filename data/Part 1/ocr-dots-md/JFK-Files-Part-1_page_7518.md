@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7518.png
-
-Convert to MarkdownIt has been stated by friends of ISAACS even during the height of his Trot- skyist career, he never accepted money from any group; that he was open and above board; and that he never engaged in any conspiracies to overthrow established govern- ment. They are also reported to have stated that ISAACS was attracted to Communism by Khaneer idealism."
+It has been stated by friends of ISAACS even during the height of his Trot- skyist career, he never accepted money from any group; that he was open and above board; and that he never engaged in any conspiracies to overthrow established govern- ment. They are also reported to have stated that ISAACS was attracted to Communism by Khaneer idealism."
 
 It has been further reported that immediately after Pearl Harbor, ISAACS broke with the Trotskyite group as he had broken with the Communists", and began writing propaganda for the United States Government.
 

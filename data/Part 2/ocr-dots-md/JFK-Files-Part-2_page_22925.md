@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22925.png
-
-Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+410 First Street, S.E., Washington, D.C. 20003
 
 43 Mr. Schwarz. Now, have you had a chance to read them
 again, Mr. Bundy?

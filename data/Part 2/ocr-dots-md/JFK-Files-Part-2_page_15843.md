@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15843.png
-
-Convert to MarkdownDocument entitled, "Reëctify the Party" in
+Document entitled, "Reëctify the Party" in
 Style of Work."
 
 Document entitled, "We Demand Community

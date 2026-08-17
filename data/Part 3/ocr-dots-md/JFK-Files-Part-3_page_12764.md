@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12764.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 ## II. BLACK PANTHER OBJECTIVES
 

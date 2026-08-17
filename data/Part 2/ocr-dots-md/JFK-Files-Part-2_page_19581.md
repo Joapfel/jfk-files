@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19581.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## 1. WORKERS WORLD PARTY
 

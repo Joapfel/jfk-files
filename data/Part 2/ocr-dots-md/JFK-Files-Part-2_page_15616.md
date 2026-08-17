@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15616.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 This incident culminated in the arrest of four demonstrators who were charged with disorderly conduct. Following the arrest the demonstrators moved their demonstration to the Evanston PD to protest the arrest of their group.
 

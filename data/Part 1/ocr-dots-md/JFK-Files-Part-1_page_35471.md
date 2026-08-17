@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35471.png
-
-Convert to Markdown15 Jüni 1964
+15 Jüni 1964
 
 # CONTACT REPORT
 

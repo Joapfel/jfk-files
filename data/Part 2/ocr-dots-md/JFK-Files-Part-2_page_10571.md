@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10571.png
-
-Convert to MarkdownCongressmen and Senators may be interviewed by the FBI in these cases involving Congressional aides--just as they may be interviewed in connection with other types of FBI investigations--and both the fact of, and the results of, such interviews are noted in the file reflecting the FBI investigation.
+Congressmen and Senators may be interviewed by the FBI in these cases involving Congressional aides--just as they may be interviewed in connection with other types of FBI investigations--and both the fact of, and the results of, such interviews are noted in the file reflecting the FBI investigation.
 
 (4) Allegations that Senators or Congressmen have violated laws within the jurisdiction of other investigative agencies.
 

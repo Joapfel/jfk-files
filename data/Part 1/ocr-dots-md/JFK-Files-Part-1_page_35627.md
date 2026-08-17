@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35627.png
-
-Convert to Markdown# Programa radial "El Medico y Usted"
+# Programa radial "El Medico y Usted"
 
 Junio, 1965
 

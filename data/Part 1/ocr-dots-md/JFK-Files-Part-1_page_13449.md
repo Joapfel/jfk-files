@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13449.png
-
-Convert to MarkdownUFGA
+UFGA
 
 24.5.22/05.
 

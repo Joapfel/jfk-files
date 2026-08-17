@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17640.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 per GSH 43-41
 

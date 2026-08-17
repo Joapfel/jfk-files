@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31507.png
-
-Convert to MarkdownW.E.B. DU BOIS CLUB OF SAN FRANCISCO,
+W.E.B. DU BOIS CLUB OF SAN FRANCISCO,
 aka DuBois Youth Group, San Francisco
 DuBois Club, San Francisco DuBois
 Youth Group, Student-Labor Alliance

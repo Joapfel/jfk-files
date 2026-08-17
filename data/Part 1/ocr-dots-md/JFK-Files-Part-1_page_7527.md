@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7527.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 DISPATCH NO. 20014-100
 

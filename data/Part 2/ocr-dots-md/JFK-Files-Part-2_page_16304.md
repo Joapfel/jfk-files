@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16304.png
-
-Convert to MarkdownOn July 2, 1969 members of the Young Patriots and Young Lords held a peace rally in Lincoln Park in Chicago. No arrests resulted.
+On July 2, 1969 members of the Young Patriots and Young Lords held a peace rally in Lincoln Park in Chicago. No arrests resulted.
 
 (Chicago Daily News, 7/2/69)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13899.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 evaluation which CIA had made of the situation. Dr. Langer wondered whether there was sufficient DIA and State Department representation at the CIA center where the Central Intelligence Bulletin was prepared. Dr. Langer added that the White House staff followed the wrong procedure; that instead of querying CIA, Mr. Bromley Smith had called Mr. Coyne for help in getting a coordinated evaluation of the situation. Mr. Coyne corrected this by pointing out that in fact Mr. Smith had talked to State and others in the intelligence community; and thereafter called Mr. Coyne to obtain help in getting an up-to-date comprehensive summary of the SIGINT messages from NSA, and Mr. Coyne thereupon spent two days at NSA observing the work of NSA officials in reviewing and summarizing the messages which had come in from NSA field collection points, and the operational U.S. Navy messages to the extent that they had been made available to NSA.
 

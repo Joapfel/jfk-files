@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4583.png
-
-Convert to Markdownthree months under him than they would learn in three years of formal
+three months under him than they would learn in three years of formal
 training. As a result of being so short handed, Morales had to work
 about 14 hours a day, seven days a week. Otherwise, however, he
 received excellent support generally, both from Headquarters and the

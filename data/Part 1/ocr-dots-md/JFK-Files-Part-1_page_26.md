@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26.png
-
-Convert to Markdown1. Paragraph 6 of our memorandum of 6 April 1964 was a response to question #3 of your memorandum of 12 March 1964 entitled:
+1. Paragraph 6 of our memorandum of 6 April 1964 was a response to question #3 of your memorandum of 12 March 1964 entitled:
 
 Questions Posed by State Department Files. That question read as follows:
 

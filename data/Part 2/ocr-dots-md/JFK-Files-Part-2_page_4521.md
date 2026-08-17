@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4521.png
-
-Convert to Markdown10 July 1963
+10 July 1963
 
 MEMORANDUM FOR THE RECORD:
 

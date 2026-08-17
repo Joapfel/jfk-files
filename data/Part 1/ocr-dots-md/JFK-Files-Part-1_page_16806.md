@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16806.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG</td><td></td><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>UNIT</td><td></td><td colspan="2">SECRET</td></tr><tr><td>EXT</td><td></td><td colspan="2"></td></tr><tr><td>DATE</td><td></td><td colspan="2"></td></tr><tr><td colspan="3"></td><td>8.08</td></tr><tr><td rowspan="6" style="vertical-align: top;">TO<br/>FROM: DIRECTOR<br/>CONF.<br/>INFO:</td><td colspan="3" style="text-align:center; font-weight:bold; border-bottom: 1px solid black;">ROUTING</td></tr><tr><td style="text-align:center;">1</td><td colspan="2" style="text-align:center;">4</td></tr><tr><td style="text-align:center;">2</td><td colspan="2" style="text-align:center;">5</td></tr><tr><td style="text-align:center;">3</td><td colspan="2" style="text-align:center;">6</td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3"></td><td style="text-align:right;">OUT 80565 DIR 38385</td></tr><tr><td>CITE DIR</td><td>INFO</td><td>-2-</td></tr></table>
 

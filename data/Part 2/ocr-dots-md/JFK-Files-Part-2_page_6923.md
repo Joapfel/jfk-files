@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6923.png
-
-Convert to MarkdownAmerican Bar Association, the American Historical Association, the American Political Science Association, or kindred bodies. Appointments could be made by the President, with advice and consent of the Senate.
+American Bar Association, the American Historical Association, the American Political Science Association, or kindred bodies. Appointments could be made by the President, with advice and consent of the Senate.
 
 Unless the quantity of material withheld proved to be much larger than I would expect, the Review Board could be kept small. It could probably manage with minimal staff.
 

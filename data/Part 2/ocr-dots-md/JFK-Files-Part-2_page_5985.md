@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5985.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 MARTIN, Jack S. AIN 0 651 268 YES
 MARTIN, Lawrence J. AIN 0 634 475 YES

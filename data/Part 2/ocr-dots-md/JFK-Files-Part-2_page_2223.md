@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2223.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 52<br/>PROPOSED BY THE<br/>U. S. ARMY DEPARTMENT<br/>JANUARY 1974- FEBRUARY 1974<br/>MANUAL CHAPTER 81</td>
     <td>UNVOUCHERED</td>

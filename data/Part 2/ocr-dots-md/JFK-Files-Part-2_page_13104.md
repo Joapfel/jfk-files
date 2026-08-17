@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13104.png
-
-Convert to MarkdownMemo Cregar to Mr. Wannall, 10/31/75
+Memo Cregar to Mr. Wannall, 10/31/75
 
 Re: U. S. SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 

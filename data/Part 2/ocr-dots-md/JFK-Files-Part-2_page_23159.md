@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23159.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 compromised by coming into a camp next to where some exiled Cubans were already working.
 

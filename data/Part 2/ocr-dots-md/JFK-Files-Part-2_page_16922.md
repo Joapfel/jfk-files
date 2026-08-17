@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16922.png
-
-Convert to Markdown# Military Training System
+# Military Training System
 
 A 4-week mandatory class for all members (the, Sun, and Mon).
 The restriction of all non-member classes should be conducted in a civil,

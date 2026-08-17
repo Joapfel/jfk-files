@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6051.png
-
-Convert to Markdown## SCNICOS FUSOS COMENZARON A TORMINARSE
+## SCNICOS FUSOS COMENZARON A TORMINARSE
 ES ESTARIAN INSTALANDO CERCA DE GUANTANAMO. - CRECE LA PREOCUPACION EN LO
 
 WASHINGTON — PROTESTA DE REFUGIADOS CUBANOS. — Un policía contempla el paso de un piquete de refugiados cubanos los cuales llevan rátulos con las inscripciones: "Rusos, sáyente a Moscú" y "Rusos no matan sus marinos en Cuba". La protesta se origina ante el anuncio de que tropas y técnicos soviéticos habían desembarcado en La Habana.

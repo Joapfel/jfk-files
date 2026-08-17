@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18494.png
-
-Convert to Markdown15 OCT 1967
+15 OCT 1967
 
 MEMORANDUM FOR: Director of Personnel
 

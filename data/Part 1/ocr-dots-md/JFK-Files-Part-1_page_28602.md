@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28602.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="2">FIELD FITNESS REPORT</th></tr></thead><tbody><tr><td>1955</td><td>001-21 AM:10:23</td></tr><tr><td colspan="2"><strong>INSTRUCTIONS</strong></td></tr><tr><td colspan="2">TO THE FIELD ADMINISTRATIVE OR PERSONNEL OFFICER: Convert current field administrative instructions regarding the initiation and transmittal of this report to head-quarters.</td></tr><tr><td colspan="2">TO THE FIELD SUPERVISOR: Read the entire form before attempting to complete any item. As the supervisor who assigns, directs and reviews the work of the individual, you have primary responsibility for evaluating his strengths, weaknesses, and on-the-job effectiveness as revealed by his day-to-day performance. If this individual has been under your supervision for less than 30 days, you will collaborate, if practicable, with his previous supervisors to make sure the report is accurate and complete. Primary responsibility rests with the current supervisor. It is assumed that, throughout the period this individual has been under your supervision, you have discharged your supervisory responsibilities by frequent discussions of his work, so that in a few days where he stands.</td></tr><tr><td colspan="2">FieU<br/>P & P. Control<br/><br/>It IS OPTIONAL WHETHER OR NOT THIS FITNESS REPORT IS SHOWN TO THE PERSON BEING INSPECTED</td></tr></tbody></table>

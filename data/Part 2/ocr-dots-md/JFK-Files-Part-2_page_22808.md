@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22808.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 of the high sensitivity of the subject matter, no written records were kept, and it was not discussed at open meetings. That is generally what was said. And it seems to me that is implying, then, that as a matter of policy there was no formalization of this sort of communication.
 

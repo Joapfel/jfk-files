@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8428.png
-
-Convert to MarkdownMr. Morton H. Halperin
+Mr. Morton H. Halperin
 
 The envelope and the letter should be clearly marked "Freedom of Information Appeal" or "Information Appeal." Following the Attorney General's decision, judicial review is available in the district of your residence or principal place of business, or in the District of Columbia, where the records are situated.
 

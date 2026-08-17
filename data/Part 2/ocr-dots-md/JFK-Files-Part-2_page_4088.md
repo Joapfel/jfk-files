@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4088.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 apparently exhibited New Jersey driver's license number
 44342. Opening deposit was $900.00, and the account was

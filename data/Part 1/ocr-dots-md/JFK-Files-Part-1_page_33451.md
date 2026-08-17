@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33451.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">CABLE SEC DISSEM BY 78 PER TOTAL COPIES 31</td>
         <td rowspan="4" style="vertical-align: top; text-align: center;">

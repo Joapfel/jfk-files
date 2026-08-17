@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20562.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="5" style="text-align:center;">SECTION V</th></tr><tr><td colspan="5">GEOGRAPHIC AREA AND FOREIGN TRAVEL</td></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED KNOWLEDGE</th><th>DATES OF TRAVEL OR RESIDENCE</th><th>DATE & PLACE OF STUDY</th><th>ANNUAL LEASE ACQUIRED BY CHECK NO.</th></tr></thead><tbody><tr><td>1.</td><td></td><td rowspan="2">Oct 23 - 30 '68</td><td></td><td></td></tr><tr><td>2.</td><td></td><td></td><td></td></tr></tbody></table>
 

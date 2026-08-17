@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11615.png
-
-Convert to Markdown## H. INFORMATION TO BE FURNISHED TO THE BUREAU
+## H. INFORMATION TO BE FURNISHED TO THE BUREAU
 
 1. Which does not have a nationwide circulation or interest
 

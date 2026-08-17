@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27590.png
-
-Convert to Markdown**Life Experience:** Inauguration of President and Vice President
+**Life Experience:** Inauguration of President and Vice President
 of the United States, 1977 Presidential
 Inaugural Committee, Washington, D.C.
 

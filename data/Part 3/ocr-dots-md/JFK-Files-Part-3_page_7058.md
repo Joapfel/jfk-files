@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7058.png
-
-Convert to Markdown2. Senator Church intends to provide the press with commentary on selective testimony or facts pertaining to the inquiry. He has advised that he will clear with the Director these releases to avoid inadvertent disclosure harmful to U.S. intelligence agencies. Review of such releases will be undertaken by the IC Staff in concert with appropriate agencies.
+2. Senator Church intends to provide the press with commentary on selective testimony or facts pertaining to the inquiry. He has advised that he will clear with the Director these releases to avoid inadvertent disclosure harmful to U.S. intelligence agencies. Review of such releases will be undertaken by the IC Staff in concert with appropriate agencies.
 
 3. In preparing statements or testimony to be given in open or closed hearings, senior intelligence officials should avail themselves of all previous related testimony or material furnished by other sources.
 

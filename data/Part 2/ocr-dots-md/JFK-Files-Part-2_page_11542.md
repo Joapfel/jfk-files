@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11542.png
-
-Convert to MarkdownII. Whenever reports relating to security index subjects contain data affecting material included on subject's existing security index card, the cover pages accompanying the report shall include as the last page form FD-305, appropriately checked, which form contains items pertaining to the following:
+II. Whenever reports relating to security index subjects contain data affecting material included on subject's existing security index card, the cover pages accompanying the report shall include as the last page form FD-305, appropriately checked, which form contains items pertaining to the following:
 
 (A) That subject is included in the security index
 

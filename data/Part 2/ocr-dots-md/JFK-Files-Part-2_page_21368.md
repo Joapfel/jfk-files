@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21368.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FOREIGN POLITICAL MATTERS - CUBA
 

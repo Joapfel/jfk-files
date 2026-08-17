@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8344.png
-
-Convert to MarkdownSUBJECT: Valentin Loguinov
+SUBJECT: Valentin Loguinov
 
 DATE OF INFORMATION: March 22, 1969
 

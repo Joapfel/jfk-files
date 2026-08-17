@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8183.png
-
-Convert to MarkdownDear Margaret,
+Dear Margaret,
 
 I would like to thank you for your letter and the two issues of "el corno". The reason for my late answer is simply that I waited for the definite decision of the editor in chief of AKZANT about our project. His answer is a total agreement!
 

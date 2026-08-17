@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_767.png
-
-Convert to MarkdownSUBJECT: Letter of Commendation
+SUBJECT: Letter of Commendation
 
 TO: COLONEL FRID DEUTER
 Commander, Det #4 (PACIFIC)

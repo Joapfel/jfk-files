@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7294.png
-
-Convert to Markdown## II. BACKGROUND
+## II. BACKGROUND
 
 ### 5. General
 

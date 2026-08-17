@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2195.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 A review of FBI files for information relating to drugs designed to modify behavior indicates an interest dating back to 1922. However, this interest has not extended to the point where the FBI has conducted programs involving research, experimentation or use of drugs for interrogation purposes. Neither has it funded such programs. We have maintained liaison with other U. S. Government agencies and industrial organizations in order to be aware of developments in this area. However, we have not implemented any programs to apply the results of research conducted by such organizations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34550.png
-
-Convert to Markdown40. What do you know about Oswald's association and friendship with foreign students in the USSR in Minsk and Moscow? Do the names Mary Louise Patterson and Mrs. Roberto Camacho mean anything to you?
+40. What do you know about Oswald's association and friendship with foreign students in the USSR in Minsk and Moscow? Do the names Mary Louise Patterson and Mrs. Roberto Camacho mean anything to you?
 
 41. What do Oswald's files show about his contacts with Cuban students in Minsk?
 

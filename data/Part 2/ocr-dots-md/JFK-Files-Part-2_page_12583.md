@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12583.png
-
-Convert to Markdowne. Employment in key facilities
+e. Employment in key facilities
 
 Individual employed in or having access to key facility who is alleged to have been at any time member of any basic revolutionary organization
 

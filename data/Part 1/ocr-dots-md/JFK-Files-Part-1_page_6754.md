@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6754.png
-
-Convert to Markdown13 June 1963
+13 June 1963
 
 Operation Stateside No. 30
 

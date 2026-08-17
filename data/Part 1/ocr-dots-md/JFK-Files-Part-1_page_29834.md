@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29834.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 15 March 1950
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23987.png
-
-Convert to MarkdownFurther, CIA officials believed their judgment of the endeavor's
+Further, CIA officials believed their judgment of the endeavor's
 difficulty was known to the White House. Helms commented on the Septem-
 ber 15th meeting: "So realizing all of these things, I'm relatively
 certain that day that I pointed out this is going to be awfully tough."

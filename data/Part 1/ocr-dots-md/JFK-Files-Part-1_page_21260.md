@@ -1,7 +1,3 @@
-# JFK-Files-Part-1_page_21260.png
-
-Convert to Markdown
-
 The Following Note
 James H. Millcatt
 

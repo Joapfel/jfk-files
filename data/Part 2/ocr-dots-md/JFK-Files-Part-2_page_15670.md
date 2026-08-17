@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15670.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 > advised on January 5, 1970, that approximately 1500 people of all ages with about 25 per cent white attended the rally at the Afro-Arts Theater. A Negro musical group call the "Pharaohs" furnished the entertainment. Approximately $2,686.00 was collected.
 

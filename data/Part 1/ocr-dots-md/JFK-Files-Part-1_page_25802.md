@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25802.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 LIPSTICK-24 does not know GERENDE and, presumably, knows only LIPSTICK-2, with whom he works on the photo truck. His cover is as a salesman of electrical appliances; however, he does not pursue his cover job to the desirable extent. LIPSTICK-24 was recruited by LIPSTICK-2 about one year ago and is currently receiving a salary of $1,000.00 (MN) per month. Since he has now worked a year for the Station, and performed satisfactorily, his salary should be raised to $1,200.00 (MN) per month (LIEMPTY will provide for this increase).
 

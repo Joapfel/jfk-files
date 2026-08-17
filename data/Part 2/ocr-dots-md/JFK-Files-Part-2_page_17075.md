@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17075.png
-
-Convert to MarkdownSources have all advised during October, 1969 that it would be impossible to furnish any type of membership list because of recent police action. The sources did state the BPP continues to have numerous sympathizers.
+Sources have all advised during October, 1969 that it would be impossible to furnish any type of membership list because of recent police action. The sources did state the BPP continues to have numerous sympathizers.
 
 C. Officers of
 Rockford Branch BPP

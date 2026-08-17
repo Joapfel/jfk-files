@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29765.png
-
-Convert to Markdownsays that Golitsin was given a settlement of approximately $200,000.00 and provided with Donald as an A.A. and guards.
+says that Golitsin was given a settlement of approximately $200,000.00 and provided with Donald as an A.A. and guards.
 
 Golitsin was first given the name "John Stone." His wife was called "Irene" and his daughter "Kitty." The CIA had told him that he could write a book.
 

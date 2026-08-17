@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21205.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Considering NOSENKO's position and connection with this case, his recall appears adequate.
 

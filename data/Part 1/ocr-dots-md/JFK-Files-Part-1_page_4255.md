@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4255.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in the Caracas area. He is located at either the convent of Nuestra Senora de Fatima or Nuestra Senora del Rosario. Gutierrez has offered to put A-1 in contact with the leader and has even given him contact instructions. A-1 is to proceed to Caracas and call on a Dr. Morelos, who A-1 suspects may be a priest. The Doctor will then take him to the leader. The conspirators have enlisted the support of a prominent COPEI leader of the right-wing faction but again his name remains a mystery. In addition, the garrison a Maracai, the Provinces of Oriente and Bolivar states have already given their tacit consent to join. The judicial police of Caracas are also willing to go along with the plotters.
 

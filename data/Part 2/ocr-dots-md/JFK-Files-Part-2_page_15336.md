@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15336.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Tic: mall
 .igan

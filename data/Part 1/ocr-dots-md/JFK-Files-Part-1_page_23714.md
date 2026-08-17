@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23714.png
-
-Convert to MarkdownDIAZ, PEDRO /SGT. /
+DIAZ, PEDRO /SGT. /
 SEX M F OUR ?
 
 019-007-001

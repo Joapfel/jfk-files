@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9259.png
-
-Convert to Markdown# Books of The Times
+# Books of The Times
 
 By CHARLES POORE
 

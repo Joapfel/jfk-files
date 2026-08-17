@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1755.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">SECTION XXII CLUBS, SOCIETIES, AND OTHER ORGANIZATIONS</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14932.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tbody><tr><td style="vertical-align: top; padding-right: 20px;"><table border="1" style="width: 100%; border-collapse: collapse;">
   <tr><th colspan="3" style="text-align:left; font-weight:bold;">SECTION VI</th></tr>

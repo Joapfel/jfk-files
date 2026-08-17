@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26561.png
-
-Convert to Markdownf. Iraq has announced that the military union with Syria remains in force, and that a new commander of the joint armies will be announced soon.
+f. Iraq has announced that the military union with Syria remains in force, and that a new commander of the joint armies will be announced soon.
 
 (Includes INTERCEPTS)
 

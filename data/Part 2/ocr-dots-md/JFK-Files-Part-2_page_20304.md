@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20304.png
-
-Convert to MarkdownCongress, as its first order of business, resolve to end the war in Vietnam and immediately arrange for the withdrawal of all American troops.
+Congress, as its first order of business, resolve to end the war in Vietnam and immediately arrange for the withdrawal of all American troops.
 
 Congress use its power to heal a sick society at home.
 

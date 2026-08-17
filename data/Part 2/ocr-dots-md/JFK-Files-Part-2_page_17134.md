@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17134.png
-
-Convert to MarkdownTHE CONSPIRACY (J)
+THE CONSPIRACY (J)
 
 BOBBY SEALE - Father of the
 FREE BREAKFAST FOR SCHOOL CHILDREN

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23860.png
-
-Convert to Markdown<table><tr><td>ORIG A. Goodrich</td></tr><tr><td>UNIT CI/ICG</td></tr><tr><td>EXT .1176</td></tr><tr><td>DATE 22 April 1965</td></tr></table>
+<table><tr><td>ORIG A. Goodrich</td></tr><tr><td>UNIT CI/ICG</td></tr><tr><td>EXT .1176</td></tr><tr><td>DATE 22 April 1965</td></tr></table>
 
 MESSAGE FORM
 

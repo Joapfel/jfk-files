@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24355.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>DATE AND TIME FILED</th><th>(Reference number)</th></tr></thead><tbody><tr><td>SECRET</td><td>0300 10Z Mar 79</td><td>CITE DIRECTOR 013859</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>DATE AND TIME FILED</th><th>(Reference number)</th></tr></thead><tbody><tr><td>SECRET</td><td>0300 10Z Mar 79</td><td>CITE DIRECTOR 013859</td></tr></tbody></table>
 
 To LCPIPIT INFO LONDON
 

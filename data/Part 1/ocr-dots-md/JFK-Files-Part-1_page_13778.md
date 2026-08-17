@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13778.png
-
-Convert to Markdownve por su negocio.
+ve por su negocio.
 
 10.- Rogelio Rodríguez, Secretario de Tercera y Alejandro Rodríguez, Chofer de la Embajada, fueron hasta Laredo Tamaulipas, a recoger un automóvil procedente de los Estados Unidos para el uso del Embajador. La Casa vendedora "La Ford Motor". Entró con franquicia.
 

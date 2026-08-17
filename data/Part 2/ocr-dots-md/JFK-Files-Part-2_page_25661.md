@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25661.png
-
-Convert to MarkdownThe La Costa Country Club had become, under the direction of Noe Dalitz and Meyer Lansky, a key "watering hole" of the syndicate. La Costa was originally financed through a syndicate deal with James Hoffa of the Teamsters. One of the Teamsters Union's billion dollar Pension Funds was used in the financing of the project. La Costa became what is known in the Mafia as "open territory" - meaning that no single Mafia family controlled it. La Costa was open to all.
+The La Costa Country Club had become, under the direction of Noe Dalitz and Meyer Lansky, a key "watering hole" of the syndicate. La Costa was originally financed through a syndicate deal with James Hoffa of the Teamsters. One of the Teamsters Union's billion dollar Pension Funds was used in the financing of the project. La Costa became what is known in the Mafia as "open territory" - meaning that no single Mafia family controlled it. La Costa was open to all.
 
 Intelligence authorities in southern California have long regarded La Costa as a prime hangout for the Mafia. Some officials have dubbed it "Apalachin West."
 

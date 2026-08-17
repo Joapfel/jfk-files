@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23211.png
-
-Convert to MarkdownWhile there is no reason to believe that NOSVATR has been exposed or compromised during his years of operating in Costa Rica, Guatemala or Cuba for CIA, the following incidents involving his security are set forth for your information:
+While there is no reason to believe that NOSVATR has been exposed or compromised during his years of operating in Costa Rica, Guatemala or Cuba for CIA, the following incidents involving his security are set forth for your information:
 
 a. NOSVATR was forced to leave Guatemala prior to his scheduled departure when a Costa Rican source informed us that she had heard from high-level party sources that a "U.S. agent, specialist in Communist matters, had departed San Jose for Guatemala." This vague reference unfortunately coincided with subject's arrival in Guatemala.
 

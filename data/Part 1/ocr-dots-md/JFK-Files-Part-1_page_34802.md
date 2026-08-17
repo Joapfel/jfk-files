@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34802.png
-
-Convert to Markdown5 January 1966
+5 January 1966
 
 Mr. Flores,
 

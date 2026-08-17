@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17690.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ATTACHMENT TO H. L. -7063
 9/5/6

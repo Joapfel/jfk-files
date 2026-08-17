@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29336.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 ANNUITY ESTIMATES
 EFFECTIVE 30 April 1971 (Plus Sick Leave Credit)

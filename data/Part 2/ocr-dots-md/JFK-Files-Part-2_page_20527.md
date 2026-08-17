@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20527.png
-
-Convert to MarkdownAPR 3-21
+APR 3-21
 DIVISION
 
 ALCOHOL

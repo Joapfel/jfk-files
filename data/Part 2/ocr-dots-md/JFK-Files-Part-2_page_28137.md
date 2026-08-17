@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28137.png
-
-Convert to MarkdownTO WHOM IT MAY CONCERN
+TO WHOM IT MAY CONCERN
 
 Please consider this verification that Elizabeth L. Berning began employment, permanent full-time status, with the House of Representatives Select Committee on Assassinations January 1, 1977.
 

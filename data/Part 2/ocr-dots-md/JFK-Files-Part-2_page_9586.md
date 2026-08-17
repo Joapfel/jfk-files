@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9586.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 Copies Made (cont'd):
 

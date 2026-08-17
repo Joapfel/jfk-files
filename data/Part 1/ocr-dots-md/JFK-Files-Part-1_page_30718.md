@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30718.png
-
-Convert to Markdown14-0000
+14-0000
 
 Do not know when last
 report made, however, much

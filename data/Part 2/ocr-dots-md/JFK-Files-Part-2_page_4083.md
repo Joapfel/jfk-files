@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4083.png
-
-Convert to MarkdownLA 65-7445
+LA 65-7445
 
 Mrs. FRANCES M. NAGELL,
 nee Frances Kaufman

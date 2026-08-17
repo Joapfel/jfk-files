@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33700.png
-
-Convert to MarkdownTHE NATIONAL COMMITTEE FOR A FREE EUROPE, INC., is a group of private citizens who have drawn together to carry out concrete and direct action to restore and strengthen man's most valued possession—freedom.
+THE NATIONAL COMMITTEE FOR A FREE EUROPE, INC., is a group of private citizens who have drawn together to carry out concrete and direct action to restore and strengthen man's most valued possession—freedom.
 
 The Committee has as its active allies numerous exiled democratic leaders who have found haven in the United States from the Communist tyranny of Eastern Europe. Radio Free Europe, of the National Committee for a Free Europe, is setting up facilities that will enable these trusted patriots to be heard again by their own people. Not only does Eastern Europe hear the exiles' impressions of the United States, but American messages of hope and encouragement are transmitted, and, above all, the truth which totalitarian governments forbid their enslaved peoples to hear.
 

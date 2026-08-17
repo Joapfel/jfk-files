@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33989.png
-
-Convert to Markdown<table><tr><td>N.R.KINSMAN:fph</td></tr><tr><td>WH/COG/CA/EW</td></tr><tr><td>4163</td></tr><tr><td>TO: 1 JUNE 1967</td></tr></table>
+<table><tr><td>N.R.KINSMAN:fph</td></tr><tr><td>WH/COG/CA/EW</td></tr><tr><td>4163</td></tr><tr><td>TO: 1 JUNE 1967</td></tr></table>
 
 MESSAGE FORM
 TOTAL COPIES: 20

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6163.png
-
-Convert to Markdown56 Md. L. Rev. 1, *32
+56 Md. L. Rev. 1, *32
 
 n193. See Exhibit Eight infra p. 53 (observing that Oswald announced his plans to attend Swiss college, but that he never arrived to attend classes).
 

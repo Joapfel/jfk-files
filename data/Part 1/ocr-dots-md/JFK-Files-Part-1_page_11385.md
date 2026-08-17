@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11385.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MEMORANDUM FOR: Chief, SIC - 70-11365</td></tr><tr><td>NUMBER</td><td>c-101331</td></tr><tr><td>SUBJECT</td><td>LITANIL/9</td></tr><tr><td>REFERENCE:</td><td>Your Memorandum, Dated</td></tr><tr><td colspan="2">25 July 1962</td></tr></table>
 

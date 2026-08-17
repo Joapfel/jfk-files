@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6552.png
-
-Convert to Markdown14-00000
+14-00000
 
 S E C R E T   F O R E S U R V I S I N G
 U.S. CITE NOTED

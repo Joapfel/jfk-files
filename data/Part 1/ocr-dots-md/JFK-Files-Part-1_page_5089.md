@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5089.png
-
-Convert to MarkdownThis is just a message. There will be a couple of messages more."
+This is just a message. There will be a couple of messages more."
 
 I asked him if there was going to be a kidnapping attempt against Venezuelan diplomats. (An FBI informant reported a plan to kidnap the Venezuelan ambassador to the United Nations in March. The ambassador was informed and surrounded with extra security.) Bosch replied: "There are going to be a lot of things after I declare war. This is going to be a tremendous risk for me because I'll still be in jail. After the war declaration there are going to be a lot of bombings, a lot of kidnappings, a lot of shootings. We have to attack everything except their plane in the air. Their offices on land, yes."
 

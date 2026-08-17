@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33704.png
-
-Convert to Markdownthe opinion of the National Council division that this issue should not be forced at this time, but rather develop into one which would be allowed to crystallize, and that we should wait to see what actual progress is made.
+the opinion of the National Council division that this issue should not be forced at this time, but rather develop into one which would be allowed to crystallize, and that we should wait to see what actual progress is made.
 
 ## RUSSIAN AMBASSADOR
 

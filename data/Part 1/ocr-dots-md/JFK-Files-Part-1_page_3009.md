@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3009.png
-
-Convert to Markdown104-10161-10144
+104-10161-10144
 
 28 September 1961
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2870.png
-
-Convert to Markdown1 in the decision-making process which insures that no future program or major policy decision will ever be adopted without a full and critical review of its propriety.
+1 in the decision-making process which insures that no future program or major policy decision will ever be adopted without a full and critical review of its propriety.
 
 2 Participatory management has become a fact in the FBI.
 

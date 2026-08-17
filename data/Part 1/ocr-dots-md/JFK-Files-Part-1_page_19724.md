@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19724.png
-
-Convert to Markdown18 April 1966
+18 April 1966
 
 SUBJECT: O'CONNELL, James P.
 (Fitness Report)

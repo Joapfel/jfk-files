@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2634.png
-
-Convert to Markdown(PRE-KGB BIOGRAPHY)
+(PRE-KGB BIOGRAPHY)
 
 NOSENKO completed the Tenth Class at the Leningrad Ship-building Tekhnikum in June 1945, and he successfully passed the necessary examinations to qualify him for entrance to the Moscow Institute of International Relations that summer.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27080.png
-
-Convert to Markdown# RYBAT
+# RYBAT
 ## SECRET
 
 # 72514

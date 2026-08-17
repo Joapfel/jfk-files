@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18868.png
-
-Convert to MarkdownSAC, New York (105-8180)
+SAC, New York (105-8180)
 
 June 29, 1954
 

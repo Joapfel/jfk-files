@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8405.png
-
-Convert to Markdownforthcoming Acapulco film festival. L/l stated that he was not sure
+forthcoming Acapulco film festival. L/l stated that he was not sure
 if he would journey there and SARATOV stated that he and his wife planned
 to attend.
 

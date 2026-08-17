@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16305.png
-
-Convert to Markdown22Jan15 64940
+22Jan15 64940
 
 JAN 27 1987
 

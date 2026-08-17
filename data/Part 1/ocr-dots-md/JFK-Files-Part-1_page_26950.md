@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26950.png
-
-Convert to MarkdownCHIEF, Miami Field Office
+CHIEF, Miami Field Office
 
 ATTN : Mr. Bruce Mainswaring
 

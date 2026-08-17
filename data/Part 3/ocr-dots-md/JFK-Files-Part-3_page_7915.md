@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7915.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 COMMUNIST PARTY
 
 Aides Initial:

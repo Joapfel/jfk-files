@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34633.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this contract and the continuing compliance with the secretly obligations
 imposed on you by paragraph 7 of this contract and the provisions of any

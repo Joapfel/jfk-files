@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6504.png
-
-Convert to Markdown7. Hijacking attempts against civil air and surface craft should appear to continue as harassing measures condoned by the government of Cuba. Concurrently, genuine defections of Cuban civil and military air and surface craft should be encouraged.
+7. Hijacking attempts against civil air and surface craft should appear to continue as harassing measures condoned by the government of Cuba. Concurrently, genuine defections of Cuban civil and military air and surface craft should be encouraged.
 
 8. It is possible to create an incident which will demonstrate convincingly that a Cuban aircraft has attacked and shot down a chartered civil airliner enroute from the United States to Jamaica, Guatemala, Panama or Venezuela. The destination would be chosen only to cause the flight plan route to cross Cuba. The passengers could be a group of college students off on a holiday or any grouping of persons with a common interest to support chartering a non-scheduled flight.
 

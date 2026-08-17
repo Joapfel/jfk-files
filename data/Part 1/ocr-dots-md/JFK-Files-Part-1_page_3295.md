@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3295.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **TO:** AMT-2
 

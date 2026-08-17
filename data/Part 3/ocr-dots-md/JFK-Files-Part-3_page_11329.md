@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11329.png
-
-Convert to MarkdownNR 004 MI CODE
+NR 004 MI CODE
 
 COMMUNICATIONS SECTION
 

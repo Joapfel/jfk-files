@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13332.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 The ATP program for filing was simply that when a name was reported
 to CI staff, it was mechanically processed by personnel who exercised

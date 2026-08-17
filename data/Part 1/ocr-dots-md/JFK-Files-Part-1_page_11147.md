@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11147.png
-
-Convert to MarkdownSalida al 11:03.-10:09.-SB y M. no comienzan el Hotel Innes - en la sala de recepción de la aeropuerta. Clara pico- atián Lina y MIUCO que estuvo hace un mes, pero-- ahora no ha llegado.- 156.-
+Salida al 11:03.-10:09.-SB y M. no comienzan el Hotel Innes - en la sala de recepción de la aeropuerta. Clara pico- atián Lina y MIUCO que estuvo hace un mes, pero-- ahora no ha llegado.- 156.-
 
 "En el día del accidente."- 177.
 

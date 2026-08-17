@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19907.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Dear Macs,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1537.png
-
-Convert to Markdowninvaded the air space of the Soviet Union and penetrated to a significant depth over Soviet territory.
+invaded the air space of the Soviet Union and penetrated to a significant depth over Soviet territory.
 
 On July 9 there took place new flights of United States aircraft into the Soviet air space.
 

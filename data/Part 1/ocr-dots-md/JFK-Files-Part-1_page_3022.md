@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3022.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>Subject (Optional)</th>

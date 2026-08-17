@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17482.png
-
-Convert to MarkdownOBAC (BLACK UNITED FESTIVAL,
+OBAC (BLACK UNITED FESTIVAL,
 AUGUST 16, 1969, DIXDOOR, ILLINOIS)
 
 According to the source, the festival ended

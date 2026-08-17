@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7986.png
-
-Convert to MarkdownControl in Time-Sharing Systems
+Control in Time-Sharing Systems
 
 Fermin Caro del Castillo
 6043 Westridge Lane

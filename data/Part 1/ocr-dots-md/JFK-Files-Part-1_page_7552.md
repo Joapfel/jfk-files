@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7552.png
-
-Convert to MarkdownHAROLD ROBERT ISAACS, continued.
+HAROLD ROBERT ISAACS, continued.
 
 height of his Trotskyist career, ISAACS never accepted money from the group. He was always open and above-board, and never engaged in any conspiracies to overthrow established government. He was attracted to the movement, they say, by sheer idealism.
 

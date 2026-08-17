@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21163.png
-
-Convert to Markdown(3) Employee should be relatively free to travel on short trips to nearby countries of Western and Middle Europe. Times and intervals will probably be dictated by the Paris Station.
+(3) Employee should be relatively free to travel on short trips to nearby countries of Western and Middle Europe. Times and intervals will probably be dictated by the Paris Station.
 
 **(4) Special groups the employee should be able to contact**
 

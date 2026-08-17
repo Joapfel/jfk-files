@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13664.png
-
-Convert to Markdown1 recall specifically is whether it was broken, thrown away or --
+1 recall specifically is whether it was broken, thrown away or --
 2 Mr. Wallach. Why do you believe he wouldn't have taken
 3 it with him?
 4 AMLASH Case Officer. He said he wouldn't. I specifically

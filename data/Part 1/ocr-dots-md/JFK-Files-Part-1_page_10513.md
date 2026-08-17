@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10513.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MORGAN CONTINUED CONTROL
 

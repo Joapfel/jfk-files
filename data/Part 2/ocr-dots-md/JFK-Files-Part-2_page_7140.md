@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7140.png
-
-Convert to Markdown7-71 MFG. 2/76
+7-71 MFG. 2/76
 
 <table><tr><td colspan="3">CABLE SEC DISSEM BY ____ PER ____ TOTAL COPIES ____ RUN BY ____<br/><table border="1"><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td colspan="2">PERSON/UNIT NOTIFIED ____</td><td></td></tr><tr><td colspan="2"><input type="checkbox" checked disabled/> ADVANCE COPY ISSUED/SLOTTED<br/>BY AT Z</td><td><table border="1"><tbody><tr><th rowspan="3" style="text-align: center; vertical-align: middle;">STAFF</th><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>ACTION UNIT I N F O</td><td>RF, FILE VR.</td><td></td></tr><tr><td>ACTION #</td><td></td><td></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24027.png
-
-Convert to MarkdownUnited States
+United States
 
 One of the most violent reactions came from the heart-
 land of capitalism, from the small American faction which pro-

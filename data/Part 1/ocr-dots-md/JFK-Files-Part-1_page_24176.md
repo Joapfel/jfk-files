@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24176.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and returns to his home station the night of that same day (i.e., if no hotel expense is involved in the sense of overnight accommodations), then he shall be entitled to draw 1/2 of his authorized per diem of $20.00 (i.e., $10.00).” Per diem under the above terms will be paid except as noted in para. 8 below.
 

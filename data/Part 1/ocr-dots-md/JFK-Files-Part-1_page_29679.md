@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29679.png
-
-Convert to MarkdownName: Myroslaw A. Maksymiee
+Name: Myroslaw A. Maksymiee
 
 Mr. Maksymiee also took the Army General Classification Test, Civilian Edition, to find out his overall level of mental ability. His score revealed that he exceeds approximately 78 percent of adults in general mental capacity as measured by this instrument. A safer evaluation of his performance is that he is probably in the upper 25 percent of adults regarding his global intelligence.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13359.png
-
-Convert to Markdownmany of them got to be agents. And even to this present day, they are
+many of them got to be agents. And even to this present day, they are
 involved in some of the biggest international crime and drug smuggling
 that is going on in this country.
 

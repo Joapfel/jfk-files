@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2196.png
-
-Convert to MarkdownSUPPLEMENTARY INFORMATION
+SUPPLEMENTARY INFORMATION
 
 February 1947 - March 1947. In February 1947 I entered on duty with what was known as the Central Intelligence Group, 2430 E Street, N.W., Washington, D. C., a government body created by Executive Order which was a predecessor to the Central Intelligence Agency. I was a legal liaison officer with this group.
 

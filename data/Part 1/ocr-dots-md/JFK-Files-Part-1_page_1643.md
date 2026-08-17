@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1643.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br/>OF OFFICIAL COVER BACKSTOP</td></tr><tr><td>DATE: 28 DECEMBER 1977 FILE NO. 3190</td></tr><tr><td>X CHIEF, CONTROL DIVISION, OP</td><td>SS NUMBER 069-26-3138 RETURN TO CIA</td></tr><tr><td>TO:<br/>(Check)</td><td>EMPLOYEE NUMBER Background Use Only<br/>007667 Do Not Reproduce</td></tr><tr><td>X CHIEF, CONTRACT PERSONNEL DIVISION, OP</td><td>ID CARD NUMBER</td></tr><tr><td>X CHIEF,<br/>ATTN: LA (OPERATING COMPONENT FOR ACTION)</td><td rowspan="5">OFFICIAL<br/>COVER<br/><table><tr><td>ESTABLISHED</td></tr><tr><td>CANCELLED</td></tr><tr><td>X CONTINUED</td></tr><tr><td colspan="2"><b>UNIT:</b></td></tr><tr><td colspan="2"><b>DEPARTMENT OF STATE</b></td></tr></table></td></tr><tr><td>REF. RETIREMENT</td></tr><tr><td>STATUS X STAFF</td></tr><tr><td>CONTRACT</td></tr><tr><td>SUBJECT BUSTOS-VIDELA, CHARLOTTE Z.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9242.png
-
-Convert to Markdown1693 32nd St., N. W.
+1693 32nd St., N. W.
 
 Rev. 9, 1950
 

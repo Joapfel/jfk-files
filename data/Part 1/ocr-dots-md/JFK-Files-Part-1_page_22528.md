@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22528.png
-
-Convert to MarkdownSECRET-EN3 ONLY
+SECRET-EN3 ONLY
 
 event of a flare-up in the Dominican Republic. On 30 March, fearing
 that Cuba might be involved, there was talk of evacuating U.S.

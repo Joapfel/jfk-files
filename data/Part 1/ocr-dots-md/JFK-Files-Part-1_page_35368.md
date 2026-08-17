@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35368.png
-
-Convert to MarkdownRETIMENT REVOLVING FUND:
+RETIMENT REVOLVING FUND:
 
 CHECK NO.
 

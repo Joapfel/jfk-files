@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25545.png
-
-Convert to MarkdownML: I said Oleg's in the United Nations. Why don't you tell me these things before that they're delayed at a security council meeting, you know, instead of me letting, letting me sit there. You know these are all the little things that use to annoy me...
+ML: I said Oleg's in the United Nations. Why don't you tell me these things before that they're delayed at a security council meeting, you know, instead of me letting, letting me sit there. You know these are all the little things that use to annoy me...
 
 FS: Yeah.
 

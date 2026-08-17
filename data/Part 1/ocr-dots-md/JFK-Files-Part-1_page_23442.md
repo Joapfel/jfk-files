@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23442.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, Finance Division
 FRCIA: Contract Personnel Division

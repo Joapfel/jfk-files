@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21246.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="2">SECTION E NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</th></tr></thead><tbody><tr><td colspan="2">Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employee for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development. Assuming greater responsibility. Amplify or explain, if appropriate, ratings given in SECTIONS B, C, and D to provide the best basis for determining future personnel actions.</td></tr><tr><td>Subject is conscientious, industrious, and willing to accept all responsibility given him. He has performed capably in a function for which he has had no previous experience or training, and has shown a marked interest in learning all facets of his job. He has handled large sums of money with few errors, and maintains the necessary statistical records in a competent manner.<br>MAIL ROOM</td><td>JUN 20 1961</td></tr><tr><td colspan="2">Subject should strive to develop more confidence in himself and in his ability to perform the duties assigned him. His lack of assurance and his naivete are sometimes disconcerting to those with whom he deals.</td></tr></tbody></table>

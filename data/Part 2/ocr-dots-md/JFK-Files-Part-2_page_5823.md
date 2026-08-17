@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5823.png
-
-Convert to Markdownfamiliar that might have relevance to the Board's review..."
+familiar that might have relevance to the Board's review..."
 (EB OIM 98-02-See Tab 4).
 
 Finally, and in a separate tasking, all directorates

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_953.png
-
-Convert to MarkdownP.A.MACCIO:cmf
+P.A.MACCIO:cmf
 C/SAS/MOB/FI
 6957 X
 10 DECEMBER 03 X

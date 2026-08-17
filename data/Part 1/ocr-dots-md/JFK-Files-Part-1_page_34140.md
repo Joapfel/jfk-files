@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34140.png
-
-Convert to Markdown4.23.1950
+4.23.1950
 
 <table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td></tr><tr><td>X-REF. TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ 810.</td></tr></table>
 

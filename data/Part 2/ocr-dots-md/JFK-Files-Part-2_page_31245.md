@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31245.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Probable Persons who are a high-level
 member was 10 Dec 62

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15022.png
-
-Convert to Markdown28 May 1963
+28 May 1963
 
 Alex Lembersky and Bill Murray discussed the legend possibilities for WIROGUE -- It was established that since Subject speaks no Russian it is impossible to build a legend due to the fact that the simplest Arbeiter in the Soviet Union can speak some Russian.
 

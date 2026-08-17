@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16694.png
-
-Convert to Markdown2/26/70
+2/26/70
 
 Date:
 

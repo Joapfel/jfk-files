@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2347.png
-
-Convert to MarkdownSECRET
+SECRET
 
 performance in both prior to 1956 by his own admission was such that
 he probably would have been summarily terminated if he had not been

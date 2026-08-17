@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13530.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 1: Military History -->
         <tr>

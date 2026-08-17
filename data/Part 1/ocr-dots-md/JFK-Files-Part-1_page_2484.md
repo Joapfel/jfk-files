@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2484.png
-
-Convert to MarkdownSection. His recognition of the names of individuals at the United
+Section. His recognition of the names of individuals at the United
 States Embassy in 1960 - 1961 and even their assignments seems
 adequate.
 

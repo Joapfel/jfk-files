@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22899.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 17
 because then it would be a year.

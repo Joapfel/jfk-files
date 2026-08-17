@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2253.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 reported to be very cooperative, aware of need for discretion and secrecy and proud of his father's relationship with this Agency.
 

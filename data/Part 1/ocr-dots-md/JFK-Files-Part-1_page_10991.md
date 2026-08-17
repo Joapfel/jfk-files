@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10991.png
-
-Convert to MarkdownCONSEJO NACIONAL DE CULTURA
+CONSEJO NACIONAL DE CULTURA
 
 Relaciones Culturales
 con el Extranjero

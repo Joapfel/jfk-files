@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14668.png
-
-Convert to MarkdownMr. Galo
+Mr. Galo
 
 W. V. Cleveland
 

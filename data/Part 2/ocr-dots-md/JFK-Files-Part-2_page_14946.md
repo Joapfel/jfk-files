@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_14946.png
-
 in that office on 8/31/60. On 8/1/61 he was designated Acting Assistant Attorney General in charge of the Office of Legal Counsel. He has served in his present position as Executive Assistant to the Attorney General since March, 1965.
 
 **RESULTS OF PRIOR INVESTIGATIONS:** Reis was first investigated by the Bureau in 1942 at the request of the Department and that investigation was brought up to date in 1965. In 1960 we conducted an Atomic Energy Act applicant investigation of him in connection with his access to restricted Atomic Energy data. The Department is in possession of the reports of the above investigations.

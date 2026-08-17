@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11911.png
-
-Convert to MarkdownAn extensive brief, "Special Report, Nationwide Civil Disturbances," at the request of Vice President Agnew (revised periodically).
+An extensive brief, "Special Report, Nationwide Civil Disturbances," at the request of Vice President Agnew (revised periodically).
 
 A study, "'Stop the Bombing' Campaign: A Communist Cause," at request of President's Foreign Intelligence Advisory Board, concerning foreign influence in the 1964-68 campaign seeking a halt to U.S. bombing of North Vietnam.
 

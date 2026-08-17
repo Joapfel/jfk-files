@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1270.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO : The Deputy Attorney General
 Attn: K. William O'Connor

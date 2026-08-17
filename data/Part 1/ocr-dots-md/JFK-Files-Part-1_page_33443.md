@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33443.png
-
-Convert to Markdown<table><tr><td>SECRET COPY</td></tr></table>
+<table><tr><td>SECRET COPY</td></tr></table>
 
 REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
 

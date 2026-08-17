@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_279.png
-
-Convert to Markdown1. Bernard L. BARKER
+1. Bernard L. BARKER
 2. Gerard DROLLEK
 3. Jose Ignacio RASCO y Bermudez
 4.

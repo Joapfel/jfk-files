@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28184.png
-
-Convert to Markdown17 FEB 1976
+17 FEB 1976
 
 MEMORANDUM FOR THE RECORD
 

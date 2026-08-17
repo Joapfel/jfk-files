@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12688.png
-
-Convert to Markdown(4) Unavailable section
+(4) Unavailable section
 
 Security index cards of individuals who are missing, out of the country, or are imprisoned are retained in unavailable section, broken down into three subsections headed by tabs, as follows:
 

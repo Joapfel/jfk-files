@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6729.png
-
-Convert to Markdownbase said to have been constructed in Banes Bay, a city situated on the
+base said to have been constructed in Banes Bay, a city situated on the
 North coast of Oriente province.
 
 While going through Las Villas Province at the entrance to the

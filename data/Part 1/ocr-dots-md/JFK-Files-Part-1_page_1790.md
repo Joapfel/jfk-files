@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1790.png
-
-Convert to Markdown# Handling of Communications Other Than Cables
+# Handling of Communications Other Than Cables
 
 We note that under present arrangements communications other than cables are handled by the Records Integration Division of DD/P, which is not always fully cognizant of the interests of non-DD/P parts of the Agency. We recommend that the entire system of handling incoming and outgoing communications be subjected to further study with a view to insuring adequate dissemination of all communications, particularly in DD/L, DD/R and DD/S, which may have need for prompt receipt of such material.
 

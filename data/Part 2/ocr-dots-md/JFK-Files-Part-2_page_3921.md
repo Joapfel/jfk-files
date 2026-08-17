@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3921.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 24 October 1997
 

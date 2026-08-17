@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35729.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 13. Marie-Elene Barker Moffett
 

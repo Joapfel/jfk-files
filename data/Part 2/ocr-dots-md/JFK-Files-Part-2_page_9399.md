@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9399.png
-
-Convert to Markdown# What Will You Do For Our Survival?
+# What Will You Do For Our Survival?
 
 GELA DAVIS
 FREE FOOD PROGRAM

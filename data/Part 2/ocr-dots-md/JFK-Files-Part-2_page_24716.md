@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24716.png
-
-Convert to Markdownduring this discussion (NSC Minutes, 9/7/60, pp. 4-5).
+during this discussion (NSC Minutes, 9/7/60, pp. 4-5).
 
 Nevertheless, in the course of his briefing Dulles expressed his continuing concern over the amount of personnel and equipment that was being sent to the Congo by the Soviet Union, primarily to aid Lumumba (NSC Minutes, 9/7/60, p. 5). Dulles concluded this part of his briefing with an observation that demonstrated that Lumumba's dismissal from the government had not lessened the extent to which he was regarded at the NSC as a potent political threat in any power struggle in the Congo:
 

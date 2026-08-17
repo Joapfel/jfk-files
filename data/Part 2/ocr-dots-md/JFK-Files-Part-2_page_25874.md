@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25874.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>U. S. CUBA</td></tr></table>
 

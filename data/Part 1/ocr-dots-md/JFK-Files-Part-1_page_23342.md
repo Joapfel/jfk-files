@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23342.png
-
-Convert to Markdown188 RLG/JO/EMJ
+188 RLG/JO/EMJ
 
 DATE : 18 FEB 57
 

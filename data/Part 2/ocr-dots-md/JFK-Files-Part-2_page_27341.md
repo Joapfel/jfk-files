@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27341.png
-
-Convert to MarkdownA - Ltr from Cyril H. Wecht, M.D., J.D. to Olsen - May 9, 1975 w/ attached booklet on The Medical Evidence in the Assassination of Pres. Kennedy and slides.
+A - Ltr from Cyril H. Wecht, M.D., J.D. to Olsen - May 9, 1975 w/ attached booklet on The Medical Evidence in the Assassination of Pres. Kennedy and slides.
 
 B - Ltr from Olsen to Wecht - 2 June 75
 

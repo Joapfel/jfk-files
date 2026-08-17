@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18786.png
-
-Convert to MarkdownSpecial Funds
+Special Funds
 
 Acting Chief, FBZ
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10840.png
-
-Convert to Markdown2. Number of Microphone and Telephone Surveillances with Evaluation of Product
+2. Number of Microphone and Telephone Surveillances with Evaluation of Product
 
 At present, Bureau has only one microphone surveillance in foreign intelligence field and this is in connection with a special National Security Agency project directed against coded communications. Concerning technical surveillances, we are now operating about 70 foreign intelligence installations on various diplomatic establishments in this country. The majority of these are in Washington Field and New York with scattered installations in Chicago, Miami, Pittsburgh, San Francisco and San Juan. Under current Bureau policy, we are limited to 80 foreign intelligence technical surveillances and no microphone surveillances with the exception of one on the
 

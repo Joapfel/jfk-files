@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4646.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the desk on Indonesia, Jeanette Marr. I knew her from OSS days. I used to call her up and we double-talked and I kept her fully informed of anything that might suddenly appear on the horizon without going into the details of our operation or anything like that. She wrote the President's Daily Brief sections on Indonesia and a guy called Cabell insisted on calling the Sumatran colonels "patriots." Everyone else in the Government called them "rebels."
 

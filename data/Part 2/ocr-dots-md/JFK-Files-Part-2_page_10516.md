@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10516.png
-
-Convert to MarkdownControlled Discem
+Controlled Discem
 
 26 JUL 1972
 

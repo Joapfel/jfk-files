@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11310.png
-
-Convert to MarkdownNR Ø03 KC CODE
+NR Ø03 KC CODE
 
 6:15 PM 3/25/75
 

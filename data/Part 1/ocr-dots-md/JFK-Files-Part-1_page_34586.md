@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34586.png
-
-Convert to Markdown# EMERGENCY INSTRUCTIONS
+# EMERGENCY INSTRUCTIONS
 (Continued)
 
 any event, every possible security precaution should be taken during the movement of SUBJECT, including the use of handcuffs or any other restraining devices deemed necessary in order to maintain proper custody and control over the SUBJECT and prevent his escape.

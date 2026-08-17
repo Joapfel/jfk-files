@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1994.png
-
-Convert to MarkdownJournal - Office of Legislative Counsel RETURN TO CIA Page 3
+Journal - Office of Legislative Counsel RETURN TO CIA Page 3
 
 Wednesday - 28 June 1978
 

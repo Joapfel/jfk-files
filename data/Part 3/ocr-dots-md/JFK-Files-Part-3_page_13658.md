@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13658.png
-
-Convert to Markdowngsh13
+gsh13
 
 1 here that AMLASH's one-time Cuban mistress was believed to be working for Cuban intelligence and her brother was known to be Cuban intelligence.
 

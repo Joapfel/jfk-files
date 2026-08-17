@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22095.png
-
-Convert to Markdown254.
+254.
 
 Information from Other Sources
 

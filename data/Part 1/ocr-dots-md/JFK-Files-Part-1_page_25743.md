@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25743.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td rowspan="2">TO<br/>430<br/><br/>Chief, WH Division</td>
         <td>HEADQUARTERS FILE NO.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26230.png
-
-Convert to MarkdownPHOTOCOPIED BY THE KENNEDY LIBRARY DUE TO THE DETERIORATION OF THE ORIGINAL.
+PHOTOCOPIED BY THE KENNEDY LIBRARY DUE TO THE DETERIORATION OF THE ORIGINAL.
 
 Moreover, guerrilla warfare is fought, much more than military men ordinarily realize, in an ideological context. The guerrilla succeeds when his program enlists grassroots support; and it is very difficult indeed to beat him when the countryside is with him. Van Moek told General Marshall in 1946 not to worry about the guerrillas in Indonesia; "we are sending 50,000 men out there and will clean the situation up in the three months." Marshall, who had had experience fighting guerrillas in the Philippines, replied, "It won't be so easy. You will find that they will bleed you to death." Cyprus and Algeria illustrate the difficulty of overcoming guerrilla resistance through sheer weight of military force.
 

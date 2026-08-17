@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5101.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CITE: TDAR DB-315/12267-76
 

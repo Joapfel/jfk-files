@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8153.png
-
-Convert to MarkdownAirtel to SAC, Buffalo
+Airtel to SAC, Buffalo
 
 RE: KARL EDWARD HAND, JR.
 157-27812

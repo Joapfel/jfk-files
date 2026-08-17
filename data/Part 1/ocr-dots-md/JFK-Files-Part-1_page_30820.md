@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30820.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="5">SECTION 19. RESIDENCES FOR PAST 15 YEARS (CONT'D FROM PAGE 7)</th></tr><tr><th>FROM:</th><th>TO:</th><th>ADDRESS STREET AND NUMBER</th><th>CITY</th><th>STATE</th></tr></thead><tbody><tr><td>1941</td><td>1943</td><td>A 61 St, Des Moines, I</td><td>284</td><td>LS CO.</td></tr><tr><td>1943</td><td>1944</td><td>1041, 40th St, Des Moines,</td><td>411, 104</td><td>U.S.A.</td></tr><tr><td>1944</td><td>--</td><td>609 Fletchero Ad, Mount Vernon,</td><td>114</td><td>N.Y.</td></tr></tbody></table>
 

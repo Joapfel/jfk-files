@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20197.png
-
-Convert to MarkdownJapanese Overseas Convention, Tokyo, Japan, 1940
+Japanese Overseas Convention, Tokyo, Japan, 1940
 
 Japanese Protective Association (Recruiting Organization)
 

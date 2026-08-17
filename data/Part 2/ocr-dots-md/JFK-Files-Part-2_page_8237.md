@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8237.png
-
-Convert to MarkdownB-2628
+B-2628
 
 21 MAY 1971
 

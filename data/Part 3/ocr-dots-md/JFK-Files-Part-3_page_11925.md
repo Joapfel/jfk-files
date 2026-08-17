@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11925.png
-
-Convert to Markdown4-E
+4-E
 
 It is obvious that despite the sophistication and security-consciousness of the Soviet Intelligence Services, our efforts to direct double agents against them continue to meet with conspicuous success. Examples of the productivity of our double agent operations appear elsewhere herein.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10689.png
-
-Convert to Markdown# FIFD INFORMATION REPORT
+# FIFD INFORMATION REPORT
 
 GRADING OF SOURCE: A Company has: 1. Quality relative: C. First relative: D. The next relative: E. Not releasable. Applicable to sources of sound reliability or certainty, regardless of their competence and tested sources.
 

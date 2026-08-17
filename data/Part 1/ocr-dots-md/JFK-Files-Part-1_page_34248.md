@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34248.png
-
-Convert to Markdown"The Fuzzled Cheat".- Castro's "open-dear" offer, which was just a bluff which he hoped would not be accepted, has caught Fidel in a series of traps which he has laid himself. He has had to take resource to a thousand gimmicks and buts in order to keep Cuba from losing its entire population, but he has been unable to keep Camarioca from becoming a plebiscite of hostility against his regime.
+"The Fuzzled Cheat".- Castro's "open-dear" offer, which was just a bluff which he hoped would not be accepted, has caught Fidel in a series of traps which he has laid himself. He has had to take resource to a thousand gimmicks and buts in order to keep Cuba from losing its entire population, but he has been unable to keep Camarioca from becoming a plebiscite of hostility against his regime.
 
 **October 22:** "Fidel Castro's Despair".- After he was abandoned by the officers and soldiers of the Rebel Army, by the militia and by the people of Cuba in general, Castro tries to seek refuge in the support of the youth, which he flatters constantly to that end. If it is true that Cuba's young people support Castro, we challenge him to allow draft-age youths to leave the country if they wish.
 

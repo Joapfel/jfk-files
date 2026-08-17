@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25266.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>KHANH MAJOR DANG SY</td><td>Jan. 1964</td><td>DIEM</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>KHANH MAJOR DANG SY</td><td>Jan. 1964</td><td>DIEM</td></tr></table>
 
 **OCCURRENCE:**
 

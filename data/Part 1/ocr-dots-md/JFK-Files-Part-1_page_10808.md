@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10808.png
-
-Convert to MarkdownEn Cuba
+En Cuba
 
 # PACTO CON LOS CONSPIRADORES
 

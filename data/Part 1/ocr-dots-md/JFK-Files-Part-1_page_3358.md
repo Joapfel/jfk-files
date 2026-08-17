@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3358.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RYBA
 

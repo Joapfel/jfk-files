@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5244.png
-
-Convert to MarkdownSECRET
+SECRET
 
 d) Potential physical danger to CIA officers and assets;
 

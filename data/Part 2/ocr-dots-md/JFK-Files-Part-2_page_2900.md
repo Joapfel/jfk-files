@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2900.png
-
-Convert to Markdown104-10295-10168
+104-10295-10168
 
 <table><tr><td>14-0000</td></tr></table>
 

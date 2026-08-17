@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15316.png
-
-Convert to MarkdownMemorandum for Mr. Boardman
+Memorandum for Mr. Boardman
 
 RECOMMENDATION:
 

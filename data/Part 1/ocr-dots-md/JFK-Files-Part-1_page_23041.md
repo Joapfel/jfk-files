@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23041.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="6">SECRET<br/>(PRINTED ON ED)</th>

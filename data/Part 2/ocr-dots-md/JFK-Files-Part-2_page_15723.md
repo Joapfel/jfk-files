@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15723.png
-
-Convert to Markdownhome have been called hoodlums and thuchs all the lives. Thus, when they heard what the naminers called the Panthers they wanted to know what these "hoodlums" were up to, carrying guns. Thus, the Panther messane was spread in the black community almost because of theress distortions.
+home have been called hoodlums and thuchs all the lives. Thus, when they heard what the naminers called the Panthers they wanted to know what these "hoodlums" were up to, carrying guns. Thus, the Panther messane was spread in the black community almost because of theress distortions.
 
 As to press accounts calling the Panthers militant and anti-white, these were false charges. The documents below indicate that the Panthers are not a racist organization and will form coalitions with white groups who are willing to support the Panther platform and who will work to end racism.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7685.png
-
-Convert to Markdown15. b. Non-Soviet Contacts:
+15. b. Non-Soviet Contacts:
 
 1). Alonso AGUILAR Monteverde (P-2152, 201-334259), active Marxist intellectual.
 

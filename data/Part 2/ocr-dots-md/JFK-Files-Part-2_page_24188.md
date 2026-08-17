@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24188.png
-
-Convert to MarkdownSTFANWEED/STDOLLAR
+STFANWEED/STDOLLAR
 (continued)
 
 or implied at the time of sale for the Agency's purchase of goods or services, and, to date, no such use has been made of the entity.

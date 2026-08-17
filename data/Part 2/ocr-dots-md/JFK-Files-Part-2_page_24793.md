@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24793.png
-
-Convert to Markdown"3. We would be encouraging the action, supplying the weapons, effecting the delivery, and then turning over only the final execution to (unskilled) local triggermen.
+"3. We would be encouraging the action, supplying the weapons, effecting the delivery, and then turning over only the final execution to (unskilled) local triggermen.
 
 "4. So far we have seen no real evidence of action capability. Should we entrust ourselves and our reputation to this extent in the absence thereof?
 

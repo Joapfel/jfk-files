@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6581.png
-
-Convert to Markdown# Guidelines for Attributable Programs
+# Guidelines for Attributable Programs
 
 ## Current Requirements
 

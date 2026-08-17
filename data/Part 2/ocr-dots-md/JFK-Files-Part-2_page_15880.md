@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15880.png
-
-Convert to MarkdownStewart, James
+Stewart, James
 
 Arrested: 1/14/69
 Charge: Suspicion of having been involved in Armed Robbery

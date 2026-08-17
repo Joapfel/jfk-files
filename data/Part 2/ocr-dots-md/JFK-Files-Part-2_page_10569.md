@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10569.png
-
-Convert to Markdown# FBI INFORMATION-GATHERING PRACTICES WITH RESPECT TO MEMBERS OF CONGRESS
+# FBI INFORMATION-GATHERING PRACTICES WITH RESPECT TO MEMBERS OF CONGRESS
 
 There is a total of more than 6,500,000 files at FBI Headquarters. Most of these contain information gathered during investigation of matters—including some 100 types of criminal, security, and applicant-employee cases—assigned to the FBI by laws of Congress, directives of the President, and orders of the Attorney General.
 

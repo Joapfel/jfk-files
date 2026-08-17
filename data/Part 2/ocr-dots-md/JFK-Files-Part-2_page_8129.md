@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8129.png
-
-Convert to Markdown13-00000
+13-00000
 
 FILE SECRETARIAT DISSEMINATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12555.png
-
-Convert to MarkdownMEMORANDUM & THE RECORD
+MEMORANDUM & THE RECORD
 
 FROM: M. Berger, WH/D/V
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_866.png
-
-Convert to MarkdownNO FOREIGN DISSEMINATION/NO DISSEMINATION ABROAD
+NO FOREIGN DISSEMINATION/NO DISSEMINATION ABROAD
 
 Later in the evening State Department informed us that Soviet Ambassador Dobrynin had visited the President that evening, left, and State was now urgently attempting to locate him. Via our wiretap on the Romanian Embassy, we were able to inform State that Dobrynin was with the Romanian Ambassador at that time.
 

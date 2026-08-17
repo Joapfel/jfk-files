@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12727.png
-
-Convert to MarkdownSIGNAL CENIER USE ONLY
+SIGNAL CENIER USE ONLY
 
 CONF. 0 0 0 0 0 0
 

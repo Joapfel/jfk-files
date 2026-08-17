@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21835.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 A CIA cable dated February 2, 1965, stated that B-1 had given AMLASH-1 a silencer and that AMLASH-1 had "small, highly concentrated explosives." On February 11, 1965 the Madrid Station cabled that AMLASH-1 would soon receive "one pistol with silencer and one FAL rifle with a silencer from B-1's secretary" (I.G., p. 103). A subsequent cable reported that "B-1 had three packages of special items made up by his technical people and delivered to AMLASH-1 in Madrid" (I.G., p. 103)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18677.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 FORM 45 - OBSOLETE PREVIOUS EDITIONS

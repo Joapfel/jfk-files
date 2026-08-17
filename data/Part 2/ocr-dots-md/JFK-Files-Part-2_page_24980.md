@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24980.png
-
-Convert to MarkdownState of Virginia
+State of Virginia
 County of Page
 
 SS:

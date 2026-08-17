@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6943.png
-
-Convert to Markdownmoment to outweigh any of the putative threats. Is the general interest in the fullest possible disclosure a public interest which may be considered, or must a showing of public interest in the substantive content of the material at issue be shown?
+moment to outweigh any of the putative threats. Is the general interest in the fullest possible disclosure a public interest which may be considered, or must a showing of public interest in the substantive content of the material at issue be shown?
 
 Subsection 2 provides that invasion of the privacy of a living person is a ground for postponement of disclosure "if that invasion of privacy is so substantial that it outweigh any public interest in its disclosure."
 

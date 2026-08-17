@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11836.png
-
-Convert to Markdown# RESEARCH SECTION
+# RESEARCH SECTION
 
 It is noted under the proposed reorganization of 8/3/71 a supervisor from this Section would be reallocated to another. It is felt this could be accomplished regardless of the reorganization. It is noted in this regard that this Section is presently operating efficiently with an Agent supervisor assigned to the Ellsberg case. Addressing ourselves to the lack of a Section Chief, it is felt your recommendations regarding filling Mr. Cotter's vacated position should be handled by separate memorandum. The replacement request for SA Marion S. Ramey's transferral to another Division is being handled separately.
 

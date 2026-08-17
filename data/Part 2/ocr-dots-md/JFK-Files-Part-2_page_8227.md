@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8227.png
-
-Convert to Markdown13-00000
+13-00000
 
 New work - Hand in and look at Letter King
 - but I lack material - Dr King's article in "Ebony" - lay trip to the land of Gondar. It would be of course necessary for me to know some articles on the Very High Price, how it was...

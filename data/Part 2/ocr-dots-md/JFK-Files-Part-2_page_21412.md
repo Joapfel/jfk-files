@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21412.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 The original of GIBSON's letter being retained
 by Chicago. LHM concerning RAINDORF's presence in Amman,

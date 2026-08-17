@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25618.png
-
-Convert to MarkdownSTATE OF CALIFORNIA
+STATE OF CALIFORNIA
 COUNTY OF LOS ANGELES,
 
 being by me first duly sworn, depose and say: that he is the

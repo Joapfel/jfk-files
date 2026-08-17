@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11682.png
-
-Convert to Markdownleadership of Milton Henry in Detroit, has been relatively inactive for some time. The Milton Henry Faction, however, has scheduled a national RNA convention to be held in Dayton, Ohio, September 4 through 6, 1971, which activity could herald renewed revolutionary activity by this group.
+leadership of Milton Henry in Detroit, has been relatively inactive for some time. The Milton Henry Faction, however, has scheduled a national RNA convention to be held in Dayton, Ohio, September 4 through 6, 1971, which activity could herald renewed revolutionary activity by this group.
 
 The Richard Henry Faction has been extremely active in the past several months in attempting to obtain land and establish a black nation in Hinds County, Mississippi. During July, 1971, this faction held a "peoples court" to hear RNA's case against a black farmer and owner of the land claimed by RNA which was consecrated as the group's capitol in March 3, 1971. The black farmer has reneged on a former offer to sell his land to RNA. The RNA group found the farmer guilty and threatens to seize the land by force, if necessary.
 

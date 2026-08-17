@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11228.png
-
-Convert to MarkdownLa Habana, 3 de Mayo de 1966
+La Habana, 3 de Mayo de 1966
 
 "ANO DE LA SOLIDARIDAD"
 

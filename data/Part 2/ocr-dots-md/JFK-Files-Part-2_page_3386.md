@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3386.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 131. Memo for DDP from J. C. King, 19 Oct 60, sub: Use of US Contract Personnel for JMARC Maritime Operations. S.
 

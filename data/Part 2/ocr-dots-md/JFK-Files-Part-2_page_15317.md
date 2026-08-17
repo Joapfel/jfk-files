@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15317.png
-
-Convert to Markdowncc - Boardman
+cc - Boardman
 - Belmont
 - Branigan
 - Liaison

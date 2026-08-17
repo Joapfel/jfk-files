@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31530.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>Foreign Registry</td></tr><tr><td>5-0728</td></tr></table>
 

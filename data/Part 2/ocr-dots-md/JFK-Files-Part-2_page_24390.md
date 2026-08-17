@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24390.png
-
-Convert to Markdownpropaganda, economic warfare, political action (including sabotage, demolition and assistance to resistance movements) and all activities compatible with the directive (emphasis supplied). In 1962, the CIA's General Counsel rendered the opinion that the Agency's activities are "not inhibited by any limitations other than those broadly set forth in NSC 5412/2." (CIA General Counsel Memorandum 4/6/62)
+propaganda, economic warfare, political action (including sabotage, demolition and assistance to resistance movements) and all activities compatible with the directive (emphasis supplied). In 1962, the CIA's General Counsel rendered the opinion that the Agency's activities are "not inhibited by any limitations other than those broadly set forth in NSC 5412/2." (CIA General Counsel Memorandum 4/6/62)
 
 ## POLICY DEVELOPMENT AND APPROVAL MECHANISM
 

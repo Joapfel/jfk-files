@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18068.png
-
-Convert to MarkdownJuly 14, 1975
+July 14, 1975
 
 15. All materials reflecting the approval of Mr. Sullivan, Mr. Belmont, Mr. Tolson, and/or the Director of the recommendation contained in Mr. Baumgardner's December 17, 1964 memorandum to Mr. Sullivan.
 

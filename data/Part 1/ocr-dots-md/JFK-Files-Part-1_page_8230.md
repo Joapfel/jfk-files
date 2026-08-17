@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8230.png
-
-Convert to Markdownthe operations of ICAP into Latin America and was looking about for a Latin American specialist at just the time that WH Division offered Lopez. It appears to be a fortuitous meeting of the minds, i.e., Lopez apparently has many of the attributes and some of the background necessary for the position and Train needs a man. He will be trained by Train and presumably will devote a good deal of his time to ICAP activities. However, he will be made available on short notice for any assignment the Agency may have for him.
+the operations of ICAP into Latin America and was looking about for a Latin American specialist at just the time that WH Division offered Lopez. It appears to be a fortuitous meeting of the minds, i.e., Lopez apparently has many of the attributes and some of the background necessary for the position and Train needs a man. He will be trained by Train and presumably will devote a good deal of his time to ICAP activities. However, he will be made available on short notice for any assignment the Agency may have for him.
 
 Questions to be resolved :
 

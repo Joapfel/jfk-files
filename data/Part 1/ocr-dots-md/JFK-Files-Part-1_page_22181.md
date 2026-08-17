@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22181.png
-
-Convert to Markdownand put the rotation on the summary, 'Send him to Geneva.'
+and put the rotation on the summary, 'Send him to Geneva.'
 
 ~~the general feeling among KGB personnel that GRIBANOV was willing to overlook a lot of deficiencies about NOSENKO because of GRIBANOV's long-time friendship with NOSENKO's father."~~
 

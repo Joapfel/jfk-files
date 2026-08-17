@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23521.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Scd G - 251 Exec Actions
 

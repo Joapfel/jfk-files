@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8363.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SGAN-3630
 

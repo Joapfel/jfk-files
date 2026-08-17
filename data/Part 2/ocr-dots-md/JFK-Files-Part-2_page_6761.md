@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_6761.png
-
-Convert to MarkdownAlthough our holdings do include many documents from other agencies, we nonetheless have a substantial collection of CIA documents that will require a considerable effort to review. A preliminary review of these files has provided us some indications of what they contain. Although the records cover a wide variety of topics, they principally focus on CIA activities concerning Cuba and Castro, Oswald's defection to the Soviet
+Although our holdings do include many documents from other agencies, we nonetheless have a substantial collection of CIA documents that will require a considerable effort to review. A preliminary review of these files has provided us some indications of what they contain. Although the records cover a wide variety of topics, they principally focus on CIA activities concerning Cuba and Castro, Oswald's defection to the Soviet

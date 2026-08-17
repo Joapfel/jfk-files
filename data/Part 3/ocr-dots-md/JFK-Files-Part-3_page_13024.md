@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13024.png
-
-Convert to Markdown# Panther "Justice"
+# Panther "Justice"
 
 Recalcitrant members of the Black Panther Party are sometimes victims of Panther "justice." As one example, Panther Chairman Bobby Seale was brought to trial in New Haven, Connecticut, for the torture-murder of Panther Alex Rackley. Rackley, a Panther suspected of being an informant, was scalded, murdered, and dumped in a swamp.
 

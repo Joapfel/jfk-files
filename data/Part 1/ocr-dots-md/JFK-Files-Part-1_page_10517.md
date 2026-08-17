@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10517.png
-
-Convert to MarkdownSubject has been identified as having resided in Korea since 15 January 1960, previously in the above position.
+Subject has been identified as having resided in Korea since 15 January 1960, previously in the above position.
 
 PERSONS WITH whom GEORGE PERISTROPOULOS IS KNOWN TO HAVE BEEN IN CONTACT:
 

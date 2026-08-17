@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_715.png
-
-Convert to MarkdownSECRET
+SECRET
 
 No Foreign Dissem/No Dissem Abr |
 Controlled Dissem/For Background Use Only

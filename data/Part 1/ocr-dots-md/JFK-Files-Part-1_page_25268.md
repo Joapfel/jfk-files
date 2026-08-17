@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25268.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10. On 30 October Rosario, a pro-Communist journalist, arranged to go by the embassy to see Simeonov and learning some articles she had written and wanted to send to Tass, Soviet news agency.
 

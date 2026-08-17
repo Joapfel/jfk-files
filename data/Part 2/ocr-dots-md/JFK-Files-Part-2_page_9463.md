@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9463.png
-
-Convert to Markdown— BLACK POLICEMAN —
+— BLACK POLICEMAN —
 
 "Blackman listen to the voices of the PEOPLE"
 

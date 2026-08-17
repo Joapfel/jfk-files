@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13323.png
-
-Convert to Markdown12 March 1964
+12 March 1964
 
 MEMORANDUM FOR THE RECORD
 

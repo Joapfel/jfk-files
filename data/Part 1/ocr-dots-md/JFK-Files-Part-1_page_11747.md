@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11747.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">DO YOUR SHOPPING IN YOUR OWN DISTRICT</th>

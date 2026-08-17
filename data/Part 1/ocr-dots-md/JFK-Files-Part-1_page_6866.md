@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6866.png
-
-Convert to MarkdownSERVICES
+SERVICES
 SOUTHERN PERIODICAL
 
 - 2 -

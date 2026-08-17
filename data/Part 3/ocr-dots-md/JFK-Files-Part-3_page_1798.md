@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1798.png
-
-Convert to MarkdownC. MISTOPHER J. GOOD, COHN,
+C. MISTOPHER J. GOOD, COHN,
 HAROLD E. FORD, TENN.
 FLOYD J. FITHIAN, IND.
 ROBERT W. KEGAR, PA.

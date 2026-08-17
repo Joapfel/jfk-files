@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15201.png
-
-Convert to MarkdownJ'aurais tros bien pu lui envoyer son argent aujourd'hui, mais je ne sas pas si cette lettre arrivera à la bonne adresse.Cela fait plus d'un an que je vous ai quitte, alors je reprends contact.
+J'aurais tros bien pu lui envoyer son argent aujourd'hui, mais je ne sas pas si cette lettre arrivera à la bonne adresse.Cela fait plus d'un an que je vous ai quitte, alors je reprends contact.
 
 Ensuite sur la liste il y a toi naturellement que je n'introduis pas. Ecoute moi, ce que je te demande c'est de m'écrire sérieusement pour toi comme pour moi. Tu me donnes ma liste de mes gens dans l'ordre d'urgence.
 

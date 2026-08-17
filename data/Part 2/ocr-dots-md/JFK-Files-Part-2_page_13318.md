@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13318.png
-
-Convert to MarkdownAirtel
+Airtel
 
 1 - Mr. J. B. Adams
 2 - Mr. J. A. Mintz

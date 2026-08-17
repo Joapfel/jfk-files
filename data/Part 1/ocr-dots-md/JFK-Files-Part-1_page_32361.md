@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32361.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION C</td></tr><tr><td>NARRATIVE COMMENTS.</td></tr><tr><td>Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. State suggestions made for improvement of work performance, give recommendations for training. Comment on foreign language competence, if required for current position. (Apply at least one rating given in Section B to provide best basis for determining future personnel action. Manner of performance of managerial or supervisory duties must be described, if applicable.<br/>JAN 30 10 48 AM '67<br/>Mr. Flores has continued to perform at the same proficient level cited in his previous fitness report. The ratings and remarks appended to this report, accordingly, still remain applicable.</td></tr></table>
 

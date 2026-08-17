@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25801.png
-
-Convert to MarkdownSECRET
+SECRET
 
 boat" at this stage of the game and suggests that we maintain LICALLA at its present location and with its present operator, LIPSTICK-39. One alternative appears to be about as good as another in this case, and it is an acknowledged fact that LICALLA, at its present location, is a worthwhile and productive asset. Headquarters ideas and comments on the LICALLA Base would be appreciated.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31977.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">FOR INDEPENDENT USE ONLY<br/>U.S. DEPARTMENT REPORT</td>
     <td>amr</td>

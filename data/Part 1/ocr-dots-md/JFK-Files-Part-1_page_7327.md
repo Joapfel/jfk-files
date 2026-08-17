@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7327.png
-
-Convert to Markdown13.06 Household:
+13.06 Household:
 
 Is he concerned about the appearance or functioning of the household?
 

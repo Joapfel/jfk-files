@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9098.png
-
-Convert to MarkdownSECRET ARMY ORGANIZATION
+SECRET ARMY ORGANIZATION
 
 The Secret Army Organization (SAO) was clandestinely formed during the Fall of 1971 in Arizona. Membership to date has been small and it appears to have the same basic terats as the Minutemen. In fact, several of those involved in SAO were formerly active in the Minutemen. The mail drop for this organization reportedly is in care of an individual in Ramona, California, who has been involved in Minutemen and white-hate activities in the past.
 

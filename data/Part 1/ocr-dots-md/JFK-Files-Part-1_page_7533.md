@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7533.png
-
-Convert to MarkdownSECRED
+SECRED
 
 From: Hanoi
 No. of pages: 1

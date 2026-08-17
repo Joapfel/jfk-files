@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5209.png
-
-Convert to MarkdownCIA HISTORICAL REVIEW PROGRAM
+CIA HISTORICAL REVIEW PROGRAM
 Release As Sanitized
 1998
 

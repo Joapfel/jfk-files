@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9017.png
-
-Convert to Markdownindicated his intention to inquire further and to keep us advised. London reported that neither the Cuban nor the British Government had raised the issue of landing rights with H.M.G.
+indicated his intention to inquire further and to keep us advised. London reported that neither the Cuban nor the British Government had raised the issue of landing rights with H.M.G.
 
 h. Urged the governments of Mexico, Canada, Jamaica and the Netherlands to refuse to assist the Cuban government in its efforts to find a short route for return of the 58 American students who illegally travelled to Cuba. Also informed Pan American Airways that we were opposed to a Cuban request for a PAA charter flight to fly the students from Habana to New York.
 

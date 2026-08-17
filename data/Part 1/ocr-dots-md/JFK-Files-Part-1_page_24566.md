@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24566.png
-
-Convert to MarkdownCONMEO AEREO
+CONMEO AEREO
 
 Крепко; правильны, б разные意见。
 

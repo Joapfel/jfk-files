@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2976.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Dean Rusk, Secretary of Defense Robert S. McNamara,
 General Maxwell Taylor of the Joint Chiefs of Staff,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19764.png
-
-Convert to MarkdownSF 157-0
+SF 157-0
 JAC:sl
 
 Source : see text that follows on 11/15/71, an individual by the name of HUGGINS (LNU) also contacted ERICKA HUGGINS at BPP National headquarters regarding this same matter and also wanted to know if the BPP had decided to endorse the 11/20/71 demonstration by the Women's National Abortion Coalition. HUGGINS said she did not know what position the Party would take in this regard.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24631.png
-
-Convert to Markdown(a) Dulles Cables Again for "Elimination" of Lumumba, and a Messenger is Sent to Congo With a Highly Sensitive Assignment
+(a) Dulles Cables Again for "Elimination" of Lumumba, and a Messenger is Sent to Congo With a Highly Sensitive Assignment
 
 On September 19, 1960, several days after Lumumba placed him-
 self in the protective custody of the United Nations peacekeeping

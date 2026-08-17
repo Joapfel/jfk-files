@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1034.png
-
-Convert to MarkdownSECRET
+SECRET
 
 and inexperienced) CS clericals headed for overseas assignments
 where they may be called upon to assist case officers in operational

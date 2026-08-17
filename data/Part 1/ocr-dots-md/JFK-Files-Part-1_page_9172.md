@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9172.png
-
-Convert to Markdown# ABSTRACT OF FILL 1896
+# ABSTRACT OF FILL 1896
 
 **Subjects:** Report of Perry N. Jester on Organization of Consular Service in West Africa
 

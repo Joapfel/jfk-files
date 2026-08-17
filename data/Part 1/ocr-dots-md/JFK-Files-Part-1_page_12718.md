@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12718.png
-
-Convert to Markdown14-0900
+14-0900
 
 OUTGOING. MESSAGE
 

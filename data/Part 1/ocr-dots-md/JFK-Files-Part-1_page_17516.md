@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17516.png
-
-Convert to Markdownc. During the past project year the following personnel were dropped from Project LIFEAT:
+c. During the past project year the following personnel were dropped from Project LIFEAT:
 
 (1) Ralph B. RAFANELLI (201-176295), staff agent, was reassigned PCS after completing his second tour in Mexico on 8 October 1961.
 

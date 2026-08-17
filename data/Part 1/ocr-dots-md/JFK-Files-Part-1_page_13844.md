@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13844.png
-
-Convert to Markdown# TARGET PERSONAL DATA FORM
+# TARGET PERSONAL DATA FORM
 
 (Nom, Nacionalidad, where does not appear)
 

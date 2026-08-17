@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28898.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Arthur R. Schwickrath
 Dear Mr. Schwickrath :

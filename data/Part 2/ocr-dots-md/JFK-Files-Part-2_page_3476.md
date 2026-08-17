@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3476.png
-
-Convert to Markdown13. The meeting was throughout a cordial one and I detected no evidence of a critical attitude towards the Agency's covert action program.
+13. The meeting was throughout a cordial one and I detected no evidence of a critical attitude towards the Agency's covert action program.
 
 CORD MEYER, JR.
 Chief

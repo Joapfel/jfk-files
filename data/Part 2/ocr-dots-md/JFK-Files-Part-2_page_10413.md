@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10413.png
-
-Convert to MarkdownSL J3289/73
+SL J3289/73
 
 8 May 1973
 

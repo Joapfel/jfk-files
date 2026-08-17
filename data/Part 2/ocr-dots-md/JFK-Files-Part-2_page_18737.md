@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18737.png
-
-Convert to MarkdownSTANDARD FORM NO. 04
+STANDARD FORM NO. 04
 
 Office M
 

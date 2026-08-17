@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25722.png
-
-Convert to MarkdownThe Washington Merry-Go-Round
+The Washington Merry-Go-Round
 
 THE WASHINGTON POST
 

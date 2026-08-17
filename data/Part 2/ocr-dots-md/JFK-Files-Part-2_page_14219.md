@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14219.png
-
-Convert to MarkdownThe Honorable Edward H. Levi
+The Honorable Edward H. Levi
 April 25, 1975
 
 3. What was the nature of the material removed?

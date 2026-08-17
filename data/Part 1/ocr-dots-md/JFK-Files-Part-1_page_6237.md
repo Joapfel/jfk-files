@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6237.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th></th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th></th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td></td></tr></tbody></table>
 
 d. 5,000 copies of the leaflet enclosed as attachment No. 6 were mailed to Cuba during January.
 

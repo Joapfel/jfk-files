@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26137.png
-
-Convert to Markdownfrom Venezuela afterward, and submitted it, e
+from Venezuela afterward, and submitted it, e
 by the time I got to Washington. It went up
 to President Kennedy as well as Dean Rusk,
 and some of Rusk's staff immediately wired the

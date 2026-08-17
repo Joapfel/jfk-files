@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_958.png
-
-Convert to Markdownparticular Legal Attache. In addition, he recently uncovered an international car theft ring involving the theft of over 180 cars stolen in the U.S. and valued at $700,000.
+particular Legal Attache. In addition, he recently uncovered an international car theft ring involving the theft of over 180 cars stolen in the U.S. and valued at $700,000.
 
 The Legal Attache, Buenos Aires, located and is currently attempting to arrange for the return of a subject from Argentina who was involved in a $200,000 fraudulent traveler's check case. This office has also been successful in tentatively identifying two individuals in Argentina who have been involved in the disposition of part of $8,000 worth of securities and blank money orders stolen in Chicago in 1971 during a robbery in which the owner was shot. This Legal Attache was commended by the American Ambassador in Buenos Aires for the part he played in the successful recovery of a hijacked American airliner in Buenos Aires which occurred without loss of life or damage to the aircraft. The Legal Attache, Buenos Aires, also played a leading role in preventing Meyer Lansky, the financial wizard of U.S. organized crime, from receiving asylum in South America. This action resulted in Lansky's return to the U.S. and arrest by the FBI on Federal criminal contempt charges.
 

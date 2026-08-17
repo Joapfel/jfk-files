@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30985.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Request for info on: GOM - made by Bill Allen - 4/29
 Introducing that Allen's interest in GOM concerns a later portion of this trip & info was passed along. possibly Allen & GOM were passable in plane en-ervironment in DC circa late April 63.

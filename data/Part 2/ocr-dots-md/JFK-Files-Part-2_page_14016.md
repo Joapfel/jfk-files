@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14016.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 62-11635-823
 

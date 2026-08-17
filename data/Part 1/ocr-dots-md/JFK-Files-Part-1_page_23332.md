@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23332.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>068-ES/DB/WCJ</td></tr><tr><td>DATE : 10 MARCH 57</td></tr></table>
 

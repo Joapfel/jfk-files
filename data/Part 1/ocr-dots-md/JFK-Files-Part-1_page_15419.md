@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15419.png
-
-Convert to MarkdownMARINES
+MARINES
 CHECK LIST
 
 | Last | Metronymic | First |

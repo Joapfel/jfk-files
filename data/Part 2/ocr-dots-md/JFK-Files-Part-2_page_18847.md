@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18847.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 (The "Diplomatic List" of August, 1954, issued by the Department of State, reflects KONSTANTIN G. FEDOSEEV as a counselor, Embassy of the USSR, and MIKHAIL N. SMIRNOVSKY as a First Secretary, Embassy of the USSR.)
 

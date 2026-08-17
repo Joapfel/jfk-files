@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22497.png
-
-Convert to MarkdownEVENTS LEADING TO RECRUITMENT
+EVENTS LEADING TO RECRUITMENT
 
 Charles W. Wiley first came to the official attention of the Office of Security (OS) on 9 September 1955, when Carl F. Heney (Executive Officer, OS) forwarded a letter written by Wiley to Ermal Geiss (Chief, Personnel Security Division, OS), who in turn directed the letter to James W. McCord [Security Research Staff of the Office of Security (SRS)]. How Heney obtained the Wiley letter is unknown, inasmuch as the name of the addressee was deleted in the letter. However, the letter was recorded in the Executive Registry under number 6-9881. The Wiley letter is dated 27 April 1955, gives Wiley's address and telephone number, and Wiley advised that he was working on an index of the Daily Worker for the years 1933-1945 "and thought that perhaps you might be interested in specific information that I am likely to find."
 

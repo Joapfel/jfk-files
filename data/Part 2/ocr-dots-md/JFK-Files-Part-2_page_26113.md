@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26113.png
-
-Convert to Markdownrather than the Agency. I guess what I'm
+rather than the Agency. I guess what I'm
 trying to say is, can you see any decline in
 the ~~Agency~~ influence of the Agency in decisions?
 

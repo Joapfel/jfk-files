@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14703.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. During their various discussions RUIZ aired his complaint about the Visa Department in Havana saying that the department was practically worthless and that last year 76 cables regarding visas remained unanswered. Sonia defended the Ministry saying that it had a lot of work to do, but RUIZ replied that they wanted to work only 8 hours a day. They also discussed the scholarship situation. It seems that during an interview between PRIETO (Probably Jose PRIETO Benitez, Director of Foreign Relations of the DAP) and the Minister of Public Works, PRIETO was asked to provide a list of scholarship candidates to be considered and he had none. Sonia mentioned that in Belgium they also lost four scholarships because of this same reason.
 

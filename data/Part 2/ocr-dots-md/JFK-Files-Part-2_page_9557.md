@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9557.png
-
-Convert to Markdownface all challenges and through their belief in armed struggle as the unseparable path to freedom. Though it is still in the developing stages, it undoubtedly will reach the required level of action through continuous struggle. The remaining road is still a long one, but it befits us to pause and analyze the future prospects of the Revolution and to shed some light upon its state since the June War.
+face all challenges and through their belief in armed struggle as the unseparable path to freedom. Though it is still in the developing stages, it undoubtedly will reach the required level of action through continuous struggle. The remaining road is still a long one, but it befits us to pause and analyze the future prospects of the Revolution and to shed some light upon its state since the June War.
 
 It is evident that the Revolution today is passing through a new phase in which two opposite forces are active:
 

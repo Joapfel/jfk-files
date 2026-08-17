@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_23.png
-
-Convert to Markdownwere at the LBJ ranch. Late in the afternoon, the PDB received a phone call from Bromley Smith, who said that Gen. Clifton had called from the ranch.
+were at the LBJ ranch. Late in the afternoon, the PDB received a phone call from Bromley Smith, who said that Gen. Clifton had called from the ranch.
 
 The first sentence of the Vietnamese item had shaken Clifton, who was also
 

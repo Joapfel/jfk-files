@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_194.png
-
-Convert to Markdown# SENSITIVE
+# SENSITIVE
 SECRET
 
 ## ANNEX C

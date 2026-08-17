@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2983.png
-
-Convert to MarkdownSECRET
+SECRET
 
 be considered in order to make sure that we will have the ability to speak to him when or if the time comes. On this score I do not feel there is any reason for worry. There are a number of ways in which we can communicate to Fidel Castro virtually at a moment's notice. 312/
 

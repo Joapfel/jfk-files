@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27336.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>AAAaa - Case No. 80 164 - General at Boston, Mass.</td>
    </tr>

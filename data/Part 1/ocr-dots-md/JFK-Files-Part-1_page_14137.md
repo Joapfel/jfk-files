@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14137.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IMMEDIATE DIRECTOR, LA PAZ
 

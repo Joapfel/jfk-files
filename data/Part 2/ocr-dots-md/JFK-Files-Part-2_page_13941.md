@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13941.png
-
-Convert to MarkdownNovember 7, 1969
+November 7, 1969
 
 The President
 The White House

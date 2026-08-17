@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13920.png
-
-Convert to MarkdownEMBAJADA DE CUBA
+EMBAJADA DE CUBA
 
 México, D.F.
 No. 117

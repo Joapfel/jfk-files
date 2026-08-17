@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11174.png
-
-Convert to MarkdownH. COMMUNIST CONTROL ACT OF 1954 (PUBLIC LAW 637-83RD CONGRESS, CHAPTER 886 - SECOND SESSION) (TITLE 21, USC, §§ 841-844)
+H. COMMUNIST CONTROL ACT OF 1954 (PUBLIC LAW 637-83RD CONGRESS, CHAPTER 886 - SECOND SESSION) (TITLE 21, USC, §§ 841-844)
 
 The Communist Control Act of 1954 became effective on 8-24-54, when the legislation was signed into law by the President. The act is divided into three measures: (1) termination of rights, privileges, and immunities formerly enjoyed by the Communist Party and subsidiary organizations, (2) determining membership in the Communist Party, USA, and other subversive groups, and (3) amendment to the Internal Security Act of 1950 bringing within its purview Communist-infiltrated organizations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32627.png
-
-Convert to Markdownto fight a pitched battle with regular military for-
+to fight a pitched battle with regular military for-
 mations which might have required more advanced weap-
 ons than small arms, grenades, mines, and machineguns.
 In many ways, Cuba under Castro is the Latin version

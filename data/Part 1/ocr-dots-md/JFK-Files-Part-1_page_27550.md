@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27550.png
-
-Convert to MarkdownSECRET
+SECRET
 (When PIl (d In)
 
 <table>

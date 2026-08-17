@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33758.png
-
-Convert to Markdown5. It is requested that NCFB be informed that the discussions were not carried out in accordance with the original plan nor with the agreement between CIA and NCFE. It is further requested that the following action be taken by NCFE to rectify actions taken so far:
+5. It is requested that NCFB be informed that the discussions were not carried out in accordance with the original plan nor with the agreement between CIA and NCFE. It is further requested that the following action be taken by NCFE to rectify actions taken so far:
 
 a. That CIA be informed prior to, not after the event, when substitutions, changes, or additions are made to the accepted plans.
 

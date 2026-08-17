@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1917.png
-
-Convert to MarkdownRETURN TO CIA
+RETURN TO CIA
 Background Use Only
 - Do Not Repro duce
 

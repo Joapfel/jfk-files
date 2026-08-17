@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22271.png
-
-Convert to MarkdownI think is basically consistent with what you said. I would say that in the planning of this operation, and in the approval process, those involved would probably have given a higher probability to such use being made of the weapons than they would in some of the other operations that I have referred to.
+I think is basically consistent with what you said. I would say that in the planning of this operation, and in the approval process, those involved would probably have given a higher probability to such use being made of the weapons than they would in some of the other operations that I have referred to.
 
 Mr. Schwarz. However, just focusing on the Special Group as of the 12th of January, you can't tell from the minutes which state of mind existed, but you have a faint recollection that the more targeted state of mind existed as of the 12th of January?
 

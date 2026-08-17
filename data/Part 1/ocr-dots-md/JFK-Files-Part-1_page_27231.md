@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27231.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 REPORT OF INTERVIEW
 
 3 June 1948

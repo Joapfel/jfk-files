@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22634.png
-
-Convert to MarkdownCuy Shirflot:
+Cuy Shirflot:
 1001 Coleman St.,
 Charlottesville, Va.
 Tel. 2-4302

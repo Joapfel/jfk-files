@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25457.png
-
-Convert to MarkdownFS: And it was stated that he was going to run all the racketeers out of...
+FS: And it was stated that he was going to run all the racketeers out of...
 
 ML: Out of Cuba.
 

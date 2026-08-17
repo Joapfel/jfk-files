@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5093.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>AGE</td><td>COI</td><td>AEP</td><td>TOG</td><td>TPK</td><td>MRO</td><td>OCT</td></tr></table>
 

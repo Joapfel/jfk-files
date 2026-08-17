@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8270.png
-
-Convert to Markdown13-00000
+13-00000
 
 April. May 1945 : In Sofia in contact with G.W.DIMITROV, nikola PETKOV, and wawa RACHEVA.
 

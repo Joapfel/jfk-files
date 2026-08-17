@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31374.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 31 December 1982

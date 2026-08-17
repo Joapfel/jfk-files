@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11609.png
-
-Convert to Markdown15 April 1958
+15 April 1958
 
 NE-7/LAS/58-399
 

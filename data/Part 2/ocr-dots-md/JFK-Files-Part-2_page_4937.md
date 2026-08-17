@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4937.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 96-5992807 SENSIND: RYBAT
 

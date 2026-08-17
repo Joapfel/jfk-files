@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17683.png
-
-Convert to Markdown2
+2
 
 assigned to the Legation and some indication as to their activities and contacts. This data is most useful in assisting in the assessment and selection of these individuals as potential recruitment targets.
 

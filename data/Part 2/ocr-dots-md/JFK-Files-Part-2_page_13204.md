@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13204.png
-
-Convert to MarkdownThe following information is classified "SECRET" and not
+The following information is classified "SECRET" and not
 to be further disseminated without specific authority of
 the CIA, Mexico City Station
 

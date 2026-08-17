@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24762.png
-
-Convert to MarkdownTrujillo government could be successful unless it involved
+Trujillo government could be successful unless it involved
 Trujillo's assassination
 
 He communicated this opinion to both the State Department and

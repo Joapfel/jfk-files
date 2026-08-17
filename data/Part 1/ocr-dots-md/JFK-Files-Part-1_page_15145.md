@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15145.png
-
-Convert to MarkdownCIRCULAR No. 2
+CIRCULAR No. 2
 
 CONSULADO GUTIER DE CHILE
 FRANKFURT/ALM

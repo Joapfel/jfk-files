@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11347.png
-
-Convert to Markdown8 OCT 1963
+8 OCT 1963
 
 Ed,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17535.png
-
-Convert to MarkdownALK has allegedly produced a movie called American Revolution II, which is a film about the Democratic Convention in Chicago, August, 1968, as well as about BPP activities.
+ALK has allegedly produced a movie called American Revolution II, which is a film about the Democratic Convention in Chicago, August, 1968, as well as about BPP activities.
 
 7/25/69 DAN STERN
 

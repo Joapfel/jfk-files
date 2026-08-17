@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17340.png
-
-Convert to MarkdownRECORD OF INFORMATION FURNISHED OTHER AGENCIES
+RECORD OF INFORMATION FURNISHED OTHER AGENCIES
 
 Orally 1/15/69 By Telephone Written Communication
 date date date

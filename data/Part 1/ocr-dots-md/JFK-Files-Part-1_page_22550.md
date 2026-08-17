@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22550.png
-
-Convert to MarkdownSECRET-ENCS ONLY
+SECRET-ENCS ONLY
 
 at headquarters for consultations. It is probable that he made the
 plea in person. As will be seen later, the submachine guns (the so-

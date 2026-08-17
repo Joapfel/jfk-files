@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18168.png
-
-Convert to MarkdownSeptember 3, 1975
+September 3, 1975
 
 Atlanta, Georgia
 

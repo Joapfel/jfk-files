@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10774.png
-
-Convert to MarkdownThe following FBI record, NUMBER 900 100 II, isished FOR OFFICIAL USE ONLY.
+The following FBI record, NUMBER 900 100 II, isished FOR OFFICIAL USE ONLY.
 Information shown on this Identification Record represents data furnished FBI by fingerprint contributors. WHERE
 FINAL DISTRIBUTION IS NOT KNOWN OR FURTHER EXPLANATION OF CHARGE IS DESIRED, COMMUNICATE
 WITH AGENCY CONTRIBUTING THOSE FINGERPRINTS.

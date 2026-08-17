@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6334.png
-
-Convert to Markdown27 February 1995
+27 February 1995
 
 To: C/HRG
 

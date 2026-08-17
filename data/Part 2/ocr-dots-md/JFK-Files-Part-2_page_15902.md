@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15902.png
-
-Convert to MarkdownInformant stated that 4 of the guns HAMPTON had were similar to the above and 6 others were newer, but he believed all were .22 caliber.
+Informant stated that 4 of the guns HAMPTON had were similar to the above and 6 others were newer, but he believed all were .22 caliber.
 
 Informant made available a flyer "Black Panther Party (Western Suburbs) Newsletter", no date.
 

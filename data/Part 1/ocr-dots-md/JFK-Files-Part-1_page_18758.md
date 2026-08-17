@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18758.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 e) Photography. At the present time, considerable operational use is being made of a darkroom at my residence. In addition to my own photographic equipment, the station photographic equipment is used there. My replacement should be trained in the use of the duo-printer and in 35mm copy work. If he has no personal photographic equipment, headquarters may wish to issue him a camera so there is only one camera at the station. Most of the copy work has been done with my personal Rolleiflex and enlarger.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6184.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>INCF: ☐ YES ☑ NO</td>
         <td>19</td>

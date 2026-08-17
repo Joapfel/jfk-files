@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23064.png
-
-Convert to Markdown<table><tr><td>UNIV. WIL. SAO</td><td>197</td></tr><tr><td>CIT. 7208</td><td>3</td></tr><tr><td>DATI: 6 May 1968</td><td>4</td></tr></table>
+<table><tr><td>UNIV. WIL. SAO</td><td>197</td></tr><tr><td>CIT. 7208</td><td>3</td></tr><tr><td>DATI: 6 May 1968</td><td>4</td></tr></table>
 
 <table><tr><td colspan="2">CPIE SECRET/LOT DISSEMINATION</td></tr><tr><td>[x] NO INDEX<br/>FILE V8 DDP c/c1</td><td>XX FILE IN CO FILE NO. 200-121-102-1</td></tr><tr><td>[ ] INDEX [x] DESTROY RETURN TO WIL/SAO BRANCH [ ] FILE 1</td><td></td></tr><tr><td></td><td>(elita)<br/>(reference number)</td></tr></table>
 

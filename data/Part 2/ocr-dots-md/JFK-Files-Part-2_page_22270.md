@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22270.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 or before I was DDP. Off hand I can't remember other cases,
 but there may have been some. Well, earlier before I was ever

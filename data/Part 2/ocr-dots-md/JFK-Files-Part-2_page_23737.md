@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23737.png
-
-Convert to Markdownserving. I am an overt criminal person. I belong to the CIA.
+serving. I am an overt criminal person. I belong to the CIA.
 
 I would like you to tell me about your travels or advise us on some subject or what have you on an open basis, and that this relationship is completely above board in every way.
 

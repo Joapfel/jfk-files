@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30859.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 DECE 1970
 

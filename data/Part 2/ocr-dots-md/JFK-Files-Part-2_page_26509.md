@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26509.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 I told the President it was my impression from information gained from clandestine sources that Franco had made some moves to curtail trade with Cuba after my visit with him but that the Spanish companies were endeavoring to circumvent his orders by various surreptitious methods. The President asked that I study the matter carefully and speak to him about it next week.
 

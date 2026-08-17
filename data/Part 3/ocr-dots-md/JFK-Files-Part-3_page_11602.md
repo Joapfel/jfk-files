@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11602.png
-
-Convert to Markdown7. Information in the CHOWLINE and PALMETTO cases has been disseminated to Dr. Kissinger and the Attorney General. Dr. Kissinger has commended the Director and the FBI in this matter and specifically requested that he be kept informed of any additional developments
+7. Information in the CHOWLINE and PALMETTO cases has been disseminated to Dr. Kissinger and the Attorney General. Dr. Kissinger has commended the Director and the FBI in this matter and specifically requested that he be kept informed of any additional developments
 
 VII. Soviet Information Collation System (SICS)
 

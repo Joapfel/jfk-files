@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35668.png
-
-Convert to Markdown14-0000
+14-0000
 
 Cortas recibidas para el Programa "EL MUNICIPIO Y JUSTicia"
 

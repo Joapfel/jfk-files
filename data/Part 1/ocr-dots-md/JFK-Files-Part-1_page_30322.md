@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30322.png
-
-Convert to Markdown4 October 1968
+4 October 1968
 
 MEMORANDUM FOR: Director of Personnel
 ATTENTION : Chief, Placement Division

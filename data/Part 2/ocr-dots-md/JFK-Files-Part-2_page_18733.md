@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18733.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 VLADIMIR G. KRASOVSKI - Soviet
 VLADIMIR P. SUSLOV - Soviet

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4025.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 NAGELL stated he is presently residing at the Holiday Inn, Jacksonville, Florida, and would be there for the next few days. He said he is presently driving a 1959 Ford which bears California license MYU 890. He said he has no living relatives except his former wife, who resides at 440 South Union Avenue, Los Angeles, California, and his sister, ELEANORE GAMBERT, 8225 Grand Avenue, Elmhurst, New York.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6547.png
-
-Convert to Markdowncrucial spare parts and equipment which are not on the COCOM list.
+crucial spare parts and equipment which are not on the COCOM list.
 
 Still later the US should increase the vigor with which she seeks, through briefings, pressures, etc., to increase the effectiveness of all economic measures and should seek to persuade all non-bloc nations to limit their airline services to Cuba and to withhold transit rights to Soviet aircraft serving Cuba. At an appropriate point in the orchestration, food stuffs should be added to the prohibited trade list, with US using its influence to extend this embargo throughout the Free World.
 

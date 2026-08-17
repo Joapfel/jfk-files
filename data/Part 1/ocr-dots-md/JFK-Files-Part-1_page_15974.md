@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15974.png
-
-Convert to MarkdownSECRET/RYDCAT
+SECRET/RYDCAT
 
 14-00000
 

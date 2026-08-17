@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9421.png
-
-Convert to MarkdownDE T-1
+DE T-1
 
 <table><thead><tr><th>Number</th><th>Issue Date</th></tr></thead><tbody><tr><td>9,600</td><td>August 6, 1970</td></tr><tr><td>15,000</td><td>August 14, 1970</td></tr><tr><td>10,000</td><td>August 24, 1970</td></tr><tr><td>15,000</td><td>August 29, 1970</td></tr><tr><td colspan="2">DE T-1</td></tr><tr><td colspan="2">August, 1970</td></tr></tbody></table>
 

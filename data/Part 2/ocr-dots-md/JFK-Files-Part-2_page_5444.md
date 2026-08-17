@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5444.png
-
-Convert to MarkdownSECRET - WORKING PAPER
+SECRET - WORKING PAPER
 
 5 March, 1997
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2066.png
-
-Convert to MarkdownSECRET
+SECRET
 COPY
 
 DEPARTMENT OF STATE

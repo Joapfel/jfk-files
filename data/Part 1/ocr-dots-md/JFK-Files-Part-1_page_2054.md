@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2054.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>DATE</th></tr></thead><tbody><tr><td>19 April 1960</td></tr><tr><td>ESTABLISHED FOR</td></tr><tr><td>COVENTON, JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td></tr><tr><td>MILITARY COVER BACKSTOP ESTABLISHED</td></tr><tr><td>THE ARMY MINISTRY OF COYS AND CORPS<br/>EMPLOYEE NOT</td></tr></tbody></table>
 

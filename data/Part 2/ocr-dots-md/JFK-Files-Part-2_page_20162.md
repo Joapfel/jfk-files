@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20162.png
-
-Convert to MarkdownC. Headquarters
+C. Headquarters
 
 On November 22, 1972, a Special Agent (SA) of the Federal Bureau of Investigation (FBI), utilizing a pretext, contacted an individual self-identified as CAROL EATON at telephone number 675-9150, located at 150 5th Avenue, NYC, NY. EATON, who stated she is currently a National Staff member of WONAAC, advised that the National and NY Staffs of WONAAC are headquartered at this address.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12597.png
-
-Convert to MarkdownF. ADMINISTRATIVE INDEX
+F. ADMINISTRATIVE INDEX
 
 1. Purpose and general policy
 

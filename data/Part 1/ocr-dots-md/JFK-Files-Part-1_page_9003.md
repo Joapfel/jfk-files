@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9003.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>TE<br/>376</td></tr><tr><td>MAY 25, 1961</td></tr><tr><td>I : DIRECTOR</td></tr><tr><td>OM : MEXICO CITY</td></tr><tr><td>TION : BELL 10 *</td></tr><tr><td>TO : CCG 2, CA 2, CA/PRG, WH 5, S/C 2<br/>Signature: Blynn</td></tr></table>
 

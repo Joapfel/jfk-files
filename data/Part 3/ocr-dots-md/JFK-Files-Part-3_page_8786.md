@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8786.png
-
-Convert to MarkdownLester Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation of the PICKRICK instrumentalist [STEM II] Re Page 5, first Q. and A. set out.
+Lester Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation of the PICKRICK instrumentalist [STEM II] Re Page 5, first Q. and A. set out.
 
 It sums this is where Sidell asked a question concerning other source (other than electronic) material used in Lidovon. Harvardu, the student talking and never actually passed a question as such; accordingly it was not answered.
 

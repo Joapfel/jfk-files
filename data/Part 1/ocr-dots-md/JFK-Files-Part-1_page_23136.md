@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23136.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td></tr><tr><td>WHC-8</td></tr><tr><td>RID COPY</td></tr><tr><td>ADVANCE COPY</td></tr><tr><td>ISSUED</td><td>SLOTTED</td><td>TUBED</td></tr><tr><td>1</td><td>2</td><td>3</td></tr><tr><td>4</td><td colspan="2"></td></tr><tr><td>UNIT</td><td>TIME</td><td>DY</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td></tr><tr><td>WHC-8</td></tr><tr><td>RID COPY</td></tr><tr><td>ADVANCE COPY</td></tr><tr><td>ISSUED</td><td>SLOTTED</td><td>TUBED</td></tr><tr><td>1</td><td>2</td><td>3</td></tr><tr><td>4</td><td colspan="2"></td></tr><tr><td>UNIT</td><td>TIME</td><td>DY</td></tr></tbody></table>
 
 S E C R E T 100013Z CITE JMWAVE 2946
 

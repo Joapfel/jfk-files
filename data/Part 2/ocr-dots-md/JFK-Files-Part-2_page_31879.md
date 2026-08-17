@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31879.png
-
-Convert to MarkdownUSAPSG
+USAPSG
 
 SUBJECT: MARTI, Manuel MNA, US 52 773 870, SSAN: 093 36 4601
 DFOB: 17 May 1969, San Juan, Puerto Rico

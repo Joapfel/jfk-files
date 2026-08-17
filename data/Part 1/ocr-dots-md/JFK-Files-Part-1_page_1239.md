@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1239.png
-
-Convert to MarkdownI.G. WORK IS:Jpm
+I.G. WORK IS:Jpm
 W/3/Mexico
 
 5840

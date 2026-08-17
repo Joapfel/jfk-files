@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23303.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 association with political assassination since the U.S., as a
 2 matter of general policy, cannot condone assassination."

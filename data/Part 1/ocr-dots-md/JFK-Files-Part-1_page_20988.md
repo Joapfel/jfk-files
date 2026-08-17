@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20988.png
-
-Convert to Markdown28 JUN 1974
+28 JUN 1974
 
 MEMORANDUM FOR : Deputy Director for Management and Services
 SUBJECT : Request for Voluntary Retirement -

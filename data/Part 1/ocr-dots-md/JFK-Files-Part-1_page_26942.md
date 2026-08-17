@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26942.png
-
-Convert to Markdown12-09-00
+12-09-00
 
 FEB 27 10:47AM'76
 

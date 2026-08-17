@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_277.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in contact with Miguel Toralla and apparently a Guatemalan living in Ciudad Eidalgo who is a part of the comes system between the Guatemalan Communist exiles in Mexico and Party Members in Guatemala.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21385.png
-
-Convert to MarkdownCV 489-S and CV 288-S advised that Anton Emil Kuerti (105-144287) was among those who attended a reception in Cleveland, Ohio, on 5/24/61, for Richard Gibson, Acting Secretary of the FPCC, which was sponsored by the Cleveland FPCC.
+CV 489-S and CV 288-S advised that Anton Emil Kuerti (105-144287) was among those who attended a reception in Cleveland, Ohio, on 5/24/61, for Richard Gibson, Acting Secretary of the FPCC, which was sponsored by the Cleveland FPCC.
 
 105-144287-7 p.3
 (10)

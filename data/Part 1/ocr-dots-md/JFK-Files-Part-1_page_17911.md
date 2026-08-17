@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17911.png
-
-Convert to Markdown1. LATE
+1. LATE
 2. OFFICE
 3. FEBRUARY 17TH
 

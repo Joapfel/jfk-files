@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22048.png
-
-Convert to MarkdownNO OBLIGATION as exired
+NO OBLIGATION as exired
 NATIONAL SECURITY COUNCIL
 
 CIA HAS NO OBJECTION TO

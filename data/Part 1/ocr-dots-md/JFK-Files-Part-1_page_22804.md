@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22804.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>10</td>
     <td>WAVE</td>

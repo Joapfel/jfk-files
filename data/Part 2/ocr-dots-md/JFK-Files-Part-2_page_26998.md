@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26998.png
-
-Convert to Markdown3. <u>Soviet Signal Intelligence Ships</u>
+3. <u>Soviet Signal Intelligence Ships</u>
 
 The Group considered an outline plan for "communication" with
 Communist crews. The general consensus was that this plan did not

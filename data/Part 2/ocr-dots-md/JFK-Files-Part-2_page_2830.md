@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2830.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Retirement - Kent, William M. effective 30 June 1978
 

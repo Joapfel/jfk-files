@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8961.png
-
-Convert to Markdownpara las 8.30 A.M., del día 2 de octubre de 1963, se le designó el asiento No. 12 a nombre de H.O. LEE.
+para las 8.30 A.M., del día 2 de octubre de 1963, se le designó el asiento No. 12 a nombre de H.O. LEE.
 
 El día l/o. de octubre del mismo año, Oswald, pagó la cuenta -- del Hotel incluida esa noche y alrededor de las 06:30 A. M., salió del Hotel para dirigirse a la Terminal de Transportes del Norte y abordar el Autobus -- 332, asiento No. 12 de la Linea mencionada, que salió a las 8.30 A. M. con -- destino a Laredo, Mex. En la Ciudad de Monterrey, N. L., los pasajeros del Autobus 332, transbordaron un vehículo de relevo, el No. 373 de la misma -- Linea, que continuó hacia Laredo, esa noche a las 10. P.M.
 

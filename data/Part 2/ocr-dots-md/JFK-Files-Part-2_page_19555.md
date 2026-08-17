@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19555.png
-
-Convert to Markdown# THE JEANNETTE RANKIN BRIGADE
+# THE JEANNETTE RANKIN BRIGADE
 
 Washington, D.C.
 

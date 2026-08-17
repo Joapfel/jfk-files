@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13151.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 7/29/65, WF[1683]S advised that Concepcion Maria Fernandez Planas* (105-98201) had been married for a couple of months to a Cuban exile named Alfredo Cepero, a lawyer who was believed to be employed in Virginia. During the first days of the Castro regime, she had dated Jose Machado Ventura, who served as Castro's Minister of Public Health in Cuba. At one time (date not indicated) Fernandez also dated Manuel Artime of the famed Brigade 2506 which had invaded Cuba during April of 1961. WF[1683]S was aware that Artime had [S] traveled to Washington, DC for the sole purpose of visiting Fernandez at her residence (address not given). WF[1683]S stated that Cepero [S] was extremely jealous and he was almost certain that Fernandez had not revealed her past association with Machado and Artime to Cepero.
 

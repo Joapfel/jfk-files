@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24136.png
-
-Convert to MarkdownJBGREED Complex
+JBGREED Complex
 
 The below five companies comprised an air support capabil-
 ity in the Far East. All entities are in process of being

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26627.png
-
-Convert to Markdownd. This sort of harassment stopped in the spring of 1962 when Soviet leaders became convinced that the US was interested in a serious discussion of a Berlin settlement. Moscow may hope that the threat of more of this sort of harassment will jog the US into talks on Berlin.
+d. This sort of harassment stopped in the spring of 1962 when Soviet leaders became convinced that the US was interested in a serious discussion of a Berlin settlement. Moscow may hope that the threat of more of this sort of harassment will jog the US into talks on Berlin.
 
 5. Iraq-Syria-UAR
 

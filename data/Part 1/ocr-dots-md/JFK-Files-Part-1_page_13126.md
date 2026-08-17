@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13126.png
-
-Convert to MarkdownSnapsheet of
+Snapsheet of
 Raul POSADA Carriles sent
 by other four Subs to
 Luis FOSADA Barriles.

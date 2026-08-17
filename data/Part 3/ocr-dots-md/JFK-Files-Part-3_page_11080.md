@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11080.png
-
-Convert to Markdown# Dissemination
+# Dissemination
 
 The Bureau's general policy on dissemination is that information developed by or coming to the attention of the FBI is promptly referred to all agencies of the Executive Branch of the Federal Government having a potential interest in it or responsibility for taking action concerning it, whether such interest or responsibility is apparent or known. This policy is in accordance with numerous formal agreements entered into between the Bureau and other Government agencies. It is also in accordance with Presidential directives obligating the Bureau to act as clearing house for information affecting the internal security of the U. S.
 

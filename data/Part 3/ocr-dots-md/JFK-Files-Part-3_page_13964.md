@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13964.png
-
-Convert to Markdown(25) That the DCI consider furnishing the U. S. Ambassador in Tel Aviv with details of CIA-Israeli intelligence undertakings involving Africa,
+(25) That the DCI consider furnishing the U. S. Ambassador in Tel Aviv with details of CIA-Israeli intelligence undertakings involving Africa,
 
 (26) That the DCI consider the proposal (made to Board representatives by the Israeli Intelligence and Security Service) calling for (1) extended CIA-Israeli coordination of intelligence activities in Latin America, Africa, the Middle East and elsewhere; and (2) a cooperative mechanism for the review, discussion and assessment of intelligence problems relating to the Middle East and peripheral countries.
 

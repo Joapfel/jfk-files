@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9106.png
-
-Convert to MarkdownThe following symbols were utilized to delineate some of the agencies to which the FBI disseminated information. These symbols are located on the bottom half of the first page of each document disseminated.
+The following symbols were utilized to delineate some of the agencies to which the FBI disseminated information. These symbols are located on the bottom half of the first page of each document disseminated.
 
 * ACSI - Army Intelligence
 * ONI - Naval Intelligence

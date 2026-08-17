@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26729.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 F.51 Street, S.E., Washington, D.C. 20003
 

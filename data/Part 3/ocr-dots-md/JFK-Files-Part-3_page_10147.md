@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10147.png
-
-Convert to Markdown# INTERNAL SECURITY BRANCH
+# INTERNAL SECURITY BRANCH
 
 ## IS-1 Section
 

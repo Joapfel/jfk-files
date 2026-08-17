@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13684.png
-
-Convert to MarkdownMemorandum to Mr. W.R. Wannall
+Memorandum to Mr. W.R. Wannall
 
 RE: MORTON HALPERIN
 FREEDOM OF INFORMATION ACT (FOIA) REQUEST

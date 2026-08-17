@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27635.png
-
-Convert to Markdown14-00000
+14-00000
 
 U.S. GOVERNMENT PRINTING OFFICE: HEARINGS—H.R. 38257; 1967–1968.
 

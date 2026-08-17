@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9351.png
-
-Convert to MarkdownI. There have been no recent incidents involving Mr. Laszlo, and it appears at this point that control of him is well in hand.
+I. There have been no recent incidents involving Mr. Laszlo, and it appears at this point that control of him is well in hand.
 
 4. Mr. Laszlo's can report of the doings is written in narrative rather than editorial style. It certainly primarily the formalistic aspects of the press but does not go overlong overboard and since no section whatever or Laszlo's own part in it, it does not appear at all to be an ex-scratching document but simply one which was written in a flush of enthusiasm.
 

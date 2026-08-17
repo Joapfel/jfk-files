@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10147.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C No. 101663
 

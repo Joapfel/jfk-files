@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7607.png
-
-Convert to Markdown11. <u>no-data</u>. Apparently has limited income. He has no servant, no TV, no telephone.
+11. <u>no-data</u>. Apparently has limited income. He has no servant, no TV, no telephone.
 
 12. <u>Loonova</u>. Val soonod somewhat cool about the Loonovs. Naturally he knows them, but doesn't seem to consider them friends.
 

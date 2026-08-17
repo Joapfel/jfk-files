@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30485.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Clandestine Services Career Service/Panel A
 

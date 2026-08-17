@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31497.png
-
-Convert to MarkdownEXHIBIT COVER SHEET
+EXHIBIT COVER SHEET
 
 Exhibit Number:
 

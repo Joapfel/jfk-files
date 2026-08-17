@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15318.png
-
-Convert to MarkdownBelgian girl just at the platform gate. He approached her. She told David that he will be arrested immediately, and indeed, all around there came men with machine pistols ready. All but the Belgian girl were arrested, and held separately.
+Belgian girl just at the platform gate. He approached her. She told David that he will be arrested immediately, and indeed, all around there came men with machine pistols ready. All but the Belgian girl were arrested, and held separately.
 
 85. David was held for a few days in a room chained by his right hand (the undamaged hand) to a heater. Nobody spoke a single word with him. He was brought some food like it is being made with a dog.
 

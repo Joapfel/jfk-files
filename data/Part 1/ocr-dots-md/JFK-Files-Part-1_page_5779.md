@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5779.png
-
 scien-tific director for drug research and development, says the institute would be glad to collaborate with Nobelist Albert Szent-Gyorgyi of Woods Hole,
 
 I'ASEB Surveys Research

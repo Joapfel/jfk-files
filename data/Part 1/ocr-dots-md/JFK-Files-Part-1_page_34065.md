@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34065.png
-
-Convert to MarkdownLa Habana, Noviembre 29, 1966
+La Habana, Noviembre 29, 1966
 
 Sr. Rafael Brevil
 P.O.Box 3940

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20416.png
-
-Convert to MarkdownWill Rock the Boat:
+Will Rock the Boat:
 Vote
 
 On January 15 American women will assemble in Washington, D. C. With Jeannette Rankin* leading the Brigade, they will converge on Congress as it reconvenes. They will petition for a redress of their grievances and will demand that Congress end the war in Vietnam and turn its power to healing our "sick society".

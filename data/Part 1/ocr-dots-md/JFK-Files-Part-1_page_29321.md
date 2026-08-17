@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29321.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SOD # 71 / 823
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8708.png
-
-Convert to MarkdownIn principle they thought it was one of those
+In principle they thought it was one of those
 reactionary extremists who was against the
 integration and all ... but it seems that they
 apprehended a man who is nothing more than the

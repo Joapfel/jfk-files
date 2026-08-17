@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16523.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>DISPATCH SYMBOL</th>

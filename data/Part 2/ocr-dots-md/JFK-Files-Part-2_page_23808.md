@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23808.png
-
-Convert to Markdownwe had with the Domestic Contact Division in trying to determine
+we had with the Domestic Contact Division in trying to determine
 what was operational support, if operational support would be
 what did you learn about individuals there who might be
 receptive to American approaches. Then the clergy would be

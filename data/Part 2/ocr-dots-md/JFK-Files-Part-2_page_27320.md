@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27320.png
-
-Convert to MarkdownAA. - Cable - 14 Feb 73
+AA. - Cable - 14 Feb 73
 
 CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17294.png
-
-Convert to Markdown-11-
+-11-
 
 b. The Case Officer, Quinton N. CUSLER, is known only to GERENDE and SCANTLING. It would not be possible to develop a suitable cover story that would apply to the frequent meetings between the Case Officer and the Principal Agents; therefore, meetings are clandestine and are usually conducted in the Case Officer's car. However, suitable cover stories have been developed between the Case Officer and SCANTLING and between the Case Officer and GERENDE involving back-ground information as to how we met and how our friendship developed, to be used in the event the Case Officer is apprehended with either of the Principal Agents.
 

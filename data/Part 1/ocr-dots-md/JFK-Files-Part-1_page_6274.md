@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6274.png
-
-Convert to MarkdownCUBANOS
+CUBANOS
 A LA
 GUERRA
 

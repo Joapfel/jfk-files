@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31917.png
-
-Convert to MarkdownAPR 10 1963
+APR 10 1963
 
 TRIBUNAL SUPERIOR
 Sala de San Juan

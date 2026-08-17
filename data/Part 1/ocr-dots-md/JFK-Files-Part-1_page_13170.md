@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13170.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>TO: K. GARDNER</td></tr><tr><td>DATE: 13 MAY 1968</td></tr><tr><td>CABLE SECRETARY DISSEMINATION</td></tr><tr><td>BY: 15 PES.</td></tr><tr><td>CONFIDENTIAL</td></tr></table>
 

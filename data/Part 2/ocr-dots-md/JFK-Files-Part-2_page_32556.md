@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32556.png
-
-Convert to MarkdownSECRET
+SECRET
 
 against Cuban Embassy is being used by a newly created Chilean
 surveillance team in checking out purpose of travel projected

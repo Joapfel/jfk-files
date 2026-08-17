@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14141.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filled in)
 
 WHO AGENT NO.:

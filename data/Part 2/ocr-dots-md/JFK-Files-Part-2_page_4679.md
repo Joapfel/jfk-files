@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4679.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It took all this time because of the very firm positions held by both sides.
 

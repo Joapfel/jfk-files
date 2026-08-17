@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7936.png
-
-Convert to MarkdownCondenan Asesinato De
+Condenan Asesinato De
 Martin Luther King
 
 Dos organizaciones izquierdas condenaron hoy la muerte del reverendo Martin Luther King.

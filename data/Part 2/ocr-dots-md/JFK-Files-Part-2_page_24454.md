@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24454.png
-
-Convert to MarkdownI had no knowledge of any authorized plan or
+I had no knowledge of any authorized plan or
 planning that might lead to a request for
 authorization. Of course, during those days
 it was almost common for one person or another

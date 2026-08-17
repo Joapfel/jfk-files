@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25687.png
-
-Convert to MarkdownAttachment to:
+Attachment to:
 
 Review Staff: 76-0070/1
 

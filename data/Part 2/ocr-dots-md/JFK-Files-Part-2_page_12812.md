@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12812.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The source stated that at 6:50 AM, January 20,
 1968, the above caller again called his residence and

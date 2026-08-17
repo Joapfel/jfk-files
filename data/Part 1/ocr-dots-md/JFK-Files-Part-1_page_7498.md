@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7498.png
-
-Convert to MarkdownFBI REPORT
+FBI REPORT
 
 DATE: 26 MAY 1952
 CLASS: CONFIDENTIAL

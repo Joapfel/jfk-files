@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10236.png
-
-Convert to MarkdownEn la escuela, después de passar la aldea
+En la escuela, después de passar la aldea
 donde se nos left una revista perfecta y don-
 de ésta presente el Conceál, abordamos un
 comieno de pasajeros rúmbos a Huelva. Conocí-

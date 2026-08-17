@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22398.png
-
-Convert to Markdownmaterial in a concealment area in his desk; the KGB also continued in surveillance of the dead drop site, observed PENKOVSKIY load the dead drop, and sent an American (JACOB) who came to unload it. PENKOVSKIY was then confronted with photographic evidence of the loadings and unloading and could offer no defense. This report as the only indication from a Soviet source that the KGB had surveilled the two visits to the Pushkin Street site made by U.S. Embassy officers; while this report stated that one American visited the site twice, in fact two different Americans visited the site once each, NARONELY on 21 January 1961 and ABIDIAN on 30 December 1961.
+material in a concealment area in his desk; the KGB also continued in surveillance of the dead drop site, observed PENKOVSKIY load the dead drop, and sent an American (JACOB) who came to unload it. PENKOVSKIY was then confronted with photographic evidence of the loadings and unloading and could offer no defense. This report as the only indication from a Soviet source that the KGB had surveilled the two visits to the Pushkin Street site made by U.S. Embassy officers; while this report stated that one American visited the site twice, in fact two different Americans visited the site once each, NARONELY on 21 January 1961 and ABIDIAN on 30 December 1961.
 
 ### (iv) Remarks
 

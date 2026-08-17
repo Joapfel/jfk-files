@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25480.png
-
-Convert to MarkdownML: And they did it sloppy because this particular Soviet, the tennis player, made a formal complaint to the 23rd Precinct, PIU investigation unit, where I was working.
+ML: And they did it sloppy because this particular Soviet, the tennis player, made a formal complaint to the 23rd Precinct, PIU investigation unit, where I was working.
 
 FS: When you say PIU, what's PIU?
 

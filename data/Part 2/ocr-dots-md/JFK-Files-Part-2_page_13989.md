@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13989.png
-
-Convert to MarkdownDCI/IC-75-0608
+DCI/IC-75-0608
 
 6 June 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24230.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="6">DOCUMENT TRANSFER AND CROSS REFERENCE</th></tr><tr><td colspan="2">SUBJECT OF DOCUMENT</td><td colspan="4">DOCUMENT IDENTIFICATION</td></tr><tr><td>RI FILE NO.</td><td colspan="3"></td><td colspan="2"></td></tr><tr><td colspan="2">3. DISPATCH OR SOURCE DOC. SYMBOL NO.</td><td colspan="4">4. DATE</td></tr><tr><td colspan="2">7. SOURCE CRYPTOGRAM</td><td>8. DATE OF INFO.</td><td colspan="3">9. EVALUATION</td></tr><tr><td>5. ANALYST</td><td>6. DATE PROCESSED</td><td>10. DISSEMINATED IN</td><td colspan="3">11. DATE</td></tr><tr><td colspan="2">12. CROSS REFERRED TO THIS FILE</td><td colspan="4"></td></tr><tr><td colspan="2">13. TRANSFERRED TO RI FILE NO.</td><td colspan="4"></td></tr><tr><td colspan="6">PERTINENT INFORMATION</td></tr></thead><tbody><tr><td colspan="6">QEFHONAY<br/>201-306052<br/>SEX M DOR ?<br/>CIT ?<br/>OCC ?<br/>SURJ PPTS HIS FAMILY SITUATION DIFFICULT<br/>BCAUSE MUST LEAVE APT 1 JUN AND MAKES<br/>LOT OF DIFFERENCE WHETHER MOVF IS PERMANENT<br/>/ALLOWING LONG-TERM ADVANTAGEOUS LEASE OR<br/>PURCHASE/OR TEMPORARY. !<br/><br/>200-124-156/02<br/>PALP-0c112<br/>30 MAR 66<br/><br/>R 6605110149</td></tr><tr><td colspan="6">FILE IN 201- 306052</td></tr><tr><td colspan="6">FILE THIS FORM IN FILE NO.</td></tr><tr><td colspan="6">FORM 867 SEE PREVIOUS EDITIONS.</td></tr><tr><td colspan="6">SECRET (17-40)</td></tr></tbody></table>

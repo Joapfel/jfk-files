@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22418.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q Non-official cover: What was the cover?
 

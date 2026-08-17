@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33993.png
-
-Convert to MarkdownSECRET
+SECRET
 
 12Jun67 in 87649
 

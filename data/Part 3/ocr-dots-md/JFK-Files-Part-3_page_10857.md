@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10857.png
-
-Convert to MarkdownJ. GENERAL FINDINGS
+J. GENERAL FINDINGS
 
 The study conducted by the Committee has produced the following significant findings:
 

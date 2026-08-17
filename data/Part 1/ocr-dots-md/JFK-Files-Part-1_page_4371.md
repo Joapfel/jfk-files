@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4371.png
-
-Convert to MarkdownComunistas jó·nesa tendrán que caer en manon de Moscú, el quic·res recibir alguna ayuda para sus planes subvernosos. La van a recibir, pero tendrán que compromete·ne con la línea moncovita.
+Comunistas jó·nesa tendrán que caer en manon de Moscú, el quic·res recibir alguna ayuda para sus planes subvernosos. La van a recibir, pero tendrán que compromete·ne con la línea moncovita.
 
 Y, por último, campaña con·tra el Imperialismo, en los dos aspectos, militar y económico·dentro de Latino América. Incremen·tación de las revueltas en Santo Domingo, para tomar a San·to Domingo como una espina irri·tativa constante que de base a es·ta campaña.
 

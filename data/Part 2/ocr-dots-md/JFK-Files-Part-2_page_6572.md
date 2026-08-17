@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6572.png
-
-Convert to MarkdownTheoretically, the most desirable event which could take place would envisage a major split of Cuban leadership involving relatively proportionate military and internal security forces. It is difficult under present circumstances to visualize a Cuban leader of such stature even considering such a move, since he has no real assurance of immediate U. S. military, economic and political support so vital to his tenure and so necessary to prevent a counter coup from those deriving strength from the heavy Sino-Soviet economic orientation of the present regime.
+Theoretically, the most desirable event which could take place would envisage a major split of Cuban leadership involving relatively proportionate military and internal security forces. It is difficult under present circumstances to visualize a Cuban leader of such stature even considering such a move, since he has no real assurance of immediate U. S. military, economic and political support so vital to his tenure and so necessary to prevent a counter coup from those deriving strength from the heavy Sino-Soviet economic orientation of the present regime.
 
 The U. S. continues to be extremely vulnerable to acts of auto provocation by the Cuban Regime. It is not beyond the realm of possibility to have Cuban directed attacks of Cuban military elements (disguised as exiles or U. S. personnel) on soft and emotional targets in Cuba. Such an action could serve to help Castro consolidate internally and to seriously embarrass the U. S. internationally.
 

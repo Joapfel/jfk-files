@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15334.png
-
-Convert to MarkdownSAC, New York
+SAC, New York
 
 (Orig & 1)
 

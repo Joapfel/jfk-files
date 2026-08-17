@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9829.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 For your information, our own investigative guidelines as con-
 tained in our Manual of Instructions relating to domestic subversive investiga-

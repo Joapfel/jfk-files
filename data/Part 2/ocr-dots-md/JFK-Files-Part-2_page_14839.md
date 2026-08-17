@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14839.png
-
-Convert to MarkdownJanuary 15, 1960
+January 15, 1960
 
 INDUSTRIAL SECURITY PROGRAM
 

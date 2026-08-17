@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5230.png
-
-Convert to MarkdownMr. David W. Carey
+Mr. David W. Carey
 
 October 28, 1997
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3390.png
-
-Convert to MarkdownAMBORLD Meeting in May, 7-8 June 1964
+AMBORLD Meeting in May, 7-8 June 1964
 
 SUBJECT: Purchase of House
 

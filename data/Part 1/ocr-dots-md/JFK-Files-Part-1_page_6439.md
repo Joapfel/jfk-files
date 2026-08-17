@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6439.png
-
-Convert to MarkdownSEC. c.
+SEC. c.
 
 SECURITY INSTRUMENT
 

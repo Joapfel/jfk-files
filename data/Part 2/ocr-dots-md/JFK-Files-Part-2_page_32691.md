@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32691.png
-
-Convert to MarkdownPage 43, Line 9: Insert "more vigilant and" before
+Page 43, Line 9: Insert "more vigilant and" before
 "stronger." Response: Strengthen prime point that increased
 awareness of Communist duplicity and potential threats
 resulted from crisis, particularly in the OAS.

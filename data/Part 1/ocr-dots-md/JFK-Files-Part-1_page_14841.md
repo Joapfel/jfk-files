@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14841.png
-
-Convert to Markdown578 SE/LSB/ASB/
+578 SE/LSB/ASB/
 
 CLASSIFIED MESSAGE
 

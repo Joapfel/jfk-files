@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_568.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE TWO MEXICO CITY 4526 S E C R E T
 

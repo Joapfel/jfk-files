@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23370.png
-
-Convert to MarkdownThe interesting aspect of that sentence for me is the rest of the sentence where it makes it clear that not only is there a concern about Lumumba being able to resume his position in Leopoldville, but anywhere else, and it would seem that assassination would at least have to be one of very few means that could insure that fact that Lumumba would not resume a position of power anywhere.
+The interesting aspect of that sentence for me is the rest of the sentence where it makes it clear that not only is there a concern about Lumumba being able to resume his position in Leopoldville, but anywhere else, and it would seem that assassination would at least have to be one of very few means that could insure that fact that Lumumba would not resume a position of power anywhere.
 
 Mr. Tweedy. I do not think I can comment any further.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6943.png
-
-Convert to Markdown"COMMENT", Dec 75 issue
+"COMMENT", Dec 75 issue
 (alumni magazine of Simon Fraser University in British Columbia.)
 
 D.R. Hyde

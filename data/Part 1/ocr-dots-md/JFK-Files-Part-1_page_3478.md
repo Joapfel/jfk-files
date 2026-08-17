@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3478.png
-
-Convert to MarkdownGuantanamo, Oriente Province 7 June 1916 may be identical with the subject of an AMOT report listing him as candidate for councilman of Guantanamo City Hall on the PSP slate during the Grau regime and stating that his son is private secretary to Carlos Olivares, Undersecretary of Foreign Relations Ministry of the GOC. A-19 was so informed and was asked to have an investigation made, taking into consideration both the CI and operational leads aspects of the matter.
+Guantanamo, Oriente Province 7 June 1916 may be identical with the subject of an AMOT report listing him as candidate for councilman of Guantanamo City Hall on the PSP slate during the Grau regime and stating that his son is private secretary to Carlos Olivares, Undersecretary of Foreign Relations Ministry of the GOC. A-19 was so informed and was asked to have an investigation made, taking into consideration both the CI and operational leads aspects of the matter.
 
 8. Aida PEREZ Pozo. Guertler asked what her function was with AMWORLD. A-19 admitted that he was surprised to see her name on the payroll. She is working with Mole in intelligence. She has all the lesbian contacts in the city and knows everything that goes on. Nothing can be done about it because she is another "woman of confidence" of AMBIDDY-1.
 

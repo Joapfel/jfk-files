@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24861.png
-
-Convert to MarkdownWH/WVB:GD:PK:jy (18 July 1965)
+WH/WVB:GD:PK:jy (18 July 1965)
 
 Distribution: (Attachment to all addees)
 Orig & l: Central Cover Staff

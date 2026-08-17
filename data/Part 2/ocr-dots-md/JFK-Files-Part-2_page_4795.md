@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4795.png
-
-Convert to MarkdownSECRET
+SECRET
 
 President of the United States and not the Congress of the
 United States. And he should of at least had the decency, the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13444.png
-
-Convert to MarkdownMemo to Mr. J. B. Adams
+Memo to Mr. J. B. Adams
 
 Re: SENSTUDY 75
 

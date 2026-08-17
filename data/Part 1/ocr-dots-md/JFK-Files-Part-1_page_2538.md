@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2538.png
-
-Convert to MarkdownPrimarily the notes of NOSENKO can be categorized as
+Primarily the notes of NOSENKO can be categorized as
 
 follows:
 

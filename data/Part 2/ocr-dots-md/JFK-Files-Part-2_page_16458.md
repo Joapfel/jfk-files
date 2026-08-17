@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16458.png
-
-Convert to Markdownthere first is black unity. We have a problem in the black colony that is particular to the colony, but we're willing to accept aid from the mother country as long as the mother country radicals realize that we have, as Eldridge Cleaver says, in SOUL ON ICE, a mind of our own. We've re-gained our mind that was taken away from us and we will decide the political as well as the practical stand that we'll take. We'll make the theory and we'll carry out the practice. It's the duty of the white revolutionary to aid us in this.
+there first is black unity. We have a problem in the black colony that is particular to the colony, but we're willing to accept aid from the mother country as long as the mother country radicals realize that we have, as Eldridge Cleaver says, in SOUL ON ICE, a mind of our own. We've re-gained our mind that was taken away from us and we will decide the political as well as the practical stand that we'll take. We'll make the theory and we'll carry out the practice. It's the duty of the white revolutionary to aid us in this.
 
 So the role of the mother country radical, and he does have a role, is to first choose his friend and his enemy and after doing this, which it seems he's already done, then to not only articulate his desires to regain his moral standard and align himself with humanity, but also to put this into practice by attacking the protectors of the institutions.
 

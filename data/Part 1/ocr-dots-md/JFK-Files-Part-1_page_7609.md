@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7609.png
-
-Convert to Markdown6. <u>Dialectics</u>. Dialectics is the law, according to Val, which proves that the U.S. cannot win in Viot-Nau—a people defending its own land against invaders.
+6. <u>Dialectics</u>. Dialectics is the law, according to Val, which proves that the U.S. cannot win in Viot-Nau—a people defending its own land against invaders.
 
 5. **Personality.** Val plays better tennis than I. He drank three beers after our tennis. It was he who insisted that we go to the bar after tennis. He told several jokos, some mildly dirty, some fairly good. He will get no a copy of Soviet Life which discusses Soviet tennis. He paid for the ball-boys and for the drinks. His investment was about 16 pesos.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8470.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Items 107, 128, 129, and 279 on pages 123, 132, 133, and 403 respectively -- FAIRWAYS CORPORATION.
    Classified SECRET; describe intelligence sources and methods by identifying an operational support facility located in the U.S. [Section 5(B)(2)] According to CCS files, in April 1975 the DCI was asked by an NBC reporter about CIA sponsorship of Fairways Corporation in connection with a planned TV documentary on Agency proprietaries. CCS files are unclear on the point, but there are indications that the DCI may have responded to the question in a manner which could have been construed as admission of CIA sponsorship of Fairways. However, CCS files contain other evidence that CIA sponsorship of Fairways was considered still classified as recently as December 1976. NOTE: The DDA/Air Advisor confirms the need for continued classification and will comment separately.

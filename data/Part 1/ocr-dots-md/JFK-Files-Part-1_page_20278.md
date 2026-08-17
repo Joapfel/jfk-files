@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20278.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="9">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td colspan="3">JEC:12 JUNE 59</td><th colspan="7"></th></tr><tr><td>1. Serial No.</td><td>2. Name (Last-First-Middle)</td><td>3. Date Of Birth</td><td>4. Vet. Pref</td><td>5. Sex</td><td colspan="3">o/CS-ECC</td></tr></thead><tbody><tr><td>527630</td><td>HIDALGO B N JR</td><td>Mo. Da Yr</td><td>Non-0 Code</td><td></td><td>M 1</td><td>Mo. Da Yr</td><td>5 Pr-1 10 Pr-2</td><td>03 17 50</td></tr><tr><td>7. SCD</td><td>8. CSC Res:</td><td>10, Adj. Alt. Div.</td><td>11. FFLGK</td><td>LCD</td><td colspan="3"></td><td>13. Comm Tc</td></tr><tr><td>Mo. Dg. Yr</td><td>Yos. 1 No. 9</td><td>Code</td><td>Mo. Da. Yr</td><td>Yes. 1 No. 9</td><td>Cdc Mo</td><td>Mo. Da</td><td>Yes. 1 No. 9</td><td>Code 2</td></tr><tr><td>07 16 46</td><td></td><td>50 USCA 403.8</td><td></td><td></td><td>1</td><td>03 17 50</td><td></td><td></td></tr></tbody></table>
 

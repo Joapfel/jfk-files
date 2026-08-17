@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4494.png
-
-Convert to MarkdownSECRET TO BE MADEUBLIC
+SECRET TO BE MADEUBLIC
 
 C. GARCIAHAN explained that on August 4 he accompanied his Washington delegate, Gerardo HOSA, to the home of Col. ALLY, who, according to HOSA, has white military contacts in Washington because of his politics in the post election. GARCIAHAN had prepared a memorandum which he left with ALLY, who was to try to arrange an interview with Secretary CHAMARA for GARCIONE. When GARCIAHAN changes his mind about the proposed meeting with Secretary CHAMARA, who would probably not receive him anyway because of pressing problems in Vietnam, he returns to the ALLY home on August 5 to request return of his memorandum. He was received by Blanco Rose, who told him that Francesca ADVIARO had written to see him but had to leave. She then told GARCIONE about her mission for ADVIARO for which she was especially suited because of her relationship to Mr. "Tchito" AHUMBA and because her husband is a U.S. Colonel, whose status would place her above suspicion.
 

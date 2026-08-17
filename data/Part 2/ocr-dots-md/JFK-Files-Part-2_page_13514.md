@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13514.png
-
-Convert to MarkdownQ: Shortly after King received the Nobel Prize did a Bureau official William Sullivan come to Atlanta?
+Q: Shortly after King received the Nobel Prize did a Bureau official William Sullivan come to Atlanta?
 
 A: It is my recollection King received the Nobel Prize sometime before the case was assigned to me. I do not remember if Bureau official William Sullivan visited Atlanta.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30567.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HUNT instead that Enquiry be directed as referred to Ray Rocca, Deputy Chief, CI Staff ..., or Mr. Angelton ...
 

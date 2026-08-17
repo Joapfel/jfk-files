@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16703.png
-
-Convert to MarkdownKDBADGER
+KDBADGER
 
 50-6-75/2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4903.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 HACKER said he listened to the proposition only
 to ascertain the extent of ROTHMAN's interest in muscling

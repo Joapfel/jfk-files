@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17468.png
-
-Convert to MarkdownA new petition will be circulated by the BPP
+A new petition will be circulated by the BPP
 to get DUFFY removed from the Maywood PD. He is the
 officer who testified against HAMPTON at his recent
 trial.

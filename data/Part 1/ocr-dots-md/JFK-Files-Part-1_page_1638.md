@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1638.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (a.) Concealing a tape recorder in the attic, basement, or garage, and using a voice-operated relay to actuate the recorder.
 

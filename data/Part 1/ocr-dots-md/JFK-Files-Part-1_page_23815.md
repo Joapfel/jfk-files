@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23815.png
-
-Convert to Markdownaccording to S/1 told the Cubans about it, since the CPUSA hoped to discreetly S/1 and put their own people in touch with the Cubans. S/1 told the Cubans a tall tale which he hopes they believed (among those he spoke to was Roa): he said that during the French drive against the FLN various people were writing letters in support of the Algerians and signing prominent names to them, and that the Harrington forgery was carried out in this spirit.
+according to S/1 told the Cubans about it, since the CPUSA hoped to discreetly S/1 and put their own people in touch with the Cubans. S/1 told the Cubans a tall tale which he hopes they believed (among those he spoke to was Roa): he said that during the French drive against the FLN various people were writing letters in support of the Algerians and signing prominent names to them, and that the Harrington forgery was carried out in this spirit.
 
 d. The hostility to S/1 from Ainslee and McGowan had as its origin their anger that Verges had given S/1 a job that should have gone to an Englishman (or woman); they felt that Africa was a problem of the British CP; and so they spread the story about S/1.
 

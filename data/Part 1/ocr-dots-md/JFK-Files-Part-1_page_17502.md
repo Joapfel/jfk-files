@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17502.png
-
-Convert to MarkdownPROJECT LIFETAT
+PROJECT LIFETAT
 PROJECT REVIEW
 
 I. Product of the Project

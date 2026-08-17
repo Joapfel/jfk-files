@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25301.png
-
-Convert to Markdownosts down, deal with labor problems." Lamar's low-keyed personal style Steadman says Lamar has never given him a direct order in the 15 years of their association) tends to make some people think of him as a sort of a Mr. Peepers with a yen to be a jock. "Actually," says Maxfield, "he's Clark Cent. He is a mild-mannered, meek, everyday guy. But when money needs to be committed, he goes into that little phone booth and comes out with an 'S' in his shirt."
+osts down, deal with labor problems." Lamar's low-keyed personal style Steadman says Lamar has never given him a direct order in the 15 years of their association) tends to make some people think of him as a sort of a Mr. Peepers with a yen to be a jock. "Actually," says Maxfield, "he's Clark Cent. He is a mild-mannered, meek, everyday guy. But when money needs to be committed, he goes into that little phone booth and comes out with an 'S' in his shirt."
 
 ## Lucky 11 trusts
 

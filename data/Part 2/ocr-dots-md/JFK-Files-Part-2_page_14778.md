@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14778.png
-
-Convert to MarkdownMemo J. J. Casper to Mr. M. hr 4/8/70
+Memo J. J. Casper to Mr. M. hr 4/8/70
 Re: Attorney General's Staff Conference - 4/8/70 - 5 PM
 
 George J. Reed, Chairman, Board of Parole, questioned Mr. Hoover as to the extent of Communist influence in all of this New Left, Black Panther, Students for a Democratic Society, and militant action that we are faced with. The Director explained that the Communist Party will join anything that will further its causes and that they get their orders directly from Moscow. He said their influence in some organizations is complete control and in others it is only one of participation but, he pointed out, they are always the most vocal and, consequently, are very influential in those groups that they participate in. He said the Black Panthers follow the philosophies of many international revolutionary Communists. The Director then cited the incident of the young girl who blew up her father's home in New York which she had turned into a bomb factory. He stated she started to get out of control when at Bryn Mawr she joined the Students for a Democratic Society, and now she has fled to Canada and we are unable to extradite her.

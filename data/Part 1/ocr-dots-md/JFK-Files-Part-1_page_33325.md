@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33325.png
-
-Convert to MarkdownAllende in Retrospect
+Allende in Retrospect
 
 government control of the economy and of the excess profits that the private sector had used for luxury consumption or had sent out of the country as profit remittances to foreign companies. At the same time, the fact that the policy remained within the letter, if not the spirit, of the law meant that intervention by the military was unlikely.
 

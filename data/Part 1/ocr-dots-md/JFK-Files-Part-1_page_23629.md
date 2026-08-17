@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23629.png
-
-Convert to MarkdownC. **Tasks:**
+C. **Tasks:**
 
 This project conforms to the tasks assigned to the San Jose Station in SOI of 19 August 1952, 2a, 2b, and 2c.
 

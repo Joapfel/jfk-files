@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27344.png
-
-Convert to MarkdownA - Memo to Roethe from Ruth E. Johnson - Subj: Classification of Documents - 24 Apr 75
+A - Memo to Roethe from Ruth E. Johnson - Subj: Classification of Documents - 24 Apr 75
 
 B - Ltr from Roethe to Knoche - 23 May 75 SECRET
 

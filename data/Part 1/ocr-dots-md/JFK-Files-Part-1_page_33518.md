@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33518.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>DATE:</th><th>TIME:</th></tr></thead><tbody><tr><td>13 APRIL 1974</td><td>12:56:08</td></tr></tbody></table>
 

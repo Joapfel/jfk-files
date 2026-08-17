@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14885.png
-
-Convert to Markdownd. Material reward. As was mentioned before, material reward appears to be a means to social status. In the case of the bank robbery the friend obtained three-fourths of the take and the Subject was content not to spend his money freely in order not to arouse his wife's suspicions.
+d. Material reward. As was mentioned before, material reward appears to be a means to social status. In the case of the bank robbery the friend obtained three-fourths of the take and the Subject was content not to spend his money freely in order not to arouse his wife's suspicions.
 
 e. Competition with authority. Apparently the Subject regarded the Paris bank as a symbol of authority and was motivated to compete with what this symbol represented. It may be that he did not actually wish to defeat the authority but that he wanted to obtain the attention of authority as he did in the school situation. He certainly accomplished this. The authorities are still paying attention to him. In fact they treat him as a "headstrong little boy", and are continually interested in what he has on his mind. Their interest, of course, is not therapeutic but one of prevention.
 

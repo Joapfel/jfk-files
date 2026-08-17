@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28347.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Documents dated from 1951 to 1973-
 (EXCLUDING ON THOSE FROM 1968-69)

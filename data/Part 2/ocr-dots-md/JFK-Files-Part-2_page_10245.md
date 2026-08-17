@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10245.png
-
-Convert to Markdown14 JUN 1972.
+14 JUN 1972.
 
 Foreign Support for Activities Planned to Disrupt or Harass the Republican National Convention
 

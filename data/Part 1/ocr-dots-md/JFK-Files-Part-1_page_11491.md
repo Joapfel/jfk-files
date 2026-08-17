@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11491.png
-
-Convert to Markdownfather of LIRING/4 through the LIRING office in New York City. LIRING/3 agreed that there was little chance of this request being honored, but it would serve to reveal his lack of any other channels to LIRING/4's father and stress the legitimacy of LIRING/4's concern for the health of her father( an application for a visa to visit him).
+father of LIRING/4 through the LIRING office in New York City. LIRING/3 agreed that there was little chance of this request being honored, but it would serve to reveal his lack of any other channels to LIRING/4's father and stress the legitimacy of LIRING/4's concern for the health of her father( an application for a visa to visit him).
 
 LIRING/3 then stated to Rowton that he suspected the telephone of the LIRING/9 apartment was tapped. He explained that generally when he had called in the past, there was an unexplained interruption in the line before the party could reply. He stressed to Rowton that this was his recent personal observation, and that (Eden R), when he did with so recently as 9/4/69 did not make any comment about the telephone service in the apartment.
 

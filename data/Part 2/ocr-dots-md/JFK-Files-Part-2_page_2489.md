@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CASE 65805
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19635.png
-
-Convert to MarkdownNR001 PH CODE
+NR001 PH CODE
 
 AM NITEL 4-9-71 JEW
 

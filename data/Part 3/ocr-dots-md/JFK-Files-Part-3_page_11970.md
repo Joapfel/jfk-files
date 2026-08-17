@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11970.png
-
-Convert to MarkdownSecurity Index (SI) Program
+Security Index (SI) Program
 
 Refer to white write-up prepared by Internal Security
 Section (4-H), which has investigative responsibility under this

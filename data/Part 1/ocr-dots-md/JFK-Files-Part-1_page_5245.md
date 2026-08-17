@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5245.png
-
-Convert to Markdownb) Organization of the Administrative career which shall be free from political influence. A law shall fix the status of public officers;
+b) Organization of the Administrative career which shall be free from political influence. A law shall fix the status of public officers;
 
 c) Remodelling of our different codes to adapt them to the present economic and social conjuncture, and the adoption of each measure as can speed up legal decision;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6142.png
-
-Convert to MarkdownIRS 75-801
+IRS 75-801
 
 5 Hughes Place, H-9
 New Haven, Conn. 06511

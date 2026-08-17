@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25691.png
-
-Convert to MarkdownOctober 5, 1964
+October 5, 1964
 
 Mexican Communists who had contact with Oswald,
 as has not appeared in Warren Commission write-ups in press:

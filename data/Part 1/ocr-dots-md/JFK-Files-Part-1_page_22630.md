@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22630.png
-
-Convert to Markdown4. On 11 March 1958 I went into the Sierra Maestra mountain range of Santiago, Oriente Provinoo, on an assignment as observer with the Pidel CASTRO Bus revoluti.nary movement. CASTAO "cleared" me for this assignment a:d was given my business oard. It was also considered operationally advantageous to "drop a hint" to CASTRO from another direction as to my true mission. During the period 11 March - 1 April 1958, the following peroon~ were either given a business card or informed of the cover firm:
+4. On 11 March 1958 I went into the Sierra Maestra mountain range of Santiago, Oriente Provinoo, on an assignment as observer with the Pidel CASTRO Bus revoluti.nary movement. CASTAO "cleared" me for this assignment a:d was given my business oard. It was also considered operationally advantageous to "drop a hint" to CASTRO from another direction as to my true mission. During the period 11 March - 1 April 1958, the following peroon~ were either given a business card or informed of the cover firm:
 
 Fidel CASTRO Bus Commander, 26 July Revolutionary
 

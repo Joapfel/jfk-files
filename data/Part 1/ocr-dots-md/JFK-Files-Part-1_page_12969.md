@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12969.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Also asked for request. Barac Cons, nice a new
 6 to check and to determine if Subj' present.

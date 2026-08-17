@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10185.png
-
-Convert to MarkdownMemorandum for Mr. Callahan
+Memorandum for Mr. Callahan
 
 Re: SENSTUDY 1975
 

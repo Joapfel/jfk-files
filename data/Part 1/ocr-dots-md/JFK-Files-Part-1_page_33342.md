@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33342.png
-
-Convert to MarkdownIt also established a guerrilla training base and coordinating centre in Chile. The large intelligence team in the Cuban Embassy in Santiago maintained liaison with the liberation movement in Argentina, Bolivia, and Uruguay. Cuba's Soviet-controlled Intelligence service, Dirección General de Inteligencia (DGI), also had close ties with the Chilean ultra-leftist and other revolutionary exile groups, providing them with training, arms and funds for the armed struggle in Chile and other Latin American countries.
+It also established a guerrilla training base and coordinating centre in Chile. The large intelligence team in the Cuban Embassy in Santiago maintained liaison with the liberation movement in Argentina, Bolivia, and Uruguay. Cuba's Soviet-controlled Intelligence service, Dirección General de Inteligencia (DGI), also had close ties with the Chilean ultra-leftist and other revolutionary exile groups, providing them with training, arms and funds for the armed struggle in Chile and other Latin American countries.
 
 ## Revolutionaries Trained
 

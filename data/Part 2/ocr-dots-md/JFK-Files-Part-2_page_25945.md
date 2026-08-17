@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25945.png
-
-Convert to MarkdownOne day in 1953, one Joe Castellano went to the Italian Club in Tampa to play cards with a group of friends. During the course of the evening, he talked to Salvatore Scaglione privately. Scaglione asked Castellano if he wanted to make a profit on a "hot load" of whisky. Castellano said he was interested, and they agreed to meet later that night.
+One day in 1953, one Joe Castellano went to the Italian Club in Tampa to play cards with a group of friends. During the course of the evening, he talked to Salvatore Scaglione privately. Scaglione asked Castellano if he wanted to make a profit on a "hot load" of whisky. Castellano said he was interested, and they agreed to meet later that night.
 
 At the meeting, Scaglione was accompanied by Joe Mistretta and Angelo LoScalzo. Castellano got into the front seat of a car provided by the others, and the four men drove to a thickly wooded area outside of Tampa city limits. Castellano was then attacked with a hammer, being hit repeatedly on the head. He managed to get out of the car, although he was badly hurt. He broke loose from his elderly assailants and ran away. He stumbled into a nearby house and asked to be taken to the constable's house, where he gave a statement about the incident, naming the three as his assailants. He swore to the county solicitor that he had no idea why he was beaten. Scaglione, Mistretta, and LoScalzo were arrested and charged with assault with intent to murder.
 

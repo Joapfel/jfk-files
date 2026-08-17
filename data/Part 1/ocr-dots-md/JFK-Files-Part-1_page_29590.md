@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29590.png
-
-Convert to Markdown14-00000
+14-00000
 
 Data as of 18 August 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33953.png
-
-Convert to Markdownofficially to address to NCFE immediately upon the coming into effect of the contractual agreements, and which would have attached to it a copy of the license which would be granted by the Bundespost as of the date of the coming into effect of the contractual agreements. This letter, when acknowledged and accepted by NCFE, would constitute, with the license, the Agreement between the parties. Dr. Strohme promised to have the draft in Paris by Wednesday or Thursday of this week.
+officially to address to NCFE immediately upon the coming into effect of the contractual agreements, and which would have attached to it a copy of the license which would be granted by the Bundespost as of the date of the coming into effect of the contractual agreements. This letter, when acknowledged and accepted by NCFE, would constitute, with the license, the Agreement between the parties. Dr. Strohme promised to have the draft in Paris by Wednesday or Thursday of this week.
 
 Fritz is in London this week in connection with the German debts negotiations, but will return for the weekend at which time he and I will go over the draft together. It seems to both of us unlikely that we shall be able to accept Dr. Strohme's draft without any change whatsoever, and it will, therefore, probably be necessary for us to go back to Bonn for one or perhaps two days to iron out any remaining difficulties to agree on a final text and to initial such text with the Germans for the purpose of recording our agreement.
 

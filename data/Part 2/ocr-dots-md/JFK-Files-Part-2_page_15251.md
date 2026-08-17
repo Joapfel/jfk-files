@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15251.png
-
-Convert to MarkdownThe following technical surveillances are being
+The following technical surveillances are being
 maintained at the present time with the approval in each
 instance of the State Department.
 

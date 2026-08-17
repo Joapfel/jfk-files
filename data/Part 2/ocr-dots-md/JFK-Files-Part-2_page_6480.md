@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6480.png
-
-Convert to Markdownc. US intervention would be based on:
+c. US intervention would be based on:
 
 (1) A pre-arranged call for help from a Provisional Government set up by the insurrectionists (preferably to the OAS, although US action would not await formal OAS approval), or
 

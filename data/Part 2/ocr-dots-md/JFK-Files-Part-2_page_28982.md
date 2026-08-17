@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28982.png
-
-Convert to Markdown# Form 1040 (1975)
+# Form 1040 (1975)
 
 <table><thead><tr><th></th><th>(a) NAME</th><th>(b) Relationship</th><th>(c) Months lived in your home. If born or died during year, write B or D.</th><th>(d) Did dependent have income of $750 or more?</th><th>(e) Amount YOU furnished for dependent's support. If 100% write ALL.</th><th>(f) Amount furnished by OTHERS including dependent.</th></tr></thead><tbody><tr><td>Other Dependents</td><td></td><td></td><td></td><td></td><td>$</td><td>$</td></tr><tr><td colspan="7">27 Total number of dependents listed in column (a). Enter here and on line 6c</td></tr></tbody></table>
 

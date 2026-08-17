@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11918.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 ## SPECIAL INVESTIGATIONS UNIT - WEST
 
 Since the Summer of 1969, New Left extremists have become increasingly identified as Marxist-Leninist revolutionaries, and have utilized extreme violence in effort to achieve their purpose. In the period since the last inspection, the prosecution of these revolutionaries has continued to be one of our primary objectives, to the end that individual terrorists are neutralized and their organizations are isolated; leaderless; and finally defunct.

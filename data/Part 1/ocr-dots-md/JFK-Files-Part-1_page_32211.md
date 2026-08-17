@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_32211.png
-
 , career trainee and operations officer. He worked part time for several years so that he could obtain his BA degree from American University. This he did in 1967 with his specialty being Latin American Affairs.
 
 3. Mr. Flores, who is bilingual in English and Spanish, has just completed his first overseas tour as an operations officer in Guayaquil, Ecuador. It is on the basis of his very fine performance during this tour that this promotion request is based. Also as a result of his record in Guayaquil, he has been assigned to Lima Station as an operations officer in a position which is rated as GS-13.

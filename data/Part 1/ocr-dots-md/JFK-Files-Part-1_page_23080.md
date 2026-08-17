@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23080.png
-
-Convert to Markdownde los Viceroyes, Señoríos y Dukels, que en el mes de Febrúar, subito a la dieta de Navarra, se acercó al rey, y le envió
+de los Viceroyes, Señoríos y Dukels, que en el mes de Febrúar, subito a la dieta de Navarra, se acercó al rey, y le envió
 
 Le adjunto los trámites "Previsionales y Extranjeiros", que se finda en el Congreso de Madrid, para su uso personal y obligado a la representación "Factores Culturales en Historia y Antropología. Estudios de la Ethnología Nortea". Llenado en el Congreso de París para su publicación en la Revista de la APAL.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4481.png
-
-Convert to MarkdownNO 92-36
+NO 92-36
 
 PAGE TWO
 

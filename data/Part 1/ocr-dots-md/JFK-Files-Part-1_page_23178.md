@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23178.png
-
-Convert to MarkdownCase 46,632
+Case 46,632
 
 - 6 -
 

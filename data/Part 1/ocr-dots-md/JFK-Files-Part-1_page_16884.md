@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16884.png
-
-Convert to Markdownshowing up to date payment of the loan at the "Mesa 31a." No further action has been taken by LIEMPTY-19 or her lawyer on this matter but the charge has not finally been settled and is still pending. The charge is, of course, unfounded and is awaiting the proper "lubrication" in order to be filed away.
+showing up to date payment of the loan at the "Mesa 31a." No further action has been taken by LIEMPTY-19 or her lawyer on this matter but the charge has not finally been settled and is still pending. The charge is, of course, unfounded and is awaiting the proper "lubrication" in order to be filed away.
 
 c. Neglect -- this charge was made by LIEMPTY-19 in December 1969 at the 7º Juzgado Mixto de Paz claiming that GERENDE had abandoned LIEMPTY-19 and the children to their fate and that they were utterly destitute. GERENDE was not notified of this charge and on 9 February after attending a hearing at the Villa Obregon juzgado (see below), once out on the sidewalk, Judicial police agents detained GERENDE, took him to the Procuraduria and from there to Lecumberri. This process involved being finger-printed and mugged. The following day GERENDE was out on a 2,000 pesos bond and three days later, 13 February, the justice of the peace (a woman) formally set GERENDE free for lack of evidence. GERENDE and Magallon went back on 5 March to pick up the bond money and see if Jurado had appealed but he had not and, apparently, that matter is closed.
 

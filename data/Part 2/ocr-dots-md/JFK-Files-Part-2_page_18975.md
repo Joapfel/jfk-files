@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18975.png
-
-Convert to Markdown5/1/69
+5/1/69
 
 TO: DIRECTOR, FUI (105-14704)
 

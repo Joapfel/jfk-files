@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22076.png
-
-Convert to Markdown*American tourist or delegation member had gone to the Pushkin Street address and that it was the "opinion of the Second Chief Directorate" that this American had selected it as a dead drop site,* it was thought that ABIDIAN went there merely to check the suitability of the proposed site.
+*American tourist or delegation member had gone to the Pushkin Street address and that it was the "opinion of the Second Chief Directorate" that this American had selected it as a dead drop site,* it was thought that ABIDIAN went there merely to check the suitability of the proposed site.
 
 When he was asked on 20 October 1966 whether he had visited
 the Pushkin Street address several days after ABIDIAN had been

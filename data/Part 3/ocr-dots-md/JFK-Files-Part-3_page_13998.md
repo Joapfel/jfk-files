@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13998.png
-
-Convert to Markdowndevelopments in Panama for months on end and that perhaps this
+developments in Panama for months on end and that perhaps this
 was so" but from the President's vantage point there was no
 specific information pinpointing developments until after
 difficulties had occurred.

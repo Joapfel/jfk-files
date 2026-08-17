@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23539.png
-
-Convert to Markdown2 May 1961
+2 May 1961
 
 MEMORANDUM FOR: Mr. Richard N. Goodwin
 Assistant Special Counsel to the

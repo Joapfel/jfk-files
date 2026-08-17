@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22110.png
-
-Convert to Markdown269.
+269.
 
 of the grill in such close proximity to the State Department Code Room indicated that an operation was directed against that area....The lead sheath may have had other uses. The possible uses that have been suggested are listed below. The most likely use is as an antenna although the other possibilities have not been completely discarded.
 

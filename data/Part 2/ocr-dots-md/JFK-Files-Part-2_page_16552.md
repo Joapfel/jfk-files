@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16552.png
-
-Convert to Markdownh. BRENDA, 928-6794.
+h. BRENDA, 928-6794.
 
 i. AL, 533-5010.
 

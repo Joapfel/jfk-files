@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25254.png
-
-Convert to Markdown<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>Don, General<br/>Conein</td><td>11/2/63</td><td>Diem✓</td></tr></table>
+<table><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr><tr><td>Don, General<br/>Conein</td><td>11/2/63</td><td>Diem✓</td></tr></table>
 
 ### OCCURRENCE:
 

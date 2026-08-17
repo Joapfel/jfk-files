@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25622.png
-
-Convert to MarkdownJune 24, 1976 Testimony of John Rosselli before Committee
+June 24, 1976 Testimony of John Rosselli before Committee
 Senator Church presiding
 
 p. 7-8 **Los Angeles**

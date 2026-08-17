@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8544.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 MFR

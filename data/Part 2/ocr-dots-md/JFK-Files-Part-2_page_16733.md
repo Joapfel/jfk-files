@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16733.png
-
-Convert to Markdown1
+1
 
 FEDERAL BUREAU OF INVESTIGATION
 

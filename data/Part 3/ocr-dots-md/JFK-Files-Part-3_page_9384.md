@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9384.png
-
-Convert to MarkdownREVOLUTIONARY HANDIWORK OF THE URBAN GUERILLA
+REVOLUTIONARY HANDIWORK OF THE URBAN GUERILLA
 
 predawn kill all--destroy all mission was launched as a pilot, an experimental operation with a two fold objective. One was to put counter-revolutionary theory into practice in America --to bring in- to the streets the fascist ruling clique's solution to the Party-- to test and evaluate the techniques of counter-insurgency urban warfare. The second important
 

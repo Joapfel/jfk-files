@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24696.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ACV 22, 1976
 

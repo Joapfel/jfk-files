@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23771.png
-
-Convert to MarkdownII. PRELIMINARY ASSISTANT
+II. PRELIMINARY ASSISTANT
 
 12. At this stage in KUBARK's relationship with STREBOW it is well to note certain factors that must be taken into consideration as we seek to devise a longer-term operation centered on his capabilities and potential. For the sake of brevity, if not precision, we will discuss these factors under the following headings: Security, Assets, Propaganda, Handling & Guidance, Security, Termination, and KUBARI Operational Requirements.
 

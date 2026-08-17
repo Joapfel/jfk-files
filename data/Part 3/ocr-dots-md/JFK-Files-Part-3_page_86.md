@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_86.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTELLIGENCE AND INFORMATION FILES (Continued)
 

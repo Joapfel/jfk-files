@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23943.png
-
-Convert to Markdown14-0000
+14-0000
 
 hself from Algiers to Brazzaville. And he was threatened by the MPLA people, who are of course Sovic backed to the hilt, in fact more so than ever now. And the Algésians, Ben Bella, who had supported the MPLA up until the great fiasco when people discovered that they didn't have what they claimed to have - and they wereSUPPLYING FORCES - have given their support to the UPA. Nevertheless, the MPLA people still remain and they are promising to reform and really carry out things.
 

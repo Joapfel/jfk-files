@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6073.png
-
-Convert to MarkdownEn estava mais interessado na opinião pública do que no dinheiro. E não estava de acordo com que se confundisse a finalidade da viagem. (4)
+En estava mais interessado na opinião pública do que no dinheiro. E não estava de acordo com que se confundisse a finalidade da viagem. (4)
 
 O antigo ministro da Fazenda cubano Raúl López Freire foi declarou:
 

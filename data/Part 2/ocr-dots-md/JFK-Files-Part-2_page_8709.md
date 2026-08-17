@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8709.png
-
-Convert to Markdown- 31 -
+- 31 -
 
 or wanted to go, something like that. Who knows how the thing was?
 

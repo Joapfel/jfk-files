@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18480.png
-
-Convert to MarkdownB. The Internal Security Section (formerly Division)
+B. The Internal Security Section (formerly Division)
 
 The Committee is examining the activities of the Internal Security Section of the Justice Department and its predecessor, the Internal Security Division. These entities have supervised the Department's internal security law enforcement activities, coordinated certain interdepartmental internal security policies, and engaged in the collection, analysis, and dissemination of intelligence.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11891.png
-
-Convert to MarkdownSUBSTANTIVE ERRORS
+SUBSTANTIVE ERRORS
 
 4-B
 

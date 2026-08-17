@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29111.png
-
-Convert to Markdown# Dividend and Interest Income
+# Dividend and Interest Income
 
 1969
 

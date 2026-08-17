@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6053.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Honorable P. Kenneth O'Donnell
 

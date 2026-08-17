@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8689.png
-
-Convert to Markdown7.08 El tipo de hombre que a menudo llega muy tarde y no le preocupa, que tiende a ser breve y brusco al saludar y a veces da la impresión de torpeza al entrar en una pieza.
+7.08 El tipo de hombre que a menudo llega muy tarde y no le preocupa, que tiende a ser breve y brusco al saludar y a veces da la impresión de torpeza al entrar en una pieza.
 
 7.09 ninguna de las anteriores.
 

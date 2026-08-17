@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15052.png
-
-Convert to MarkdownBob:
+Bob:
 
 A trace of ESSA-25033, 16 Jun 63, was NEGATIVE. John sent copies of the dispatch to DRC and CAT.
 

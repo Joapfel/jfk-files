@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33340.png
-
-Convert to MarkdownSOVIET ANARCHIST, London
+SOVIET ANARCHIST, London
 
 15 August 1974
 

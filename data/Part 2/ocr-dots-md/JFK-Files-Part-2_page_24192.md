@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24192.png
-
-Convert to MarkdownTAB D
+TAB D
 Page 7
 
 LADYCHAPEL - This proprietary was established to purchase an apartment building in Europe for Agency office and residential use. In 1968, then the building was of no further use to the Agency, the entity with the apartment building was ostensibly given to the Department of State as a gift. The Department actually reimbursed the Agency for the building in Washington. The Agency, on behalf of the Department, is attempting to liquidate the company. This is complicated by a disputed foreign tax claim.

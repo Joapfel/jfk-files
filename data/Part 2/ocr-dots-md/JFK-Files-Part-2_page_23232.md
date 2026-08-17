@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23232.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 to get the word.
 

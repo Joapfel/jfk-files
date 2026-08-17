@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13986.png
-
-Convert to MarkdownCUBAN UN MISSION PERSONALITIES
+CUBAN UN MISSION PERSONALITIES
 
 1. Pedro Amado MORALES Carballo, Counsellor. Source stated that MORALES has no intelligence/security affiliation. He is close to Fidel CASTRO Ruz. He is "very frivolous", not a serious type of person. Although MORALES is an Alternate Representative on the II Committee of the UNGA, he knows little about the issues or the work of the Committee. He has intellectual pretenses, but in actuality is of somewhat limited intellectual capacity. Does not take his work seriously. Source termed him a "tonto". Source is not aware whether MORALES has had any contacts with Cyrus EATON since MORALES' arrival here.
 

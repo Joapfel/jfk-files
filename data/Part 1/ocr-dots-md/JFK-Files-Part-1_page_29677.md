@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29677.png
-
-Convert to Markdown<table><thead><tr><td>C/C</td><td>DATE</td><td></td></tr></thead><tbody><tr><td>2573-235</td><td>EM-21350</td><td>A-TOUCHT<br/>B-ONE<br/>L-KEY<br/>D-PASSABLE<br/>F-FAILS<br/>T-JUDITOR<br/>B-INCOMPLETE<br/>D-WITHDRAWN</td></tr></tbody></table>
+<table><thead><tr><td>C/C</td><td>DATE</td><td></td></tr></thead><tbody><tr><td>2573-235</td><td>EM-21350</td><td>A-TOUCHT<br/>B-ONE<br/>L-KEY<br/>D-PASSABLE<br/>F-FAILS<br/>T-JUDITOR<br/>B-INCOMPLETE<br/>D-WITHDRAWN</td></tr></tbody></table>
 
 THE AMERICAN UNIVERSITY
 

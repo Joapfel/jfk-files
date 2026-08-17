@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2529.png
-
-Convert to MarkdownK. William O'Connor
+K. William O'Connor
 Page 2
 
 July 15, 1975

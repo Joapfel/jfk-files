@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9093.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169D
+STANDARD FORM NO. 1169D
 
 Form prescribed by Comptroller General U.S.
 [ ] May 12, 1964

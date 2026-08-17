@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26516.png
-
-Convert to Markdownfighters, etc. Strikes are more frequent. The spirit of rebellion and disregard of law is spreading. We must encourage and exploit it.
+fighters, etc. Strikes are more frequent. The spirit of rebellion and disregard of law is spreading. We must encourage and exploit it.
 
 Many people still think that the guerrillas are only supposed to kill soldiers. That is mistaken. We must get to the people and encourage their rebelliousness and opposition to the government, which is everywhere evident. The situation is deteriorating. The government of Peralta is not operating well. The guerrillas are playing an important role because they are [feeding] the people. They are not simply fighting; their role also is to solve problems for the people, to solve social difficulties for the people.
 

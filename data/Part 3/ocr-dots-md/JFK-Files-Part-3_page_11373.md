@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11373.png
-
-Convert to MarkdownNRO06 SU/PLAIN
+NRO06 SU/PLAIN
 
 846 AM NITEL MARCH 26, 1975 VLD
 

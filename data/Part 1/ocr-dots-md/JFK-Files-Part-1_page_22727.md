@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22727.png
-
-Convert to Markdowne. Subversive potential and leading subversive personalities of most Latin American countries.
+e. Subversive potential and leading subversive personalities of most Latin American countries.
 
 f. Subject is trained in the use of firearms, jungle warfare, and has studied and worked with maps and charts, and is acquainted with surveillance and evasion procedures.
 

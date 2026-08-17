@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6256.png
-
-Convert to Markdown**Microfilm Material Not Processed for Release (Pending Discussion with the Board):**
+**Microfilm Material Not Processed for Release (Pending Discussion with the Board):**
 
 **Oswald 201 File** - this appears to be a duplicate of the hard copy 201 file reviewed in 1993. 12+ Reels/approximately 30,600 pages
 

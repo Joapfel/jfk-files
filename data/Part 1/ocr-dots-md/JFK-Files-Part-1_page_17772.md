@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17772.png
-
-Convert to Markdown14-00000
+14-00000
 
 ... con quien enviarla y de ser posible pasen a recogerla.
 MARINA aclara que provino del Ministerio de Relaciones de

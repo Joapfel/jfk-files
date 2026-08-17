@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22479.png
-
-Convert to Markdown9 July 1970
+9 July 1970
 
 SUBJECT: Meeting with DCS Headquarters' Officers
 

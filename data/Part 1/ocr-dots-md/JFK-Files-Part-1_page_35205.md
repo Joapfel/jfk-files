@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35205.png
-
-Convert to Markdown$931.49, según "estado" que estuvo en nuestro poder, no es totalmente de "Gastos de Viajes", pero debido a que el Departamento de Finanzas recaiomó los comprobantes del mes de Julio, no fue posible el analísis de dicha partida, no obstante haber realizado las gestimnes corespondientes para obtener una copia del estado presentado por el Dr. Varona.
+$931.49, según "estado" que estuvo en nuestro poder, no es totalmente de "Gastos de Viajes", pero debido a que el Departamento de Finanzas recaiomó los comprobantes del mes de Julio, no fue posible el analísis de dicha partida, no obstante haber realizado las gestimnes corespondientes para obtener una copia del estado presentado por el Dr. Varona.
 
 La partida # 12 a nombre del Dr. Manuel Artime por $100.00, no es producto de un cheque girado a su nombre, sino que fué una cantidad entregada por el Dr. Justo Carrillo en la ciudad de México, según el "estado de reintegro" por $834.20, presentado en el mes de Julio al Frente.
 

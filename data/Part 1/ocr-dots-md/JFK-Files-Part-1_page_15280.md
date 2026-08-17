@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15280.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 29a. Are you an agent of the English Intelligence Service? No.
 

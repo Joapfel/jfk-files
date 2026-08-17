@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6272.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The following Agency members will attend the meeting
 with the ARRB on Wednesday, 2 August 1995:

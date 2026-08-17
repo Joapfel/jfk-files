@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17587.png
-
-Convert to MarkdownSECRET XAPOK
+SECRET XAPOK
 
 Attachment to
 HAA-A-12936

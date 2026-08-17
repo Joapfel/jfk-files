@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24306.png
-
-Convert to MarkdownSECRET
+SECRET
 
 D. Both to give QRPHONE/1 time to cleanse his tattered image and because there are almost as important operational tasks in West Africa, the idea is to move him (1) to Nigeria or (2) to Ghana for perhaps a year. This is to be done in concert with a suitable strengthening of his cover (i.e. two or three more stringerships) and a concurrent mutation of his political posture to that of a plain old anti-imperialist rather than the more confining pro-Mao stance. He would be run directly by Lagos or Accra Station against local targets but with periodic trips to other parts of Africa for cover as well as operational purposes. Meantime, in the intervening months the dust may settle a bit in Tanzania, the close association with opposition elements would be allowed to fade and QRPHONE/1's writings and pronouncements concerning Tanzania would be calculatedly designed to support the Nyere government.
 

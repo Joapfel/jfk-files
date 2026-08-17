@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9843.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 Memorandum to Mr. W. R. Wannall
 

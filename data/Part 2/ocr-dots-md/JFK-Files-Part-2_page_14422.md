@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14422.png
-
-Convert to MarkdownHonorable Edward H. Levi
+Honorable Edward H. Levi
 
 April 10, 1975
 Page 2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34061.png
-
-Convert to MarkdownB. ADMINISTRATION
+B. ADMINISTRATION
 
 5. During the second quarter of FY-67 there were expenditures of approximately $19,000 by the AMSTRUT-2 activity. This figure includes an estimate for the month of December because the final figures have not been received at this writing. The budgeted amount for AMSTRUT-2 for the quarter is $24,000 and there is an excess of budget authorization over expenditures of approximately $5000. This figure, however, gives an unreal budgetary picture of the AMSTRUT-2 activity. This $5000 will remain as a part of the budget allotment and may well be expended in a flurry of AMSTRUT-2 travel, publication activity and/or promotion during the next quarter. In other words the excess does not represent budget "fat" since the bulk of the AMSTRUT-2 expenses are not figured as month to month constants but obligated as the operational situation demands.
 

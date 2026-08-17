@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_18011.png
-
 case officer the task of coordinating the efforts of the appropriate area case officers and the Station reports officer in matters concerning LIFEAT produced information. Although this system has been tested only during the month of April, it is hoped that it will prove of value in increasing the positive intelligence take from LIFEAT provided material.</td>
     </tr>
     <tr>

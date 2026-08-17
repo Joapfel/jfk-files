@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12292.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Volunteer will consist only of the arrangements specified
 above, i.e., final pay, bonus', if applicable, medical

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9478.png
-
-Convert to MarkdownDE T-3
+DE T-3
 
 Various
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6530.png
-
-Convert to Markdownd. The Forum of World Opinion.
+d. The Forum of World Opinion.
 
 (1) Elimination of Cuba from Hemisphere organizations exhibits the penalty for conductive subversive activity in her neighboring states.
 

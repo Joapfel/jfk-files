@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25042.png
-
-Convert to Markdown# Las "Instalaciones Diplomáticas" Rusas en Lima
+# Las "Instalaciones Diplomáticas" Rusas en Lima
 
 Por CARLOS MONTIEL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7269.png
-
-Convert to MarkdownAttachment 6
+Attachment 6
 
 # 1. THE HUSTON PLAN
 

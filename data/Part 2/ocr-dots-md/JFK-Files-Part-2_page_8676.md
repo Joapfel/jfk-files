@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8676.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 of the Senate Select Committee Final Report on the
 Assassination. (Book V, and a 23 May 1967

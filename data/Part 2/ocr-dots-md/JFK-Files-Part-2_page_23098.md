@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23098.png
-
-Convert to MarkdownPara el 28 de setiembre de 1963, aniversario de los Comités de Defensa de la Revolución, los contrarrevolucionarios Orlando Martíniano de la Cruz Sánchez, Juan Israel Cazañas León, Jesús Plácido Rodríguez Mosquera, Luis Beltrán Arencibia Pérez, Francisco Vlanco de los Cuetos, Federico Hernández González y otros, vinculados al agente del CIA Pierre Owen Diez de Ure, prepararon un plan de atentado contra nuestro Primer-Ministro.
+Para el 28 de setiembre de 1963, aniversario de los Comités de Defensa de la Revolución, los contrarrevolucionarios Orlando Martíniano de la Cruz Sánchez, Juan Israel Cazañas León, Jesús Plácido Rodríguez Mosquera, Luis Beltrán Arencibia Pérez, Francisco Vlanco de los Cuetos, Federico Hernández González y otros, vinculados al agente del CIA Pierre Owen Diez de Ure, prepararon un plan de atentado contra nuestro Primer-Ministro.
 
 Estos elementos, agrupados en las organizaciones contrarrevolucionarias "Frente Interno de Unidad Revolucionaria" (FIUR), "Triple A", "Movimiento Democrático Revolucionario" (MDR), "Ejército de Liberación Nacional" -- (ELN), contaron con el asescamiento y aseguramiento de la CIA.
 

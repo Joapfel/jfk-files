@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33880.png
-
-Convert to Markdown# Bunu Mekan Tiyatrisine Fora Geri Parla
+# Bunu Mekan Tiyatrisine Fora Geri Parla
 
 ## Problem
 

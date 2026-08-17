@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17725.png
-
-Convert to MarkdownReel 99-MAR-3
+Reel 99-MAR-3
 
 From 2100, 3 June (Thursday) to 0650, 3 June 1966
 

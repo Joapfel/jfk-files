@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1903.png
-
-Convert to MarkdownCITATION
+CITATION
 
 Mr. David S. Morales
 

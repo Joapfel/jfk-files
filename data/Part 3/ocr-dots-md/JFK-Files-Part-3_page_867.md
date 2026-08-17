@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_867.png
-
-Convert to Markdown2. Counterintelligence
+2. Counterintelligence
 
 Electronic surveillances assist our counterintelligence efforts by providing personality data and information regarding the contacts and activities of known and suspected foreign intelligence officers. This information assists in planning counterintelligence activity, assessing defection potential, analyzing routines and patterns, conserving manpower, and in directing sources against these officers.
 

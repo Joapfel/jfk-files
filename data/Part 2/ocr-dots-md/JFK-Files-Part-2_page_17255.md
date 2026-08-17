@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17255.png
-
-Convert to MarkdownLARRY JOHNSON, Champaign County, Illinois, States Attorney,
+LARRY JOHNSON, Champaign County, Illinois, States Attorney,
 Urbana, Illinois, authorized charging all eleven individuals with
 three charges: defrauding an innkeeper, theft and conspiracy to
 commit theft. One of those arrested was RONALD JEROME SATCHHEL,

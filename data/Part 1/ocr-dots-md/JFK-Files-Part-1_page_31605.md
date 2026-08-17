@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31605.png
-
-Convert to Markdownwho thought that they will achieve anything by the balloon. True, the Crusaders of Freedom in the West are losing more and more possibilities for conducting enemy activity on the territory of our Republic. On the frontiers of our country there stands a vigilant guard which breaks all the attempts of their agents and so they must be contented with the balloon action which our people overtly laughed at and which they condemn.
+who thought that they will achieve anything by the balloon. True, the Crusaders of Freedom in the West are losing more and more possibilities for conducting enemy activity on the territory of our Republic. On the frontiers of our country there stands a vigilant guard which breaks all the attempts of their agents and so they must be contented with the balloon action which our people overtly laughed at and which they condemn.
 
 They openly say that the entire action was a kind of genocide which not even Hitler dared to commit at the time of the greatest hatred campaign against Czechoslovakia. Then they are bringing the leaflets which they had found to the security organs and to the administrative organs, they ask that the action should be publicly condemned.
 

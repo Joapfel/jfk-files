@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17981.png
-
-Convert to Markdown14-0006
+14-0006
 
 <table><thead><tr><th>PROCESSING</th><th></th><th></th></tr></thead><tbody><tr><td>PROPOSED<br/>ACTION</td><td>RESPECT FOR INSTRUCTIONS.<br/>SO PRESENTING REQUIRED.</td><td></td></tr><tr><td>FINAL CHARGED<br/>HEADQUARTERS CRE<br/>CAN HOLD INSTRUCTION</td><td>AESTHETIC<br/>WITHDRAWN</td><td></td></tr></tbody></table>
 

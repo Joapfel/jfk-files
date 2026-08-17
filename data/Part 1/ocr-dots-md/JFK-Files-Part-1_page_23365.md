@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23365.png
-
-Convert to MarkdownSECRET
+SECRET
 
 57. How was information in Part I obtained?
 

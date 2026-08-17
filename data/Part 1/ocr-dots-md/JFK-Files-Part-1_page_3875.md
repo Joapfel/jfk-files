@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3875.png
-
-Convert to MarkdownMiami 10 de Enero de 1967
+Miami 10 de Enero de 1967
 
 Estimado Jims
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5262.png
-
-Convert to MarkdownSECRET PRIN 3885 20 Jun 66 I: 41197
+SECRET PRIN 3885 20 Jun 66 I: 41197
 
 DIRECTOR
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8630.png
-
-Convert to Markdown1. Agent/Subject: LICOZY-5
+1. Agent/Subject: LICOZY-5
 2. Case Officer Vincent P. RIZZUTO
 3. Date and site of contact: 25 September Caffeturia Parque
 

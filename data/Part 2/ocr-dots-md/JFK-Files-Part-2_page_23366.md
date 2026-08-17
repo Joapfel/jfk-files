@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23366.png
-
-Convert to Markdown1. Mr. Baron. Who?
+1. Mr. Baron. Who?
 
 2. YQPROP objectives would still refer to exploring possibilities to an assassination attempt?
 

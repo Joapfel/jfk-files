@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4399.png
-
-Convert to MarkdownMonedero de Incorporación Revolucionaria
+Monedero de Incorporación Revolucionaria
 
 2312 N. E. 2nd Court
 MIAMI, FLA. 37. FLORIDA

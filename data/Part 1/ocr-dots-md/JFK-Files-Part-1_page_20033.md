@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20033.png
-
-Convert to Markdown13 September 1960
+13 September 1960
 
 (Date)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5139.png
-
-Convert to Markdown202-10001-10007; 202-10001-10008; 202-10001-10195; 202-10001-10235; 202-10001-10236; 202-10001-10239; 202-10001-10253
+202-10001-10007; 202-10001-10008; 202-10001-10195; 202-10001-10235; 202-10001-10236; 202-10001-10239; 202-10001-10253
 
 After consultation with appropriate Federal agencies, the Review Board announces that the following JFK Library records are now being opened in full: 176-10010-10143; 176-10010-10144; 176-10011-10138
 

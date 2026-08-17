@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1445.png
-
-Convert to Markdown14-00000
+14-00000
 
 # Fitness Report - Robert P. Wheeler
 

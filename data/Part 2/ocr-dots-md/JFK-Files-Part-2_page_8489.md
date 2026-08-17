@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8489.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22 April 1977
 

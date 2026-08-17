@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25388.png
-
-Convert to MarkdownNikolay Sergeyevich LEOV
+Nikolay Sergeyevich LEOV
 
 201-13.2/39
 

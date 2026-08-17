@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23363.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Exhibit 3, which is a cable from Bronson Tweedy to the Chief of Station for his eyes only on September 22, 1960.
 

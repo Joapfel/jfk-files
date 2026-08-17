@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21802.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Sarno. Nobody ever approached me on it. They were outside of Miami, but the thing that happens is the Chief of the Miami group, when an AMUT would leave --
 2. 

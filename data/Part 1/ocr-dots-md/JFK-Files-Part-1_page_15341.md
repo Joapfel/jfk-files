@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15341.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CABLE SECRETARIAT DISSEMINATION</th><th>INDEX</th><th>NO INDEX</th><th>RETURN TO __________</th><th>BRANCH</th><th>FILE RID</th></tr></thead><tbody><tr><td>CABINET DECISION</td><td>[X]</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>BY [REDACTED]</td><td>JBS</td><td>PER [REDACTED]</td><td></td><td>FILE IN CS FILE NO. [REDACTED]</td><td></td><td></td></tr><tr><td>CONFIDENTIAL</td><td>HS8</td><td>INFO</td><td>FILE VR. [REDACTED]</td><td colspan="4"></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CABLE SECRETARIAT DISSEMINATION</th><th>INDEX</th><th>NO INDEX</th><th>RETURN TO __________</th><th>BRANCH</th><th>FILE RID</th></tr></thead><tbody><tr><td>CABINET DECISION</td><td>[X]</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>BY [REDACTED]</td><td>JBS</td><td>PER [REDACTED]</td><td></td><td>FILE IN CS FILE NO. [REDACTED]</td><td></td><td></td></tr><tr><td>CONFIDENTIAL</td><td>HS8</td><td>INFO</td><td>FILE VR. [REDACTED]</td><td colspan="4"></td></tr></tbody></table>
 
 <table><thead><tr><th>BATCH ID</th><th>DATE</th><th>TIME</th></tr></thead><tbody><tr><td>A0</td><td>7/19/69</td><td>10:53</td></tr></tbody></table>
 

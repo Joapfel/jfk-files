@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6868.png
-
-Convert to Markdowncovered other topics. Finally, an official said: "I don't see why it can't be released. This is an issue for COMMO [COMMO is the Communications Office.] Someone ask COMMO whether it cares." COMMO was subsequently asked — and it had no objection to the release. I now infer that protecting crypts in slug lines was an ingrained agency habit rather than a considered judgment. The disclosure came only after incessant questioning by a skeptical interlocutor.
+covered other topics. Finally, an official said: "I don't see why it can't be released. This is an issue for COMMO [COMMO is the Communications Office.] Someone ask COMMO whether it cares." COMMO was subsequently asked — and it had no objection to the release. I now infer that protecting crypts in slug lines was an ingrained agency habit rather than a considered judgment. The disclosure came only after incessant questioning by a skeptical interlocutor.
 
 *Illustration 2.* During the course of our review of records from the Secret Service, the Board identified for the Secret Service a record it intended to open in full and the agency objected. The Board then advised that a copy of the record had actually been published in full in 1964 as an exhibit to the Warren Commission Report. The agency continued to object, arguing that even a subsequent release of an open document would again disclose matters that should be kept secret. The Board subsequently voted to open the record.
 

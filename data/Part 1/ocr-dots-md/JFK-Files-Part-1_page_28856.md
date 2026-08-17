@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28856.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="4">24. IF YOU ARE A VETERAN, HAVE YOU BEEN ARRESTED INDICATED? (IF YES, SHOW ALL CHARGES IN FULL ORDERLY MANNER)</th></tr><tr><td>FULL NAME</td><td>(Give template current address, including street and number)</td><td>YES OR NO</td><td>BIRTHDATE (MM/DD/YY)</td></tr></thead><tbody><tr><td>Norman Armour</td><td>o/o Dept. of State, Washington</td><td>X</td><td>29-05-63</td></tr><tr><td>Edward Sparks</td><td>o/o Dept. of State, Washington</td><td>X</td><td>28-05-62</td></tr><tr><td>William J. Rico</td><td>130 E. 56th St., New York, N.Y.</td><td>X</td><td>27-05-62</td></tr></tbody></table>
 

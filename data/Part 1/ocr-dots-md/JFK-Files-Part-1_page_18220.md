@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18220.png
-
-Convert to MarkdownDIRECTORATE OF
+DIRECTORATE OF
 INTELLIGENCE
 
 WEEKLY SUMMARY

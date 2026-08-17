@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3144.png
-
-Convert to Markdown1756
+1756
 
 1 you don't need explicit guidelines to tell you that, or you
 2 shouldn't have.

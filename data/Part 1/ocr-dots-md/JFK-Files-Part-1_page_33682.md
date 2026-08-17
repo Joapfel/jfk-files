@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33682.png
-
-Convert to Markdown# Curriculum Vitae
+# Curriculum Vitae
 
 JOHN S. TAYLOR, JR.
 

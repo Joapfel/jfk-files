@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2583.png
-
-Convert to MarkdownThe Examination of the Bona Fides
+The Examination of the Bona Fides
 
 of a KGB Defector
 

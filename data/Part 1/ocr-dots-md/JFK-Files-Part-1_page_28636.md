@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28636.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (a) If the Employee resigns in less than twelve months from the date of his arrival at his overseas post of duty, he shall reimburse CIA for all travel expenses involved in the transportation of himself, his immediate family, household goods, and personal effects to the foreign station, and pay all such expenses for return to the United States. Such expenses for return to the United States and amounts expended by the Government on account of such travel and transportation shall be considered a debt due by the Employee to the United States.
 

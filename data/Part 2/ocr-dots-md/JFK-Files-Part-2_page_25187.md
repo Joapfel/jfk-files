@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25187.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 *   Smith, David R.
 *   CIA Acting Chief after 5 Oct 1963

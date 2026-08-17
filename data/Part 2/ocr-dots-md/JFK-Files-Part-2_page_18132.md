@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18132.png
-
-Convert to Markdown(212) MU2-8383
+(212) MU2-8383
 
 KANTOR, SHAW & DAVIDOFF, P.C.
 

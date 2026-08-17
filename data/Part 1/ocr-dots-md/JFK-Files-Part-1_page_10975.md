@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10975.png
-
-Convert to MarkdownREPUBLICA DE CUBA
+REPUBLICA DE CUBA
 CONSEJO NACIONAL DE CULTURA
 
 Relaciones Culturales

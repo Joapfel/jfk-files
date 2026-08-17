@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23402.png
-
-Convert to MarkdownSEP 24 1915
+SEP 24 1915
 
 CIN
 

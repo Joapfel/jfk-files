@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16285.png
-
-Convert to Markdown7/23/89
+7/23/89
 
 Subject: Copy of the U.S. Navy Signal Service and VNA, Data Chicago.
 

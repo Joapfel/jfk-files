@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30376.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Soviets. The inquiry by the Commission was perfunctory and did not involve an interrogation in the intelligence sense. The crew was then transported to Astara on the Soviet-Iranian border on 7 July 1958 and turned over to the American Air Attache.
 

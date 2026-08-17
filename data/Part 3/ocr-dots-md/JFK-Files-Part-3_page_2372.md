@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2372.png
-
-Convert to MarkdownWhile traveling through the Scandinavian countries, made a number of speeches and held several press conferences in which he claimed that the BPP was the "political proletariat" and that it was engaged in a class struggle and not in a racial struggle.
+While traveling through the Scandinavian countries, made a number of speeches and held several press conferences in which he claimed that the BPP was the "political proletariat" and that it was engaged in a class struggle and not in a racial struggle.
 
 ## II RESOURCES NOW TARGETED TOWARD MONITORING FOREIGN COMMUNIST SUPPORT OF REVOLUTIONARY PROTEST MOVEMENTS IN THE UNITED STATES
 

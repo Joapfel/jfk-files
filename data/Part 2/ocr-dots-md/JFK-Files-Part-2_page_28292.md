@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28292.png
-
-Convert to MarkdownLinda Mae Connor
+Linda Mae Connor
 
 Assistant on political matters. Have a thorough working knowledge of all aspects of a Congressional office, including office accounts, casework, governmental relations, special interests of Congressional District, etc.
 

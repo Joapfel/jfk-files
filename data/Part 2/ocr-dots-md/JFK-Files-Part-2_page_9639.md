@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9639.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 <table><tr><td>REPORTING OFFICE</td><td>OFFICE OF ORIGINAL</td><td>DATE</td><td>INVESTIGATIVE PERIOD</td></tr><tr><td>NEWARK</td><td>NEWARK</td><td>8/30/74</td><td>9/12/73 - 8/9/74</td></tr><tr><td colspan="2">TITLE OF CASE</td><td colspan="2">REPORT MADE BY</td></tr><tr><td colspan="2">FRANK AUGUST DRAGER, JR. NR.</td><td colspan="2">SA CHARLES F. MOFFETT mla</td></tr><tr><td colspan="2"></td><td colspan="2">CHARACTER OF CASE</td></tr><tr><td colspan="2"></td><td colspan="2">EM - WHITE ACTION MOVEMENT</td></tr><tr><td colspan="4"><strong>REFERENCES:</strong> Newark teletype to Bureau, 6/18/74.<br/>Newark airtel to Bureau, 7/15/74.<br/>Newark nitel to Bureau, 7/16/74.</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1294.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 Attn: K. William O'Connor
 
 ALL INFORMATION CONTAINED

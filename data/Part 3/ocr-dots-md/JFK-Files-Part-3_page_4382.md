@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4382.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 1. It is believed that Genie Plamondon, the wife of Lawrence Plamondon, and other individuals having access to this address may become involved in violations of the Harboring statute, the Antiriot Law, the Sabotage statute, the Kidnapping statute, the Bank Robbery statute and Federal Bombing and Gun Control statutes.
 

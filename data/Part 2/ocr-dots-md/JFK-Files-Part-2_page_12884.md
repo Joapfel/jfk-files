@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_12884.png
-
 . LÉVISION stated that in the
 past LEVISON had not considered it wise for O'DELL to
 take on such a position, but he is the only one who could

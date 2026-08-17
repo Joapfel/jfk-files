@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16476.png
-
-Convert to Markdown55/25/
+55/25/
 
 ADV NOTIFIED AND ISSUED LA 2214Z
 

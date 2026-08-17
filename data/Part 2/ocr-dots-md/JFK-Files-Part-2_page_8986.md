@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8986.png
-
-Convert to Markdownporque no tenía porque dársena, dentro de sus atribuciones no esta la de llamar al consulado de la URSS y si lo hizo en forma oficiosa fue para ayudar a Lee Harvey Oswald, por su interés de servir y por el celo en su función, que si le dio a conocer su teléfono fue para que le preguntará posteriormente si ya se había obtenido el visado pero que jamás volvió a llamar.
+porque no tenía porque dársena, dentro de sus atribuciones no esta la de llamar al consulado de la URSS y si lo hizo en forma oficiosa fue para ayudar a Lee Harvey Oswald, por su interés de servir y por el celo en su función, que si le dio a conocer su teléfono fue para que le preguntará posteriormente si ya se había obtenido el visado pero que jamás volvió a llamar.
 
 Se hace mención que en el domicilio donde fueron detenidos los Durán en Heródoto No. 14-7, casa del cuñado de Silvia Durán de nombre Rubén Durán se detuvieron a las personas que estaban en ese domicilio.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25311.png
-
-Convert to MarkdownJimmie Fratianno was also suspected of complicity in the murders of two men in 1951. Two men who made the mistake of robbing the Mafia's Flamingo Hotel in Las Vegas were found dead in a parked car following the robbery. Both of their skulls had been shattered by bullets fired behind the ear, apparently in true Mafia fashion.
+Jimmie Fratianno was also suspected of complicity in the murders of two men in 1951. Two men who made the mistake of robbing the Mafia's Flamingo Hotel in Las Vegas were found dead in a parked car following the robbery. Both of their skulls had been shattered by bullets fired behind the ear, apparently in true Mafia fashion.
 
 Fratianno had also been linked to the famous murder of Harry "Hooky" Rothman, who had been another close associate of Mickey Cohen, the Los Angeles Mafia head. Also, Fratianno was also linked to the disappearance of another top member of the Mickey Cohen gang, Frank Niccoli. Niccoli had mysteriously vanished following a late dinner at Fratianno's home one night.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31845.png
-
-Convert to Markdown(6353-6004) 18 Jan 67
+(6353-6004) 18 Jan 67
 
 FROMER, David Reed
 DPOB: 21 Jul 42; Chicago, Illinois

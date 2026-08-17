@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7159.png
-
-Convert to MarkdownMemorandum to Mr. W.R. Wannall
+Memorandum to Mr. W.R. Wannall
 
 RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 

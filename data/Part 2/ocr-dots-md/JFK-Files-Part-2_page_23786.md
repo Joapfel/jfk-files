@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23786.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Kirbow. Well, perhaps I misunderstand the extension that you, your full recommendation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28002.png
-
-Convert to Markdown<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Gale Lynn Oppenberg</td><td>12/31/78</td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>129-36-3038</td><td>☐ Appointment<br/>☐ Salary Adjustment<br/>☐ Title Change</td></tr><tr><th>Employing Office or Committee/Subcommittee</th><td>☐ Termination (At close of business on effective date)<br/>☐ Leave without pay (Beginning with effective date above and ending close of business)</td></tr><tr><th>Assassinations</th><td>Specify Date</td></tr></tbody></table>
+<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Gale Lynn Oppenberg</td><td>12/31/78</td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>129-36-3038</td><td>☐ Appointment<br/>☐ Salary Adjustment<br/>☐ Title Change</td></tr><tr><th>Employing Office or Committee/Subcommittee</th><td>☐ Termination (At close of business on effective date)<br/>☐ Leave without pay (Beginning with effective date above and ending close of business)</td></tr><tr><th>Assassinations</th><td>Specify Date</td></tr></tbody></table>
 
 (If type of action is an Appointment, Salary Adjustment, or Title Change, complete appropriate information below.)
 

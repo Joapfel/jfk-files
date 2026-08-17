@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23828.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 that's the one that ran all of the problems.
 

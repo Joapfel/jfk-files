@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_519.png
-
-Convert to MarkdownRESTRICTED HANDLING
+RESTRICTED HANDLING
 CLASSIFIED MESSAGE
 
 ORIG: BWells:PG:JH.jm

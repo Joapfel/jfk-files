@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6856.png
-
-Convert to Markdownevaluate it, as most of the people in the country. And
+evaluate it, as most of the people in the country. And
 therefore, the disclosure of these documents are extremely
 important.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6879.png
-
-Convert to MarkdownATTORNEYS AT LAW
+ATTORNEYS AT LAW
 
 August 25, 1958
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21620.png
-
-Convert to Markdown1. Mr. Phillips. There is no question that I could understand why anyone concerned with world affairs, looking at Chile and what was happening there, would be concerned.
+1. Mr. Phillips. There is no question that I could understand why anyone concerned with world affairs, looking at Chile and what was happening there, would be concerned.
 
 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11601.png
-
-Convert to Markdown14-00000
+14-00000
 
 FILE NO 101-88767L
 

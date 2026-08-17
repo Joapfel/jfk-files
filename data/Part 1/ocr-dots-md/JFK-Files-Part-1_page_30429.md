@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30429.png
-
-Convert to MarkdownSEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
+SEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
 
 U. S. Air Corps
 Last Station

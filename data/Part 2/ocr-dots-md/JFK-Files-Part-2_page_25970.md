@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25970.png
-
-Convert to Markdownthat it was, NSC [National Security Council] meeting, but it was comparable to that with the personnel that were attending. There were several Secretaries: Defense, State, and his National Security people were there.
+that it was, NSC [National Security Council] meeting, but it was comparable to that with the personnel that were attending. There were several Secretaries: Defense, State, and his National Security people were there.
 
 O'Brien: Could a Did I see McNamara with McNamara and [Roswell?] Gilpatrick, members of the incoming administration, before they actually assumed office?
 

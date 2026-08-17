@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23291.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HMH-A-3610
 201-032723

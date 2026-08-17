@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1929.png
-
-Convert to MarkdownSUBJECT: Robert Maheu - King Hussein Incident
+SUBJECT: Robert Maheu - King Hussein Incident
 
 1. In connection with the official State visit of King Hussein from 16 March through 18 April 1959, the Office of Security was requested to render special support during the Los Angeles and New York phases of the tour. According to NEA personnel Messrs. Norman Paul, Fred LaTrash and William Aras, King Hussein was especially desirous of female companionship during his Los Angeles visit and it was requested that appropriate arrangements be made through a controlled source of the Office in order to assure a satisfied visit.
 

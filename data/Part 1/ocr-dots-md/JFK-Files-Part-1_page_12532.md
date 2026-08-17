@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12532.png
-
-Convert to Markdown<table><tr><td colspan="2">L. BERGER<br/>WH/3/V<br/>1535<br/>6 MARCH 1970</td></tr><tr><td>OSI<br/>U.S.I.<br/>EXT:<br/>DATE:</td><td>SECRET</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>☐ INDEX ☐ NO INDEX ☐ RETURN TO __________ BRANCH ☐ FILE NO</td></tr><tr><td>BY JR / L.P. PER: __________<br/>TO W.B. FILE VR. Alon, SECUR. Cabs.</td><td>FILE IN-CD FILE NO. __________</td></tr></table>
+<table><tr><td colspan="2">L. BERGER<br/>WH/3/V<br/>1535<br/>6 MARCH 1970</td></tr><tr><td>OSI<br/>U.S.I.<br/>EXT:<br/>DATE:</td><td>SECRET</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>☐ INDEX ☐ NO INDEX ☐ RETURN TO __________ BRANCH ☐ FILE NO</td></tr><tr><td>BY JR / L.P. PER: __________<br/>TO W.B. FILE VR. Alon, SECUR. Cabs.</td><td>FILE IN-CD FILE NO. __________</td></tr></table>
 
 **(in local time)** (data and time filed) **(gilt)** (page)
 

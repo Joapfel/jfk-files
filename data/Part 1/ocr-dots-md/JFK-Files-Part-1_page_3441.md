@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3441.png
-
-Convert to MarkdownTHE HEMISPHERE
+THE HEMISPHERE
 
 CUBA
 

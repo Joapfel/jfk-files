@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29178.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="4" style="text-align:center;">Schedule of Partners or Shareholders—<br/>Partnership, Subchapter S Corp., Professional Corp.</th>

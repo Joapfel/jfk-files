@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24243.png
-
-Convert to Markdown17 June 1972
+17 June 1972
 
 **ORDER BY: Chief, WOLIME**
 

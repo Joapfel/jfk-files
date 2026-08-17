@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18941.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LIN advised Jaffe to contact him later at which time he would have a definite answer as to a possible interview. -S-
 

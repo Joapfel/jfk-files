@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18252.png
-
-Convert to MarkdownMarzo 15 de 1966
+Marzo 15 de 1966
 
 SECRET
 

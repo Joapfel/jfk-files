@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10291.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of Logistics
+SUBJECT: Sensitive Activities Performed by the Office of Logistics
 
 6. In connection with the responsibility held by this Office to obtain, manage, and dispose of safe sites for all Agency operating components, the following information is relevant.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5496.png
-
-Convert to Markdown4. Gerard Philloyais, Minister of Health. In early May 1967, he was in New York City to seek treatment of alogic brain tumor condition. A very sick man, he no longer has political aspirations.
+4. Gerard Philloyais, Minister of Health. In early May 1967, he was in New York City to seek treatment of alogic brain tumor condition. A very sick man, he no longer has political aspirations.
 
 5. General Victor Constant, chief of staff. To be eliminated.
 

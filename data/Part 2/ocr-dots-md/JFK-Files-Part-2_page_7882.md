@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7882.png
-
-Convert to MarkdownMAY 1967 EDITION
+MAY 1967 EDITION
 GSA GEN. REG. NO. 27
 
 UNITED STATES G ERNMENT

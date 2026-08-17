@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35514.png
-
-Convert to MarkdownC O P Y
+C O P Y
 
 CYC10: 65-2-2
 

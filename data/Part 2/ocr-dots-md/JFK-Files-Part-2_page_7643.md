@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7643.png
-
-Convert to MarkdownMr. STERN. I think he might be able to highlight the answer. We have the exact answer on the record, and I thought it might—
+Mr. STERN. I think he might be able to highlight the answer. We have the exact answer on the record, and I thought it might—
 
 The CHAIRMAN. Well, highlight it, if there is anything in addition I would think that would be relevant and pertinent. But to ask him to paraphrase that which he has done with great meticulousness would seem to me to be abortive and would take a lot of our time, and I don't see what it would prove. If you have anything in addition that you want to ask him, if you want to ask him if there is anything in addition he has not put in there, that is all right. But to just ask him to paraphrase answers that have been done with great care would seem to me to be confusing the record, and serve no purpose.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6.png
-
-Convert to MarkdownCline, presumably reflecting the Director's wishes, said that the
+Cline, presumably reflecting the Director's wishes, said that the
 <u>Checklist</u> that day should cover military activity in South Vietnam,
 the fighting in Laos, <u><u>Soviet ICBM developments,</u></u> and problems in the Berlin
 air corridors and <u><u>Venezuela.</u></u>

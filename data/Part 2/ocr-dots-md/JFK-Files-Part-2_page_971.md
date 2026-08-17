@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_971.png
-
-Convert to Markdown14-0000
+14-0000
 
 Instructor: Fox, Jerome
 Course Title: Business Administration

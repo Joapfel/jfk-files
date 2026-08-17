@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7184.png
-
-Convert to MarkdownReportes de las Actividades en el Club, correspondiente a Abril de 1956
+Reportes de las Actividades en el Club, correspondiente a Abril de 1956
 
 Las actividades en el Club durante el mes do Abril, fueron normales on
 general, sin embargo observó que con mucha frecuencia estuvieron llegando al

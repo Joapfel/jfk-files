@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32644.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ANNEX C - CHILE
 

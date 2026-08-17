@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15625.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM
 1 DEC '96

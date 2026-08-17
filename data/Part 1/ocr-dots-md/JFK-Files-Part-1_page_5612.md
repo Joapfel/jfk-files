@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5612.png
-
-Convert to Markdown<table><tr><td>NO:</td><td>R. BERG/pt</td></tr><tr><td>REF:</td><td>WH/7/HT<br/>1349-5585</td></tr><tr><td>C'D:</td><td>13 MAY 69</td></tr></table>
+<table><tr><td>NO:</td><td>R. BERG/pt</td></tr><tr><td>REF:</td><td>WH/7/HT<br/>1349-5585</td></tr><tr><td>C'D:</td><td>13 MAY 69</td></tr></table>
 
 <table><tbody><tr><td colspan="2">MAY 10 COPY TOTAL COPY</td></tr><tr><td colspan="2"><b>SECRET</b></td></tr></tbody></table>
 

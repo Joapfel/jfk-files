@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23683.png
-
-Convert to MarkdownMr. diGenova. May I ask in this regard, it ends up by saying, although according to CIA officials such activity has not taken place -- what's the other evidence that it has which created the sentence?
+Mr. diGenova. May I ask in this regard, it ends up by saying, although according to CIA officials such activity has not taken place -- what's the other evidence that it has which created the sentence?
 
 Mr. Aaron. In looking at what the foreign resources division does in the way of penetration of businesses as opposed to collecting agents on campuses or in some other walk of life, we found that the FRD actually runs agents in only a few cases.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12712.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>TIME</th></tr></thead><tbody><tr><td>06/27/74</td><td>19:30</td></tr><tr><td>06/28/74</td><td>19:30</td></tr><tr><td>06/29/74</td><td>19:30</td></tr><tr><td>06/30/74</td><td>19:30</td></tr></tbody></table>
 

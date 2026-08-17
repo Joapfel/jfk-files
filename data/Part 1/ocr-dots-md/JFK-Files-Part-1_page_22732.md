@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22732.png
-
-Convert to MarkdownVIEW ABOVE DO NOT PLAN HAVE L/5 SEE L/I.
+VIEW ABOVE DO NOT PLAN HAVE L/5 SEE L/I.
 
 SECRET
 

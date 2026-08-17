@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14016.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 First Mr. McCone said he wanted to refer most emphatically to the damage being done to CIA through adverse publicity appearing in the press, radio and TV in a campaign which, if not arrested, could well destroy the CIA. If the campaign continues, it will prevent CIA recruitment of good men, and will discourage present CIA personnel at all levels in the organiza- tion. Mr. McCone said that there is little he can do to dissuade the press from pursuing this line for ideological reasons or otherwise. There are those in the Defense Department who have opposed CIA ever since it was established, and there are Foreign Service Officers in the State Department who are highly critical of the CIA.
 

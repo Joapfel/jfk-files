@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8225.png
-
-Convert to MarkdownDear Mrs. King:
+Dear Mrs. King:
 
 While on this East European Church mini study tour, I visited a little town in East Germany, called Herrnbut.
 

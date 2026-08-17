@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33909.png
-
-Convert to Markdown31 March 1952
+31 March 1952
 
 MEMORANDUM NO. Deputy Director of Central Intelligence
 VIA Assistant Director for Policy Coordination

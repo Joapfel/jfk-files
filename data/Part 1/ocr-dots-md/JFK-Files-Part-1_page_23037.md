@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23037.png
-
-Convert to Markdown1. Vicky Andrial lives in Miramar, Havana, with Iliana ARANGO, the wife of Rino PUIG, imprisoned at La Cabana since 1961; subsource did not know the length of Puig's sentence but did know that he had refused to accept "rehabilitation". Andrial works at the Canadian Embassy in Havana. Arango also works at an embassy in Havana, but subsource did not know which. Both Andrial and Arango are anti-regime and teach the catechism to children at Reina Church, Havana City.
+1. Vicky Andrial lives in Miramar, Havana, with Iliana ARANGO, the wife of Rino PUIG, imprisoned at La Cabana since 1961; subsource did not know the length of Puig's sentence but did know that he had refused to accept "rehabilitation". Andrial works at the Canadian Embassy in Havana. Arango also works at an embassy in Havana, but subsource did not know which. Both Andrial and Arango are anti-regime and teach the catechism to children at Reina Church, Havana City.
 
 3. Further questions on members of MARTINEZ' wife's family, per References B and C, are being asked and answers will be forwarded when available.

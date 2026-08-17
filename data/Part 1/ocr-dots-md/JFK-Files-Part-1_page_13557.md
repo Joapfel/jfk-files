@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13557.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 montarse el equipaje pero que para eso necesita saber cuanto
 equipaje llevan.- Quintana que la va a decir la cantidad que

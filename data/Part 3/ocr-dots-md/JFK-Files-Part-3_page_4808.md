@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4808.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On April 1, 1968, both new 1968 Oldsmobiles, one black over grey, four-door, and the other black over red two-door, were observed parked at ROTHMAN's residence in Surfside, Florida.
 

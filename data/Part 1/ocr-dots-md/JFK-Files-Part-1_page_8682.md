@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8682.png
-
-Convert to Markdown4.11. VOZ:
+4.11. VOZ:
 
 4.11.01 Tiene tímido Bajo Promedio Alto
 

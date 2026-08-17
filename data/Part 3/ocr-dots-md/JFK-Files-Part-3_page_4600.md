@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4600.png
-
-Convert to MarkdownNK 105-9440.
+NK 105-9440.
 
 BRENNAN stated "RUBY" was worried about her parents knowing she
 was in Cuba, and she expressed concern about the large number of

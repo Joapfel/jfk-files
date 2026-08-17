@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_346.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTINUATION OF<br/>DISPATCH</td>
     <td>SEC. 32</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10746.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : Director, FBI
 FROM : SAC, Birmingham

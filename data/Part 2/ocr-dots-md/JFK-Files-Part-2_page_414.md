@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_414.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>INDEX: ☐ YES ☐ NO<br>CLASSIFY TO FILE NO.<br>X-REF TO FILE NO.<br>FILE RID ☐ RET. TO BRANCH ☐<br>DESTROY ☐ SIG.</td><td>D<br>J<br>S<br>C<br>I<br>R<br>E<br>P<br>O<br>S<br>I<br>V<br>I<br>T<br>A<br>N<br>G<br>E<br>S<br>I<br>O<br>F<br>B<br>L<br>A<br>I<br>N<br>O<br>T<br>H<br>O<br>O<br>M</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>INDEX: ☐ YES ☐ NO<br>CLASSIFY TO FILE NO.<br>X-REF TO FILE NO.<br>FILE RID ☐ RET. TO BRANCH ☐<br>DESTROY ☐ SIG.</td><td>D<br>J<br>S<br>C<br>I<br>R<br>E<br>P<br>O<br>S<br>I<br>V<br>I<br>T<br>A<br>N<br>G<br>E<br>S<br>I<br>O<br>F<br>B<br>L<br>A<br>I<br>N<br>O<br>T<br>H<br>O<br>O<br>M</td></tr></tbody></table>
 
 260crss :25352
 

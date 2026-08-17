@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24049.png
-
-Convert to Markdown14-0000
+14-0000
 
 A. admitted to the section for infectious diseases.
 7. August, 1968.

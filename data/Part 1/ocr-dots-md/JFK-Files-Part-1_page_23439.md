@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23439.png
-
-Convert to MarkdownSECRET KAPOR
+SECRET KAPOR
 
 Separate Cover Enclosure to M24-V-1524
 

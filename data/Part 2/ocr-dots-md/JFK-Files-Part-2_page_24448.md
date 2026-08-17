@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24448.png
-
-Convert to Markdown(iv) Questions Raised by Edwards' Communications
+(iv) Questions Raised by Edwards' Communications
 to the Justice Department in 1961 and 1962.
 
 As fully described supra, pp. ____________, the FBI discovered in the late 1960's that Maheu had been involved in an illegal wiretap in Las Vegas. In April 1961, Maheu told the FBI that the tap had been placed in connection with a CIA operation, and suggested that the FBI contact Edwards to verify this fact.

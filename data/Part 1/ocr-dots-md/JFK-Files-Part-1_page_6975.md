@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6975.png
-
-Convert to MarkdownRETURN TO: LYNCH
+RETURN TO: LYNCH
 
 DATE: 9/18/68
 File # 100-21511

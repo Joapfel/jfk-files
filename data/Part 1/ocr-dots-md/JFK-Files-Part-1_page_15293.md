@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15293.png
-
-Convert to Markdown-III-
+-III-
 
 BRIEF OF ACTIVITIES (Continued)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31755.png
-
-Convert to Markdown# SECURITY INFORMATION
+# SECURITY INFORMATION
 
 ## CRUSADE FOR FREEDOM
 ### 1953 Budget

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34631.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. **COMMISSION.** You will be compensated by the CENTRAL, INTELLIGENCE AGENCY at the rate of Eighteen Thousand Five Hundred Dollars ($18,500.00) per year. Payment of this compensation shall be monthly in accordance with arrangements acceptable to the Authorized Government Representative. This sum is subject to Federal income tax, and to such income tax laws as are applicable to your place of residence. Additionally, this compensation is subject to FICA taxes. The current rates and method of payment will be in accordance with applicable laws and the security instructions issued by the Authorized Government Representative. Payment of all taxes and preparation of necessary tax returns are your personal obligation and responsibility but in accord with appropriate security instructions which will be furnished by the Authorized Government Representative.
 

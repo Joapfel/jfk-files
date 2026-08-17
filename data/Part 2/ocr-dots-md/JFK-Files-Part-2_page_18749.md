@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18749.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 If the Bureau so desires, this office believes that the subject of "The Nation" could be discreetly and tactfully brought up in the course of a conversation with JAFFE. This may then be discussed in a conversational vein serving the purpose of exploring JAFFE's present knowledge of the staff of "The Nation". This subject will not be brought up with JAFFE in the absence of Bureau permission.
 

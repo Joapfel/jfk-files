@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_317.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 SOCIALIST WORKERS PARTY
 

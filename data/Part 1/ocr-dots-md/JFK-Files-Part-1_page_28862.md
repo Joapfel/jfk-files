@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28862.png
-
-Convert to Markdown13 JAN
+13 JAN
 1976
 
 CI 055-76

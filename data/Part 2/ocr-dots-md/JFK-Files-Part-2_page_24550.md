@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24550.png
-
-Convert to MarkdownThus, Harvey relied upon his superiors within the Agency for authority.
+Thus, Harvey relied upon his superiors within the Agency for authority.
 
 Indeed, Harvey indicated that his perception of the authorization for the
 1962 assassination activity may have come from the period when Allen Dulles

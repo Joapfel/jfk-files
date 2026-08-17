@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3378.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DECRIPPING of Russell H. SAMBORA in Washington, D.C., 16 June 1964
 SUBJECT: Loose Talk on Telephone

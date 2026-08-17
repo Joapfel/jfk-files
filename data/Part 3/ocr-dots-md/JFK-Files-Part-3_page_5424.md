@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5424.png
-
-Convert to MarkdownQUESTION: Why can't you tell us the number?
+QUESTION: Why can't you tell us the number?
 
 ANSWER: Because we're going to make reports to our Congres- sional groups and to the Department of Justice and, frankly, I can't tell you the number myself. We don't have any....
 

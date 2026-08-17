@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27259.png
-
-Convert to Markdown1. Colby letter to Rockefeller dated 19 Mar 1975. SECRET
+1. Colby letter to Rockefeller dated 19 Mar 1975. SECRET
 
 2. Briefing Paper on CIA Proprietaries - March 1975 SECRET
 

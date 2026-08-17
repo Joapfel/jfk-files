@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21136.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TRADING EVALUATION
 Counterintelligence Course No. 20

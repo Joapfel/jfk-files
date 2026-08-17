@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25762.png
-
-Convert to MarkdownJuly 29, 1963
+July 29, 1963
 
 New Orleans is gratefully
 do that you may have

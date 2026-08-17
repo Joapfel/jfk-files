@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11079.png
-
-Convert to MarkdownThese files are an integral part of the intelligence-gathering function. By the very nature of the FBI's assignment to coordinate internal security information, the maintenance of data over a period of time is required and it is necessary that a system for retrieving this information be used.
+These files are an integral part of the intelligence-gathering function. By the very nature of the FBI's assignment to coordinate internal security information, the maintenance of data over a period of time is required and it is necessary that a system for retrieving this information be used.
 
 Because these files contain derogatory information that may not be substantiated, the information received may not be germane to a matter within the FBI's jurisdiction), the Attorneys General have long taken the position that these files should not be available for public scrutiny. Incalculable damage to individual reputations could result from the disclosure of single items of information without knowing the full background concerning the receipt of a particular item and the context within which it was recorded.
 

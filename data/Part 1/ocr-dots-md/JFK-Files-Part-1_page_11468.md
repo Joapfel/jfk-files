@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11468.png
-
-Convert to MarkdownSECRET
+SECRET
 
 042307Z OCT 68 CIIE MEXICO CITY 7486
 

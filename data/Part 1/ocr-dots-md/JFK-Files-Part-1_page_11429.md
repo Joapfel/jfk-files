@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11429.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="4">SECTION II</th></tr><tr><td colspan="4">CITIZENSHIP</td></tr></thead><tbody><tr><td>1. PRESENT CITIZENSHIP</td><td colspan="3">2. NATIONALITY AT BIRTH AND ANY SUBSEQUENT CITIZENSHIPS (If different than Item 1.)</td></tr><tr><td colspan="4">3. PRESENT RESIDENCE (Indicate as owner, tenant or sub-tenant)</td></tr><tr><td colspan="4">4. PERMANENT ADDRESS (If different than Item 3.)</td></tr><tr><td colspan="4">5. IF U.S. NATURALIZED CITIZEN, GIVE NAME, DATE, CITY AND NUMBER OF CERTIFICATE GRANTED</td></tr><tr><td colspan="4">6. TRAVEL OUTSIDE COUNTRY OF PRESENT RESIDENCE (Countries, dates and purposes)</td></tr></tbody></table>
 

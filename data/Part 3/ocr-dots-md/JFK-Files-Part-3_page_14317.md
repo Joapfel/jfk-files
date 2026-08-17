@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14317.png
-
-Convert to Markdown# Meeting of June 25-26, 1963
+# Meeting of June 25-26, 1963
 
 A large part of this meeting was taken up with reports by various Board Panel Chairmen concerning the status and adequacy of the implementation of recommendations which the Board had made to date. As Chairman of the Panel on CIA, General Doolittle reported on those Board recommendations concerning CIA which were being acted upon; and Board Chairman Clifford asked that at the next Board meeting General Doolittle identify areas in which CIA was not carrying out Presidentially-approved recommendations of the Board (one of the CIA-related recommendations which was presumably to be included in General Doolittle's next report would be one in which the Board recommended deeper cover for CIA's covert action operations).
 

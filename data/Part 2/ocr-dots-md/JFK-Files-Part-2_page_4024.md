@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4024.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 NAGELL advised that he went to Washington, D. C., where he resided until recently. He stated while in Washington, D. C. he had been approached by an individual whom he felt was either a Special Agent of the FBI or a Soviet Espionage Agent. He said he met this person in a bar in Washington, D. C., located at 811 14th Street NW, Washington, D. C. He said this person talked of Domestic Intelligence and also talked of giving him an intelligence assignment. He said the more he thought this matter over he was positive that this individual works for the Soviets.
 

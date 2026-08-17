@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22985.png
-
-Convert to MarkdownI cannot remember a specific date, you know, some time at
+I cannot remember a specific date, you know, some time at
 which that was discussed, and you know I never received any
 instruction from Helms to mount an assassination operation.
 

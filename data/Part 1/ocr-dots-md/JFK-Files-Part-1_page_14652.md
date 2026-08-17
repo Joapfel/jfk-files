@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14652.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CROSS REFERENCE TO</th><th>DEPART SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td>X-Ref 201-735296</td><td>OSHW - 11629</td><td></td></tr><tr><th colspan="2">CLASSIFICATION</th><th>HOS FUE NUMBER</th></tr><tr><td>S E C R E T</td><td></td><td>19-6-114/2</td></tr></tbody></table>
 

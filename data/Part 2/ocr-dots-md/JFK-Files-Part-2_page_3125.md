@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3125.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Secretary Mann was that the sudden pullout of the training program in Guatemala might very well lead to the overthrow of President Ydigoras by the pro-communist elements which were already in evidence in opposition to the Ydigoras regime. It was indicated that should the troop training be moved from Guatemala to the United States, 300 Guatemalan troops would be trained as a special security force for the Guatemalan government. 101/
 

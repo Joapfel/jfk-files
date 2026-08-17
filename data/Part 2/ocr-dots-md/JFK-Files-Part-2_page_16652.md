@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16652.png
-
-Convert to MarkdownILLINOIS STATUTES DON'T PREEMPT GUN FIELD CONTROL FROM CITIES
+ILLINOIS STATUTES DON'T PREEMPT GUN FIELD CONTROL FROM CITIES
 
 Chicago ordinance curbing ordinance sustained against constitutional, statutory arguments by Illinois Supreme Court.
 

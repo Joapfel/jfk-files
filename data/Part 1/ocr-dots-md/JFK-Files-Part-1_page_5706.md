@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5706.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 COLIN: Cuba
 

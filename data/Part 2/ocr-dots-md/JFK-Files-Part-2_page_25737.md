@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25737.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">ROUNDING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>5</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23599.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM NO. 35-83
 NOV 1981

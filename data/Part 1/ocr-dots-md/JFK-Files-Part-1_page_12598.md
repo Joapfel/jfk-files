@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12598.png
-
-Convert to MarkdownHVCA 16123
+HVCA 16123
 31 Dec 68
 
 CIGUSTY NOV PROGRESS REPORT

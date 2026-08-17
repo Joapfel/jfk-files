@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24436.png
-
-Convert to Markdowntheir face that the plot involved assassination, although Bissell
+their face that the plot involved assassination, although Bissell
 and Edwards insist the real meaning must have been understood.
 
 There is some other evidence which can be said both to suggest

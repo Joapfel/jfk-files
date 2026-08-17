@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24884.png
-
-Convert to Markdown# 6. CIA Officials Made Use of Known Underworld Figures in Assassination Efforts
+# 6. CIA Officials Made Use of Known Underworld Figures in Assassination Efforts
 
 Officials of the CIA made use of persons associated with the criminal underworld in attempting to achieve the assassination of Fidel Castro. These underworld figures were relied upon because it was believed that they had expertise and contacts that were not available to law-abiding citizens.
 

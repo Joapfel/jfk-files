@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29309.png
-
-Convert to MarkdownINVESTIGATION INTERVIEW SCHEDULE
+INVESTIGATION INTERVIEW SCHEDULE
 
 1. Identifying Information:
 

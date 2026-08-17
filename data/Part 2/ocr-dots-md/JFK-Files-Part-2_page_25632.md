@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25632.png
-
-Convert to MarkdownB71 Angeloni used for duty code-完整性 by Maken
+B71 Angeloni used for duty code-完整性 by Maken
 Maken fill "Gaps"
 
 Vol. 1 Nov 63-Dec. 73 - CCS 12419

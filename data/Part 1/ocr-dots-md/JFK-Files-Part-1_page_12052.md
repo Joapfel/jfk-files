@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12052.png
-
-Convert to Markdown24 May 1973
+24 May 1973
 
 ATTN:
 

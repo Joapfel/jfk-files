@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30420.png
-
-Convert to MarkdownOswald issue is untrue, cannot be believed, would that have any impact on the Agency's assessment of him as a bona fied?
+Oswald issue is untrue, cannot be believed, would that have any impact on the Agency's assessment of him as a bona fied?
 
 Mr. Tovar. The first reaction would be I would be deeply distressed and concerned, I would want to know more about it. You have to extrapolate from me to the Agency. Other people have views on this other than myself. If you carried this thing further and convinced everybody, the point you made is valid, then you would have --
 Mr. Goldsmith. We are talking hypothetically now. Let us go beyond you. If it were demonstrated to the Director of the Central Intelligence Agency that the story given by Nosenko on Oswald -- I am not talking about any of the other information he gave, but on Oswald -- simply cannot be believed because, A, part of it is incredible, B, it is full of contradictions, what effect do you think that would have on the Agency's assessment of him as a bona fide defector?

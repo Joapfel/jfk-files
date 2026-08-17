@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_925.png
-
-Convert to MarkdownIssue #6: Assuming the FBI remains a part of the Justice Department, what should be the relationship of the Director to the Attorney General? All the organizational and substantive relationships should be examined.
+Issue #6: Assuming the FBI remains a part of the Justice Department, what should be the relationship of the Director to the Attorney General? All the organizational and substantive relationships should be examined.
 
 1. The problem: By Congressional enactment, the Attorney General has been designated the head of the Department of Justice and has been charged with the responsibility of supervising and directing the administration and operation of that Department. Further, the Federal Bureau of Investigation has been placed in the Department of Justice with the Director of the FBI as its head. The FBI, through Congressional enactment, Executive Order, and Directive of the Attorney General, has been charged with the responsibility of performing certain duties subject to the general supervision and direction of the Attorney General. The Director of the FBI, a Bureau chief within the Department, having been granted enormous responsibility, must attain a proper balance between independence and responsiveness in order to properly discharge this responsibility.
 

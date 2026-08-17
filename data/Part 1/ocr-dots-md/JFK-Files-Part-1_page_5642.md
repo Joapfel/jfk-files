@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5642.png
-
-Convert to MarkdownUS manufacturers are setting up subsidiary companies in Haiti or are forming partnerships with Haitian enterprises to produce such items as underwear, baseballs, footwear and other export items. They use Haitian facilities and materials imported from the US.
+US manufacturers are setting up subsidiary companies in Haiti or are forming partnerships with Haitian enterprises to produce such items as underwear, baseballs, footwear and other export items. They use Haitian facilities and materials imported from the US.
 
 1. What specific companies are involved in producing those goods, and are they completely owned by Haitians (i.e.,) or are they in partnership with US companies?
 

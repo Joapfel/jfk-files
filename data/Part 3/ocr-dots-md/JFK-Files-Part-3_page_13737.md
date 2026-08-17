@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13737.png
-
-Convert to Markdown11110227
+11110227
 
 SECRET
 6/8/68 Telex 27362 London 5061

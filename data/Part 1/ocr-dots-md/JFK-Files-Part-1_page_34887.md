@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34887.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>MICRO FILMED</td></tr><tr><td>FEB 20 1968</td></tr><tr><td>DOC MICRO SER.</td></tr></table>
 

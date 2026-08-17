@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_640.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM</td></tr></table>
+<table><tr><td>MESSAGE FORM</td></tr></table>
 
 | | |
 | :--- | :--- |

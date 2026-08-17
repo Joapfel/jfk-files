@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32235.png
-
-Convert to MarkdownSoviet actions that threaten the peace or security of the hemisphere. This does not preclude appropriate U.S. retaliation for isolated hostile acts by the Castro/ Communist or Soviet forces.
+Soviet actions that threaten the peace or security of the hemisphere. This does not preclude appropriate U.S. retaliation for isolated hostile acts by the Castro/ Communist or Soviet forces.
 
 6. To the extent feasible, U.S. military forces employed against Cuba should be accompanied by U.S. militarily-trained free Cubans and by the armed forces of those Latin American nations desirous of participating in the U.S. effort.
 

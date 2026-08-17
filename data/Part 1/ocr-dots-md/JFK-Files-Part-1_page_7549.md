@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7549.png
-
-Convert to MarkdownHAROLD ROBERT ISAACS, continued
+HAROLD ROBERT ISAACS, continued
 
 THE HAVAS News Agency. Shortly after this, in Shanghai, he married VIOLA ROBINSON, who was, like HAROLD, a wide-eyed intellectual. This marriage probably took place in 1932. VIOLA was a great friend of AGNES SMEDLEY, the author of the *Battle Hymn of China* and of other books dealing with the Chinese Revolution.
 

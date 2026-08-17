@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9073.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Directive, the Bureau was obligated to coordinate with CIA prior to such dissemination. The particular data had emanated from one of our sensitive sources. We responded to CIA by stating that the information was the product of an internal security operation and did not relate to any operational activity abroad. CIA again surrendered. The Agency could argue that it was responsible for following Soviet matters with the Greek Intelligence Service and that we had an obligation of coordinating with the Agency. (Memorandum Branigan to Sullivan, November 9, 1962, re:)
 

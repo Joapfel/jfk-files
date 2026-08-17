@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34021.png
-
-Convert to MarkdownROYAL GREEK EMBASSY
+ROYAL GREEK EMBASSY
 WASHINGTON.D.C.
 
 April 17, 1967

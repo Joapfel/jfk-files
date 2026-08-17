@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22395.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Cuban propaganda?
 

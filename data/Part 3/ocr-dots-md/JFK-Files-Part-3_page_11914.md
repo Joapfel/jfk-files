@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11914.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 NEW LEFT SECTION
 
 4-E

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27382.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Memo from Knoche to Baker - 6 May 75 SECRET
 

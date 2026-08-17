@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3151.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 they are located, the use of U.S. contract personnel will correspondingly be cut down. Staff personnel will assist in the training of all crews but will not be used in operations. 131/
 

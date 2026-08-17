@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14197.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 165. 10/21/62 - This was the arrival date in Cuba of a TU 114 CLEAT transport. The unusual circumstance of KRUG flight tracking, normally reserved for especially important flights, suggests that high ranking Soviet command personnel may be among the 140 passengers aboard. (Source: Joint Evaluation Report, 10/20/62)
 

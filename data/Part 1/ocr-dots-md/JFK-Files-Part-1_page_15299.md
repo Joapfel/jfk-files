@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15299.png
-
-Convert to Markdown# I. DEBRIEFING
+# I. DEBRIEFING
 
 ## of
 TZITZICHVILI, David.

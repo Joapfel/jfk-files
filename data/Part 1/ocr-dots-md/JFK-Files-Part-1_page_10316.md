@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10316.png
-
-Convert to Markdownengine place and that the Minister of Invention was present at the airport when they disembarked. L/B told Rowton that he felt certain that he had been remained in the control of the army he would have been executed without trial or publicity of any kind.
+engine place and that the Minister of Invention was present at the airport when they disembarked. L/B told Rowton that he felt certain that he had been remained in the control of the army he would have been executed without trial or publicity of any kind.
 
 8. LIRING/3 added that when he arrived he found LIRING/4 in a state of virtual exhaustion from nervous tension and worry. He stated that L/4 had become understandably bitter at the attitude of the police and felt abandoned by everyone, including Rowton, during the last weeks of L/2's imprisonment. L/3 added that, as Rowton suspected, L/4 was not anxious for him to resume any kind of political activity and would try her best to dissuade him from resuming collaboration with Rowton, if it meant reinvolvement with FAR and the LIRING office. In reply to Rowton's query, L/3 stated that L/4 had managed financially since Rowton's departure by selling a few of his paintings one of which was purchased by a "northern American woman" at an excellent price and then donated to Bellas Artes (after the purchaser learned of L/3's flight).
 

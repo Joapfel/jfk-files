@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_165.png
-
-Convert to MarkdownDraft of Dispatch
+Draft of Dispatch
 
 1. LICOOKY-1 has been terminated effective 1 July 1966.
 The last meeting with her was held on 23 June. She was

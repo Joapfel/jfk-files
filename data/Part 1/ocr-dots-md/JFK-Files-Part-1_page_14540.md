@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14540.png
-
-Convert to MarkdownLater, reforming to the same subject Pope says "the last now people (that have arrived?) are alcoholics ? ? but if you only know, things are better at least with regard to us, peace and charity".
+Later, reforming to the same subject Pope says "the last now people (that have arrived?) are alcoholics ? ? but if you only know, things are better at least with regard to us, peace and charity".
 
 10 February 1970
 

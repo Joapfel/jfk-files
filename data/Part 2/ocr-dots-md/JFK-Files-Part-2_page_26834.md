@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26834.png
-
-Convert to MarkdownSECRET
+SECRET
 
 You know, we have a traveler program where when Cubans travel,
 whether they are on an island or perhaps other places, their

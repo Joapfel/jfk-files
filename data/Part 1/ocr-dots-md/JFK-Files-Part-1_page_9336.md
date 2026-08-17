@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9336.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Mr. Lindsey, CER
 THROUGH: Mr. Schrayer, EE III

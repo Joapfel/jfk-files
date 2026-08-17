@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32100.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="2">Standard Form No. 2809<br/>U.S. Civil Service Commission PPM Supplement (RVO-1)<br/>November 1965</td>

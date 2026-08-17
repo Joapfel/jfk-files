@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9416.png
-
-Convert to MarkdownNational Press Service
+National Press Service
 Washington
 
 JEB

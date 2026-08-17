@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1969.png
-
-Convert to MarkdownDE ARMAS made to TOMLEY in which DE ARMAS wanted to know once and forever if there were any openings for him. DE ARMAS' security file reflected no subsequent activity except for the attached cable traffic following his "defection."
+DE ARMAS made to TOMLEY in which DE ARMAS wanted to know once and forever if there were any openings for him. DE ARMAS' security file reflected no subsequent activity except for the attached cable traffic following his "defection."
 
 4. Regarding the personalities mentioned by DE ARMAS in his Havana press conference, it appears that several individuals may be identical to former WH Division assets, as shown below. It should be noted that DE ARMAS did not identify any bona fide Agency staff employees or agents nor does it appear that he identified any past or current operations. It seems likely that DE ARMAS was provided a list of known or suspected Agency assets by the DGI as part of Cuba's ongoing anti-CIA, anti-U. S. Government campaign designed to offset adverse criticism to Cuba's military assistance to Angola. Set forth below are those individuals alleged to have been connected with Agency operations by DE ARMAS; results of Office of Security indices searches and file reviews follow each name where a possible identification could be made.
 

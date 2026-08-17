@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25956.png
-
-Convert to MarkdownCh. 73
+Ch. 73
 
 OBSTRUCTION OF JUSTICE
 

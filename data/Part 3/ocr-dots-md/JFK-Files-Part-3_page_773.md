@@ -1,3 +1,1 @@
-# JFK-Files-Part-3_page_773.png
-
-Convert to Markdown(4) Those materials to which the staff has access may be reviewed and studied in Room 4171 of the Hoover Building and such notes may be taken as deemed appropriate by the Staff.
+(4) Those materials to which the staff has access may be reviewed and studied in Room 4171 of the Hoover Building and such notes may be taken as deemed appropriate by the Staff.

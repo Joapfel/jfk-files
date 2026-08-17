@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30736.png
-
-Convert to Markdown27 March 1975
+27 March 1975
 
 SUMMARY OF AGENCY EMPLOYMENT
 

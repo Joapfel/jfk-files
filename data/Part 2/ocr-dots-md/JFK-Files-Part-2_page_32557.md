@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32557.png
-
-Convert to MarkdownSECRET
+SECRET
 
 steady campaign against Cuban activities, and the Costa Rican
 Security Service, at the urging of the CIA station, has destroyed

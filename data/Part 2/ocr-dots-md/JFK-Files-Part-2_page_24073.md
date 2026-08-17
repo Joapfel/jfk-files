@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24073.png
-
-Convert to Markdown4. The Failure In Communication Between Agency Officials
+4. The Failure In Communication Between Agency Officials
 In Charge Of The Assassination Operations And Their Superiors
 In The Agency And In The Administration Was Due To:
 

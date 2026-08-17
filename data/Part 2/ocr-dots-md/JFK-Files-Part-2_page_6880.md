@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6880.png
-
-Convert to Markdownprotects too many documents by classifying them as SECRET and TOP SECRET."¹
+protects too many documents by classifying them as SECRET and TOP SECRET."¹
 
 In other words, concern about excessive government secrecy is not simply the province of "special interest" groups; it is shared throughout the general public. Reducing government secrecy truly is a matter of "public interest."
 

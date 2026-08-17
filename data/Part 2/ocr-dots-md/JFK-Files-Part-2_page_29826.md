@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29826.png
-
-Convert to MarkdownM - how about a guy named Bob White? does that ring a bell
+M - how about a guy named Bob White? does that ring a bell
 
 D - no
 

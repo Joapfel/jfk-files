@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19786.png
-
-Convert to MarkdownATTACHMENT HERewith TO FCOF-6937
+ATTACHMENT HERewith TO FCOF-6937
 
 dtd 22 May 1963
 

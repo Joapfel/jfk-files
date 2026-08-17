@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11988.png
-
-Convert to Markdownhave appointments and those people don't have any idea where we are. Why can't you let us make at least one phone call?"
+have appointments and those people don't have any idea where we are. Why can't you let us make at least one phone call?"
 
 Morales has shed his melancholy and slipped into a new persona. He is eager, "You're right," he says, "I'll call them. Anybody you want, Tell me who your appointments are with." He pulls out a pen in a flash. Branch blinks. He is startled by how fast Morales moves and how fiercely he snaps the point down.
 

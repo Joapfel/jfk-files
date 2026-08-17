@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24444.png
-
-Convert to Markdownwords''' would have made it less likely that an "intelligence
+words''' would have made it less likely that an "intelligence
 operation" would have been understood as an assassination
 attempt, and that "it was open to question how clearly this
 was stated to Mr. Dulles and whether or not Mr. Dulles under-

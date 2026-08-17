@@ -1,3 +1,1 @@
-# JFK-Files-Part-3_page_7090.png
-
-Convert to MarkdownThe following Staff officials of the Senate Select Committee as identified below by date and place of birth and social security number have received a security investigation by the Federal Bureau of Investigation within the past five years and are hereby certified as meeting the requirements of Executive Order 10450 for access to classified information up to and including Top Secret.
+The following Staff officials of the Senate Select Committee as identified below by date and place of birth and social security number have received a security investigation by the Federal Bureau of Investigation within the past five years and are hereby certified as meeting the requirements of Executive Order 10450 for access to classified information up to and including Top Secret.

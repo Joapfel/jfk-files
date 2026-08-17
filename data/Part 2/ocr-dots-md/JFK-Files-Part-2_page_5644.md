@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5644.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. SAW SUBJ IN HIS APT NOV 14. CORDIAL
 

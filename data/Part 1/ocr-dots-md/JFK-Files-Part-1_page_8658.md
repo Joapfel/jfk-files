@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8658.png
-
-Convert to Markdown# List of Soviets in Mexico passed out to all Case Officers on 27 Aug 69
+# List of Soviets in Mexico passed out to all Case Officers on 27 Aug 69
 
 **LOGINOV, Valentin Sergeyevich**
 Official Function: Third Secretary (Consul)

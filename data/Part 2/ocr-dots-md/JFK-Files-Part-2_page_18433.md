@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18433.png
-
-Convert to MarkdownMemorandum to Mr. J. B. Adams
+Memorandum to Mr. J. B. Adams
 Re: Authority of FBI and Department of Justice
 to Retain Private Counsel to Represent Employees
 

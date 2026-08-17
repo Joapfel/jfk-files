@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34367.png
-
-Convert to Markdown9 OCT 1968
+9 OCT 1968
 
 REMOVAL SLIP
 DOC. SYMBOL & NUMBER: UFGA-21552

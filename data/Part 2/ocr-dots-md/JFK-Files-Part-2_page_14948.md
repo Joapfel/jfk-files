@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14948.png
-
-Convert to MarkdownMemorandum to Mr. Cale
+Memorandum to Mr. Cale
 Re: Harold Frank Reis
 
 pointed out that Mr. Reis had wanted to know the basis on which wire tap continuation requests were sent to the Department every six months. It was pointed out that the procedure was based on the suggestion of former Attorney General Katzenbach and that former Attorney General Katzenbach had approved all of the continuation requests with the exception of one that was used in coverage of Martin Luther King which had been approved by former Attorney General Kennedy. Katzenbach declined to authorize the continuation of the wire tap on King. It was pointed out that previously highly sensitive matters of this kind were supposedly known in the Department only by the Attorney General; however, additional information concerning these matters was being requested by personnel in the Acting Attorney General's Office.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6634.png
-
-Convert to Markdown27 FEB 1963
+27 FEB 1963
 
 AFCrazjkowski/acr
 

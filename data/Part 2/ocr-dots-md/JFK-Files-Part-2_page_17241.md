@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_17241.png
-
 to the National BPP Chairman, Bobby Seale.
 
 Roosevelt Hilliard resides at 1608 Chestnut Street, Oakland, California, and is described as follows:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6630.png
-
-Convert to MarkdownChief, Staff C, IM
+Chief, Staff C, IM
 
 Attn: Miss Jane Hinslow
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16492.png
-
-Convert to MarkdownESSAYS FROM
+ESSAYS FROM
 THE MINISTER OF DEFENSE.
 HUEY NEWTON.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19732.png
-
-Convert to MarkdownWFO 100-54927
+WFO 100-54927
 
 PAGE TWO
 

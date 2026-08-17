@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32152.png
-
-Convert to MarkdownEXHIBIT COVER SHEET
+EXHIBIT COVER SHEET
 
 Subject: GRIGGS, Kenneth C.
 PFC, RA 19 772 378

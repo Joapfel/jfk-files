@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32723.png
-
-Convert to Markdownnuclear test ban. But we should also work hard to see if wider
+nuclear test ban. But we should also work hard to see if wider
 measures of disarmament can be agreed and put into operation at an
 early date. The United States Government will be prepared to discuss
 these questions urgently, and in a constructive spirit, at Geneva

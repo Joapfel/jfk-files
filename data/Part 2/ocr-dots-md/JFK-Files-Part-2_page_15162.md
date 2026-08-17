@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15162.png
-
-Convert to Markdown# MURDERS OF THREE CIVIL RIGHTS WORKERS
+# MURDERS OF THREE CIVIL RIGHTS WORKERS
 
 Civil Rights workers Michael Henry Schwerner and Andrew Goodman, both white, together with James Earl Chaney, Negro, were murdered near Philadelphia, Mississippi, on June 21-22, 1964.
 

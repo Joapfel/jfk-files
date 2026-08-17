@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12045.png
-
-Convert to MarkdownRegarding specific comments in paragraph c.,
+Regarding specific comments in paragraph c.,
 as pointed out, the primary designation of an individual
 as a PSI or SI is his ability to furnish information of
 intelligence interest, which may or may not depend upon

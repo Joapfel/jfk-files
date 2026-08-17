@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24396.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ## 1. The Assassination Plots Themselves
 

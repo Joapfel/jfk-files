@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13785.png
-
-Convert to MarkdownA Havana radiobroadcast 10 January quoted the Central Committee of the Venezuelan Communist Party as calling President Betancourt's government the "principal enemy of the Venezuelan people today."
+A Havana radiobroadcast 10 January quoted the Central Committee of the Venezuelan Communist Party as calling President Betancourt's government the "principal enemy of the Venezuelan people today."
 
 It called on the people and Communist Party of Venezuela to "master and use all forms of combat needed to achieve liberation and national sovereignty."
 

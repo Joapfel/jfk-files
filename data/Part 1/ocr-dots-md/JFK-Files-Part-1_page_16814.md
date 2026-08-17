@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16814.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 8 SEP 62</td><td>SECRET lto</td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : DJAKARTA</td></tr><tr><td colspan="2">ACTION: FE 8</td></tr><tr><td colspan="2">INFO : FI, FI/INT 2, WH 7, S/C 2</td></tr><tr><td colspan="2"><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>G</td></tr></tbody></table></td></tr><tr><td colspan="2">SEP 8 0649Z 62</td></tr><tr><td colspan="2">ROUTINE</td></tr><tr><td colspan="2">IN 18892</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 8 SEP 62</td><td>SECRET lto</td></tr><tr><td colspan="2">TO : DIRECTOR</td></tr><tr><td colspan="2">FROM : DJAKARTA</td></tr><tr><td colspan="2">ACTION: FE 8</td></tr><tr><td colspan="2">INFO : FI, FI/INT 2, WH 7, S/C 2</td></tr><tr><td colspan="2"><table><thead><tr><th colspan="2">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>G</td></tr></tbody></table></td></tr><tr><td colspan="2">SEP 8 0649Z 62</td></tr><tr><td colspan="2">ROUTINE</td></tr><tr><td colspan="2">IN 18892</td></tr></table>
 
 DIR CITE DJAK 8837
 

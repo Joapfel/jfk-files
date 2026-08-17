@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31768.png
-
-Convert to Markdown# CRUSADE FOR FREEDOM
+# CRUSADE FOR FREEDOM
 ## 1950 CAMPAIGN
 
 1. The Crusade was launched by General Dwight D. Eisenhower on a nation wide broadcast.

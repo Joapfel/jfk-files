@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23486.png
-
-Convert to MarkdownMEMO FOR THE FILE:
+MEMO FOR THE FILE:
 
 SUBJECT: Commercial Photography (VACADA)
 

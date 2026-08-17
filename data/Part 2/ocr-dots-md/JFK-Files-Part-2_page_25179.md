@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25179.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>KENNEDY, John F.</td><td>DIEM</td><td rowspan="5" style="vertical-align: top;">6 Sept. 1963</td><td rowspan="5" style="vertical-align: top;">DIEM</td></tr><tr><td>RIGGS</td><td>NHU</td></tr><tr><td>COLBY</td><td>BUNDY</td></tr><tr><td>USK</td><td>MADAME NHU</td></tr><tr><td>OGE</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>KENNEDY, John F.</td><td>DIEM</td><td rowspan="5" style="vertical-align: top;">6 Sept. 1963</td><td rowspan="5" style="vertical-align: top;">DIEM</td></tr><tr><td>RIGGS</td><td>NHU</td></tr><tr><td>COLBY</td><td>BUNDY</td></tr><tr><td>USK</td><td>MADAME NHU</td></tr><tr><td>OGE</td><td></td></tr></tbody></table>
 
 **OCCURRENCE:**
 

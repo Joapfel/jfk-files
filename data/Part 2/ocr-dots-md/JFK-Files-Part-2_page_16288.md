@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16288.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Merrill Harvey, Captain Defence, West
 Suburban Branch, Illinois BPP.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1980.png
-
-Convert to MarkdownSTANDARD FORM No. 04
+STANDARD FORM No. 04
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14119.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 response to this report was devastatingly empty and inadequate. Dr. Baker saw no excuse for the fact that the DIA had been afforded only two days notice to comment on the Board's report prior to the submission of views by the DCI. (Dr. Langer thought it incredible that the DCI had given DIA only two days to comment on the Board's December 28 interim report.) It was Dr. Baker's thought that such a procedure was contrary to the general agreement which had been previously reached with Mr. Bundy (in a discussion between Messrs. Bundy, Baker and Coyne) that White House action memoranda flowing from Board recommendations would go directly to the agencies primarily concerned. With regard to the latter point, Mr. Coyne observed that Mr. Bundy had in this instance acquiesced with the DCI's request that the DCI obtain and report the coordinated views of the various U. S. intelligence agencies concerned with the matters covered in the Board's report.
 

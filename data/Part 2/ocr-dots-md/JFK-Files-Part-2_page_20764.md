@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20764.png
-
-Convert to Markdown# INFORMANTS
+# INFORMANTS
 
 **Identity of Source**
 

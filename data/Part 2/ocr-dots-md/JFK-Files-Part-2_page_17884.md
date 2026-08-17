@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17884.png
-
-Convert to MarkdownNRO03 CODE JN
+NRO03 CODE JN
 
 4:07PM NITEL MARCH 26, 1975 JWD
 

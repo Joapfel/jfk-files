@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25844.png
-
-Convert to Markdown## 7. Oswald, New Orleans, Garrison Case
+## 7. Oswald, New Orleans, Garrison Case
 
 Rocca said that the CI/R and A stayed on top of the Garrison case and "summarized overt developments." Rocca identified the analyst for the Garrison material as Donald Pratt. Rocca said that by NSA intercepts and associated relationships, the CIA believed Garrison was operating (unwittingly) under KGB manipulation. (Rocca briefly described Soviet technique of misinformation. He recalled an interview that Drew Pearson had with Kruschev in Cairo in 1964 or 1965. Kruschev told Pearson that his "gut feeling" was that American right-wing extremists and capitalists were responsible for the President's assassination. Rocca said this typified KGB disinformation.)
 

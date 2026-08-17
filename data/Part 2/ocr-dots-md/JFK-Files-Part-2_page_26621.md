@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26621.png
-
-Convert to Markdowntheir new responsibilities. There
+their new responsibilities. There
 are, however, a few signs of dissen-
 sion within this group and between
 it and civilian politicians.

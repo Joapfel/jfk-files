@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28485.png
-
-Convert to MarkdownVIA: ____________ SPECIFY AIR OR SEA POUCH
+VIA: ____________ SPECIFY AIR OR SEA POUCH
 
 DISPATCH NO. 1628
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34593.png
-
-Convert to MarkdownSECRET FOR ONLY
+SECRET FOR ONLY
 
 3. Nosenko had been a KGB officer for approximately ten years at the time of his defection. Nosenko has provided a large quantity of counter-intelligence data and a limited amount of positive intelligence. For example, one of his reports played a part in the negation of a major hostile penetration in Great Britain. Where appropriate, his information has been shared with the FBI, other U.S. Government agencies and foreign liaison services. This has resulted in extensive and continuing investigative activity. In addition, Nosenko identified many hundreds of Soviet Intelligence Officers and provided a considerable quantity of useful information on the organization of the KGB, its operational doctrine and its techniques and methods.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4733.png
-
-Convert to MarkdownSECRET
+SECRET
 
 not lead you to my name, even though it says that you should find it there.
 It's not the only time I have had trouble with The New York Times index. So

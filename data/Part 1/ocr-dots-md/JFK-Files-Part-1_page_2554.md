@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2554.png
-
-Convert to MarkdownTo comment specifically on each of the (49) cases would require a very lengthy paper. Current interviews have developed pertinent additional information from NOSENKO in approximately (40) of the (49) cases. Of even more significance is the fact that NOSENKO has logically sourced his information in all except perhaps four cases.
+To comment specifically on each of the (49) cases would require a very lengthy paper. Current interviews have developed pertinent additional information from NOSENKO in approximately (40) of the (49) cases. Of even more significance is the fact that NOSENKO has logically sourced his information in all except perhaps four cases.
 
 The indicated inability of NOSENKO to completely source all (49) of the cases is not considered significant, particularly since his having knowledge of all the cases is quite compatible with his claimed positions in the KGB. In addition, criticism of NOSENKO for not being able to source all of his information would be unreasonable since it makes no allowance for normal lapses of memory or failure to recall something which was insignificant at the time it occurred.
 

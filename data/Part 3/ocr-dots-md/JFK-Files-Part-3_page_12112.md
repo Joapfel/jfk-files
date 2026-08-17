@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12112.png
-
-Convert to MarkdownSUGGESTION MEMORANDUM
+SUGGESTION MEMORANDUM
 DEFECTOR PROGRAM
 
 INSPECTOR EDWARD S. MILLER: The development of a Soviet intelligence officer as a defector-in-place who will advise us of hostile intelligence activities and plans is an urgent and paramount requirement of the Bureau.

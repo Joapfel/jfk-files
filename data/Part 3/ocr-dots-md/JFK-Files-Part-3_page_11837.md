@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11837.png
-
-Convert to Markdown# Nationalities Intelligence Section
+# Nationalities Intelligence Section
 
 ## Middle and South American Unit
 

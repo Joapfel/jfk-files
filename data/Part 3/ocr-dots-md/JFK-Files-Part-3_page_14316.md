@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14316.png
-
-Convert to MarkdownLater in this Board meeting, during discussions with the DCI, Mr. McCone was asked whether the terms of the U. S.-Cuba Prisoner Exchange Agreement were of a nature which would affect the conduct of present or future U. S. intelligence and covert operations with respect to Cuba. The DCI replied that Castro had not imposed any conditions which would preclude the U. S. from the conduct of such activities.
+Later in this Board meeting, during discussions with the DCI, Mr. McCone was asked whether the terms of the U. S.-Cuba Prisoner Exchange Agreement were of a nature which would affect the conduct of present or future U. S. intelligence and covert operations with respect to Cuba. The DCI replied that Castro had not imposed any conditions which would preclude the U. S. from the conduct of such activities.
 
 The Board was briefed by Mr. Desmond Fitzgerald of CIA. Mr. Fitzgerald said that the intelligence teams that CIA was sending into Cuba were primarily confined to intelligence-gathering missions rather than covert action, although the teams would have missions involving "low key resistance and subtle sabotage". The CIA representative stated that monthly plans of the CIA for infiltrating these teams into Cuba were approved by the Special NSC 5412/2 Group. Mr. Fitzgerald added that CIA was not receiving policy guidance with respect to positive covert action programs of a specific sabotage nature, and he indicated that a decision regarding this was being sought during the coming week.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11590.png
-
-Convert to Markdown# ANTIWAR MOVEMENT
+# ANTIWAR MOVEMENT
 
 This Unit is responsible for the investigation of dissident protest groups in order that their potential threat to the internal security of the country can be assessed. This includes development of informant coverage and the dissemination of timely intelligence information, as well as possible violations of Federal laws.
 

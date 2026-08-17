@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6580.png
-
-Convert to Markdown Coordination and Guidance
+Coordination and Guidance
 
 In carrying out the kind of many-sided offensive described herein, it will be necessary to provide for coordinating various programs. We must be sure that what we do in one area reinforces what we do elsewhere.
 

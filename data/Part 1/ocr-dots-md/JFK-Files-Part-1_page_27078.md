@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27078.png
-
-Convert to MarkdownTEST #3
+TEST #3
 
 **Question A:** Prior to 1961, did you engage in homosexual acts?
 

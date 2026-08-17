@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_635.png
-
-Convert to MarkdownAPERTURE CARD REPRODUCTION #1
+APERTURE CARD REPRODUCTION #1
 
 <table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>TO</td><td>Chief, Task Force W</td></tr><tr><td>BFO.</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, JMWAVE Ake</td></tr><tr><td>SUBJECT</td><td>Operational/GYROSE Review and Analysis of AMFAUNA Operation</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>
 

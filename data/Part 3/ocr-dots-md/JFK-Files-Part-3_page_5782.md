@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5782.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 Re: "National Guardian";
 Weekly Guardian Associates, Incorporated

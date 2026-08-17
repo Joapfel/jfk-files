@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11999.png
-
-Convert to Markdown9. Investigation of communist petition signers who are acquainted with Communist Party functionaries
+9. Investigation of communist petition signers who are acquainted with Communist Party functionaries
 
 10. Be alert to receive any suggestions of plant executives and highly placed personnel who are reliable and friendly to the Bureau, concerning members of subversive organizations who might cooperate with the Bureau or employees who might be willing to infiltrate a subversive organization. In the past such contacts have on occasion resulted in the plant's making available the services of an employee who already is an informant of the management.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27059.png
-
-Convert to MarkdownFILE NO. 242 369
+FILE NO. 242 369
 
 DATE 26 May 1955
 

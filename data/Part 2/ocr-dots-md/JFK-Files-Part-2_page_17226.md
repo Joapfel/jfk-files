@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17226.png
-
-Convert to Markdown# BLAIR J. ANDERSON
+# BLAIR J. ANDERSON
 
 ## APPENDIX
 

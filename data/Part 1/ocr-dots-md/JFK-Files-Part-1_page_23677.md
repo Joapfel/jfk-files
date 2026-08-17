@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23677.png
-
-Convert to Markdown5. It is recommended that the scope and mount be discarded as unfeasible. The Williams sight is acceptable although the number of clicks per revolution of the knob should be reduced. Further testing of the underloaded ammunition should be conducted to determine the reasons for the erratic performance.
+5. It is recommended that the scope and mount be discarded as unfeasible. The Williams sight is acceptable although the number of clicks per revolution of the knob should be reduced. Further testing of the underloaded ammunition should be conducted to determine the reasons for the erratic performance.
 
 DANIEL J. HOGAN
 

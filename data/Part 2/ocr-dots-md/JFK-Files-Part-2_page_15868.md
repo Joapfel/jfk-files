@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15868.png
-
-Convert to Markdown# VI. BPP CONNECTIONS WITH OTHER MILITANT GROUPS
+# VI. BPP CONNECTIONS WITH OTHER MILITANT GROUPS
 
 Sources advised that BPP had contacted the local office of the Students for a Democratic Society (SDS) requesting money because the BPP needed between two and three hundred dollars for operating funds.
 

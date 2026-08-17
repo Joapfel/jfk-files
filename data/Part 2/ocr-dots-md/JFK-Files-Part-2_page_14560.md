@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14560.png
-
-Convert to MarkdownMemorandum Donahoe to Belmont
+Memorandum Donahoe to Belmont
 Re: Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations
 65-63113
 

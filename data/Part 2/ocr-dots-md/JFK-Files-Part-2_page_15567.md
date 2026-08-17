@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15567.png
-
-Convert to MarkdownLR
+LR
 
 On October 4, 1969, this source advised that he had obtained information indicating that a shipment of 11 boxes of material from the National Office of the BPP to the Illinois Chapter of the BPP had been sent via airlines and that the charges for the Illinois Branch of the BPP would be $103.40.
 

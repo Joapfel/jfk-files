@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19103.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 March 2, 1965
 

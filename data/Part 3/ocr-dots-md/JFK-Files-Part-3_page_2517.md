@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2517.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 NOTE: Memorandum, Legal Counsel to Mr. Adams, 6-6-75, set forth
 the request of Mr. Gitenstein. The Inspection Division is preparing the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34580.png
-
-Convert to MarkdownSwiss, Soviets
+Swiss, Soviets
 See Defector
 
 ported yesterday, a Soviet

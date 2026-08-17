@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25836.png
-
-Convert to Markdownthis individual; if she had gone to the Consulate; if she had personal relations, and even if she had intimate relations with him...she denied all that, only...Dorticos: intimate relations with him? Hernandez: Yes; she denied all that and said that it was a case like any other, of the many of the hundreds of cases that come to request visas at the Consulate, and if she remembered in detail of this case it was because this man had an incident with our Consul...he had an incident with our Consul in which our Consul AZCUE, rebuked him and practically threw him out of the Consulate.
+this individual; if she had gone to the Consulate; if she had personal relations, and even if she had intimate relations with him...she denied all that, only...Dorticos: intimate relations with him? Hernandez: Yes; she denied all that and said that it was a case like any other, of the many of the hundreds of cases that come to request visas at the Consulate, and if she remembered in detail of this case it was because this man had an incident with our Consul...he had an incident with our Consul in which our Consul AZCUE, rebuked him and practically threw him out of the Consulate.
 
 Dorticos: and why does she have (hematomas), BRUISES, did they treat her badly? Hernandez: well, yes, yes. Dorticos: what did they do to her?
 

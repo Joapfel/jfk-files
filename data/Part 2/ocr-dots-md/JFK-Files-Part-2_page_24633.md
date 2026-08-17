@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24633.png
-
-Convert to MarkdownOn September 24, Allen Dulles personally issued a cable to Leopoldville expressing in absolute terms his desire to "eliminate"
+On September 24, Allen Dulles personally issued a cable to Leopoldville expressing in absolute terms his desire to "eliminate"
 
 Lumumba:
 

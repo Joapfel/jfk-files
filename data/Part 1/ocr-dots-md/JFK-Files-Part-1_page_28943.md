@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28943.png
-
-Convert to MarkdownSECRET
+SECRET
 
 15 ADV 1961
 

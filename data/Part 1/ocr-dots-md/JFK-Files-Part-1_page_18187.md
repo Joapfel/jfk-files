@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18187.png
-
-Convert to Markdown618/20/CO/3a
+618/20/CO/3a
 
 CLASSIFIED MESSAGE
 

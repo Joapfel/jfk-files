@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18400.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>5-113a (Rev. 3-21-73)</td>
    </tr>

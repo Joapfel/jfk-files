@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3422.png
-
-Convert to MarkdownSECRET
+SECRET
 
 R 1-130 27 Feb. 1968
 

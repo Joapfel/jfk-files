@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13048.png
-
-Convert to MarkdownBlack Panther Party: San Francisco-Oakland (Los Angeles) Late, 1960's through early 1970's
+Black Panther Party: San Francisco-Oakland (Los Angeles) Late, 1960's through early 1970's
 
 The Committee is examining the extent to which this COINTELPRO program relates to criminal investigation; the results obtained; the relationships between the FBI and local authorities (police and other governmental agencies); media and community leaders; the methods of targeting; techniques used to achieve program goals; legal authority; and authorization procedures and accountability.
 

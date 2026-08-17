@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1016.png
-
-Convert to Markdown<table><tr><td>78-1468</td></tr></table>
+<table><tr><td>78-1468</td></tr></table>
 
 15 MAY 1978
 

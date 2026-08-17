@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13748.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 **(CONFIDENTIAL When Separated**
 *From Accompanying Documents)*

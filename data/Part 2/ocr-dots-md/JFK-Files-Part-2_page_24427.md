@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24427.png
-
-Convert to MarkdownAt a meeting on October 3, 1963, AMLASH-1
+At a meeting on October 3, 1963, AMLASH-1
 
 again raised the possibility of defecting, but indicated that he
 would be willing to continue working against the Castro regime if

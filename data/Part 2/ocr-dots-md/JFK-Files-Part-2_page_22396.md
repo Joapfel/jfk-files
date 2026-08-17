@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22396.png
-
-Convert to MarkdownSECRET
+SECRET
 
 real tumble and all of a sudden then Cuba started exporting.
 

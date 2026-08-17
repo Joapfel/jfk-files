@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4791.png
-
-Convert to MarkdownSECRET
+SECRET
 
 call us in for, then?" So not everything the Executive does is right. Obviously. At least I don't think it is right.
 

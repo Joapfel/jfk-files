@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17282.png
-
-Convert to MarkdownThe January 30, 1969, arrests were aggravated assault, resisting arrest, and disorderly conduct, which resulted in one year's probation and a $90 fine on the aggravated assault and disorderly conduct charges but the charge of resisting arrest was dismissed.
+The January 30, 1969, arrests were aggravated assault, resisting arrest, and disorderly conduct, which resulted in one year's probation and a $90 fine on the aggravated assault and disorderly conduct charges but the charge of resisting arrest was dismissed.
 
 The March 25, 1969, arrest for unlawful use of a weapon and possession of an unregistered gun which were also dismissed.
 

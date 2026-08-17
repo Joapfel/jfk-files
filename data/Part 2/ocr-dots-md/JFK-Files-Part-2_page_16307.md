@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16307.png
-
-Convert to Markdown10 to 15 persons arrive for the meetings and the meetings have no strict parliamentary rules. Usually during the meetings, the participants drink beer and wine and conclude the meeting without any formal plans being made.
+10 to 15 persons arrive for the meetings and the meetings have no strict parliamentary rules. Usually during the meetings, the participants drink beer and wine and conclude the meeting without any formal plans being made.
 
 , 11/12/69)
 

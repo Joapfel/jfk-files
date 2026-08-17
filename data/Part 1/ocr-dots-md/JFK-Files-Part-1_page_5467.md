@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5467.png
-
-Convert to MarkdownS-E-C-R-E-T/NO FOREIGN DISSEM/CONTROLLED DISSEM
+S-E-C-R-E-T/NO FOREIGN DISSEM/CONTROLLED DISSEM
 
 (classification) (dissem controls)
 

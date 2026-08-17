@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21338.png
-
-Convert to MarkdownSECRET
+SECRET
 NO FOREIGN DISSEM
 
 CENTRAL INTELLIGENCE AGENCY

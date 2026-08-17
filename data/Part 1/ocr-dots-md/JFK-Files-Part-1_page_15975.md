@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15975.png
-
-Convert to MarkdownSECRET/RYDARY
+SECRET/RYDARY
 
 2.65
 

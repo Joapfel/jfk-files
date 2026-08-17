@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34637.png
-
-Convert to MarkdownACKNOWLEDGEMENT AND RELEASE
+ACKNOWLEDGEMENT AND RELEASE
 
 WHEREAS, IDEN 1 , a former citizen of the Union
 of Soviet Socialist Republics and an employee of the Committee for State

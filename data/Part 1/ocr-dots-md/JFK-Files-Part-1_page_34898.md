@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34898.png
-
-Convert to MarkdownY para constancia, extendemos el presente documento por cua-
+Y para constancia, extendemos el presente documento por cua-
 druplicado, y firmamos en la ciudad de New Jersey, estado
 de New Jersey, hoy día trece de septiembre de mil novecientos
 ceretta y diecio.

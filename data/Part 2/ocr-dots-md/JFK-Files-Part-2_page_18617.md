@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18617.png
-
-Convert to MarkdownAny leads for purpose of checking background of potential sources
+Any leads for purpose of checking background of potential sources
 for Santo Domingo must receive priority attention and results submitted by
 teletype.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31860.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 DATE: 11 June 1957
 

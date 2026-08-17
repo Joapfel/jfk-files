@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21157.png
-
-Convert to MarkdownSECRET
+SECRET
 
 tourists for intelligence. The 1st Department
 of SCD wrote the final report about overall

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20689.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Chief, Contract Personnel Division
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4956.png
-
-Convert to MarkdownRE: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL
+RE: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL
 OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
 
 extremist activity with respect to the following organizations whose names and FBIHQ file numbers were provided to the Select Committee on October 9, 1975:

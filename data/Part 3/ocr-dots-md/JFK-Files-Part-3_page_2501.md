@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2501.png
-
-Convert to MarkdownCrawford, James E.
+Crawford, James E.
 Crookston, James
 Cundy, Wanda M., Mrs.
 Dembnicki, Paul E., SA

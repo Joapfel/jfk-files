@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29563.png
-
-Convert to Markdownconformance with the Social Security Act of 1935, as amended, and the pro-
+conformance with the Social Security Act of 1935, as amended, and the pro-
 cedures of this Organization (presently 3% on the first $400). For reasons of
 security, all inquiries concerning your relationship to the Social Security system
 shall be made directly to this Organization, and in no event may any such prob-

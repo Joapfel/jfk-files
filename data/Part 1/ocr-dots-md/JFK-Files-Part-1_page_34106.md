@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34106.png
-
-Convert to Markdown# WESTERN UNION
+# WESTERN UNION
 PRESS MESSAGE
 
 W P MARSHALL PRESIDENT

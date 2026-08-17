@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_993.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION ____________________ LAST EMPLOYER _________________
 

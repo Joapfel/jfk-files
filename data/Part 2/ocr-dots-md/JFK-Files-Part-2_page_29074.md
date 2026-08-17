@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29074.png
-
-Convert to Markdown# Part III Gain From Disposition of Property Under Sections 1245, 1250, 1251, 1252—Assets Held More than Six Months (See Instruction F)
+# Part III Gain From Disposition of Property Under Sections 1245, 1250, 1251, 1252—Assets Held More than Six Months (See Instruction F)
 
 Lines 18 and 19 should be omitted if there are no dispositions of farm property or farmland; or, if this form is filed by a partnership.
 

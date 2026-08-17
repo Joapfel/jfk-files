@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10508.png
-
-Convert to MarkdownInformation concerning the above firms and regarding Richard William Nolan Child and Mortimer Laggett Cuaal, Jr., will be furnished separately.
+Information concerning the above firms and regarding Richard William Nolan Child and Mortimer Laggett Cuaal, Jr., will be furnished separately.
 
 5. The activities and contacts of George PERLE TERACPCULUS aka PERIS in Japan and Korea are currently being investigated by this Agency.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_20375.png
-
-Convert to MarkdownRe: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIET NAM, WASHINGTON, D. C., JANUARY 15, 1968
+Re: DEMONSTRATION PROTESTING UNITED STATES POLICY IN VIET NAM, WASHINGTON, D. C., JANUARY 15, 1968
 
 This document contains neither recommendations nor conclusions of the FBI. It is the property of the FBI and is loaned to your agency; it and its contents are not to be distributed outside your agency.

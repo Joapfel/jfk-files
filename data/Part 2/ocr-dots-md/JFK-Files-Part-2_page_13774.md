@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13774.png
-
-Convert to Markdownii
+ii
 
 3. Electronic Surveillance of Dr. Martin Luther King
 

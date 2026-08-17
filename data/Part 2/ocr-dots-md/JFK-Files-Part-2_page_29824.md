@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29824.png
-
-Convert to MarkdownD - he had two
+D - he had two
 
 M - he had two of them?
 

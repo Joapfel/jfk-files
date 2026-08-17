@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11715.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">ABSTRACT OF DOCUMENT BEING CROSS FILED</td>
         <td>CROSS FILED BY</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1822.png
-
-Convert to Markdown"with the heads of the Departments and Agencies concerned, of the programs and activities of all U. S. agencies engaged in foreign intelligence activities; and (d) assuring efficiency and effectiveness, and avoiding undesirable duplication in the total foreign intelligence effort. Mr. Coyne will submit his recommendations on this subject at a later date."
+"with the heads of the Departments and Agencies concerned, of the programs and activities of all U. S. agencies engaged in foreign intelligence activities; and (d) assuring efficiency and effectiveness, and avoiding undesirable duplication in the total foreign intelligence effort. Mr. Coyne will submit his recommendations on this subject at a later date."
 
 I would appreciate receiving a copy of the revised report of the Working Group at your earliest convenience.
 

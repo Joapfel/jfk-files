@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7249.png
-
-Convert to MarkdownINTELLIGENCE EVALUATION COMMITTEE
+INTELLIGENCE EVALUATION COMMITTEE
 
 Introduction
 

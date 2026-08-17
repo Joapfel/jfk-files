@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18146.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (1) MEXI-132
 (2) Address under separate cover (Identity 3)

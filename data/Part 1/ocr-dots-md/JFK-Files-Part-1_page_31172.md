@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31172.png
-
-Convert to Markdowncontrols, and monitoring printing processes for CI Staff publications.
+controls, and monitoring printing processes for CI Staff publications.
 
 d. Initiate and coordinate the distribution of CI Staff publications as appropriate within the Agency, to other US government agencies, and to liaison services.
 

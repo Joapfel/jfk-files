@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34634.png
-
-Convert to Markdown25 October 1972
+25 October 1972
 
 Received this date from an Authorized Government Representative three Bank Cashiers Checks drawn on the following banks:
 

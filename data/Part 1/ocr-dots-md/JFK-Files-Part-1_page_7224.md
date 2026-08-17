@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7224.png
-
-Convert to Markdown25 Oct.65 Hace reservaciones para ir al puerto de Matatán.
+25 Oct.65 Hace reservaciones para ir al puerto de Matatán.
 
 28 Oct.65 Las aviendo por HEDERTO JORRIN de la Embajada Cubana, que en Yucatán se encuentran los barcos rusos "Zhafiro" y otro; en el que hay un lesionado por explosión de una caldera.
 

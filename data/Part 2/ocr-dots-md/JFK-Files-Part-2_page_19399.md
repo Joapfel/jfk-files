@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19399.png
-
-Convert to Markdown<table><tr><td>PROGRAM</td></tr><tr><td>L. Live, St. Louis.</td></tr><tr><td>Sat. PM, Jan. 13</td></tr><tr><td>2. Aftend Planning Sessions SKM.</td></tr><tr><td>3. Hospitality in Homes 3 nights</td></tr><tr><td>4. Student-Walk to Capitol 1:30</td></tr><tr><td>5. Visit Congress</td></tr><tr><td>6. Return Tues. night</td></tr></table>
+<table><tr><td>PROGRAM</td></tr><tr><td>L. Live, St. Louis.</td></tr><tr><td>Sat. PM, Jan. 13</td></tr><tr><td>2. Aftend Planning Sessions SKM.</td></tr><tr><td>3. Hospitality in Homes 3 nights</td></tr><tr><td>4. Student-Walk to Capitol 1:30</td></tr><tr><td>5. Visit Congress</td></tr><tr><td>6. Return Tues. night</td></tr></table>
 
 Congress, as its first order of business, resolve to end the war in Vietnam and immediately arrange for the withdrawal of all American troops.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8722.png
-
-Convert to MarkdownVI. POSICION IDEOLÓGICA
+VI. POSICION IDEOLÓGICA
 
 15. General
 ---

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23949.png
-
-Convert to Markdownexcept Allen Dulles: Similarly, there is no evidence that the passage of the pistols or the carbines or the pouching of the machine guns to the Dominican Republic was disclosed to anyone outside of the CIA during this period.
+except Allen Dulles: Similarly, there is no evidence that the passage of the pistols or the carbines or the pouching of the machine guns to the Dominican Republic was disclosed to anyone outside of the CIA during this period.
 
 VI. April 17, 1961 - May 31, 1961
 

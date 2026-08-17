@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5795.png
-
-Convert to MarkdownSAC, New York (100-158914)
+SAC, New York (100-158914)
 
 7/28/67
 

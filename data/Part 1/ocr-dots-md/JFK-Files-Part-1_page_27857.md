@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_27857.png
-
 seminar group chairman during the "Strategic Military Studies" course, and again his facile pen was put to good use on the editorial subgroup. His calm, steadying approach to issues won the respect of his military colleagues, and his extensive knowledge of Latin America was particularly valuable to the group's deliberations. In the "Military Strategy Seminar," Mr. Keenan proved himself an excellent student of strategy and an articulate, well-prepared debater in the seminar discussions.
 
 In the electives phase Mr. Keenan took four courses (the required number):

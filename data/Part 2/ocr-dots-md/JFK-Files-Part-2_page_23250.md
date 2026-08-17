@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23250.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 I didn't remember at all, whereas I do remember quite a number of cryptonyms when reminded of them.
 

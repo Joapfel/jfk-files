@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16131.png
-
-Convert to MarkdownDale 2/26/70
+Dale 2/26/70
 
 Photographs were taken during the autopsy of FREDERICK ALLEN HAMPTON at the Veterans Administration Hospital, utilizing a speedgraphic camera with flash attachment and Polaroid adapter. Polaroid color sheet film was used.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3151.png
-
-Convert to Markdown1763
+1763
 
 1. indication that the Communist Party has attempted to infiltrate
 2. or is infiltrating, in other words, where you have some evidence

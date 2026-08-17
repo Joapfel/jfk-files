@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7290.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 1-24-75
 

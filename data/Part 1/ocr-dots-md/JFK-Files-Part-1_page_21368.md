@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21368.png
-
-Convert to MarkdownX-REF. SHEET
+X-REF. SHEET
 
 S-E-C-R-E-T
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12723.png
-
-Convert to Markdownthese instructions, since he felt that CIA knew what should be done in this type of case. He received a telephone call from the DA's Office and a statement was read to him to the effect that the information which he had received and made public to the effect that RIJA was alive and well was in error. SMILEY told the caller that he agreed with the statement and nothing further came of this.
+these instructions, since he felt that CIA knew what should be done in this type of case. He received a telephone call from the DA's Office and a statement was read to him to the effect that the information which he had received and made public to the effect that RIJA was alive and well was in error. SMILEY told the caller that he agreed with the statement and nothing further came of this.
 
 Dr. SMILEY does not know what part, if any, the CIA has in this case, but since he, SMILEY, is himself a former intelligence agent he did not feel that he had the right to question something which might be of vital importance to his country.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28394.png
-
-Convert to Markdown8 January 1960
+8 January 1960
 
 MEMORANDUM FOR: Contract Personnel Division
 

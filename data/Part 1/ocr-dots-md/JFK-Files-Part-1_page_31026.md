@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31026.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 Date: 20 August 1943
 

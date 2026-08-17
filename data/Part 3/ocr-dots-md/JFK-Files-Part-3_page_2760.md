@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2760.png
-
-Convert to Markdown1956
+1956
 
 whose telephone is being tapped is not aware and there is, and neither of the two parties talking had agreed that their conversation could be monitored.
 

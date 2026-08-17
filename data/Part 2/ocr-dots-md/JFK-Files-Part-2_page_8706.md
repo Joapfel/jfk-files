@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8706.png
-
-Convert to Markdown13-00000
+13-00000
 
 the day on which Lee Harvey OSWALD reportedly came
 to the Cuban Embassy, according to Washington Post

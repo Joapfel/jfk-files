@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4506.png
-
-Convert to MarkdownGABRIEL MANNARINO, Aka.
+GABRIEL MANNARINO, Aka.
 
 PG T-7 is a tavern operator-numbers writer, active in Fayette County, Pa., for over 20 years.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15329.png
-
-Convert to MarkdownC. 45. a. What did the Police asked and got on information about David's previous employment?
+C. 45. a. What did the Police asked and got on information about David's previous employment?
 
 b. What did David tell about his relations with the SSAA?
 

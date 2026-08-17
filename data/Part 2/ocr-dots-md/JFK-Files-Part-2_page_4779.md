@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4779.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on that number. I'm not going to give it to you now. You'll read it. And when people up on the Hill or other people say, you know, "What's so tough about going out and collecting intelligence?" Try it. It just doesn't work the way it is done in the movies.
 

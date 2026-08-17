@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29739.png
-
-Convert to MarkdownMYROGLAW ANDREW MARSYMIEC
+MYROGLAW ANDREW MARSYMIEC
 
 April 30, 1947
 Fkt. 171 - Experience 12-3

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29945.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">FITNESS REPORT</td></tr><tr><td>EMPLOYEE SERIAL NUMBER</td><td>056700</td></tr><tr><td colspan="2">SECTION A GENERAL</td></tr><tr><td>I. NAME (Last, First) (Middle)</td><td>David E.</td></tr><tr><td>2. DATE OF BIRTH (J. SEX)</td><td>23 June 1921 M</td></tr><tr><td>4. GRADE</td><td>GS 18</td></tr><tr><td>5. SO</td><td>D</td></tr><tr><td>B. OFFICE OF ASSIGNMENT</td><td>HEADQUARTERS</td></tr><tr><td>C. CHECK IN TYPE OF APPOINTMENT</td><td>X CAREER RESERVE TEMPORARY</td></tr><tr><td>1. SPECIAL (Specify)</td><td>SPECIAL PROVISIONAL (See instructions - Section C)</td></tr><tr><td>II. DATE REPORT DUE IN O.P.</td><td>30 April 1966</td></tr><tr><td>12. REPLYING TO: (From - to)</td><td>1 April 1965 - 31 March 1966</td></tr></table>
 

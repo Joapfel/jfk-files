@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31580.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 At approximately 8:40 PM, as Vice President HUMPHREY was about to enter the Gold Ballroom in the Fairmont Hotel, where he was to deliver his speech, GEORGE ARMSTEAD KAUFFMAN attempted to shout a statement; however, he was quickly removed from the immediate area by members of the San Francisco Police Department. The demonstration outside ended at approximately 9:35 PM and according to Lieutenant BERNARD O'LEARY, San Francisco Police Department, there were no arrests or other incidents during the activities on December 3, 1965.

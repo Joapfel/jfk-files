@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35106.png
-
-Convert to Markdown| Date | Description | Check No. | Total |
+| Date | Description | Check No. | Total |
 |---|---|---|---|
 | Oct. 12 | Maintenance many persons as per receipt | 136 | $ 280.00 |
 | Oct. 26 | Maintenance many persons as per receipt | 251 | 482.00 |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9106.png
-
-Convert to Markdown- Our ECAP-Bank serve our operational needs?
+- Our ECAP-Bank serve our operational needs?
 
 a) Present status:
 

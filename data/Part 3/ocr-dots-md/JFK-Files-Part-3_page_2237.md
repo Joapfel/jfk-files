@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2237.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 January 12, 1976
 

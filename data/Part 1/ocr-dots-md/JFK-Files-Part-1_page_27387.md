@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27387.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The travel of the Employee shall be governed as follows:
 

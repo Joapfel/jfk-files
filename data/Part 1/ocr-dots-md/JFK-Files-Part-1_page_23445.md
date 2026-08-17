@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23445.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>Ohio School of Social Sciences</td>

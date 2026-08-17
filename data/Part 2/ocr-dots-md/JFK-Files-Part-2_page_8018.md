@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_8018.png
-
 professor in the university's Department of Petroleum Engineering, and a team of researchers from the Center for Earth Sciences and Engineering, use a Nova 820 computer to detect possible weak spots in the roofs of mines. The computer system, developed for the U.S. Bureau of Mines, has been on the job on the floor of Kaiser Corporation's York Canyon coal mine in New Mexico. "One of the most frequent causes of mine accidents is roof collapse," Dr. Podio

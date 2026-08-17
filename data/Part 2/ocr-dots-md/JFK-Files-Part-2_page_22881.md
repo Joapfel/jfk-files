@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22881.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 action vis-a-vis Cuba. There was a so-called no invasion pledge. There was an undertaking on our side that if the offensive capabilities -- and there was an argument on what those were -- were removed, we on our side would undertake -- I don't want to present this language as if it is deeply mathmatically precise -- but there was an undertaking on our side that there would not be an assassination of Cuba.
 

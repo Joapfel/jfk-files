@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24458.png
-
-Convert to MarkdownWalter Elder, McCone's Executive Assistant, testified that he had not known of the underworld operation until August 1963, and that in his opinion McCone did not learn of the operation prior to that time.* (Elder, p. 15)
+Walter Elder, McCone's Executive Assistant, testified that he had not known of the underworld operation until August 1963, and that in his opinion McCone did not learn of the operation prior to that time.* (Elder, p. 15)
 
 (iii) Helms and Harvey Did Not Brief McCone About
 the Assassination Plots

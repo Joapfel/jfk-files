@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12566.png
-
-Convert to MarkdownCABLE SECRETARIAT DISSEMINATION CLASSIFIED MESSAGE TOTAL COPIES ROUTING AND/OR INITIALS-SEE BY
+CABLE SECRETARIAT DISSEMINATION CLASSIFIED MESSAGE TOTAL COPIES ROUTING AND/OR INITIALS-SEE BY
 
 <table><tr><td colspan="2">PERSON UNNOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td></tr><tr><td>BY_________ AD_________</td><td>24 10 69</td></tr><tr><td>DISTRIBUTED BY ________ PER __________</td><td>FILE NO. __________</td></tr><tr><td>ACTION UNIT _________</td><td>FILE, VR</td></tr><tr><td>ACTION NO.</td><td></td></tr></table>
 

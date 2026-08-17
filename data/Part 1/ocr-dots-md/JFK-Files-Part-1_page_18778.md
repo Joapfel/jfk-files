@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18778.png
-
-Convert to MarkdownAir
+Air
 
 Chief of Station, Bombay, India
 Chief, Administration and Services

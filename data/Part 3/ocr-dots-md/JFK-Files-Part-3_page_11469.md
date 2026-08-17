@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11469.png
-
-Convert to MarkdownCOINTELPRO COMPOSITE
+COINTELPRO COMPOSITE
 
 TOTAL 2679
 (2340)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25909.png
-
-Convert to Markdown# CIA-Mafia Link
+# CIA-Mafia Link
 
 (Continued From Page A1)
 

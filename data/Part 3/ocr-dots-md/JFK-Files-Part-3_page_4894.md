@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4894.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On March 3, 1967, MM T-3 furnished the following
 information:

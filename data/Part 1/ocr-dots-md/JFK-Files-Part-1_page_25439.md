@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25439.png
-
-Convert to Markdown3. The reasons for McDonald's contact with us are threefold;
+3. The reasons for McDonald's contact with us are threefold;
 
 a. After preparing the 65-page report (a copy of which he gave me) he became concerned that publication of this document might not be in the national interest. He is anxious for our advice on this.
 

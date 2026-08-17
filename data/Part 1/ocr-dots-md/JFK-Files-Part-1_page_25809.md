@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25809.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ORGANIZATIONAL CHART OF
 RAMOND H. GERENDE'S

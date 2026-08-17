@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_728.png
-
-Convert to Markdown104-10290-10309
+104-10290-10309
 
 <table><tr><td>TO</td><td>: DIRECTOR</td></tr><tr><td>FROM</td><td>: MEXICO CITY</td></tr><tr><td>ACTION:</td><td>: WH 8</td></tr><tr><td>INFO</td><td>:</td><td>DOP, CH/CA, SAS 8, RF, NR</td></tr></table>
 

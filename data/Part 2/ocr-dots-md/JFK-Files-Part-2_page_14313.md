@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14313.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 
 Re: Request of Harry H. Wachtel, etc.
 

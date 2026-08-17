@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19934.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR : Director of Central Intelligence
 SUBJECT : Request for Voluntary Retirement

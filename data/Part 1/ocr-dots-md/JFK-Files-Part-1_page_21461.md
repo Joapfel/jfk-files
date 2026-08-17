@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21461.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 22 Nov. 1960 (Wash.)
 

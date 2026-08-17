@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13022.png
-
-Convert to MarkdownR. POLIARD
+R. POLIARD
 
 J. DISTEFANO, bv
 UNIT: NH/CA-CA/4

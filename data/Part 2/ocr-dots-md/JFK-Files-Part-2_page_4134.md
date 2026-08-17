@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4134.png
-
-Convert to MarkdownSECRET FORCES ONLY
+SECRET FORCES ONLY
 
 27 June 1963
 

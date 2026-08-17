@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20214.png
-
-Convert to MarkdownWFO 100-54927
+WFO 100-54927
 
 Enclosed for the Bureau are eight copies and
 for other receiving offices two copies of LHM on captioned

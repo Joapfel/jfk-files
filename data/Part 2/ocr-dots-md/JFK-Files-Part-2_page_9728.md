@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9728.png
-
-Convert to MarkdownApril 1974
+April 1974
 
 Director,
 Federal Bureau of Integration

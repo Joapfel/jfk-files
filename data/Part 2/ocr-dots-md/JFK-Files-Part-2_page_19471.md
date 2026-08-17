@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19471.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No.
 
 St. Louis, Missouri 63177

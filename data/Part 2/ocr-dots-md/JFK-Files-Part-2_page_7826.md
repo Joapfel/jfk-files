@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7826.png
-
-Convert to Markdown13-00000
+13-00000
 
 # J-2-6-N-2-T
 

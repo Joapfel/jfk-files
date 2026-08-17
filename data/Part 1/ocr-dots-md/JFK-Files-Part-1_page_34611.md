@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34611.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 States. From 12 February to 4 April 1964 it was possible to keep Nosenko at a location where he could enjoy a certain amount of movement and of contact with the outside world.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19693.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">PAYROLL CHANGE DATA</th></tr><tr><td>BASE PAY</td><td>OVERTIME</td></tr></thead><tbody><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">PAYROLL CHANGE DATA</th></tr><tr><td>BASE PAY</td><td>OVERTIME</td></tr></thead><tbody><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table>
 
 <table><thead><tr><th>Appropriation(s)</th><th>Date Approved by</th></tr></thead><tbody><tr><td>SECURITY</td><td>03/10/54</td></tr><tr><td></td><td>[Signature]</td></tr></tbody></table>
 

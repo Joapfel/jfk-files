@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9324.png
-
-Convert to Markdown# THE CATECHISM OF THE REVOLUTIONIST
+# THE CATECHISM OF THE REVOLUTIONIST
 BY Mikhail Alexandrovich Bakunin
 with Introduction by Minister of
 Information Black Panther Party

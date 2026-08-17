@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25774.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DISPATCH</td>
     <td>SUBTITLE: SECRET/KAPOK</td>

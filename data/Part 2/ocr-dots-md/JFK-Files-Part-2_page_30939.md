@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30939.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HSCA Notes
 Bret Palmer

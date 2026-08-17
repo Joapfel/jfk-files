@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9862.png
-
-Convert to MarkdownAGREEMENT
+AGREEMENT
 
 I have read the foregoing employee notice
 concerning treatment of confidential material and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attachment No. 1 to
 DO/HY Memorandum dated

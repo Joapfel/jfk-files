@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22606.png
-
-Convert to Markdowntoward the general proposition that we should not discourage the British nor hurt the British directly, but we should not interfere with the Italians to support the British position.
+toward the general proposition that we should not discourage the British nor hurt the British directly, but we should not interfere with the Italians to support the British position.
 
 And so my dealings were with Admiral Maugeria, who had been Chief of the Italian Naval Intelligence, but was then the Commanding Admiral of the Turanian Fleet generally south, where all these illegal immigrants collected and were sent down.
 

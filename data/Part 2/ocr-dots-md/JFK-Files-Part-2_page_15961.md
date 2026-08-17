@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15961.png
-
-Convert to Markdown5
+5
 
 5. The Mass Line P. 118
 

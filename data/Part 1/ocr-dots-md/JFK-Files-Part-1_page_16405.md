@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16405.png
-
-Convert to Markdown# Target Analysis Summary Report
+# Target Analysis Summary Report
 
 ## AMMUG/1 Operation
 

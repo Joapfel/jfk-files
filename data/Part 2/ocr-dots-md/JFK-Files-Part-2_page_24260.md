@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24260.png
-
-Convert to Markdownhowever, did not maintain any jet equipment at that point. This cargo system which they developed was getting heavily into a military air transport contract system. The system was first known as MATS, and then it became MAC.
+however, did not maintain any jet equipment at that point. This cargo system which they developed was getting heavily into a military air transport contract system. The system was first known as MATS, and then it became MAC.
 
 They got MATS contracts, and Air America got these, and these were very good to keep a constant utilization at a good rate, the MATS rates were usually good, because the policy was not to do competitive bidding for the lowest bidder because then you got the poorest service, but give good rates to the carriers, and then require the carrier belong to the Civil Reserve Air Fleet.
 

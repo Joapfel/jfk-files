@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22514.png
-
-Convert to MarkdownCUBA TRIP, ARREST AND DETENTION, 1960
+CUBA TRIP, ARREST AND DETENTION, 1960
 
 (There is no conclusive evidence such as formal memoranda in the file to indicate that this Agency initiated action to send Wiley to Cuba. However, inferences from routing slips, memoranda and expense voucher payments would indicate that this trip was for CIA. Contrary to inferences by SRS officers, there is no indication, again such as a formal memorandum, in the Wiley files that he, under CIA instruction, courted arrest and detention so that he could find out information about the three staff employees who were imprisoned there. This does not preclude that there might not be written notes of such a plan buried in other files. The best indicator is Paul Gaynor's comment on a routing slip to CIA Cover Employee dated 2 February 1970, "His (Wiley's) imprisonment in Cuba was an operation on behalf of FE-TSD-OS-DCI-DDP.")
 

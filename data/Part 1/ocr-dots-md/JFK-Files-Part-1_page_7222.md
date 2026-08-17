@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7222.png
-
-Convert to Markdown25 July 1965
+25 July 1965
 
 Dillon
 Watson

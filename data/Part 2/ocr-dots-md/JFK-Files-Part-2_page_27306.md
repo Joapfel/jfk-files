@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27306.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A. Operation BOOTS (CONFIDENTIAL)
 

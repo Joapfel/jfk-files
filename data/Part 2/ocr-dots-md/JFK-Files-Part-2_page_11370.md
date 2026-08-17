@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11370.png
-
-Convert to Markdown87D
+87D
 
 INDEX FOR SECTION 87D
 

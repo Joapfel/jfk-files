@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12809.png
-
-Convert to MarkdownVI. 12 Apr 73
+VI. 12 Apr 73
 
 MEXICO
 

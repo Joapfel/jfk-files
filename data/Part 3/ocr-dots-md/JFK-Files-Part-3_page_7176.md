@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7176.png
-
-Convert to Markdown3
+3
 
 1 of, the chairman, and discharge such other responsibilities
 2 as may be assigned to him by the select committee or the

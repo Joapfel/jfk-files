@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23902.png
-
-Convert to Markdownby assassination capability; more specifically, it involved "spotting" potential agents and "researching" assassination techniques that might be used (Bissell, 7/17/75, p. 11 and 6/9/75, p. 73; Harvey, 6/25/75, pp. 37-A, 45). Bissell characterized Project ZR/RIFLE as "internal and purely preparatory" (Bissell, 7/22/75, p. 32). The I.G. Report of 1967 found "no indication in the file that the Executive Action Capability of ZR/RIFLE-QJ/WIN was ever used", but said that "after Harvey took over the Castro operation, he ran it as one aspect of ZR/RIFLE". (I.G., pp. 40-41.)
+by assassination capability; more specifically, it involved "spotting" potential agents and "researching" assassination techniques that might be used (Bissell, 7/17/75, p. 11 and 6/9/75, p. 73; Harvey, 6/25/75, pp. 37-A, 45). Bissell characterized Project ZR/RIFLE as "internal and purely preparatory" (Bissell, 7/22/75, p. 32). The I.G. Report of 1967 found "no indication in the file that the Executive Action Capability of ZR/RIFLE-QJ/WIN was ever used", but said that "after Harvey took over the Castro operation, he ran it as one aspect of ZR/RIFLE". (I.G., pp. 40-41.)
 
 (b) The Question of White House Initiation, Authorization, or Knowledge of the Executive Action Project
 

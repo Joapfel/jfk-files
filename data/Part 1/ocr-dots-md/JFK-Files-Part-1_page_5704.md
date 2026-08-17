@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5704.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 <table><tr><td>CONTROLLED DISSEM</td><td>C-O-N-F-I-D-E-N-T-I-A-L</td><td>NO DISSEM ABROAD</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33552.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">CABLE SEC DISSEM BY PER</th><th>TOTAL COPIES 12 N BY</th></tr></thead><tbody><tr><td>PERSON/UNIT NOTIFIED</td><td colspan="2"></td><td>SECRET</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED/SLOTTED WH BY DAF 1845 2</td><td colspan="2"></td></tr><tr><th>ACTION UNIT</th><th>RF. FILE .</th><th>VR.</th><th>AGENCY MESSAGE</th></tr><tr><td>AWH8<br/>ACTION<br/>853</td><td></td><td>41P/an</td><td><table><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr></tbody></table>
 

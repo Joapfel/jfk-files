@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3365.png
-
-Convert to MarkdownSECRET
+SECRET
 
 29 February 1960
 

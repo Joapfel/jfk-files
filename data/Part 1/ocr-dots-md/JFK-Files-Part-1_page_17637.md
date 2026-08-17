@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17637.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA AIR
 (Secretary's or Sen. Office)

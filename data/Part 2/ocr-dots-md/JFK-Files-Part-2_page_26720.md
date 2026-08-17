@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26720.png
-
-Convert to Markdown agencies in Miami plus the State government enforcement agencies up the wall and, of course, I guess it was around -- the Government allowed a lot of this to go on for awhile but I guess about 1965 or 1964 they got a little tired of it and they started to tighten up.
+agencies in Miami plus the State government enforcement agencies up the wall and, of course, I guess it was around -- the Government allowed a lot of this to go on for awhile but I guess about 1965 or 1964 they got a little tired of it and they started to tighten up.
 
 I am sure the AMOTS were in part responsible for proposing alerting us and in turn we alerted the enforcement agencies when there was going to be a raid against Cuba by one of these militant groups. A number of times raids were aborted, picked up by the Coast Guard or Florida Coastal Patrol or the Bureau, this type of thing.
 

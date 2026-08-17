@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5247.png
-
-Convert to MarkdownSECRET
+SECRET
 
 from disclosure of specific addresses relates both to present and past users as well as to those individuals who grant, or granted, CIA the right to use their addresses.
 

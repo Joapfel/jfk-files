@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13149.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 2/23/65, the New York Office advised that on 1/8/65 and
 1/26/65, NY 4533-S furnished information that the Soviet Intelligence

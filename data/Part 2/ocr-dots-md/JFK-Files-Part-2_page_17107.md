@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17107.png
-
-Convert to Markdownstate or state area, and local committees and stalks where said rules or rules of the BLACK PANTHER PARTY were violated.
+state or state area, and local committees and stalks where said rules or rules of the BLACK PANTHER PARTY were violated.
 
 Every member of the party must know these verbatim by heart, and apply them daily. Each member must report any violation of these rules to their leadership or they are conter-revolutionary and are also subjected to suspension by the BLACK PANTHER PARTY.
 

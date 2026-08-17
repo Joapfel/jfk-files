@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30334.png
-
-Convert to Markdown1 interest in getting him there.
+1 interest in getting him there.
 
 2 Mr. Nosenko. Sir, what I know, there wasn't any interest
 3 to get him. He managed to get this visa.

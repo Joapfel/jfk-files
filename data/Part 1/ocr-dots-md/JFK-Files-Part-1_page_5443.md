@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5443.png
-
-Convert to MarkdownIn connection with the possibility of finding a political leader,
+In connection with the possibility of finding a political leader,
 as indicated above, I must say that I have been in contact with a man
 whom, I feel, could very well fill the position. His name is Clémard
 Joseph Charles, President of the Commercial d'Haiti, President of

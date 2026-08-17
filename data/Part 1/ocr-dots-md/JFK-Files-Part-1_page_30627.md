@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30627.png
-
-Convert to MarkdownSECRET
+SECRET
 (Handwritten: Written in ink)
 
 <table><thead><tr><th colspan="9">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td colspan="3">1. Serial No.</td><td>2. Name (Last, First, Middle)</td><td colspan="5"></td></tr><tr><td colspan="3">112773</td><td>MILER NEWTON SCOTT</td><td colspan="5"></td></tr><tr><td colspan="2">3. Date Of Birth</td><td colspan="4"></td><td colspan="2">5. Sex</td></tr><tr><td>Mo. | Da.</td><td>03</td><td>01</td><td>28</td><td>Sex Code</td><td colspan="5"></td></tr><tr><td>No.</td><td>09</td><td>10</td><td>47</td><td>M</td><td></td><td></td><td></td></tr><tr><td rowspan="2">S.O.</td><td rowspan="2">C.O.</td><td colspan="6"></td></tr><tr><td colspan="6"></td></tr><tr><td>10. Appointment Level</td><td colspan="2">11. Security Level</td><td colspan="4"></td><td colspan="2">13. Security Level</td></tr><tr><td>Yes. <br/> No. 1</td><td>Coding <br/> 1</td><td>Yes. <br/> No. 2</td><td>Coding <br/> 1</td><td>Yes. <br/> No. 2</td><td>Coding <br/> 1</td><td>Yes. <br/> No. 2</td><td>Coding <br/> 1</td><td>Yes. <br/> No. 2</td></tr></tbody></table>

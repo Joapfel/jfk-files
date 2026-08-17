@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12027.png
-
-Convert to Markdown14-0000
+14-0000
 
 Porto No. 35-8
 Ago 1960

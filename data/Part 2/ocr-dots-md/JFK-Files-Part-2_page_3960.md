@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3960.png
-
-Convert to Markdown[Law]
+[Law]
 
 "HERE COME DE JUDGE"
 

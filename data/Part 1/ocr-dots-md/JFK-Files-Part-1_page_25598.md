@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25598.png
-
-Convert to Markdown**MESSAGE FORM**
+**MESSAGE FORM**
 **TOTAL COPIES:** 15
 
 <table><tr><td>ORIG:</td><td>C. BUSTOS/nr</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>EST:</td><td>3654</td></tr><tr><td>DATE:</td><td>26 SEP 66</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21795.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Wides. And that was the same procedure throughout the period?
 2.

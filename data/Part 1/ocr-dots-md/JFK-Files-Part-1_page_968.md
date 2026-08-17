@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_968.png
-
-Convert to MarkdownHSCA Chrono
+HSCA Chrono
 
 17 Sep 76 Downing Report, Congressional Record, re establishment of HSCA.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24700.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 SIGNAL CENTER USE ONLY
 

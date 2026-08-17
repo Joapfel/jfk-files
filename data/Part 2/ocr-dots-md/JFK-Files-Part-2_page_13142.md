@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13142.png
-
-Convert to Markdown5/26/65
+5/26/65
 
 1 - Mr. Boyd
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30669.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 with other members of the Panel have striven to devise a formula to give management a clear, concise picture of what we intend to do and what we are doing and have done to make those intentions reality.

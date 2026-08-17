@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7390.png
-
-Convert to Markdown14-0000
+14-0000
 
 ☐ UNCLASSIFIED ☐ INTERNAL USE ONLY
 

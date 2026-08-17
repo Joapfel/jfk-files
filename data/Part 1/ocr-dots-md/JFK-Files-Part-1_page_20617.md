@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20617.png
-
-Convert to MarkdownMr. David A. Phillips
+Mr. David A. Phillips
 8224 Stone Trail Drive
 Bethesda, Maryland 20034
 

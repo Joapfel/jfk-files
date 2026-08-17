@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22317.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Madigan. You have no inclination or no feeling at all for what his assignment was?
 

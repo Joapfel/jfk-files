@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25917.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>0</td><td>H</td><td>P</td><td>0</td><td>J</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>3</td><td>2</td><td>-</td><td>2</td><td>3</td><td>4</td><td>5</td><td>6</td><td>7</td><td>8</td><td>9</td></tr></table>
 

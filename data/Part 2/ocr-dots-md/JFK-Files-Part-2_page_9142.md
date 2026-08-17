@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9142.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 His military occupation was shown as Apprentice Air Policeman, and he was shown as having attended Air Police Course at Lackland Air Force Base from September, 1958, to November, 1958. *confidential source*
 

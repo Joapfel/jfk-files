@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7291.png
-
-Convert to Markdown1 - Mr. Callahan, 5744 JB
+1 - Mr. Callahan, 5744 JB
 1 - Mr. Adams, 5744 JB
 1 - Mr. Jenkins, 5744 JB
 1 - Mr. McDermott, 5634 JB

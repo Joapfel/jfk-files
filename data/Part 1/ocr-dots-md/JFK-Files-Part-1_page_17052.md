@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17052.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LIEMPTY - Mexico City, Mexico -- Photographic Surveillance
 Team Support -- FY 1971, Cost $23,635.

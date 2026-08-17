@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24299.png
-
-Convert to Markdown17 DEC 1971
+17 DEC 1971
 
 MEMORANDUM FOR: Deputy Chief, Covert Action Staff
 

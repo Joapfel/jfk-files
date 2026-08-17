@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21926.png
-
-Convert to Markdown82.
+82.
 
 joining. When NOSENKO entered the KGB in the spring of 1953, he transferred routinely to the Komsomol organization there and became Secretary of the Komsomol Organization of the Second Chief Directorate. This was a small organization consisting, NOSENKO thought, of about 17 KGB employees; he remained its secretary until June or July 1954, when he got into the trouble over illegal use of operational documents. According to NOSENKO, "Immediately after this incident the Bureau of the Komsomol was gathered, and I was immediately removed from the position of Secretary." A week later, a "strict reprimand" was entered in NOSENKO's Komsomol records.
 

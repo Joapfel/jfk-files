@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27386.png
-
-Convert to Markdown6. Memo for the Record dated 4 August 1971 by Richard Ober re "IES Meeting, 4 August 1971" (2 pages)
+6. Memo for the Record dated 4 August 1971 by Richard Ober re "IES Meeting, 4 August 1971" (2 pages)
 
 (Item 6 is contained in "IEC Chrono - August- December 1971)
 

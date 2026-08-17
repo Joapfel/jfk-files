@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29793.png
-
-Convert to MarkdownADMINISTRATIVE - INTERNAL USE ONLY
+ADMINISTRATIVE - INTERNAL USE ONLY
 
 <table><thead><tr><th>NAME OF EMPLOYEE (Last, First, Middle)</th><th>NAME AND RELATIONSHIP TO DEPENDENT</th><th>CLAIM NUMBER</th></tr></thead><tbody><tr><td>MURPHY, David</td><td>W-Marian</td><td>74-0893</td></tr></tbody></table>
 

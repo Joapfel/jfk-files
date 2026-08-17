@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3214.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Blauvelt engineering firm for whom he worked from January 1963 through July 1964. In 1964 Subject found work with Harold J. SUDEN, 60 Broad Street, Red Bank, New Jersey, as an engineer working on the planning and designing of sub-divisions, grading, construction developments, etc. His immediate supervisor is the township engineer of Marlboro Township, New Jersey. His present salary is $700.00 per month.
 

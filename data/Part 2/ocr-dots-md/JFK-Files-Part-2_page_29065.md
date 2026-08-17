@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29065.png
-
-Convert to Markdown**SGHEDULE A**
+**SGHEDULE A**
 (Form 1040)
 Department of the Treasury
 Internal Revenue Service

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5903.png
-
-Convert to Markdown45. All materials reflecting, concerning or pertaining to electronic surveillance, feasibility studies or surveys, physical surveillance, or photographic surveillances, and/or any proposals, recommendations or discussions of any of the foregoing surveillances, studies or surveys, with respect to Dr. King's "hideaway", or Fred Bennett's apartment, or premises located at 3006 Delmar Lane, N.W., Atlanta, Georgia, or with respect to any other premises, apartment, or "hideaway", used, owned, or leased by Dr. King or Fred Bennett.
+45. All materials reflecting, concerning or pertaining to electronic surveillance, feasibility studies or surveys, physical surveillance, or photographic surveillances, and/or any proposals, recommendations or discussions of any of the foregoing surveillances, studies or surveys, with respect to Dr. King's "hideaway", or Fred Bennett's apartment, or premises located at 3006 Delmar Lane, N.W., Atlanta, Georgia, or with respect to any other premises, apartment, or "hideaway", used, owned, or leased by Dr. King or Fred Bennett.
 
 46. The following materials which are referred to in the October 9, 1962 letter from the Director to the SAC, New York, captioned "Communist Party, USA, Counterintelligence Program, Internal Security - C":
 

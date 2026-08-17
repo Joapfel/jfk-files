@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24453.png
-
-Convert to Markdown(c) Did John McCone Know of or Authorize Assassination Plots During His Tenure as DCI
+(c) Did John McCone Know of or Authorize Assassination Plots During His Tenure as DCI
 
 The CIA considered several assassination plots against Castro during McCone's tenure as Director. Harvey initiated his contact with Roselli in April 1962, and the operation involving underworld figures continued into early 1963. In early 1963 the CIA looked into the possibility of assassinating Castro with an exploding seashell and contaminated diving suit. AM/LASH was offered a poison pen device in November 1963, and caches of arms were delivered to Cuba for his use in the following year.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25488.png
-
-Convert to Markdownput it all in a box, right down to every piece. I ruined my rugs and everything. And Uncle Al would come at 8:30, 9:00 in the morning and I would still be up separating the garbage and he'd be all fresh and ready for work and I had just come back from the garbage room. And...
+put it all in a box, right down to every piece. I ruined my rugs and everything. And Uncle Al would come at 8:30, 9:00 in the morning and I would still be up separating the garbage and he'd be all fresh and ready for work and I had just come back from the garbage room. And...
 
 **FS:** You stayed awake all night?
 

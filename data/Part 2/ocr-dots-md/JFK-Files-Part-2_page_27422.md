@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27422.png
-
-Convert to MarkdownDCID No. 1/9(New Series)
+DCID No. 1/9(New Series)
 
 Effective 26 Oct 61) #298
 

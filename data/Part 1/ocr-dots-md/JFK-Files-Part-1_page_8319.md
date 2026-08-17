@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8319.png
-
-Convert to MarkdownATTACHMENT to TURNOVER Report's
+ATTACHMENT to TURNOVER Report's
 
 May 15, 1969.
 

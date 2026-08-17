@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15395.png
-
-Convert to MarkdownNovember 12, 1964
+November 12, 1964
 
 I certify I have given Mr Eduardo Whitehouse Six Hours and Forty Five (6:45) minutes of dual instruction in North American AT-6D and I found him to be proficient and safe in this aircraft.
 

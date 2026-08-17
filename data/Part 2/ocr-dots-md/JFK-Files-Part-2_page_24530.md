@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24530.png
-
-Convert to Markdownto Helms a month prior to Harvey's trip to meet Roselli in Miami. Pursuant to the discussion at the Special Group's meeting on March 5, Helms was asked to estimate "for each week as far into the next twelve months as possible . . . the members and type of agents you will establish inside Cuba . . . (and) brief descriptions . . . of actions contemplated." (Memo to Helms from Lansdale, March 5, 1962)
+to Helms a month prior to Harvey's trip to meet Roselli in Miami. Pursuant to the discussion at the Special Group's meeting on March 5, Helms was asked to estimate "for each week as far into the next twelve months as possible . . . the members and type of agents you will establish inside Cuba . . . (and) brief descriptions . . . of actions contemplated." (Memo to Helms from Lansdale, March 5, 1962)
 
 Moreover, the approved plan for Operation Mongoose, as of
 the time of Harvey's meeting with Roselli in Miami required that any

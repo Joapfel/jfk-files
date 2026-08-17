@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1948.png
-
-Convert to MarkdownSECRET
+SECRET
 (18 hou. Billed In)
 
 <table>

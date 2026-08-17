@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4656.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 2
 
 5/23/62 to St. Petersburg, 361-1561, a day station call

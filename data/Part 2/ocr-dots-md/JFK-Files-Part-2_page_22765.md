@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22765.png
-
-Convert to Markdowngsh 17
+gsh 17
 
 Mr. Johnson. Could you give a brief example of the CIA role in strategic deception, a specific example?
 

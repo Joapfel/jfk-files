@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11011.png
-
-Convert to MarkdownApril 30, 1962
+April 30, 1962
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 115

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29460.png
-
-Convert to MarkdownChief of Station, JEWAVE
+Chief of Station, JEWAVE
 
 Chief, WOTACK
 Chappie/Pers -- Irving C. DEVUONO

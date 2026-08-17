@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6460.png
-
-Convert to Markdown1.
+1.
 
 (DELETED)
 

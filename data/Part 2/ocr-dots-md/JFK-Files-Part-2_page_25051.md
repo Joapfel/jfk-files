@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25051.png
-
-Convert to Markdown1 this period to protect the President was also -- I guess there
+1 this period to protect the President was also -- I guess there
 2 was some impact made upon his willingness after the U-2 crisis
 3 --
 4 Mr. Dillon. We still felt strongly that that had been a

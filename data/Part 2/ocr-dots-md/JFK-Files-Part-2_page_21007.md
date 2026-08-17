@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21007.png
-
-Convert to MarkdownREASON: 15 (C) [X]
+REASON: 15 (C) [X]
 
 CLASSIFIED BY: SVEE SLA/CC
 

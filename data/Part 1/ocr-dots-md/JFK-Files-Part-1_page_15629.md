@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15629.png
-
-Convert to MarkdownAttn:Jent
+Attn:Jent
 
 Date : 25 March 1959
 

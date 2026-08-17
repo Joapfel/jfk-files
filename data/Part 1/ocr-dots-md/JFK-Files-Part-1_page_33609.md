@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33609.png
-
-Convert to Markdown11 March 1958
+11 March 1958
 
 MEFORANDUM FOR THE RECORD
 

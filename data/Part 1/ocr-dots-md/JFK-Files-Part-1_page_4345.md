@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4345.png
-
-Convert to MarkdownCONSULTA ALVARES...Bisp.Pascalizadora....Arroyo Apolo. Robles.
+CONSULTA ALVARES...Bisp.Pascalizadora....Arroyo Apolo. Robles.
 
 HERNÁN DE ORtuNADO...Oosp.Hotona Poposa...
 

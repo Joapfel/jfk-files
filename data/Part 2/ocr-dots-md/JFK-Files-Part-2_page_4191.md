@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4191.png
-
-Convert to MarkdownThe meeting then continued with the President, McGeorge Bundy and McCone. I discussed the foreign aid figures as included in the 6 December memorandum and the special report on Soviet Foreign Economics Programs of 25 October, and stated that I would prepare for the President some special graphics which would show Soviet foreign, economic and military aid, both extensions and draw-downs, to non-Communist countries and Cuba.
+The meeting then continued with the President, McGeorge Bundy and McCone. I discussed the foreign aid figures as included in the 6 December memorandum and the special report on Soviet Foreign Economics Programs of 25 October, and stated that I would prepare for the President some special graphics which would show Soviet foreign, economic and military aid, both extensions and draw-downs, to non-Communist countries and Cuba.
 
 NOTE: Mr. Rostow raised the question earlier
 as to the validity of comparing our aid figures with

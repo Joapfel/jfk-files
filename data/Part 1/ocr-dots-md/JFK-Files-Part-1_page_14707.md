@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14707.png
-
-Convert to MarkdownHavana.
+Havana.
 
 Another relative said his
 primary and secondary education

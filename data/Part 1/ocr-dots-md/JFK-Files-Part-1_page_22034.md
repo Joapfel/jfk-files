@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22034.png
-
-Convert to MarkdownQuestion: It's 1960. He made a trip in 1950, in March, to Helsinki by train using this name, KOLOSOV, and using this cover, Vneshtorg, and we also have a report from official Finnish sources that he left Helsinki by train on 2 April 1960 and went to Moscow.
+Question: It's 1960. He made a trip in 1950, in March, to Helsinki by train using this name, KOLOSOV, and using this cover, Vneshtorg, and we also have a report from official Finnish sources that he left Helsinki by train on 2 April 1960 and went to Moscow.
 
 NOSENKO: I don't remember the dates. Don't remember. Must be 15 March or 1 April, 15 March or 1 April.
 

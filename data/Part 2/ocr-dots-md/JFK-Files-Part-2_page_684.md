@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_684.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>ORIG:</td><td>W.F. Frederick</td></tr></thead><tbody><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>EXT:</td><td>3654</td></tr><tr><td>DATE:</td><td>6 May 66</td></tr></tbody></table>
 

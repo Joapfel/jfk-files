@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16831.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Headquarters component)
 

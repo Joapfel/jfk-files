@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12682.png
-
-Convert to Markdown3. Criteria for placing and retaining name in security index
+3. Criteria for placing and retaining name in security index
 
 a. Basic criteria
 

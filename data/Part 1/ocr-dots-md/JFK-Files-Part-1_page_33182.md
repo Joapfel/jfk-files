@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33182.png
-
-Convert to Markdown17 March 1969
+17 March 1969
 
 MEMORANDUM TO: DC/WH/1
 

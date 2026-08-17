@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22782.png
-
-Convert to Markdowngsh 34
+gsh 34
 
 1 it went to many other people. But whether it actually got to
 2 the Secretary of State, I do not know.

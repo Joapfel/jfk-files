@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1701.png
-
-Convert to MarkdownOVERSEAS PROCESSING SHEET
+OVERSEAS PROCESSING SHEET
 
 SUBJECT Conline Lucine C. No. 5-025
 Title and Grade Major U.S.A. Office & Division DDP/SE

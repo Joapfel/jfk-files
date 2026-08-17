@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11007.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>ORIG: R. Scutt</td>
     <td rowspan="2">MESSAGE FORM<br/>27 SECRET/KAPOK</td>

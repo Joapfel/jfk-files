@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_31002.png
-
 at USIS. The secretary was a member of the House of Representatives, and as such, was subject to regular background checks by HSCA.
 
 A picture taken of Secretary Lee at the Office of HSCA in March 1974. A channel of the TV feed is visible on the right side of the image. This suggests that a charge was made against Secretary Lee in 1962 + his knews life.

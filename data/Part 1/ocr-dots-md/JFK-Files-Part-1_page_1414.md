@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1414.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 TAX STATUS : This is a corporation for profit. It has met federal and state tax requirements as follows:
 

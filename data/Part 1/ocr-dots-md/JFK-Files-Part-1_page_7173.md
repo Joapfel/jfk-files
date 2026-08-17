@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7173.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 CONTACT REPORT
 

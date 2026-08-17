@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33717.png
-
-Convert to MarkdownMr. Allen W. Dulles (continued)
+Mr. Allen W. Dulles (continued)
 
 Political implications, in any way harm the current Munich operation of R.F.E. or the BONN contract negotiations in the eyes of the BOMM government", we were assured by all that it would not.
 

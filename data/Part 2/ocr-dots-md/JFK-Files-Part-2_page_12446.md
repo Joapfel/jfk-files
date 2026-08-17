@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12446.png
-
-Convert to Markdown# "SECRET - NO FOREIGN DISSEMINATION"
+# "SECRET - NO FOREIGN DISSEMINATION"
 
 ## 23. Disinformation
 

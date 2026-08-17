@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4760.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of a circus atmosphere there was. If it were a simple
 executive session kind of look-see and the Senators or the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18752.png
-
-Convert to Markdown1/12/59
+1/12/59
 
 TO: DIRECTOR, FBI. (100-361800)
 

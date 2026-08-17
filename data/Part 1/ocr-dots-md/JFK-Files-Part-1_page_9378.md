@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9378.png
-
-Convert to MarkdownT. S.
+T. S.
 
 The decision on this is not up to me. I will appreciate opportunity to discuss it with you.
 

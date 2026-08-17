@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11433.png
-
-Convert to MarkdownALL INTEG-UTI-OCTET
+ALL INTEG-UTI-OCTET
 HERELT
 DATE3-7-91
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26484.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Tomas Parmenio Erickson Alvarez, a leader
 of the pro-Communist MPD party.

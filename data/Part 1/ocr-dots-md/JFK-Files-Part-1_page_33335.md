@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33335.png
-
-Convert to MarkdownTrucks stand idle outside Valparaiso, Chile on Sep-
+Trucks stand idle outside Valparaiso, Chile on Sep-
 tembor 8, 1973, the 44th day of a paralyzing trans-
 portation strike.
 

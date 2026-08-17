@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6030.png
-
-Convert to MarkdownASSASSINATION RECORDS REVIEW BOARD
+ASSASSINATION RECORDS REVIEW BOARD
 
 **Chairman:**
 

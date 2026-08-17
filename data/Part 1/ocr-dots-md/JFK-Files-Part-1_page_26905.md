@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26905.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG. M.GOMEZ:Jg</td></tr><tr><td>UNIT SOD/AB/OPS-3</td></tr><tr><td>EXT, 4475</td></tr><tr><td>DATE, 21 MAR 65'</td></tr></table>
 

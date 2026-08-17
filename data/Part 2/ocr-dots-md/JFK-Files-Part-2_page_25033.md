@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25033.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 they referred to as his associate, that is the key point. He
 worked for the President.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24131.png
-
-Convert to MarkdownTO: CHAPELTI
+TO: CHAPELTI
 
 Jerry's response was a bit of an enigma. He had been working at the airport for a long time, as his properly associated with the current and all that; they didn't really seem to like him (unless, of course, they had to). He catch him inlies, selicite. So as long as he keeps him out relatively clean, he'll be okay. He doesn't need to worry until the Home Office comes to him; when that happens, and that is unlikely, the way the British law works - he will look into things further. Tell him that having a British wife makes him immune to most out-kicking activities - as long as his nose is clean.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7137.png
-
-Convert to MarkdownThe Commission Staff will, during their inquiries in CIA Headquarters Area Offices, be given access to Agency files related to the Commission's fields of responsibility. The use of specific sensitive data from these files in any unclassified report by the Commission will be subject to consultation between the Director and the Commission.
+The Commission Staff will, during their inquiries in CIA Headquarters Area Offices, be given access to Agency files related to the Commission's fields of responsibility. The use of specific sensitive data from these files in any unclassified report by the Commission will be subject to consultation between the Director and the Commission.
 
 To facilitate interviews by the Commission Staff Officers with CIA employees, I have advised the Commission that employees are authorized to furnish classified information with certain exceptions. My letter to the Vice President, the Chairman of the Commission, is attached. It sets forth guidelines for the furnishing of classified information.
 

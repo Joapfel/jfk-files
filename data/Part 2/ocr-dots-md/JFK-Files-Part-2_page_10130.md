@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10130.png
-
-Convert to MarkdownDate: January 29, 1970
+Date: January 29, 1970
 
 - STEPHEN FISCHER-GALATI, Professor, Department of History, University of Colorado, advised that he had just returned from a European trip. He recalled first meeting Professor THOMAS RIHA sometime in 1966 at a meeting of the American Historical Society in San Francisco. He advised he also had heard of RIHA prior to their meeting. He advised that after RIHA came to the University of Colorado he knew him as a fellow faculty member of the Department of History and had dinner with him on two or three occasions. He advised their relationship was casual and could not have been considered a profound relationship.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19108.png
-
-Convert to MarkdownWFO 105-52614
+WFO 105-52614
 
 asked SCALI and WATSON whether they owned stock, and in the ensuing conversation, SCALI remarked that he would like to buy some stock in Soviet industries, but only in those industries in which the profit motive is now being introduced. BOBRAKOV, according to SCALI, immediately responded that there has always been a use of the profit motive in the Soviet Union, and proceeded to engage in serious conversation on this point.
 

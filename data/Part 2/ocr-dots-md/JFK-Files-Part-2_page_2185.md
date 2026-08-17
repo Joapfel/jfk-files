@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2185.png
-
-Convert to Markdown19 July 1968
+19 July 1968
 
 MEMORANDUM FOR: Chief, CSPS
 

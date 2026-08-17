@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_951.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. It is recommended that the subjects be each issued a written reprimand and directed to take two days' leave without pay as the result of incurring their fourth security violation.
 

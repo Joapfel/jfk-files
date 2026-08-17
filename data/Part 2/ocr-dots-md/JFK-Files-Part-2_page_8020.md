@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8020.png
-
 professor of computer science, Terry Smay, professor of electrical engineering, and Gary White, associate professor of music.
 
 Electronic music is produced by purely electronic means and the Iowa State Computerized Music System (ISMUS) will be doing just that — generating music with computer equipment. A composer will sit at the computer and write a musical composition using an electronic keyboard.

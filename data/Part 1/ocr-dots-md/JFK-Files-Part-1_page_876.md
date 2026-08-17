@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_876.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 OSS-495-74
 

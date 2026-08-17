@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18154.png
-
-Convert to Markdown4. All memoranda and any other materials which relate to a meeting between the President and Roy Wilkins, A. Philip Randolph, Whitney Young, Mrs. Dorothy Haight, James Farmer, and Jack Greenberg on November 19, 1964.
+4. All memoranda and any other materials which relate to a meeting between the President and Roy Wilkins, A. Philip Randolph, Whitney Young, Mrs. Dorothy Haight, James Farmer, and Jack Greenberg on November 19, 1964.
 
 5. A copy of a November 19, 1964, telegram from Dr. King to Director Hoover, and all notes, memoranda, and any other materials reflecting the disposition of, or actions taken as a result of the receipt of, said telegram.
 

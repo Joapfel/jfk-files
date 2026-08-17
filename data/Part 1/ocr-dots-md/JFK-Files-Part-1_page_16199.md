@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16199.png
-
-Convert to Markdown15. WER BELL was also the subject of two memorandums signed by Lawrence R. Houston. Mr. Houston, answering a request from Joseph J. Liebling, Deputy Assistant Secretary of Defense, on 23 February 1971, denied WER BELL's alleged affiliation with the CIA. On 28 October 1971, Mr. Houston wrote Mr. David H. Henretta, Jr., of the Industrial Security Clearance Review Division, to return notarized Interrogatories previously sent by Mr. Henretta.
+15. WER BELL was also the subject of two memorandums signed by Lawrence R. Houston. Mr. Houston, answering a request from Joseph J. Liebling, Deputy Assistant Secretary of Defense, on 23 February 1971, denied WER BELL's alleged affiliation with the CIA. On 28 October 1971, Mr. Houston wrote Mr. David H. Henretta, Jr., of the Industrial Security Clearance Review Division, to return notarized Interrogatories previously sent by Mr. Henretta.
 
 16. We have no information on Colonel Bayard except news articles reporting his death which were forwarded by the FBI.
 

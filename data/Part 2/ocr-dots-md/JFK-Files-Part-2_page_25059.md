@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25059.png
-
-Convert to Markdown# UNITED STATES OF AMERICA
+# UNITED STATES OF AMERICA
 DISTRICT OF COLUMBIA SS:
 
 I, C. Douglas Dillon, being first duly sworn, do upon oath depose and state:

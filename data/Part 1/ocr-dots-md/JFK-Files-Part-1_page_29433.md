@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29433.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 22 November 1967
 

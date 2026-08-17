@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24348.png
-
-Convert to MarkdownRECEIVED FROM
+RECEIVED FROM
 NOV 10 1975
 
 CIA

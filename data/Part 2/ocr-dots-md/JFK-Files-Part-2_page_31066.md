@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31066.png
-
-Convert to MarkdownVolume XVIII continued
+Volume XVIII continued
 
 6. Intelligence Information Cable, dtd 28 June 1966
 Source: Qualified American Observer

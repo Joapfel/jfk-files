@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15651.png
-
-Convert to Markdown/17/
+/17/
 
 62. This person will open himself up readily to an open personality.
 He will be secretive with an inhibited or secretive personality. Consequently, the best person to work with this individual is a direct, expressive and visible personality.

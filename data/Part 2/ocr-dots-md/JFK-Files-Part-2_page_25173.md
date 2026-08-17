@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25173.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ## OCCURRENCE:
 

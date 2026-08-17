@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19496.png
-
-Convert to MarkdownUNI-ED STATES DEPARTMENT OF J-:;T:;TCE
+UNI-ED STATES DEPARTMENT OF J-:;T:;TCE
 FEDERAL BUREAU OF INVESTIGATION
 
 Chicago, Illinois

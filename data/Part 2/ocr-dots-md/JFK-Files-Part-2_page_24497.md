@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24497.png
-
-Convert to MarkdownPresidential Assistant Theodore Sorensen said that his "first-hand knowledge" of Cuban affairs was limited to the post-Bay of Pigs period (Sorensen, p. 4). Sorensen stated, however, that his general opinion based upon his close contact with President Kennedy, was that
+Presidential Assistant Theodore Sorensen said that his "first-hand knowledge" of Cuban affairs was limited to the post-Bay of Pigs period (Sorensen, p. 4). Sorensen stated, however, that his general opinion based upon his close contact with President Kennedy, was that
 
 > "such an act [as assassination] was totally foreign to his character and conscience, foreign to his fundamental reverence for human life and his respect for his adversaries, foreign to his insistence upon a moral dimension in U.S. foreign policy to his pragmatic recognition that so horrendous but inevitably counterproductive a precedent committed by a country whose own chief of state was inevitably vulnerable could only provoke reprisals and inflame hostility." (Sorensen, p. 5).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33589.png
-
-Convert to Markdown20 March 1952
+20 March 1952
 
 **MATERIAL FOR:** Chief, Southeastern Europe Division
 Chief, Eastern Europe Division

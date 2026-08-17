@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14191.png
-
-Convert to Markdown84 JUN 3 1975.
+84 JUN 3 1975.
 
 NW 88296 DocId:32989588 Page 222
 

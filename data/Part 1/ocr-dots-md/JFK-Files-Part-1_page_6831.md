@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6831.png
-
-Convert to MarkdownSECRET/HOFORN
+SECRET/HOFORN
 CONTINUED CONTROL
 
 8 DEC 1959

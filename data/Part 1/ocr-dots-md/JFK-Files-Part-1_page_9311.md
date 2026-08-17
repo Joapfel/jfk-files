@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9311.png
-
-Convert to Markdown**Caption:**
+**Caption:**
 
 JOSEPH STALIN
 1917-1958

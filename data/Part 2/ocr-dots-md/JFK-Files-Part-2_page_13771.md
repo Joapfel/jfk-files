@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13771.png
-
-Convert to Markdown1. The structure, performance, and utility of government operations with respect to intelligence activities;
+1. The structure, performance, and utility of government operations with respect to intelligence activities;
 
 2. Whether certain policies or practices are or are not illegal, unethical, or otherwise improper;
 

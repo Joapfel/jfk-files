@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22967.png
-
-Convert to Markdown**Section 15 (Cont.)**
+**Section 15 (Cont.)**
 
 From June 53 to Dec. 53
 

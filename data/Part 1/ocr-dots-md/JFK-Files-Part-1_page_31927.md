@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31927.png
-
-Convert to Markdown<table><thead><tr><td>Form No.</td><td>Name</td><td>Cost Center Number</td><td>LWOP Minutes</td></tr></thead><tbody><tr><td>025694</td><td>PICCOLO JOSEPH S.</td><td>49200 V</td><td></td></tr></tbody></table>
+<table><thead><tr><td>Form No.</td><td>Name</td><td>Cost Center Number</td><td>LWOP Minutes</td></tr></thead><tbody><tr><td>025694</td><td>PICCOLO JOSEPH S.</td><td>49200 V</td><td></td></tr></tbody></table>
 
 <table><thead><tr><th colspan="3">OLD SALARY RATE</th><th colspan="3">NEW SALARY RATE</th><th rowspan="2">PSI</th><th rowspan="2">LSI</th><th rowspan="2">ADJ</th></tr><tr><th>Grade</th><th>Step</th><th>Salary</th><th>Last IN Date</th><th>Grade</th><th>Step</th><th>Salary</th></tr></thead><tbody><tr><td>GS 09 2</td><td>3</td><td>7,463</td><td>07/19/64</td><td>GS 09 3</td><td>3</td><td>7,714</td><td>07/25/65</td><td></td></tr></tbody></table>
 

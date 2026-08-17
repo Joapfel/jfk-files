@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22999.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 OPERATIONAL CLEARANCE

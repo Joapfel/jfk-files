@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10361.png
-
-Convert to MarkdownVIII. Coordination
+VIII. Coordination
 
 A. Internal
 

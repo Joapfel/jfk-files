@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22540.png
-
-Convert to MarkdownSECRET-ENCS ONLY
+SECRET-ENCS ONLY
 
 electronic device . . . (or) . . . the possibility of poisoning
 the dictator's food or of putting poison capsules in bottles

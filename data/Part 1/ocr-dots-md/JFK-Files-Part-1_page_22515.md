@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22515.png
-
-Convert to MarkdownSECRET-ETS ONLY
+SECRET-ETS ONLY
 
 Galindo case; Euscar Tejeda; Roberto Pastoriza; and Pedro Lilio Cedeno. The eighth member, Manuel Caceres Tunti, was in Mora on the night of the 30th and saw none of the action.
 

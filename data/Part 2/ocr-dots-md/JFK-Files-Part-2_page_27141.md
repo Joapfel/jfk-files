@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27141.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 in concert with them or even keep their secrets. To weather the crisis, CIA needs a strengthened counterintelligence cadre in its Headquarters, one able to give full support and judicious guidance to liaison officers abroad.
 

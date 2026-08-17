@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29618.png
-
-Convert to Markdown16 June 1964
+16 June 1964
 
 MEMORANDUM FOR: Chairman, Career-Service Board, NPIC
 THROUGH : Secretary, Career Service Board, NPIC

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35629.png
-
-Convert to Markdown# Programa Radial "El Medico y Usted"
+# Programa Radial "El Medico y Usted"
 Abril, 1965
 
 2 Viernes $ 327 Diarrcas en el niño

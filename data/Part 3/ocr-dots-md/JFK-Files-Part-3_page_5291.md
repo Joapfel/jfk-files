@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5291.png
-
-Convert to Markdown<table><tr><td>NR014 PH CODE</td></tr><tr><td>940 PM NITEL JULY 30, 1975 DCC</td></tr></table>
+<table><tr><td>NR014 PH CODE</td></tr><tr><td>940 PM NITEL JULY 30, 1975 DCC</td></tr></table>
 
 TELETYP
 

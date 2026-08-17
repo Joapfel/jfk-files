@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24914.png
-
-Convert to MarkdownMemo For Tichborn 201 file
+Memo For Tichborn 201 file
 
 Marginalia from two meetings with Tichborn in Washington in April and May 1966
 

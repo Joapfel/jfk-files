@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4633.png
-
-Convert to Markdown4-22 (Rev. 1-22-60)
+4-22 (Rev. 1-22-60)
 
 Federal Bureau of Investigation
 Records Branch

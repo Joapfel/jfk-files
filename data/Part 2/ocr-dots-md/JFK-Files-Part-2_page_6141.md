@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6141.png
-
-Convert to Markdown56 Md. L. Rev. 1, *12
+56 Md. L. Rev. 1, *12
 
 n70. See supra notes 41-43 and accompanying text.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23984.png
-
-Convert to Markdownhave to be neutralized, by displacement if necessary."* (Korry to Meyer and Kissinger/Situation Report, 21 September 1970) In testifying, Kissinger felt the Korry report indicated "the degree to which Track I and Track II were merging, that is to say, that individuals on Track I were working on exactly the same problem as the CIA was working on Track II." (Kissinger testimony, p. 21)
+have to be neutralized, by displacement if necessary."* (Korry to Meyer and Kissinger/Situation Report, 21 September 1970) In testifying, Kissinger felt the Korry report indicated "the degree to which Track I and Track II were merging, that is to say, that individuals on Track I were working on exactly the same problem as the CIA was working on Track II." (Kissinger testimony, p. 21)
 
 Ambassador Korry's activites in Chile between September 4 and October 24 support Kissinger's view that the line separating Track I and Track II often became blurred. For example, the Ambassador was authorized to make his contacts in the Chilean military aware that if Allende were seated, the military could expect no further military assistance (MAP) from the United States. Later, in response to his own recommendation, Korry was authorized to inform the Chilean military that all MAP and military sales were being held in abeyance pending the outcome of the Congressional election on October 24. On October 7, Ambassador Korry received the following cable from Kissinger and Under Secretary
 

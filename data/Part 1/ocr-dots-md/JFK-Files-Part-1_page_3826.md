@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3826.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">SECRET 211825Z CITE MANAGUA 6865<br/>DIRECTOR, IMWAVE INFO SAN JOSE, TEGUCIGALPA</td>

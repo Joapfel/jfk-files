@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16361.png
-
-Convert to MarkdownThe following five pages sets forth:
+The following five pages sets forth:
 
 (a) Xerox copy of Illinois Black Panther Party stationery, which indicates identity of BPP leaders at Chicago, Illinois
 

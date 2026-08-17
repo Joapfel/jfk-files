@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30663.png
-
-Convert to MarkdownSECRET
+SECRET
 
 operational sources. He is an authority on enemy efforts to penetrate the Agency, the Departments of State and Defense.
 

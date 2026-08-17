@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1027.png
-
-Convert to Markdown16 April 1973
+16 April 1973
 
 MEMORANDUM FOR: Chief, WU Division
 THROUGH : Deputy Director for Operations

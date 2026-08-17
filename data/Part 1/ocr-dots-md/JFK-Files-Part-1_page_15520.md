@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15520.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td></td><td>SECRET</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td></td><td>SECRET</td></tr></table>
 
 DATE : 8 JUL 61
 

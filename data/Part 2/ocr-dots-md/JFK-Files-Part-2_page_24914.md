@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24914.png
-
-Convert to MarkdownThe Committee concludes that the failure clearly to inform policymakers of the assassination effort against Castro was grossly improper. The Committee believes that it should be incumbent upon the DDP to report such a sensitive operation to his superior, the DCI, no matter how grave his doubts might be about the possible outcome of the operation. It follows that the DCI has the same duty to accurately inform his superiors.
+The Committee concludes that the failure clearly to inform policymakers of the assassination effort against Castro was grossly improper. The Committee believes that it should be incumbent upon the DDP to report such a sensitive operation to his superior, the DCI, no matter how grave his doubts might be about the possible outcome of the operation. It follows that the DCI has the same duty to accurately inform his superiors.
 
 ## Trujillo
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30957.png
-
-Convert to Markdown7. The amount of your annual annuity, the pay allowable for your accumulated annual leave and other data relative to your retirement will be discussed in memoranda to follow.
+7. The amount of your annual annuity, the pay allowable for your accumulated annual leave and other data relative to your retirement will be discussed in memoranda to follow.
 
 8. I am in the same "boat" with you on several of the above items, if that is of any comfort.
 

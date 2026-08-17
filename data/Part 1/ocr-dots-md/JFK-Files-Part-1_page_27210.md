@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27210.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 November 1950
 

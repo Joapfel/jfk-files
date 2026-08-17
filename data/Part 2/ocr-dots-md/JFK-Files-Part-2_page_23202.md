@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23202.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the Kennedy Administration.
 

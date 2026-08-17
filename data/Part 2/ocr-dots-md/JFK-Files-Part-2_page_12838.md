@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12838.png
-
-Convert to Markdown**Orlando Bosch**
+**Orlando Bosch**
 
 a. <u>Involvement in Crash</u>: As noted above, Bosch was arrested in Venezuela for alleged involvement in the Cubana crash. In late June, a CIA source reported that an exile group headed by Bosch planned to bomb a Cubana flight between Panama and Havana. An FBI source has alleged that one attempt was made but the bomb did not detonate. A second try occurred in Jamaica on July 9, but the bomb exploded before the suit-case in which it was carried was put aboard the plane.
 

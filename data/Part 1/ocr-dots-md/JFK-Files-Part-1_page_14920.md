@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14920.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Subject began working in Paris. He was employed by the firm of Jacques Gara, which specialized in making models of houses. He stayed with this firm approximately from 1947-1953 and was paid about Fr. 120 an hour. There he met his future wife PARMER, who originated from Besançon (her parents have a grain business in Besançon and own a house and car).</td>
    </tr>

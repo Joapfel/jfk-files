@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1200.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 15 February 1956
 

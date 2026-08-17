@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_80.png
-
-Convert to MarkdownVIA A3
+VIA A3
 
 TO Chief, VD
 

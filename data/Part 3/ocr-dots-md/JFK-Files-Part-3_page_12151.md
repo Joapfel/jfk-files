@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12151.png
-
-Convert to Markdownto constitute a grand jury and in the absence of any charges
+to constitute a grand jury and in the absence of any charges
 or allegations of a violation of law on his part, he did not
 insist on the presence of counsel.
 

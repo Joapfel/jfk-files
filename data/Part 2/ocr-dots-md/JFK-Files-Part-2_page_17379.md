@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_17379.png
-
 leader of the Security
 Staff (returned)
 

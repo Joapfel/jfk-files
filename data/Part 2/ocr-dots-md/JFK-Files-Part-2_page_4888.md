@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4888.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PHNO: 97-9265318
 

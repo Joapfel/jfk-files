@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26426.png
-
-Convert to Markdown<table><caption>CLASSIFIED MESSAGE</caption><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+<table><caption>CLASSIFIED MESSAGE</caption><thead><tr><th colspan="2">SECRET</th></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
 
 TO : DIRECTOR
 

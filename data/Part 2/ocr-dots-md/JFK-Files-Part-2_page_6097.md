@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6097.png
-
-Convert to Markdown(b) List all memberships and offices held in and services rendered to all political parties or election committees during the last 10 years.
+(b) List all memberships and offices held in and services rendered to all political parties or election committees during the last 10 years.
 
 None
 

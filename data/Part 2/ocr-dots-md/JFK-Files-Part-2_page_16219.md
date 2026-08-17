@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16219.png
-
-Convert to Markdown44
+44
 
 SPRINGFIELD
 

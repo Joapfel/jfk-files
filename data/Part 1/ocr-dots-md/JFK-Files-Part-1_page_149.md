@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_149.png
-
-Convert to MarkdownShe has introduced the First Lady by (flu) BARRIOS. So, (fluctuate).
+She has introduced the First Lady by (flu) BARRIOS. So, (fluctuate).
 
 (c) He is now 102 years old, the new Cardinal of Rome, to whom St. Peter says: "Behold me; I come to you in my simplicity." (St. John) He is a man who has done much good there to Church and State.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32331.png
-
-Convert to Markdown# FITNESS REPORT - Daniel Flores
+# FITNESS REPORT - Daniel Flores
 
 ## SECTION D (CONTINUED)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8339.png
-
-Convert to Markdown14-00000
+14-00000
 
 NOTE: Script for meeting with Valentin
 DATE OF REPORT: March 24, 1969

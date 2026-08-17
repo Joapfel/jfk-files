@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20702.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Womens National Abortion
 Action Coalition (WONAAC)

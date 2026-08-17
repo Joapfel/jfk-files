@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34981.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DISPATCH</td></tr><tr><td>SECRET</td></tr><tr><td>TO: Chief of Station, JMAWAV</td><td>JULY 3 1967</td><td>X</td></tr><tr><td>INFO.</td><td>DCC. 052011, 1.</td></tr><tr><td>FROM: Chief, Western Hemisphere Division</td><td colspan="2">MICRO FILM</td></tr><tr><td>SUBJECT: OPERATIONAL/TYPIC/AMBUD Concerning Dependency Payment for Jorge KIM Yum (Case #143)</td><td colspan="2"></td></tr><tr><td>ACTION REQUIRED REFERENCES:</td><td colspan="2">A. UFGA-27303, dated 31 March 1967<br>B. UFGA-27528, dated 11 May 1967<br>C. UFGA-27670, dated 29 May 1967</td></tr></table>
 

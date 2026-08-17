@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5055.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 93-3747541
 

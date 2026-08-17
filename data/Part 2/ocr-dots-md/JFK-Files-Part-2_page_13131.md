@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13131.png
-
-Convert to Markdown**Jury selection**
+**Jury selection**
 
 The jury element is the people's component in the existing system of criminal justice; it is only quasi-organized and partially managed. The use of systematic jury selection can be an important tool in the practice of people's law, but at present it is being developed and used selectively as a successful foil in cases of overt political attack. The minimal program in jury selection defense work is to secure a group of twelve people who will take their function as jurors seriously and assume that the defendants are innocent until proven guilty. The maximal program is to secure a jury which will acquit the defendants.
 

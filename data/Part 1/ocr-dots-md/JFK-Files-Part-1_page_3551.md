@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3551.png
-
-Convert to Markdown-2-
+-2-
 
 message sent to him in Costa Rica, however he did not receive the accompanying message. A-1 was asked to find out why the private link message did not reach him. Also, it was explained to A-1 who "El Narizon" is.
 

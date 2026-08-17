@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24486.png
-
-Convert to MarkdownBurke ... was expressing his opinion that if you have any plan for the overthrow of Castro, it ought to take these factors into consideration, that you might end up with a Communist government." (Gray, p. 45).
+Burke ... was expressing his opinion that if you have any plan for the overthrow of Castro, it ought to take these factors into consideration, that you might end up with a Communist government." (Gray, p. 45).
 
 With respect to the March 14, 1960 Special Group meeting, Admiral Burke stated that the "general discussion" referred to in the record of that meeting "clearly did not involve a discussion of assassination of Cuban leaders, but to the possible effects should only those leaders be overthrown by a group not powerful enough to also master the organization those leaders had established in Cuba." (Burke affidavit, p. 2) Burke stated further:
 

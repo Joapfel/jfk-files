@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11589.png
-
-Convert to Markdown1. AGENT CRYPTOLOGY, OR PSEUDONYMOUS
+1. AGENT CRYPTOLOGY, OR PSEUDONYMOUS
 
 Paul D. Lanrevin (FULL INVOICE - 1)
 

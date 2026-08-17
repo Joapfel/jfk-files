@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3901.png
-
-Convert to Markdown13-00000
+13-00000
 
 MAY 25, 1967
 

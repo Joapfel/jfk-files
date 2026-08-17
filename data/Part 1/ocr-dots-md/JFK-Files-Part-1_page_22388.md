@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22388.png
-
-Convert to Markdown788.
+788.
 
 (Reported to CIA by the FBI on 29 January 1965)
 

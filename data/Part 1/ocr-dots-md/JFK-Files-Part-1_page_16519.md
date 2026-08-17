@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16519.png
-
-Convert to MarkdownA letter, with attached memorandum, dated October 6, 1971, to the chairman of the Committee on the Judiciary of the House of Representatives from the Commissioner of Immigration and Naturalization with reference to the case, reads as follows:
+A letter, with attached memorandum, dated October 6, 1971, to the chairman of the Committee on the Judiciary of the House of Representatives from the Commissioner of Immigration and Naturalization with reference to the case, reads as follows:
 
 DEPARTMENT OF JUSTICE,
 IMMIGRATION AND NATURALIZATION SERVICE,

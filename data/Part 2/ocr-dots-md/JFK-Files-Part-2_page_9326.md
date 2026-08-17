@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9326.png
-
-Convert to Markdown# The Relations of the Revolutionists Toward His Comrades in the Cause
+# The Relations of the Revolutionists Toward His Comrades in the Cause
 
 8. A revolutionist may feed friendship or attachment only for those who have proven themselves by their actions to be revolutionists like himself. The measure of friendship, devotion, and other obligations towards such a comrade is determined solely by the degree of his usefulness to the cause of the all-destructive revolution.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18916.png
-
-Convert to Markdownthat Gvishiani was interviewed by a reporter of a Milwaukee, Wisconsin newspaper possibly the "Milwaukee Journal." She was willing to talk about the United States and her reaction to the United States, but she would not discuss her father. Jaffe indicated he informed a newspaper friend in New York that Gvishiani was staying at the SMUN; however, he does not know whether or not his friend succeeded in interviewing Gvishiani.
+that Gvishiani was interviewed by a reporter of a Milwaukee, Wisconsin newspaper possibly the "Milwaukee Journal." She was willing to talk about the United States and her reaction to the United States, but she would not discuss her father. Jaffe indicated he informed a newspaper friend in New York that Gvishiani was staying at the SMUN; however, he does not know whether or not his friend succeeded in interviewing Gvishiani.
 
 By communication of August 17, 1970, the United States Department of State (USDS) advised that among the Soviets who were issued visas to enter the United States to attend the 20th International Pugwash Conference, Chicago, Illinois, September 9-15, 1970 are:
 

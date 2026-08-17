@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25188.png
-
-Convert to Markdown<table><tr><td colspan="2"><u>PERSONS/ENTITIES:</u></td><td colspan="2"><u>DATES:</u></td><td colspan="2"><u>CATEGORIES:</u></td></tr><tr><td>Lansdale, Henry Cabot</td><td>Sept. 19, 1963</td><td colspan="4">DIEM</td></tr><tr><td>Kennedy, John F.</td><td></td><td colspan="4"></td></tr></table>
+<table><tr><td colspan="2"><u>PERSONS/ENTITIES:</u></td><td colspan="2"><u>DATES:</u></td><td colspan="2"><u>CATEGORIES:</u></td></tr><tr><td>Lansdale, Henry Cabot</td><td>Sept. 19, 1963</td><td colspan="4">DIEM</td></tr><tr><td>Kennedy, John F.</td><td></td><td colspan="4"></td></tr></table>
 
 ## OCCURRENCE:
 

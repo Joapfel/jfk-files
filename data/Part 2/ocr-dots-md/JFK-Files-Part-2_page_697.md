@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_697.png
-
-Convert to Markdowntorn with the thought of leaving this project which he believes
+torn with the thought of leaving this project which he believes
 will be most successful, and which would assure his livelihood,
 but he knows that he must devote himself to the fight against
 Castro. It is obvious to me that AMBANG-1 will within the next

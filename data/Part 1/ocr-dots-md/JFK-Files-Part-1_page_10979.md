@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10979.png
-
-Convert to Markdown130927
+130927
 
 CONTRACT FOR CIVIL COMMITMENTS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11850.png
-
-Convert to MarkdownAs to the Espionage and Extremist Intelligence Branch clerical reduction recommendations, the following comments are made.
+As to the Espionage and Extremist Intelligence Branch clerical reduction recommendations, the following comments are made.
 
 Nationalities Intelligence will reduce one clerk as recommended.
 

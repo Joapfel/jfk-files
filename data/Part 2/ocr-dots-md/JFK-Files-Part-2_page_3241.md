@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3241.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 one instance, the Hammer and Sickle was used to form
 the 'T' in the word *Traidor* on a sticker that was

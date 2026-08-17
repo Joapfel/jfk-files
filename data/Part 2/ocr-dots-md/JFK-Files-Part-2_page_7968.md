@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7968.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. Beards and long hair prevailed, and others stood out like a sore thumb. There was not a single Negro in the audience, nor, that morning, on the platform. Even the speaker who spoke on the case of Martin Luther King was white.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_303.png
-
-Convert to Markdown1. Jose Marie Andre Mankel
+1. Jose Marie Andre Mankel
 
 2. David Tzitzichilli
 

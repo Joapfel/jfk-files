@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15297.png
-
-Convert to MarkdownVII-
+VII-
 LIST OF PERSON NAMES
 
 IN THE FOLLOWING RECORD (Page, Chapter, Subdivision.

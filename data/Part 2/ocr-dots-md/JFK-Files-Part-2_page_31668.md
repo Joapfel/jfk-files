@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31668.png
-
-Convert to Markdown# FAIR PLAY FOR CUBA COMMITTEE (cont'd.)
+# FAIR PLAY FOR CUBA COMMITTEE (cont'd.)
 
 The November 23, 1963, edition of "The New York Times" reported that Senator THOMAS J. DODD of Connecticut had called FPCC "the chief public relations instrument of the Castro network in the United States." It is to be noted that Senator DODD was a member of the Senate Internal Security Subcommittee which twice conducted hearings on the FPCC.
 

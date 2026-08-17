@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14257.png
-
-Convert to Markdownquestioning elsewhere than in the Senate, with respect to the events occurring at the Subcommittee hearing at which the Pentagon Papers were introduced into the public record. The court stated: ".../T/o us this claim is incontrovertible." (At p. 615.)
+questioning elsewhere than in the Senate, with respect to the events occurring at the Subcommittee hearing at which the Pentagon Papers were introduced into the public record. The court stated: ".../T/o us this claim is incontrovertible." (At p. 615.)
 
 6. The court further noted that:
 

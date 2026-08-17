@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30267.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 students, but particularly those students who are studying the Russian language, Russian history, Russian economy.
 

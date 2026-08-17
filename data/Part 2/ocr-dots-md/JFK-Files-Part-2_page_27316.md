@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27316.png
-
-Convert to MarkdownB - Ltr from Knoche to Belin - 23 Apr 75
+B - Ltr from Knoche to Belin - 23 Apr 75
 C - Ltr from Colby to Lynn - 1 Apr 75
 D - Routing and Record Sheet - 28 Mar 75.
 E - Ltr from Colby to Saxbe - 24 Apr 74

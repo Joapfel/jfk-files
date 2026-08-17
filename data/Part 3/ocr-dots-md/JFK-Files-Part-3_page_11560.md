@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11560.png
-
-Convert to MarkdownEAST COAST CONSPIRACY
+EAST COAST CONSPIRACY
 
 4-A-4
 

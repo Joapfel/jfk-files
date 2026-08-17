@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4717.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Embassy. It didn't even have one at the time. The only one that was in town
 was the one on G-2 under General McGarr. And what the hell was the G-2

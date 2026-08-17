@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13688.png
-
-Convert to Markdownforeign individuals and groups within the United States. More specifically the Office of Policy Coordination will, in so far as possible, inform the FBI sufficiently in advance of its proposed dealings with such individuals and groups to enable the FBI to advise the Office of Policy Coordination of any security risks which may be involved in dealing with such individuals and groups and in order to provide the FBI with adequate opportunity to indicate individuals which it is employing for its own purposes in connection with the penetration of foreign groups.
+foreign individuals and groups within the United States. More specifically the Office of Policy Coordination will, in so far as possible, inform the FBI sufficiently in advance of its proposed dealings with such individuals and groups to enable the FBI to advise the Office of Policy Coordination of any security risks which may be involved in dealing with such individuals and groups and in order to provide the FBI with adequate opportunity to indicate individuals which it is employing for its own purposes in connection with the penetration of foreign groups.
 
 d. There shall be an exchange of information between the FBI and the Office of Policy Coordination concerning the significance, activities, and reliability of such individuals and groups of foreign nationalities within the United States as may be of interest to the Office of Policy Coordination.
 

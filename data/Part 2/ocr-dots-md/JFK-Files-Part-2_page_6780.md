@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6780.png
-
-Convert to Markdownintend to address only Intelligence Community concerns; I will defer to the Department of Justice on any additional problems posed by the joint resolution.
+intend to address only Intelligence Community concerns; I will defer to the Department of Justice on any additional problems posed by the joint resolution.
 
 First, vesting in an outside body the determination as to whether CIA materials related to the assassination can be released to the public is inconsistent with my own statutory responsibility to protect intelligence sources and methods.
 

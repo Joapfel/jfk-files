@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_603.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 JUN 67 M 92302
 

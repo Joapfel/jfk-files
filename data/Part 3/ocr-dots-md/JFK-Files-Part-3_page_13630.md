@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13630.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 post in '63, as I recall. He had been Deputy Minister of Interior. He had been a military attache in Spain. I don't think he had a specific post at that time.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7365.png
-
-Convert to MarkdownSERVICES OTHER THAN PERSONAL
+SERVICES OTHER THAN PERSONAL
 
 Terence S. CRABANAC
 

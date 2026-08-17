@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19651.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="6" style="text-align:center;">PERSONAL INFORMATION</th>

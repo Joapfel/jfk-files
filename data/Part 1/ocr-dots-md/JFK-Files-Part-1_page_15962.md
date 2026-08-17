@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15962.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: William W. Phelps
 UNIT: EE/G/Ops

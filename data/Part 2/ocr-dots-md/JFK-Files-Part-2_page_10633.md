@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10633.png
-
-Convert to MarkdownCODE TELETYPE
+CODE TELETYPE
 
 TO SAC, ATLANTA
 

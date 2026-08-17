@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18977.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>Print or type your name here as in item 4</td></tr><tr><td>Lies Ann Lorena Goodpasture</td></tr></table>
 

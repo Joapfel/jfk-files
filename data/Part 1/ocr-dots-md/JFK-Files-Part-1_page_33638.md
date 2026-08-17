@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33638.png
-
-Convert to MarkdownSECURITY RANK
+SECURITY RANK
 
 -6-
 

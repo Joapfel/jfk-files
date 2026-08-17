@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_960.png
-
-Convert to MarkdownREPUBLIC OF VIETNAM
+REPUBLIC OF VIETNAM
 
 AWARD COMMENDATION
 

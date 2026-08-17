@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26650.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROCEEDINGS
 

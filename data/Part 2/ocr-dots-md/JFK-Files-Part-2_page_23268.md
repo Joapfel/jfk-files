@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23268.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 to be engaged in in the Congo. This included such things as
 purely policy questions of what the Ambassador to the U.N.

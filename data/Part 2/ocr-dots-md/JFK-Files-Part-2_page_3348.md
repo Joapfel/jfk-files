@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3348.png
-
-Convert to Markdown(2) Orientation of radio broadcasts and news reports, both government and private.
+(2) Orientation of radio broadcasts and news reports, both government and private.
 
 (3) The U. S. Information Service.
 

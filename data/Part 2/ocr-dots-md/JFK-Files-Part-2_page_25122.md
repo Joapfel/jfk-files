@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25122.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>RICHARDSON, John</td><td>DIEM</td></tr><tr><td>LODGE, Henry Cabot</td><td>CIA</td></tr><tr><td>TRUEHART, William</td><td></td></tr><tr><td>HARKINS, Gen. Paul D.</td><td>(Commander, MAC/V)</td></tr><tr><td>WEEDE, Gen.</td><td></td></tr><tr><td>OCCURRENCE:</td><td>CIA</td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>RICHARDSON, John</td><td>DIEM</td></tr><tr><td>LODGE, Henry Cabot</td><td>CIA</td></tr><tr><td>TRUEHART, William</td><td></td></tr><tr><td>HARKINS, Gen. Paul D.</td><td>(Commander, MAC/V)</td></tr><tr><td>WEEDE, Gen.</td><td></td></tr><tr><td>OCCURRENCE:</td><td>CIA</td></tr></table>
 
 On August 25, 1963, the following/cable from Saigon (SAIG 0296) had the message below:
 

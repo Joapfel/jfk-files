@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6286.png
-
-Convert to Markdown5 August 1996
+5 August 1996
 
 CIA's HSCA JFK SEQUESTERED RECORDS - I
 

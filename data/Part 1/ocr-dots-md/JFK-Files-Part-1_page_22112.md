@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22112.png
-
-Convert to Markdown271.
+271.
 
 **NOSENKO:**
 

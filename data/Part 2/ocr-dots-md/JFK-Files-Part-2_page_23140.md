@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23140.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Halley. I don't recall such a discussion, but again, the reason for it was, it was essentially felt at that time, as name traces were done, the whole mood and the whole atmosphere was that this was a case that was being investigated by the FBI. It was their jurisdictional problem.
 

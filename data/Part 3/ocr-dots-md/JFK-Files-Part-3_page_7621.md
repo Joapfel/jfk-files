@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7621.png
-
-Convert to Markdownfor Mr. Felt
+for Mr. Felt
 Supervisory Reorganization of Functions and Personnel;
 Crime Research Division
 

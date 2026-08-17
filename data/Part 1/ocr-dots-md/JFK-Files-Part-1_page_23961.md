@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23961.png
-
-Convert to MarkdownHe never did anything else. Just a student, he has graduated
+He never did anything else. Just a student, he has graduated
 now. I think he is working in the government somewhere.
 
 (Did he get paid)

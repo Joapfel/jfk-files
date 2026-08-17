@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17640.png
-
-Convert to Markdownofficers and members thereof, racial incidents throughout
+officers and members thereof, racial incidents throughout
 the country, and any specific demonstrations which are
 being planned and are of such nature as to render them
 subject to the possibility of violence." Quick retrieval

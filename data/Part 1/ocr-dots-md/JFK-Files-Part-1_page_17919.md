@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17919.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>240</td><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>240</td><td><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr></table>
 
 DATE : 9 DEC 57
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29285.png
-
-Convert to MarkdownL. Dominick Bartone
+L. Dominick Bartone
 
 File #A10 190 157
 

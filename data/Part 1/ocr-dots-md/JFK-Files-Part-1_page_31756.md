@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31756.png
-
-Convert to Markdown1951 CONTRIBUTIONS
+1951 CONTRIBUTIONS
 
 Alabam
 Ari

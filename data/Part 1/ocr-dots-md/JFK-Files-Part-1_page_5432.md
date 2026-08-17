@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5432.png
-
-Convert to MarkdownIN 00388
+IN 00388
 
 TDCC DB-315/02404-67
 PAGE 3 OF 4 PAGES

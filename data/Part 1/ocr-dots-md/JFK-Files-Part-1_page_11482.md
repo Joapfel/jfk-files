@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11482.png
-
-Convert to Markdown2.
+2.
 
 past friendship, Fanny Ravel treated him in an obvious cold manner. L/3, feeling that he could not this pass unnoticed, got Fanny in the corner and asked what was up. She replied that for some time she had been hearing "disturbing reports" about L/3. Under further questioning by L/3 she specified that originally, some 7-8 months previously she had been told by a LIRING official that L/3 "was not to be trusted". Fanny continued that she did not pay too much attention to this, since the official was rather "low-level", but more recently she was told the same thing by an "unimpeachable source" and could not challenge it despite her high personal esteem for L/3.
 

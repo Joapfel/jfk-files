@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9326.png
-
-Convert to Markdown(15) Scene from Russo-Finnish war.
+(15) Scene from Russo-Finnish war.
 
 emphasis on Russian soldiers dead.
 

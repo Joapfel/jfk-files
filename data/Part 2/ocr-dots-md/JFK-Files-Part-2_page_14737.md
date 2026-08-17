@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14737.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 WFO 100-New
 

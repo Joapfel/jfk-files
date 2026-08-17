@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15931.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>Page</th><th>Title</th><th>Date</th></tr></thead><tbody><tr><td>53</td><td>LUKE HUGHES ANDERSON<br/>DECEMBER 9, 1963<br/>REF: CIGETT<br/>CONTINUED</td><td>DEC 7 1963</td></tr></tbody></table>
 

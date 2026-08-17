@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9085.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to notify the Bureau. A letter dated September 16, 1959, was
 also sent to [illegible] and he was told that the Bureau was

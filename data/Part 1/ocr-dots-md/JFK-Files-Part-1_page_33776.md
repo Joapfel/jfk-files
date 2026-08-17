@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33776.png
-
-Convert to MarkdownSECRET
+SECRET
 - 2 -
 
 4. On 10 June, Alan Valentine remarked to Exmons Brown that you had agreed that I should be rebuked for my letter to him of 22 May. This was an unsolicited comment from Valentine, and Brown made no reply.

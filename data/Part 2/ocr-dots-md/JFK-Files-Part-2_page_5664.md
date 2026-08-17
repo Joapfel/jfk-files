@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5664.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 September 25, 1998
 

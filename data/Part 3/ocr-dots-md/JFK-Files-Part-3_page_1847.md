@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1847.png
-
-Convert to Markdown7. Morris Davis, RFD, Hoover, Shelby County, Ala.
+7. Morris Davis, RFD, Hoover, Shelby County, Ala.
 
 8. White Citizens Council (racist organization) for the period 1967 through 1968, limited to reports or information in areas covered by offices in New Orleans, La.; Birmingham, Ala.; and Memphis, Tenn.
 

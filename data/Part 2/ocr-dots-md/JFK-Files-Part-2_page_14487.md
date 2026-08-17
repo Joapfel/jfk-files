@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14487.png
-
-Convert to MarkdownProject Hunter
+Project Hunter
 
 as possible. In particular, if it is evident paper from which copy is to be made is not type to give a good reproduction, it would be appreciated if a notation concerning name and address of United States recipient or sender could be made from original. Frequently, information of interest is received but United States person's name on reproduction is indistinguishable and information becomes of no value.
 

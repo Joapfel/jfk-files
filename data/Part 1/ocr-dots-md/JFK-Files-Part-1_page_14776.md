@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14776.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">TOTAL COPIES</th><th rowspan="2">P. B.</th></tr><tr><th>ADVANCE COPY</th><th>ISSUED S.O.TED</th><th>SECRET</th></tr></thead><tbody><tr><td>FOR UNIT NOTIFIED</td><td></td><td></td><td></td></tr></tbody></table>
 

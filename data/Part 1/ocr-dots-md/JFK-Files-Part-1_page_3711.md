@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3711.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILMED IN)
 
 # ROUTING AND RECORD SHEET

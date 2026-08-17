@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21620.png
-
-Convert to Markdown17. Kipalkin - a general, in 1850 was a deputy of chief the Military diplomatic academy. He has two sons: Kapalkin Sergey – finished this academy in 1950, works in Yekaterinburg and in France, his wife – daughter of General Timoshenko – Olga (finished the institute of foreign trade); Kapalkin Victor – in 1940 studied as a student in the UH, also works in Yekaterinburg.
+17. Kipalkin - a general, in 1850 was a deputy of chief the Military diplomatic academy. He has two sons: Kapalkin Sergey – finished this academy in 1950, works in Yekaterinburg and in France, his wife – daughter of General Timoshenko – Olga (finished the institute of foreign trade); Kapalkin Victor – in 1940 studied as a student in the UH, also works in Yekaterinburg.
 
 18. Kubanov Vladimir - a major, a senior officer of the navy intelligence of 7 Fleet in 1950-52.
 

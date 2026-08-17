@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21080.png
-
-Convert to Markdown# SOVIET MAIL DROPS OUTSIDE OF THE UNITED STATES
+# SOVIET MAIL DROPS OUTSIDE OF THE UNITED STATES
 
 Through our investigations in this country, we have identified Soviet mail drops in other areas and we have given this valuable information to CIA.
 

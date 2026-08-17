@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9793.png
-
-Convert to Markdown# POSITION PAPER
+# POSITION PAPER
 
 ## DOMESTIC INTELLIGENCE DIVISION
 

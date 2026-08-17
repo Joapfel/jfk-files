@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32625.png
-
-Convert to Markdown23 June 1970
+23 June 1970
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

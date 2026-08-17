@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32679.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Soviet naval contingent in Cuba also operates 12 KOMAR-type high-speed patrol craft as part of the Cuban coastal defenses. These boats are each equipped with a pair of cruise-type missiles. The missiles are estimated to have a range of 10 to 15 miles. These boats are under Soviet control, but Cubans are believed to have been observed aboard them. The KOMARS are apparently the only Soviet naval craft introduced into Cuba as part of their edition.
 

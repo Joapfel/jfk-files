@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9686.png
-
-Convert to MarkdownSECRET
+SECRET
 
 June 1, 1964
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9532.png
-
-Convert to MarkdownThe speech appeared to be rather poorly organized and NEWTON was easily diverted from the main topics which seemed to be pursuing. The speech had very few references to any actual radical action or violent confrontation.
+The speech appeared to be rather poorly organized and NEWTON was easily diverted from the main topics which seemed to be pursuing. The speech had very few references to any actual radical action or violent confrontation.
 
 The Black Student Union, University of Michigan, sponsored a rally in support of the Detroit 16 on November 17, 1970, featuring HUEY NEWTON.
 

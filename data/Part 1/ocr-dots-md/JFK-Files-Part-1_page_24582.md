@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24582.png
-
-Convert to Markdown8 April 1968
+8 April 1968
 
 was to return to Mexico within a few days according to Jose Luis BALDERAS Ordaz (15).
 

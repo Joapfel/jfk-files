@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14702.png
-
-Convert to MarkdownDonald Edward Ganoung We have investigated Ganoung as a Departmental applicant for the position of consultant with the Law Enforcement Administration at Washington, D. C., the position he now holds. He has a degree in criminology and is a former Episcopalian priest who has worked among deviate elements. He has also been active in civil rights and antidraft demonstrations and twice was arrested in this connection. Divorced by his wife in 1967 after he had an affair with another woman, Ganoung also
+Donald Edward Ganoung We have investigated Ganoung as a Departmental applicant for the position of consultant with the Law Enforcement Administration at Washington, D. C., the position he now holds. He has a degree in criminology and is a former Episcopalian priest who has worked among deviate elements. He has also been active in civil rights and antidraft demonstrations and twice was arrested in this connection. Divorced by his wife in 1967 after he had an affair with another woman, Ganoung also
 
 The results of our investigation of him were furnished to the Attorney General on 2/11/69.
 

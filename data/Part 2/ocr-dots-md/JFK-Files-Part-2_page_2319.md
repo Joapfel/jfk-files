@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2319.png
-
-Convert to Markdown14-0000
+14-0000
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

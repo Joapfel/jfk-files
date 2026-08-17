@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15310.png
-
-Convert to Markdowncal had officially certified (by the Labor Office) permits of leave to solicit for the Passports for Foreigners.
+cal had officially certified (by the Labor Office) permits of leave to solicit for the Passports for Foreigners.
 
 25. They got the passports, and they traveled to Paris. David saw there his mother, and spoke her of his intention to go to Brazil. This was in 1942.
 

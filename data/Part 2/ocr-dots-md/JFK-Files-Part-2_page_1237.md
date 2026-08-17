@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1237.png
-
-Convert to MarkdownSupplement to Staff Agent Personnel Action
+Supplement to Staff Agent Personnel Action
 
 For _______________. Effective ____________ 27 MAY 1962
 

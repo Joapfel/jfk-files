@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30480.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR MR. H. SCOTT MILEN
 

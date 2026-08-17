@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8816.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES:</th><th>ROUTING AND/OR INITIALS - START BY</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td><td><table><tbody><tr><td>DNH</td><td>8</td></tr><tr><td>C1</td><td>0</td></tr><tr><td></td><td>7</td></tr><tr><td></td><td>9</td></tr></tbody></table></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES:</th><th>ROUTING AND/OR INITIALS - START BY</th></tr></thead><tbody><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td><td><table><tbody><tr><td>DNH</td><td>8</td></tr><tr><td>C1</td><td>0</td></tr><tr><td></td><td>7</td></tr><tr><td></td><td>9</td></tr></tbody></table></td></tr></tbody></table>
 
 JR'O: L. MESTRES/mvb
 UNIT: C/SB/X/WH

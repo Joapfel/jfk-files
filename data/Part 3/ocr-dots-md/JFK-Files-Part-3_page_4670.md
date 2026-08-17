@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4670.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 DE TORRES related he was not close to TRAFFICANTE but claimed that through his informant, CISCO, he would be able to secure further information regarding TRAFFICANTE. DE TORRES stated he originally advised Federal Narcotics Agent DAVIS of the above information in November, 1961. He said DAVIS told him there was a $10,000.00 reward for information in the ANASTASIA homicide, but later stated that after checking with authorities in New York City he had ascertained the reward was only $7,000.00. According to Detective GRAFF, there is no reward in this case.
 

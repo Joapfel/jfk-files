@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18276.png
-
-Convert to Markdown# ATTACHMENT "A"
+# ATTACHMENT "A"
 
 ## *TALLAPIEDRA - (Power Plant)
 

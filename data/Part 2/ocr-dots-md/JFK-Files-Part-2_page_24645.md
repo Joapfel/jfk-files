@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24645.png
-
-Convert to Markdownappropriate personnel in the CIA station and the United States embassy. This cable ... generally discussed the possibility of covertly supplying certain Congolese leaders with funds and military aid (CIA Cable OUT 81476, Director to Leopoldville, 10/15/60). This cable also delimited the kind of action against Lumumba that would be authorized:
+appropriate personnel in the CIA station and the United States embassy. This cable ... generally discussed the possibility of covertly supplying certain Congolese leaders with funds and military aid (CIA Cable OUT 81476, Director to Leopoldville, 10/15/60). This cable also delimited the kind of action against Lumumba that would be authorized:
 
 ONLY DIRECT ACTION WE CAN NOW STAND BEHIND IS TO SUPPORT IMMOBILIZING OR ARRESTING [LUMUMBA], DESIRABLE AS MORE DEFINITIVE ACTION MIGHT BE. ANY ACTION TAKEN WOULD HAVE TO BE ENTIRELY CONGOLESE. (CIA Cable OUT 81476, Director to Leopoldville, 10/15/60.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30268.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Nosenko. It depends. If he was corporal, private, is no big interest. If he was officer, maybe they would be interested.
 

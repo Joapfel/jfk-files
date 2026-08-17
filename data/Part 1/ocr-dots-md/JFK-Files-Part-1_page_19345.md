@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19345.png
-
-Convert to MarkdownFEB.2
+FEB.2
 
 January 29, 1948
 

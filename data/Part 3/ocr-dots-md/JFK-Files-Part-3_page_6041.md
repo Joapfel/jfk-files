@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6041.png
-
-Convert to MarkdownLeadership Conference was changed. In response to direct
+Leadership Conference was changed. In response to direct
 questions whether I had hard evidence of O'Dell's
 Communist connections, however, I replied that I was not
 in a position to give any.

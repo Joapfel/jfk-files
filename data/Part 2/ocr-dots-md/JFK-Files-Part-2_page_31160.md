@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31160.png
-
-Convert to Markdown000219
+000219
 
 In a Comment on its 1967 Report, the PnspEditor said that no one could be convicted of the crime because the chance of survival and escape would be negligible. Fancena stated a preference for lethal poison but Build would be put into Castro's hand and drunk.
 

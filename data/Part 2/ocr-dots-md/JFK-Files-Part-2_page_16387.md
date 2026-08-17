@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16387.png
-
-Convert to MarkdownThe pigs can threaten us with jail, exile and murder, but as long as the Black Panther Party exists, we will feed our children.
+The pigs can threaten us with jail, exile and murder, but as long as the Black Panther Party exists, we will feed our children.
 
 The centers on the westside (1512 South Pulaski), south side (503 East 37th) and north side (1400 North Cleveland) will continue to operate from 7 a.m. to 9 a.m. and new centers will be opened to fit the needs of the people.
 

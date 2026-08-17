@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18798.png
-
-Convert to MarkdownSF 105-3646
+SF 105-3646
 FRE:fra
 
 On 10/14/58, SA ELLEDGE telephonically contacted the Registrar's Office of the Drew School, San Francisco, California, without disclosing his identity. He was advised that JAFFE entered the Drew School on 6/24/46 and left on 5/5/47. His address at this time was listed as 891-28th Avenue, San Francisco, California, and he indicated prior attendance at the Claremont Junior High School, Oakland, California, from 1941 to 1944. JAFFE did not graduate from Drew School.

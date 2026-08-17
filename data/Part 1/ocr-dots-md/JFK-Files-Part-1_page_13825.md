@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13825.png
-
-Convert to MarkdownC. PERSONAL AND PRIVATE DATA
+C. PERSONAL AND PRIVATE DATA
 
 23. Address & telephone of present residence.
 Baja California 17S Apt 3

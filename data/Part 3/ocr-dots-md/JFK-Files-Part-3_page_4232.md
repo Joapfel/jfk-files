@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4232.png
-
-Convert to Markdown1 - Mr. Cochran
+1 - Mr. Cochran
 1 - Mr. Stack
 1 - Mr. McWright
 

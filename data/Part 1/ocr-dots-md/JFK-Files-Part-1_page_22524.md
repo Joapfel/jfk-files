@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22524.png
-
 .
 
 Two documents provide a useful point of departure, from an historical point of view. One is a semi-official letter from Ambassador Farland in the Dominican Republic to Assistant Secretary of State Rubottom. The other document is an internal CIA staff paper revealing the relatively passive role that had been played by CIA prior to 1960.

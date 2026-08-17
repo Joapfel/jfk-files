@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20930.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 "The paper includes letters, articles, fiction, poetry, news, and graphics, as well as information about various literatures for women."
 

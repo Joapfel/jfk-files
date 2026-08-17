@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23222.png
-
-Convert to Markdown15 April 1950
+15 April 1950
 
 SUBJECT: FAX: 3.0./Investigations and Support
 SUBJECT: Mr. Charles Rico

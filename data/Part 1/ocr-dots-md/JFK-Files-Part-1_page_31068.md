@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31068.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 21 NOV 975
 

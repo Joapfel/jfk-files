@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17022.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Project, the actual payments made by Mexico City Station per the terms of each Memorandum of Oral Commitment (MOC) and in accordance with Mexican law and custom exceeded the estimate for termination costs made by Headquarters at the time the Amendment was requested. Termination payments made to each agent are as follows:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27199.png
-
-Convert to MarkdownEE. Kuh, Richard E. (2 Interview summaries plus 5 related documents) (SECRET/SENSITIVE)
+EE. Kuh, Richard E. (2 Interview summaries plus 5 related documents) (SECRET/SENSITIVE)
 
 FF. Marchetti, Victor (2 'phone call summaries plus 2 letters)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15866.png
-
-Convert to Markdown<table><thead><tr><td>CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>S-E-C-R-E-T</td></tr></tbody></table>
+<table><thead><tr><td>CLASSIFIED MESSAGE</td></tr></thead><tbody><tr><td>S-E-C-R-E-T</td></tr></tbody></table>
 
 ORIG: V. HINESCOT
 UNIT: AP/W/1

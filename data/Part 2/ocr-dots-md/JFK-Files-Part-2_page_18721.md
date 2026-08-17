@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18721.png
-
-Convert to MarkdownJuly 13, 1959
+July 13, 1959
 
 Mr. Max Jaffe
 CEN-TV News

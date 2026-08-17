@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25041.png
-
-Convert to Markdown5. Security
+5. Security
 
 There are no known unresolved problems of security. The
 security problems relating to LIROCKET-1 and LISACK-C (discussed

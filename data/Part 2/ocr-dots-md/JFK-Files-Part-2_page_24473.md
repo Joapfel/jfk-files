@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24473.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 meeting with Dulles, or indeed that President Eisenhower would have approved a Castro assassination in any event, and (ii) that he would not have discussed such a matter without telling them. They conclude, therefore, as a matter of opinion, that President Eisenhower was never told, and testify, as a matter of fact, that they never heard anything about any assassination at any time.
 

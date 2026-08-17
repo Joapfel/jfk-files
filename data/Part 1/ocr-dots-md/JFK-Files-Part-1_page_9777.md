@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9777.png
-
-Convert to Markdown27 April, 1968
+27 April, 1968
 
 Subject: LIRING/4 Report of Meeting with Manuel Marcue Fardinas.
 

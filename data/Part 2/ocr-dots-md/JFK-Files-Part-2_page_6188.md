@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6188.png
-
-Convert to MarkdownBarger, Christopher Meade 469-98-3261
+Barger, Christopher Meade 469-98-3261
 Combs, Kathryn Michelle 229-13-8465
 Golrick, Philip David 225-21-0020
 Gunn, Thomas Jeremy 529-74-8907

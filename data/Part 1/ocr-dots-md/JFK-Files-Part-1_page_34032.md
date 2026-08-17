@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34032.png
-
-Convert to MarkdownD) Cuba has a $1,132,000,000 trade deficit with the Communist countries for the 1963 - 1966 period. Nor does this figure include Communist technical assistance, military equipment, scholarships, and the like.
+D) Cuba has a $1,132,000,000 trade deficit with the Communist countries for the 1963 - 1966 period. Nor does this figure include Communist technical assistance, military equipment, scholarships, and the like.
 
 **THIRD**: Cuba has lost its position as a meaningful trader in the Free World, which in turn has increased its dependency upon the Soviet Union.
 

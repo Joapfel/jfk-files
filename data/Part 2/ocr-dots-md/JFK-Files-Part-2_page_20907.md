@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20907.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 3/14/72
 

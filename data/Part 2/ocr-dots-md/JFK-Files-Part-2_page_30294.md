@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30294.png
-
-Convert to MarkdownIUT OLEA I
+IUT OLEA I
 
 Mr. Klein. Is that the truth, that they didn't --
 Mr. Nosenko. It's how it is put, how it is put. You see,

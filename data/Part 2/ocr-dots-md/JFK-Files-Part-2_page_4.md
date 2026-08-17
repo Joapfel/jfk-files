@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4.png
-
-Convert to Markdown23 December 1966
+23 December 1966
 
 Tom:
 

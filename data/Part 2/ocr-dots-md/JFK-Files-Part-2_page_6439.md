@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6439.png
-
-Convert to Markdown13-00000
+13-00000
 
 JCS 1969/303
 7 February 1962

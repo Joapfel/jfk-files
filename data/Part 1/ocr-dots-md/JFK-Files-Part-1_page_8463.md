@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8463.png
-
-Convert to Markdown5
+5
 
 El Padre Kurgus (...y no es comunista) se Lleva M Muchos Cuic! a Rusia ¡FELIZ VIAJE!
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26207.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CITE DIRECTOR
 

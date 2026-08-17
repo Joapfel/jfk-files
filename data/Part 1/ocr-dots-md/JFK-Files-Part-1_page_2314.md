@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2314.png
-
-Convert to MarkdownC. Has NOSENKO given an acceptable explanation of his motivation in contacting CIA in 1962 and for his defection in 1964?
+C. Has NOSENKO given an acceptable explanation of his motivation in contacting CIA in 1962 and for his defection in 1964?
 
 D. Is the information furnished by NOSENKO to CIA concerning KGB operations, personalities, and organization reasonably commensurate with his claimed KGB career?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15260.png
-
-Convert to MarkdownJUNE
+JUNE
 
 Attachment B
 

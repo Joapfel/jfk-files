@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26932.png
-
-Convert to MarkdownDCD-112/78
+DCD-112/78
 31 January 1978
 
 SUBJECT: House Select Committee on Assassinations (HSCA) Request (OLC 77-5635/4)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9544.png
-
-Convert to Markdown# Who Are The Black Panthers?
+# Who Are The Black Panthers?
 
 The 10 point program of the Black Panthers Party begins "We want our freedom. We want power to determine the destiny of our black community." The Black people in America were brought here from their native land as slaves, and ever since they have been kept on the lowest level of American society. They are a community of people with their own history, economic life, and culture. Yet they've never had political power over their own community. The Black Panther Party formed to fight for this political power.
 

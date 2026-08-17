@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4590.png
-
-Convert to MarkdownIV. ORGANIZATION
+IV. ORGANIZATION
 
 The following personnel and facilities are required for successful
 attainment of JMARC CI objectives.

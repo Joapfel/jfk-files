@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12165.png
-
-Convert to Markdowncostarricense, sin haber ocupado ninguna posición oficial hasta la cация del régimen del Liceo. Picoño, cuando asumió el mando como Jefe de la revolución, Gobernó 18 meses sin Congreso, nacionalizó la banks y creó un impuesto al egual del 10% y lo acusen sus enemigos de haber derrociado alrededor de 350. 000.000.00 de colones, de los cuales buen parte emigró a la Legión Caribe que lo ayudó a derrocar al Gobierno del Liceo. Picoño.
+costarricense, sin haber ocupado ninguna posición oficial hasta la cация del régimen del Liceo. Picoño, cuando asumió el mando como Jefe de la revolución, Gobernó 18 meses sin Congreso, nacionalizó la banks y creó un impuesto al egual del 10% y lo acusen sus enemigos de haber derrociado alrededor de 350. 000.000.00 de colones, de los cuales buen parte emigró a la Legión Caribe que lo ayudó a derrocar al Gobierno del Liceo. Picoño.
 
 En socialista, de temperamento autoritario, de vida austera y de trabajo. Cultivó relaciones con el Gobierno del General Provo, pero a la vez permitió que funcionara en San José una legición del Gobierno rojo, a la cual visitaba frecuentemente. Fue su relación con el Perón que publica Dominio y actual junta revolucionaria de Venezuela, relaciones que finalmente se mudó con la última.
 

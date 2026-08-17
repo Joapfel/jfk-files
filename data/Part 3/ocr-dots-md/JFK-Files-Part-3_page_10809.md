@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10809.png
-
-Convert to MarkdownThe Commission concerned itself principally with the efficiency with which CIA was fulfilling its statutory missions of coordination, correlation, evaluation, and dissemination of the intelligence product of other Government agencies and departments. The Commission examined agency activity in light of the CIA primary mission of advising NSC and performing services and duties related to intelligence and national security as the NSC directed.
+The Commission concerned itself principally with the efficiency with which CIA was fulfilling its statutory missions of coordination, correlation, evaluation, and dissemination of the intelligence product of other Government agencies and departments. The Commission examined agency activity in light of the CIA primary mission of advising NSC and performing services and duties related to intelligence and national security as the NSC directed.
 
 ***(la) Eberstadt Task Force Report***
 

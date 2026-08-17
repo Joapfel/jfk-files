@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2459.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This question seems quite superfluous since HARRIS was in the USSR on a tourist visa and "real" tourists are the responsibility of the Seventh Department. Departmental responsibility within the SCD for an individual traveling in the USSR is decided on the basis of how the individual is traveling; i. e., whether on a tourist visa, as a member of a delegation, as the invitee of an organization in the USSR, as a former diplomat stationed in Moscow, as a diplomat not previously stationed in Moscow, as a member of the Cultural Exchange program, as a student attending a university in the USSR, etc. There are also various other factors which affect the determination of which Department or organizational component of the SCD has the responsibility for a tourist case. These factors include whether the individual is already suspected of foreign intelligence connections and whether the individual is a businessman.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7939.png
-
-Convert to Markdown(ESPAÑO PAGADO)
+(ESPAÑO PAGADO)
 
 # ¡PROTESTAMOS POR EL ASESINATO DE MARTIN LUTHER KING!
 

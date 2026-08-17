@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26468.png
-
-Convert to MarkdownSECRET
+SECRET
 
 case of legitimate passports, most Latin American countries have inadequate personnel and administrative machinery to scrutinize the passports of returning travelers.
 

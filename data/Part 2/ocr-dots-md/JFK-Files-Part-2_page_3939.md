@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3939.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES:</th><th>ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>78</td><td>SECRET 27</td><td><table><tbody><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td>S</td><td>E</td><td>S</td><td>D</td></tr></tbody></table></td></tr></tbody></table>
 

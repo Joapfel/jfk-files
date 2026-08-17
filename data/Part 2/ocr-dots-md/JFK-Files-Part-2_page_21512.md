@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21512.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. remove Castro and his regime.
 

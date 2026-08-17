@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9600.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DIARY, 16 December 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3724.png
-
-Convert to Markdown17 April 1969
+17 April 1969
 
 MEMORANDUM FOR THE RECORD
 

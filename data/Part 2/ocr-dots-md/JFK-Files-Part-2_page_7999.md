@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7999.png
-
-Convert to Markdown26. Pohl, Frederick and Jack Williamson. <u>Starchild</u>. Penguin Books, 1970.
+26. Pohl, Frederick and Jack Williamson. <u>Starchild</u>. Penguin Books, 1970.
 
 27. Scheckley, Robert. "Fool's Mate". 1953, as re-printed in (23).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11926.png
-
-Convert to Markdown4-E
+4-E
 
 The above chart, showing numbers of double agents at the time of the last inspection and at present tells only part of the story. It does not show that there is a continual process of review and analysis of double agent matters and close attention to field activity in this regard. We are constantly striving to weed out any "deadwood" and to introduce fresh blood into our counterespionage efforts. Presentation of precise figures on the turnover among double agents during the period since the last inspection is not feasible, because various offices have different reporting dates on which they inform the Bureau of additions and deletions of double agents in the various nationality fields. However, the following available figures clearly indicate desirable turnover. In the Soviet field, from March 1, 1970, to December 1, 1970, we added 41 active and potential double agents; a net increase of 30. In the other countries currently supervised in the Espionage Section, we added 28 active and potential double agents and dropped 17, a net gain of 11. Several of those dropped were used up in counterintelligence actions which terminated their active usefulness, and some left the country.
 

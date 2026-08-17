@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34698.png
-
-Convert to Markdown<table><thead><tr><td>FORM 10-63</td><td>53d</td></tr></thead><tbody><tr><td>OBSOLETE PREVIOUS EDITIONS</td><td>SECRET</td></tr></tbody></table>
+<table><thead><tr><td>FORM 10-63</td><td>53d</td></tr></thead><tbody><tr><td>OBSOLETE PREVIOUS EDITIONS</td><td>SECRET</td></tr></tbody></table>
 
 5
 

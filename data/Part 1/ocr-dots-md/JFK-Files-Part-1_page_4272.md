@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4272.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: AMBIDDY/1 Report on Nicaragua, and on General Anastacie SOMOZA, and on Costa Rica
 

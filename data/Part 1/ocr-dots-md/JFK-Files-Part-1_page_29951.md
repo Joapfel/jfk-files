@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29951.png
-
-Convert to Markdown18 April 1963
+18 April 1963
 
 MEMORANDUM FOR: Director of Personnel
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4282.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Your authority is requested to institute telephone
 surveillance coverage on the YLP office located at

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28364.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>18. SIGNATURE OF WITNESS</td>
     <td>19. DATE (Mo., day, year)</td>

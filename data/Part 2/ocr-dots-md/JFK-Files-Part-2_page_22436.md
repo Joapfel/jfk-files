@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22436.png
-
-Convert to MarkdownHW 50955
+HW 50955
 
 DoId:32283851
 

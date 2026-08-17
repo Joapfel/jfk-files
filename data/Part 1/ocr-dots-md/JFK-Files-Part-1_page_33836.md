@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33836.png
-
-Convert to MarkdownMr. Lloyd
+Mr. Lloyd
 
 Mr. Fishburne C/SE/PC5
 X 3091, X 495 brought this in today: He said that the DDIP is concerned about it. Ellen was not in, but called in at 5 and was transferred to Mr. Fishburne.

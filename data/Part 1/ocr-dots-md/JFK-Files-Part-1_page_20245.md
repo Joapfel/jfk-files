@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20245.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">NOTIFICATION OF CANCELLATION<br>OF MILITARY COVER BACKSTOP</td><td>DATE</td><td>9 March 1962</td></tr><tr><td rowspan="2">TO:<br>(Chief)</td><td>X CHIEF, RECORDS AND SERVICES DIVISION</td><td>SUBJECT:</td><td>HIDALGO, BALDES N. JR.</td></tr><tr><td>CHIEF, OPERATING COMPONENT - WH DIV</td><td>F-LE NO.<br>K-7412</td></tr><tr><td>ATTN:</td><td colspan="3">WH/SS 1405 Barton Hall</td></tr><tr><td>REF:</td><td colspan="3">Your request of 1322 dated undated</td></tr><tr><td colspan="4">MILITARY COVER DISCONTINUED</td></tr><tr><td colspan="4">US Army Element, Joint Operations Group</td></tr><tr><td colspan="2"><input type="checkbox" checked/></td><td>ID CARD NO.</td><td>832</td></tr><tr><td colspan="4"><strong>UNLOCK RECORDS:<br>(OP memo 20.800.11)</strong></td></tr><tr><td colspan="4">EFFECTIVE 27 October 1960</td></tr><tr><td colspan="4"><input type="checkbox"/> SUBMIT FORM 642 TO CHANGE LIMITATION CATEGORY.<br>(HD 20.800.2)</td></tr><tr><td colspan="4"><input type="checkbox"/> RETURN ALL MILITARY DOCUMENTATION.</td></tr><tr><td colspan="4"><input type="checkbox"/> REMARKS: 7</td></tr><tr><td colspan="4">THIS APPLICABLE DEEMED<br>ON NOTICE IN FILE</td></tr><tr><td colspan="2"><input type="checkbox"/> COPY TO CPD/OP</td><td colspan="2">EDP CHIEF MILITARY COVER, CCG</td></tr><tr><td colspan="4">DISTRIBUTION I-SS/DS, I-PSD/OS, I-MRD GROUP</td></tr></table>
 

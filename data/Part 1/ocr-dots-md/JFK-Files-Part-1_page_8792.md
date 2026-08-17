@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8792.png
-
-Convert to MarkdownSECRET
+SECRET
 
 242340Z JUN 69 CITE MEXICO CITY 0763
 

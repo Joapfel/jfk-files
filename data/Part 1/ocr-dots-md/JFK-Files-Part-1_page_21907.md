@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21907.png
-
-Convert to MarkdownJune 1962
+June 1962
 
 Bye bye...Well, you can imagine my horror." [Note: Portions of the tape of this conversation are unreadable. It is clearly implied that this scene took place at NOSENKO's own home.]
 

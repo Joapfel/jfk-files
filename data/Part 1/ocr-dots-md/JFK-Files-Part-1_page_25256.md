@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25256.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">FROM<br/>Henderson City<br/>REPORTING OFFICER<br/>Clyde K. SHOCK<br/>REPORTS OFFICER<br/>Fortia L. SPARKLES<br/>APPROVING OFFICER<br/>William C. CURTIS</td>
         <td>DATE OF REPORT<br/>5 October 1962<br/>RD. NO.<br/>P-7354<br/>PROJ.<br/>MTF22<br/>D'CE CR.<br/>Para. 1: LICOCKY-1<br/>Para. 2: LIFIRE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6557.png
-
-Convert to Markdown<table><tr><td>Mr. D. Lach</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Bishop</td></tr><tr><td>Mr. Camper</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Mr. Gable</td></tr><tr><td>Mr. Riven</td></tr><tr><td>Mr. Sullivan</td></tr><tr><td>Mr. Tavel</td></tr><tr><td>Mr. Trutter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss I. Davis</td></tr><tr><td>Miss Gandy</td></tr></table>
+<table><tr><td>Mr. D. Lach</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Bishop</td></tr><tr><td>Mr. Camper</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Mr. Gable</td></tr><tr><td>Mr. Riven</td></tr><tr><td>Mr. Sullivan</td></tr><tr><td>Mr. Tavel</td></tr><tr><td>Mr. Trutter</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss I. Davis</td></tr><tr><td>Miss Gandy</td></tr></table>
 
 UNITED STATES GOVERNMENT
 

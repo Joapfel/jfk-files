@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20886.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="15">CERTIFICATION OF LANGUAGE PROFICIENCY</td>

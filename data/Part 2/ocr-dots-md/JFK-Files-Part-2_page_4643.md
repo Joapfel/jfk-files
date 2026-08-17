@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4643.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to say "how about an estimate of some kind." Ray was
 the wrong guy because Ray and Sherman didn't see eye to

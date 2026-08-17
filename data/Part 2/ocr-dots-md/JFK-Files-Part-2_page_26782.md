@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26782.png
-
-Convert to MarkdownSECRET
+SECRET
 
  activities conducted by the Special Activities Staff during
 your -- and subsequently the Cuban Operations Group during

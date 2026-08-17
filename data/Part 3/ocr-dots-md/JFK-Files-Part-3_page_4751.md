@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4751.png
-
-Convert to Markdown**Agency Information**
+**Agency Information**
 
 AGENCY : FBI
 RECORD NUMBER : 124-10226-10305

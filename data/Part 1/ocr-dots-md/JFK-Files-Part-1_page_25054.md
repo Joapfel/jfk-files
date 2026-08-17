@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25054.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. According to a report dated 16 March 1962 from a reliable source, Subject participated in a Soviet effort to cultivate an American Embassy employee.
 

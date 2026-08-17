@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1613.png
-
-Convert to Markdown17 APR 1973
+17 APR 1973
 
 Certificate of Exceptional Service (for Vietnam)
 

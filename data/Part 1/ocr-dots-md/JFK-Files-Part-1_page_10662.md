@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10662.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DATE: J.E.TOMAS:sld</td></tr><tr><td>UNIT: WH/7/Haiti</td></tr><tr><td>EXT: 5595</td></tr><tr><td>DATE: 22 Sept. 1966</td></tr></table>
 

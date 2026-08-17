@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8294.png
-
-Convert to MarkdownPAG. 120
+PAG. 120
 
 México, D. F., Viernes 27 de Junio de 1969
 

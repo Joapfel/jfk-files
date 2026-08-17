@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16144.png
-
-Convert to MarkdownDate January 21, 1970
+Date January 21, 1970
 
 Photos of a vent located in the living room
 at 2337 West Monroe, Chicago, Illinois, were made

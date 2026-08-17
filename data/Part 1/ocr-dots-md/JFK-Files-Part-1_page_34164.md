@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34164.png
-
-Convert to Markdownde azúcar. Estimo que el único en Cuba que aún creo en el "Plan" y en sus metas es Fidel Castro.
+de azúcar. Estimo que el único en Cuba que aún creo en el "Plan" y en sus metas es Fidel Castro.
 
 Me gustaría hacer una breve referencia en relación con otro problema básico - la baja calidad del azúcar cubano, tanto crudo como refino, actualmente en proce so de emporarse. Esto no ha sucedido de casualidad sino como consecuencia de la falta y mala calidad de las piezas de repuesto, la ineficiencia en la operación de los ingenios, la falta de eficiencia de los trabajadores, y la baja calidad de los productos químicos auxiliares procedentes de países socialistas. Estos problemas están resultando en una decreciente polarización del azúcar, el envase deficiente del azúcar de exportación, el aumento de impurezas en el azúcar embarcada a granel, y las dificultades en cumplir los compromisos de entregas de azucares.
 

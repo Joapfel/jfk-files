@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10729.png
-
-Convert to MarkdownFBI-302 (Rev. 4-15-64)
+FBI-302 (Rev. 4-15-64)
 
 **FEDERAL BUREAU OF INVESTIGATION**
 

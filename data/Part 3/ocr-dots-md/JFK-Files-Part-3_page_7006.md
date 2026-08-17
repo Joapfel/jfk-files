@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7006.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 ABERNATHY might devote sufficient time to his duties
 with SCLC. These decisions were made by a committee

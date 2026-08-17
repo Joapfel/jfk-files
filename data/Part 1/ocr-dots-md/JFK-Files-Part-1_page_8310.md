@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8310.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT : LICORIL-1 (P-
 DATE OF MEETING : 11 June 1969

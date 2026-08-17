@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7737.png
-
-Convert to MarkdownHowever, during a meeting between the President,
+However, during a meeting between the President,
 Mr. Hoover and the Secretary of State on August 25, 1936, the
 Secretary of State did ask the FBI to conduct investigations of
 Fascist and Communist activities, under the provisions of the

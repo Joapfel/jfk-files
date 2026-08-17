@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24564.png
-
-Convert to Markdownsome secret channel circumventing the whole structure of command by which the CIA and certain officials in the CIA were authorized to proceed with assassination plots and assassination attempts against Castro. Or the third and final point that I can think of is that somehow these officials of the CIA who were so engaged misunderstood or misinterpreted their scope of authority.
+some secret channel circumventing the whole structure of command by which the CIA and certain officials in the CIA were authorized to proceed with assassination plots and assassination attempts against Castro. Or the third and final point that I can think of is that somehow these officials of the CIA who were so engaged misunderstood or misinterpreted their scope of authority.
 
 Now it is terribly important, if there is any way that we can find out which of these three points represented what actually happened. That is the nature, that is the quandary.
 

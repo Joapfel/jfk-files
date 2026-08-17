@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27814.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Continuation of Section C of Fitness Report on NIARCOS
 

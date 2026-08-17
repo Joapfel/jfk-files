@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32543.png
-
-Convert to MarkdownSECRET
+SECRET
 -4-
 
 Colombia

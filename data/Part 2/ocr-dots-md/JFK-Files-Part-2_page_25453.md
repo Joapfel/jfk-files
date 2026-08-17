@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25453.png
-
-Convert to MarkdownML: So, I was as surprised, I was very surprised.
+ML: So, I was as surprised, I was very surprised.
 
 (contd.)
 

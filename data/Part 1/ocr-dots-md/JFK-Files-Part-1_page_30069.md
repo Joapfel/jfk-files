@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30069.png
-
-Convert to MarkdownHerman Edward Kinsey
+Herman Edward Kinsey
 Attachment I
 
 1962 to Present - Associated as a technical consultant with Security Associates, Inc., Washington, D. C., specializing in commercial and industrial security.

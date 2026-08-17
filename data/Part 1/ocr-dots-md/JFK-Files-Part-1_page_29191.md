@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29191.png
-
-Convert to MarkdownSTANDARD FORM 78
+STANDARD FORM 78
 JULY 1969
 
 FEDERAL PERSONNEL

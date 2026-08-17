@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_540.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On August 14, 1970, the Pittsburgh Office confidentially advised Sherley Uhl, "Pittsburgh Press," Pittsburgh, Pennsylvania, that the Peace and Freedom Center, Pittsburgh, Pennsylvania, in cooperation with both legitimate and subversive organizations, was sponsoring an Ohio Valley Regional Coalition Conference. It was emphasized to him that certain sponsoring organizations were subversive and/or extremist in nature.
 

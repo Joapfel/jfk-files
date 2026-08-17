@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15359.png
-
-Convert to Markdown# Office Memoindum • UNITED STATES GOVERNMENT
+# Office Memoindum • UNITED STATES GOVERNMENT
 
 TO : A. H. Belmont
 

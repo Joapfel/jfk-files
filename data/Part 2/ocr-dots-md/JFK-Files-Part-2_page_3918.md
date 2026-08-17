@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3918.png
-
-Convert to MarkdownSECRET
+SECRET
 
 28 Sept 1962: Appeared voluntarily at American Embassy, Mexico City, tense, nervous, agitated and antagonistic. Inter alia-stated he had been approached in Mexico City for recruiting, refused to say by whom on behalf of what country. Stated that one job of this sort would be in New York. He volunteered that he fully realized that what he was saying could be used against him in any court or prosecution. He stated that he was "bitter, disgusted, disillusioned and disaffected". Stated he knew the full significance of the term disaffected. He stated that if he did go to some other country, it would cost the United States millions. He stated that he was "through being a good citizen" and thought that he had gotten a "dirty deal all around."
 

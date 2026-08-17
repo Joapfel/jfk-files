@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25719.png
-
-Convert to MarkdownMr. Raymond H. Gerunda
+Mr. Raymond H. Gerunda
 
 Dear Mr. Gerunda,
 

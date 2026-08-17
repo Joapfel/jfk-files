@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3154.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 approximate number of troops, tanks, and vehicles for which sea transport would be required." In that same period Lt. Col. Frank Egan and Commander Norman Imler of the WH/4 staff reported they asked the Maritime Branch to draft a memo to the DDP giving information on the foreign cargo vessels that would be required for troop transport, including their ownership, their costs, and on the methods of their acquisition. 1/
 

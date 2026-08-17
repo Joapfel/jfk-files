@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27489.png
-
-Convert to MarkdownJUN 3 1977
+JUN 3 1977
 
 1552 33rd Street, NW
 Washington, D.C. 20007

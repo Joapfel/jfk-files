@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15233.png
-
-Convert to MarkdownMemorandum to Mr. Sullivan
+Memorandum to Mr. Sullivan
 
 Re: TECHNICAL SURVEILLANCE COVERAGE
 OF DIPLOMATIC ESTABLISHMENTS

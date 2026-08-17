@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34326.png
-
-Convert to Markdown- B.- Japan provides Castro of hard currency.
+- B.- Japan provides Castro of hard currency.
 
 It is estimated that Japan provides Castro with 30% of its hard currency, due to the previously mentioned fact of a deficit in its trade balance with Cuba. The hard currency has averaged during the last four years the amount of US$1 bil-lion a month, in the following manner (estimates):
 

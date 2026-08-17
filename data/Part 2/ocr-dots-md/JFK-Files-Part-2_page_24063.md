@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24063.png
-
-Convert to MarkdownUnited States "as [a] matter of general policy cannot condone assassination", although he did state that if the coup succeeded, the United States would support the plotters.
+United States "as [a] matter of general policy cannot condone assassination", although he did state that if the coup succeeded, the United States would support the plotters.
 
 d. Lumumba
 

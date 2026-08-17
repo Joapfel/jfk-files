@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23149.png
-
-Convert to Markdown1 whatever it was called, and that is the way they write their reports.
+1 whatever it was called, and that is the way they write their reports.
 
 2
 

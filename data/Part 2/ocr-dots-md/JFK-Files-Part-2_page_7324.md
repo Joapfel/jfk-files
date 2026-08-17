@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7324.png
-
-Convert to Markdownwould be to run an unacceptable risk. Moreover, serious damage would be done to agent morale and motivation if their identity were to be revealed to Members or staff of the SSC.
+would be to run an unacceptable risk. Moreover, serious damage would be done to agent morale and motivation if their identity were to be revealed to Members or staff of the SSC.
 
 V. MEMBERS OF HOST COUNTRY INTELLIGENCE OR SECURITY SERVICES WILL BE CONTACTED ONLY IN EXCEPTIONAL CASES.
 

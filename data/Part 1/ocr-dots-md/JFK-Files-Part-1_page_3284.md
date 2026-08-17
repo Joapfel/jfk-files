@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3284.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 C-0-X-F-1-B-Z-N-T-I-A-L
 

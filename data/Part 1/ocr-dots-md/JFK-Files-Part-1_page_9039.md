@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9039.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22 Jun 63 in. 36208
 

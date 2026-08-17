@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21080.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. It is difficult to place in the proper perspective the
 contribution of this senior staff agent to Paris Station operations.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8327.png
-
-Convert to MarkdownValentin LOGINOV
+Valentin LOGINOV
 
 Edad aproximada de 43-45 años, aunque aparenta menos. Fisicamente
 de complexión atlética, alto. Juega muy bien al ténis. Recientemente

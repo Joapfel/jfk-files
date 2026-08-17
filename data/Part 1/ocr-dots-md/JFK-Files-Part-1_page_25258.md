@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25258.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE</td>
     <td colspan="3">4, JULY 61</td>

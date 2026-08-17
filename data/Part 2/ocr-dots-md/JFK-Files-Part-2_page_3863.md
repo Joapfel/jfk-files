@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3863.png
-
-Convert to MarkdownAPR 25 1967
+APR 25 1967
 
 "one of history's most important men."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24544.png
-
-Convert to MarkdownLIMA, 6 de MAYO de 1969
+LIMA, 6 de MAYO de 1969
 
 CARRERA POLITICA Y ROBO
 

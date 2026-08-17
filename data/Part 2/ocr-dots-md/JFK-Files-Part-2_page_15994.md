@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15994.png
-
-Convert to MarkdownA source advised that on October 26-27, 1963, a conference of members of the Communist Party, USA (CPUSA), including national functionaries, met in Chicago, Illinois, for the purpose of setting in motion forces for the establishment of a new national Marxist-oriented youth organization which would hunt for the most peaceful transition to socialism. The delegates were told that it would be reasonable to assume that the young socialists attracted into this new organization would eventually pass into the CP itself.
+A source advised that on October 26-27, 1963, a conference of members of the Communist Party, USA (CPUSA), including national functionaries, met in Chicago, Illinois, for the purpose of setting in motion forces for the establishment of a new national Marxist-oriented youth organization which would hunt for the most peaceful transition to socialism. The delegates were told that it would be reasonable to assume that the young socialists attracted into this new organization would eventually pass into the CP itself.
 
 A second source has advised that the founding convention for the new youth organization was held from June 19-21, 1964, at 150 Golden Gate Avenue, San Francisco, California, at which time the name W.B. DuBois Clubs of America (DCA) was adopted. Approximately 500 delegates from throughout the United States attended this convention.
 

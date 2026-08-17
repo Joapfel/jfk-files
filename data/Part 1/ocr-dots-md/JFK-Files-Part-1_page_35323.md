@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35323.png
-
-Convert to MarkdownHE RECIBIDO de "Judicatura Cubana Democrática la canti-
+HE RECIBIDO de "Judicatura Cubana Democrática la canti-
 dad de Ciento cuarenta y siete dollares cinco centavos
 importe de la asignación correspondiente al presente---
 mes.

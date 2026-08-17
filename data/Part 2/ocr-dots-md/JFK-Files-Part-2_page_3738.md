@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3738.png
-
-Convert to Markdown8 January 1979
+8 January 1979
 
 MEMORANDUM FOR: Director of Personnel
 SUBJECT : Annual Fitness Report - George Joannides

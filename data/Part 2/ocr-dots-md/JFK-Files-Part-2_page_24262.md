@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24262.png
-
-Convert to Markdownbrought on to perform the MAC and MATS contracts with planes leased from Air America, which included 727's. Southern Air Transport actually owned one 727 and leased two from Air America.
+brought on to perform the MAC and MATS contracts with planes leased from Air America, which included 727's. Southern Air Transport actually owned one 727 and leased two from Air America.
 
 Houston noted that it was at this time that an internal decision was made "we probably couldn't justify this major airlift with the big jets, and so we started giving rid of them. See, they had no utilization to speak of down in Southeast Asia. A couple of supply flights went into India, and I think we used prop planes for that, to my recollection." So the Agency began to phase out the 727's. This, of course, led to the decision to divest the Agency of Southern Air Transport and eventually of Air America.
 

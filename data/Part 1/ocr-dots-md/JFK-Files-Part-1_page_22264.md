@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22264.png
-
-Convert to Markdownoperational plan nor any other of the drafts included in
+operational plan nor any other of the drafts included in
 the CHEREPANOV package cited a KGB cryptonym for him, and
 he is always referred to in true name, but this is contrary
 to the usage in the other operational plans in the package.

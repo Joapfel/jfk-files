@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32186.png
-
-Convert to MarkdownFebruary 4, 1963
+February 4, 1963
 
 TO : ARA - Mr. Cottrell
 FROM : S/P - John H. Ford

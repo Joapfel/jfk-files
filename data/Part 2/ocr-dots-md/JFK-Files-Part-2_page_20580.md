@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20580.png
-
-Convert to MarkdownSF. 157-0
+SF. 157-0
 
 JAC:sl.
 

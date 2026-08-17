@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15193.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S/JO/B/59/1783
 

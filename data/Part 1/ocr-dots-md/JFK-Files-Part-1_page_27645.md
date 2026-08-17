@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27645.png
-
-Convert to Markdown18 March 1977
+18 March 1977
 
 Dear Tom,
 

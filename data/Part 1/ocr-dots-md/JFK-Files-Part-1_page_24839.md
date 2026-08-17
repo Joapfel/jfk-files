@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24839.png
-
-Convert to Markdownpossesses. TICHBORN initially will devote a substantial amount of time to his duties at WUSALINE for cover-building purposes but will be available for Agency assignments on short notice. It is not planned to make any other persons or organizations in the U.S. writing of the Agency/TICHBORN relationship with the exception of the principal agent WUBRINY-1, WUBRINY-2 and WUBRINY-II of the WUSALINE project.
+possesses. TICHBORN initially will devote a substantial amount of time to his duties at WUSALINE for cover-building purposes but will be available for Agency assignments on short notice. It is not planned to make any other persons or organizations in the U.S. writing of the Agency/TICHBORN relationship with the exception of the principal agent WUBRINY-1, WUBRINY-2 and WUBRINY-II of the WUSALINE project.
 
 TICHBORN will enter on duty with WUSALINE on 1 October 1963.
 

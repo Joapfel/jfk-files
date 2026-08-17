@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21577.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Dick. Were you told that it was illegal?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29825.png
-
-Convert to MarkdownD - upset over that.
+D - upset over that.
 
 M - how does, the name Louis Piccerelli every mean anything?
 but does, you say Pat Sherman knows, worked for Gino and would

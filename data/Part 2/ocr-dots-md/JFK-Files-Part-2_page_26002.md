@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26002.png
-
-Convert to Markdowngather information and so on to support
+gather information and so on to support
 your tactical force⁵⁰ so well why not have
 somebody in working and fomenting trouble
 back there for the enemy, but connected with

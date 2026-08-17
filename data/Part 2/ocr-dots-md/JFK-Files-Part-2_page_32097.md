@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32097.png
-
-Convert to MarkdownBEST COPY AVAILABLE
+BEST COPY AVAILABLE
 
 <table>
     <tr>

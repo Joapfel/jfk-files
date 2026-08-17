@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25947.png
-
-Convert to MarkdownTHAT THE Metro team is even Involved is happenstance. Rosselli lived in Plantation, Broward Coun- ty, with his sister and brother-in- law. It's just that his killers chose to dump his body in Dade.
+THAT THE Metro team is even Involved is happenstance. Rosselli lived in Plantation, Broward Coun- ty, with his sister and brother-in- law. It's just that his killers chose to dump his body in Dade.
 
 While several detectives say their instincts lead them to con- clude that the Rosselli murder was an internal underworld affair, all on the team are aware of the pres- sure on them to search each clue that leads back to the CIA-Castro affair.
 

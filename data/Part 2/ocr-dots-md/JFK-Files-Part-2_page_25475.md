@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25475.png
-
-Convert to MarkdownML: The Soviets are very trained, they would leave a
+ML: The Soviets are very trained, they would leave a
 cigarette on an ashtray. If you knocked it over they
 know immediately someone was in the apartment.
 

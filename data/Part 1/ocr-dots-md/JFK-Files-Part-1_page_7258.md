@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7258.png
-
-Convert to MarkdownCOPIES MADE IN COPY
+COPIES MADE IN COPY
 
 for or to have any special interest in the Conference. Subject replied that he had been at the Soviet Embassy about the middle of September on visa business and had seen the Soviet he always deals with on visa matters, but that this individual seemed surprised to hear Subject had been invited to Moscow and claimed to know nothing--or at least none of the details--about the Intourist Conference. Subject claimed not to be able to remember the Soviet's name, hunted around in his wallet unsuccessfully for the Soviet's card, and then said, well, in any case it was the individual he had mentioned last time as having just gotten a promotion to Consul. I finally asked him if he meant LOGINOV--whose name he had given me last time--and after thinking for a moment, he relied that yes, that sounded right. I then asked him if LOGINOV had shown any more interest in him or in any way been more friendly toward him in the last couple of months or since he had received the Intourist invite. Subject replied that he had not.
 

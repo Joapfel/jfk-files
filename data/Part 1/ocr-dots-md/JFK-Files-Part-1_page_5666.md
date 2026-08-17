@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5666.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DCD-45S/78
 19 April 1978

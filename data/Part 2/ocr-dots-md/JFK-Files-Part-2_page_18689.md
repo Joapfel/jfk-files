@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18689.png
-
-Convert to MarkdownD. Materials pertaining to any jurisdictional agreements, agreements of coordination, or other agreements between the FBI and any other federal, state or local agency with regard to the conduct of and dissemination of information from surreptitious entries.
+D. Materials pertaining to any jurisdictional agreements, agreements of coordination, or other agreements between the FBI and any other federal, state or local agency with regard to the conduct of and dissemination of information from surreptitious entries.
 
 E. The following materials pertaining to NSA watch list activity, reportedly in operation from late 1967 through 1973, which involved the monitoring of international communications that were addressed to, or from, or included the names of persons on a changing "watch list":
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7511.png
-
-Convert to Markdown1 - Legal Counsel Division
+1 - Legal Counsel Division
 1 - Mr. J. C. Farrington
 
 The Attorney General

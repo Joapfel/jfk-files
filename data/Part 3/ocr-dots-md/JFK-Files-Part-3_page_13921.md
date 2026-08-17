@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13921.png
-
-Convert to MarkdownA smallish raid is planned by CIA in Oriente Province in September, and there will be probings of coastal defences all month long.
+A smallish raid is planned by CIA in Oriente Province in September, and there will be probings of coastal defences all month long.
 
 In answer to Mr. Clifford's question, Mr. Fitzgerald said that if the teams are captured they will no doubt India to the Castro government that they were CIA-training.
 

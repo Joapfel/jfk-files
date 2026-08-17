@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4179.png
-
-Convert to MarkdownREPÚBLICA
+REPÚBLICA
 DE
 NICARAGUA.
 

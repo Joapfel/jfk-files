@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2985.png
-
-Convert to Markdown410 First Street, S.E., Washington, D.C. 20003
+410 First Street, S.E., Washington, D.C. 20003
 
 We don't have probable cause for him to target against that organization, but yet we should be able to receive information from him that he as a Communist Party member, even though in an informant status, is going to that organization and don't worry about it. We're making no headway on it.
 

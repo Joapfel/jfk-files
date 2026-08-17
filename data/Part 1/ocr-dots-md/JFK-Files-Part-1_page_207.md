@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_207.png
-
-Convert to Markdown42. Institute of World Affairs - Manhattan, New York [85]
+42. Institute of World Affairs - Manhattan, New York [85]
 
 43. Inter-American Press Association Scholarship Fund, Inc. - Manhattan, New York [86] [08]
 

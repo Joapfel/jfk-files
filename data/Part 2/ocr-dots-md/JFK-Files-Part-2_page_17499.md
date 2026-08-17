@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17499.png
-
-Convert to Markdown1/31/70
+1/31/70
 
 AUBURN,
 

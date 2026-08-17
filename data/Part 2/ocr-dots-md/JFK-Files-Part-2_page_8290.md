@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8290.png
-
-Convert to MarkdownThe Order of Lafayette
+The Order of Lafayette
 Is Honored In Conferring Its Membership On
 
 GENERAL DICO DIMITROV

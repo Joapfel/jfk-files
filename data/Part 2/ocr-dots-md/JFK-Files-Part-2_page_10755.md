@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10755.png
-
-Convert to MarkdownC..the... GRADY was taken to Room 304, where he was searched.
+C..the... GRADY was taken to Room 304, where he was searched.
 
 To following items were taken from GRADY:
 

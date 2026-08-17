@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9864.png
-
-Convert to MarkdownSECRETARIA DE EDUCACIÓN PUBLICA
+SECRETARIA DE EDUCACIÓN PUBLICA
 
 Dirección General de Personal
 Departamento de Relaciones Públicas

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24469.png
-
-Convert to Markdownam aware, this is the only written information available on Agency relationships with subject. I hope that this will serve your purpose.
+am aware, this is the only written information available on Agency relationships with subject. I hope that this will serve your purpose.
 
 "3. I assume you are aware of the nature of the operation discussed in the attachment." (Memorandum to Director of Central Intelligence, re: Sam Giancana, from Helms, 8/16/63.)*
 

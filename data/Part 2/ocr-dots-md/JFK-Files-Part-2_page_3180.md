@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3180.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It was finally decided that, taking all things into consideration, including the aspect of quick availability, Ambassador Willauer would probably be the best choice. On the CIA side, Mr. Dulles nominated Mr. Barnes. It was recognized that these nominees would have to be checked with Mr. Gray's associates. 5/
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5665.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A-19-91-59
 

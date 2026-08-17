@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27640.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: CHAIRMAN STOKES
 

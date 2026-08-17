@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8172.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">JUNE 1961</td>
     <td>SECRET</td>

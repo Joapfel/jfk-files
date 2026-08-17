@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21309.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Series No. TIII-314
 March 16, 1945

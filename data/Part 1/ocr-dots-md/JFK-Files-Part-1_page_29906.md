@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29906.png
-
-Convert to Markdown19 July 1950
+19 July 1950
 
 17 July 1950
 

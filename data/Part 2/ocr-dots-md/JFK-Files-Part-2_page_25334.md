@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25334.png
-
-Convert to MarkdownIn July, 73, AD advised Barres that he obtained 300 lbs of C-1 explosive in Texas (having been选用 to obtain C-4) and asked it in the Everglade. AV said he had sent a man to Spain, France, Argentina & Peru to cause explosion at Cuban Embassies; create a Blue Agent type organiser.
+In July, 73, AD advised Barres that he obtained 300 lbs of C-1 explosive in Texas (having been选用 to obtain C-4) and asked it in the Everglade. AV said he had sent a man to Spain, France, Argentina & Peru to cause explosion at Cuban Embassies; create a Blue Agent type organiser.
 
 Spanish teens sent to Madrid to meet with FDP (Aug 30, 73), "Morulitos" Richard Morillo Navarrette - Asked by Bureau to Bosch. Accused of death of Cubans in U.S. Participated in terrorist selects Body group has sentenced to death
 

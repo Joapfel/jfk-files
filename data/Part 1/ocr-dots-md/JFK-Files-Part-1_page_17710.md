@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17710.png
-
-Convert to Markdownd. Miscellaneous
+d. Miscellaneous
 
 1. Supplies (paper rolls, wire, tubes, tape, pens, parts) 2,000.00
 

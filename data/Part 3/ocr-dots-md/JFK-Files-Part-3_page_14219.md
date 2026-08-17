@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14219.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 2. The recommendation of the Board. We recommend intensified, hard-hitting efforts to increase our capability for obtaining significant intelligence through clandestine collection operations (espionage). Despite noteworthy intelligence results obtainable through scientific and technical means, we still have as great a need as ever for carefully selected, human-resource espionage operations, professionally executed on the basis of the soundest planning judgments and the most competent target selection processes which the intelligence community can achieve. The Cuban experience is a case in point, for we now have few meaningful espionage assets on the island and without such assets we have little hope of developing the kind and degree of hard intelligence which is required on such critical matters as: a) the plans and intentions of the Soviet Government and the Castro regime for future operations within Cuba or for future operations launched from Cuba against other Latin American countries; b) the alleged concealment of offensive weapons in caves or other locations which are incapable of being probed by technical intelligence means; and c) the actual numbers of Soviet troops in Cuba, their precise deployments, equipments, activities and objectives.
 

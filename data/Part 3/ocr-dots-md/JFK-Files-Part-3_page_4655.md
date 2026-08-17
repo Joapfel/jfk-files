@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4655.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 Date 10/31/62
 

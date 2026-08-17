@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24663.png
-
-Convert to Markdownsent in a channel that was even more closely restricted than the normal CIA cable traffic (Tweedy, 9/9, pp. 22, 32-33). Tweedy said destruction of such cable traffic would have been left to the discretion of the Chief of Station and he did not know whether Hedgman destroyed the Station's copies (Tweedy, 9/9, p. 22).
+sent in a channel that was even more closely restricted than the normal CIA cable traffic (Tweedy, 9/9, pp. 22, 32-33). Tweedy said destruction of such cable traffic would have been left to the discretion of the Chief of Station and he did not know whether Hedgman destroyed the Station's copies (Tweedy, 9/9, p. 22).
 
 Tweedy said "I would be surprised if I didn't" have a conversation with Sidney Gottlieb about "anything in his inventory that could possibly be used, including lethal biological substances (Tweedy, 9/9, pp. 68-69). Tweedy "suspected" that "the first conversation along these lines would undoubtedly have been held between Dick Bissell and Sidney Gottlieb," which Tweedy then would have "followed-up" (Tweedy, 9/9, p. 69).
 

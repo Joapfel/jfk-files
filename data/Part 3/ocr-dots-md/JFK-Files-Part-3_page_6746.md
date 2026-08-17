@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6746.png
-
-Convert to MarkdownU.S. DEPARTMENT
+U.S. DEPARTMENT
 
 **Memorandum**
 

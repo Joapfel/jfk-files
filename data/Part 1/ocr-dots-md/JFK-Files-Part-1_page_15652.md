@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15652.png
-
-Convert to Markdown71. Subject acts because he thinks he is right.
+71. Subject acts because he thinks he is right.
 
 72. Subject acts because he thinks he will succeed and because he regards what he undertakes as important. He is egotistical in this regard.
 

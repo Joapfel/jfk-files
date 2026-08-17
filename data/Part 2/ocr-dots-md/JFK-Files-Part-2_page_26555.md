@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26555.png
-
-Convert to MarkdownE. Australia - Communist China Peiping has signed contracts for just over one million tons of Australian grain to be delivered early next year. We had been expecting the Chinese Communists to enter the market, since they had another mediocre grain crop this year. Peiping has been buying close to five million tons of grain for the past several years.
+E. Australia - Communist China Peiping has signed contracts for just over one million tons of Australian grain to be delivered early next year. We had been expecting the Chinese Communists to enter the market, since they had another mediocre grain crop this year. Peiping has been buying close to five million tons of grain for the past several years.
 
 F. Congo We hear that the Soviet Embassy in Leopoldville had booked 75 places on a flight to Brussels last Saturday. There is still no information on whether any Soviet Embassy officials have actually departed, however.
 

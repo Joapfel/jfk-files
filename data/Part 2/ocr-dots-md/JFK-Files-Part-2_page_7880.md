@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7880.png
-
-Convert to MarkdownINITIAL REVIEW FORM
+INITIAL REVIEW FORM
 
 FOIA/PA Request No.
 Dated:

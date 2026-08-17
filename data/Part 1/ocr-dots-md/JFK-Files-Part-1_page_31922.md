@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31922.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 BJS, 17 MAY 67

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3653.png
-
-Convert to MarkdownSECRET
+SECRET
 (Other Piled On)
 
 <table><thead><tr><th colspan="4">EXTRACT AND CROSS REFERENCE</th></tr></thead><tbody><tr><td colspan="2">DOCUMENT IDENTIFICATION</td><td>DATE OF DOC.</td><td>FILE CLASSIFICATION OF RECO'D COPY</td></tr><tr><td>DOC. NO.</td><td>SUBJECT</td><td>DATE OF DOC.</td><td>FILE CLASSIFICATION OF RECO'D COPY</td></tr><tr><td colspan="2">SOURCE INFORMATION</td><td>DATE OF INFO.</td><td>EVALUATION</td></tr><tr><td>SOURCE CRYPTONYMS</td><td>INFO</td><td>DATE OF INFO.</td><td>EVALUATION</td></tr><tr><td colspan="4">TEXT OF EXTRACT (Also site doc. distribution, Biosoo. No., etc. if applicable)</td></tr></tbody></table>

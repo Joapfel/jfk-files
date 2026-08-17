@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27209.png
-
-Convert to Markdown# I. Legislative History
+# I. Legislative History
 
 ## A. CIA Statutes
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_11984.png
-
 states attorneys and cops; the same ones who have been bugging Branch on the plane, go over and give some of the men in the shadows warm, Latin embraces. Inclán thinks it is a meeting between the Miami law-enforcement contingent and the Venezuelan secret police. She catches up in the line and says she has recognized one of the people in the police huddle as Ricardo Morales, the mysterious Cuban who is supposed to be Branch's fallback contact in Caracas. Branch is stunned. First he is reading clips about Cubans and cops, and the Cubans and cops start fingering him on the airplane. Now Morales.
 
 "Give me your papers and follow me!" a voice booms suddenly. It belongs to a man in a turtleneck sweater and leather jacket. A flunky moves next to each reporter in the line. There is nothing to do but hand over the passesports and follow.

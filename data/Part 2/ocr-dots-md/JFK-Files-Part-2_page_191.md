@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_191.png
-
-Convert to Markdown# ASSOCIATION OF SECRETARIES DE MEXICO, A. C.
+# ASSOCIATION OF SECRETARIES DE MEXICO, A. C.
 
 El aviso publicado en los principales diarios de esta Capital el día 23 de mayo del año en curso, y sucrecido por la Tesorería de la A.E.S.I.A.F., parcialmente, por un micro error de reducción, del que se informaron los interesados de fondos, a larita Jute Cobb, Secretaría Adjunta de la Asociación, y, por lo mismo, nos complazc asumiendo que no se trate de hacer una limitación de our funciones entre la Secretaría General de Insolididad y la Tesorería de la:...
 

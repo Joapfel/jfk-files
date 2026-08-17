@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30531.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROHIBITED
 ~~PROHIBITED~~

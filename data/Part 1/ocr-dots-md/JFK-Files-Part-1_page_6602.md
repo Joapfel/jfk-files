@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6602.png
-
-Convert to Markdown6 March 1956
+6 March 1956
 
 Chief, Contact Division
 

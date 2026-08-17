@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3665.png
-
-Convert to Markdown3. Israel
+3. Israel
 
 d. As is usual in these cases, the villagers began to trickle back once the Viet Cong left.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34936.png
-
-Convert to MarkdownSeptiembre 21, 1967
+Septiembre 21, 1967
 
 Sr. Juan Paula
 1720 S. W. 97 Place

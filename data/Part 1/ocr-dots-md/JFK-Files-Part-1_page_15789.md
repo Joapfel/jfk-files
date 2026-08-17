@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15789.png
-
-Convert to Markdown7 May 1960
+7 May 1960
 
 30 Rue Catanis
 Paris XIV.

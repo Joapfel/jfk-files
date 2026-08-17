@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4855.png
-
-Convert to MarkdownSECRET
+SECRET
 
 particularly on the Senate side, not the House side, which was a mess -- and the Senators themselves understood that these were three men of integrity and honesty. And who were trying to explain things to them. And who literally had no axes to grind. They weren't going to get a promotion out of this.
 

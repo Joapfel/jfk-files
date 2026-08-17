@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3410.png
-
-Convert to MarkdownA CONTROVERSIAL PERSONALITY
+A CONTROVERSIAL PERSONALITY
 
 It can be said of the Secretary General of the Movement for Revolutionary Recovery, Manuel Artine, that there is much to say, but never that he has lacked spirit to fight for the liberty of Cuba.
 

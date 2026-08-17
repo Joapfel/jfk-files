@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26623.png
-
-Convert to Markdown# CUBA
+# CUBA
 ## Surface-to-Air Missile (SAM) Sites
 
 ▲ New site

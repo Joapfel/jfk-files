@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29046.png
-
-Convert to Markdown1040 US Department of the Treasury / Internal Revenue Service
+1040 US Department of the Treasury / Internal Revenue Service
 Individual Income Tax Return
 
 For the year January 1-December 31, 1971, or other taxable year beginning 1971, ending 1971, page 1

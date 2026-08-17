@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34148.png
-
-Convert to Markdown# 6.- Problemas Específicos del Azúcar Crudo
+# 6.- Problemas Específicos del Azúcar Crudo
 
 a) Filtrabilidad, El índice de filtrabilidad que mide las propiedades precisamente de refinación del azúcar crudo, ha bajado en un 25% en los años recientes, afectando seriamente los costos de producción de las refinerías que emplean este azúcar crudo como materia prima.
 

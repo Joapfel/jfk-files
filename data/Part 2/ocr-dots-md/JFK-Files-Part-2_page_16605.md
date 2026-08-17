@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16605.png
-
-Convert to MarkdownOn December 18, 1969, Assistant Attorney General JERRIS LEONARD, together with Department Attorney JAMES TURNER, First Assistant United States Attorney JACK B. SCHMetterer, met with Acting Chief Judge EDWIN A. ROBSON of the U.S. District Court for the Northern District of Illinois. It is noted that Chief Federal District Judge WILLIAM J. CAMPBELL was ill and that Judge ROBSON was Acting Chief Judge in his absence.
+On December 18, 1969, Assistant Attorney General JERRIS LEONARD, together with Department Attorney JAMES TURNER, First Assistant United States Attorney JACK B. SCHMetterer, met with Acting Chief Judge EDWIN A. ROBSON of the U.S. District Court for the Northern District of Illinois. It is noted that Chief Federal District Judge WILLIAM J. CAMPBELL was ill and that Judge ROBSON was Acting Chief Judge in his absence.
 
 At this meeting the decision was made, subject to the approval of Chief Judge CAMPBELL, that the December 1969, Federal Grand Jury will be held over to hear testing in this case. A special charge will be issued this grand jury on December 22, 1969. Assistant Attorney General LEONARD advised that one or two witnesses may appear before this grand jury on approximately December 23, 1969, following which the grand jury will be adjourned until approximately January 5, 1970.
 

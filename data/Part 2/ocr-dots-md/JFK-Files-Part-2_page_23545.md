@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23545.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 TOP SECRET
 

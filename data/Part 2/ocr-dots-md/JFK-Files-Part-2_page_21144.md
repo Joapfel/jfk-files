@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21144.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Americans who were suspected by KGB of being CIA agents would likely be handled by KGB elements other than the 1st Section of the 7th Department where NOSENKO was assigned. [MARTIN MALIA] S
 

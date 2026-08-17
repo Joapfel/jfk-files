@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4043.png
-
-Convert to MarkdownCommercial
+Commercial
 
 **Werkzeug- und Werkstoff-Equipement:** US$ 25,000 additional investment by INVERNICA, and US$ 5,000 by INFORMIC.
 

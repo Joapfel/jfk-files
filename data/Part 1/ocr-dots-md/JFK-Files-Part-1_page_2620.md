@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_2620.png
-
 to the Civil Lord's private secretary, and finally, as an employee in the secretariat of the Naval staff. In London he was met by KGB officer "KOROVIN" who has been identified as London Rezident RODIN. VASSALL's last meeting with the KGB in London was on 17 August 1962. At the time of his arrest in September he had, in preparation for his next meeting on 30 October, fifteen rolls of film containing 140 photographs of classified Admiralty documents.
 
 ### KGB Audio Attack on the [West German] Embassy

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35206.png
-
-Convert to MarkdownSUSTENANCES AND RENTS
+SUSTENANCES AND RENTS
 
 In Attachment-4 the various entries under this title are explained.
 

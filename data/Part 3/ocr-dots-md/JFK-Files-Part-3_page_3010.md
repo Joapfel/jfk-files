@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3010.png
-
-Convert to Markdowngmn9
+gmn9
 
 1948
 

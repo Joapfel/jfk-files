@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20662.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 1. That a telegram be sent to the New York State Court of Appeals and New York Governor NELSON A. ROCKEFELLER, condemning the court's February 10, 1972, decision denying women on Medicaid the right to abortions on demand.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15618.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 at the BPP apartment clearly indicated the police were the only ones doing the shooting
 

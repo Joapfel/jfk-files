@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2122.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 19 February 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12516.png
-
-Convert to Markdownf. Copies
+f. Copies
 Furnish 5 copies of reports and LHMs except where instructed otherwise in individual cases.
 
 g. Closing of case

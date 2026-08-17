@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15639.png
-
-Convert to MarkdownSource stated that the above apartment serves as a "Panther Crib," meaning that it is available to any BPP member for use, such as sleeping or eating. Source stated that the following individuals are among the most frequently seen at this address:
+Source stated that the above apartment serves as a "Panther Crib," meaning that it is available to any BPP member for use, such as sleeping or eating. Source stated that the following individuals are among the most frequently seen at this address:
 
 FRED HAMPTON, Deputy Chairman;
 

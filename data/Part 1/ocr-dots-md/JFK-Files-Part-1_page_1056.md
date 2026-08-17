@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1056.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0003 BUTLER, E. G.
 NAME RPRTD AS BUTLER, EDW. G.

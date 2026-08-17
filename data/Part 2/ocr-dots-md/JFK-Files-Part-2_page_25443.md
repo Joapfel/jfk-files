@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25443.png
-
-Convert to MarkdownBook V, p. 79 Although the CIA had received information that AMLASH was a provocation there is no evidence that the CIA investigated the possibility of a connection between its fall 1963 meetings with AMLASH and the assassination of President Kennedy.
+Book V, p. 79 Although the CIA had received information that AMLASH was a provocation there is no evidence that the CIA investigated the possibility of a connection between its fall 1963 meetings with AMLASH and the assassination of President Kennedy.

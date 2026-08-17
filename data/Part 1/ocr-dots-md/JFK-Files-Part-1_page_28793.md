@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28793.png
-
-Convert to Markdown<table><tr><td>15 DECEMBER 1983</td></tr></table>
+<table><tr><td>15 DECEMBER 1983</td></tr></table>
 
 REQUEST FOR PERSONNEL ACTION
 

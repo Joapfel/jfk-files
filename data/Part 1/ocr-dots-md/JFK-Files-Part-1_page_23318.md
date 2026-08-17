@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23318.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Pilled In)
 
 16 April 1957

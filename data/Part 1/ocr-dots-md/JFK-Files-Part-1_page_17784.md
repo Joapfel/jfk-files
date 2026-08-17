@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17784.png
-
-Convert to Markdown55-
+55-
 
 Salida al 18-09-93.- 1100 hrs.- GOMEZ saluda a FLORES TÉJANI del Ceremonial de Relaciones y dice que le llaman porque el Encargado de Negocios HENRY FIALLO acaba de recibir un c cable de nuestro gobierno y de que tiente que comunicarle ciertas cosas al Canciller CARRILLO FLORES y para ello solicita una audiencia . FLORES dico que el Ministro ha ido de viaje a los Estados Unidos o sea por Nueva York y Washington, pero en cuanto regrese se le solicitará la entrevista o si es urgente se podrá gestionar con el Primer Sub-Secretario. GOMEZ que como es una cosa directa con el Canciller entonces van a es;erar por l ue semana si es que no tarda mucho en regresar, y que el lunes lo avisa rá. FLORES que está bien.- 74-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12481.png
-
-Convert to Markdown# SECTION 87
+# SECTION 87
 
 ## PART I
 

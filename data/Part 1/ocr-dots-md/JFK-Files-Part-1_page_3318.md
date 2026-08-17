@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3318.png
-
-Convert to MarkdownSEC...
+SEC...
 
 b. Enrique RODRIGUEZ Loeche: RODRIGUEZ was born about 1912 and is presently Cuban Ambassador to Morocco. RODRIGUEZ was involved for a long time in revolutionary attempts to overthrow the BATISTA and previous regimes in Cuba. He was with CASTRO during the 1958-59 period in the Sierra Maestre. Subject became acquainted with and a close friend of RODRIGUEZ when both were members of the same so-called revolutionary "Directorio". Subject alleges that RODRIGUEZ has disliked CASTRO since their first meeting during the 1958-59 period. Both Subject and his wife alleged to have received a letter from RODRIGUEZ written in the Sierra Maestre in which he listed his dislike of CASTRO and among other things referred to him using the Spanish equivalent of the term "dirty prostitute". Subject advised that unfortunately this letter has been destroyed. Subject is convinced that if he met RODRIGUEZ on the street tomorrow the latter would have no complications about sitting down for a long discussion on old times as well as the political situation in Cuba. Subject is also convinced that he could on friendly terms "talk defection or recruitment" with RODRIGUEZ should they have the opportunity to meet.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32018.png
-
-Convert to MarkdownENDS LIVING IN FOREIGN COUNTRIES (Like Grandparents, first cousins, un- or other persons with whom a close relationship existed or exi-
+ENDS LIVING IN FOREIGN COUNTRIES (Like Grandparents, first cousins, un- or other persons with whom a close relationship existed or exi-
 
 brothers- and sisters
 

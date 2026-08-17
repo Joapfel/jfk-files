@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17066.png
-
-Convert to Markdown# I. ORIGIN, PURPOSES AND LOCATION OF BPP CHAPTERS
+# I. ORIGIN, PURPOSES AND LOCATION OF BPP CHAPTERS
 
 ## A. Origin
 

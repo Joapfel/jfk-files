@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26681.png
-
-Convert to Markdown.115400.73.2977
+.115400.73.2977
 .115400.73.2867
 DIP.
 22.10.1959.

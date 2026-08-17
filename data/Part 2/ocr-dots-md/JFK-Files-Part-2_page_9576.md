@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9576.png
-
-Convert to Markdownalso known as
+also known as
 Black Panther Party for Self Defense
 
 According to the official newspaper of the BPP, the BPP was started during December, 1966, in Oakland, California, to organize black people so they can take control of the life, politics, and the destiny of the black community. It was organized by BOBBY G. SEALE, BPP Chairman, and HUEY P. NEWTON, Minister of Defense, BPP.

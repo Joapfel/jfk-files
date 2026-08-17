@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21890.png
-
-Convert to Markdown2. source
+2. source
 
 At the time of NOSENKO's defection, [redacted] told CIA in 1964, he was in training for an illegals assignment in the West, but these plans were cancelled partly because of the NOSEVRO case and partly for other reasons not specified to [redacted]. One of his handlers informed [redacted] that the NOSENKO matter was very serious, that the KGB was on a "major alert" as a result, and that all missions had been halted to make readjustments.
 

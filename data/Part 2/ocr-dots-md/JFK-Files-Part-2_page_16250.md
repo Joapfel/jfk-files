@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16250.png
-
-Convert to Markdown2. Holding
+2. Holding
 
 3. Breathing
 

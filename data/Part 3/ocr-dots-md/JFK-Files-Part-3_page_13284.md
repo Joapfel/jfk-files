@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13284.png
-
-Convert to MarkdownJuly 27, 1964
+July 27, 1964
 
 Memorandum for Lee Rankin
 

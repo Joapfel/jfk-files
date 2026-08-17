@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22207.png
-
-Convert to MarkdownNSA Delete bracketed
+NSA Delete bracketed
 portion BMS 3/1/94
 see 6 (J.C)
 

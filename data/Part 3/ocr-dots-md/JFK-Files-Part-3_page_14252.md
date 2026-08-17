@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14252.png
-
-Convert to MarkdownMr. Clifford asked whether a defense could be devised, assuming that we are unable to do so, that concealed microphones remain in place. Dr. Wiesner said that aside from the measures already mentioned, one could literally destroy 1 or 2 rooms, i.e., take them apart thoroughly and rebuild them. It might also be well to panel, or paint, the office walls, starting with the offices of the Ambassador, the Deputy Chief of Mission, and the military attaches -- but you could not be certain that this defense would be totally effective.
+Mr. Clifford asked whether a defense could be devised, assuming that we are unable to do so, that concealed microphones remain in place. Dr. Wiesner said that aside from the measures already mentioned, one could literally destroy 1 or 2 rooms, i.e., take them apart thoroughly and rebuild them. It might also be well to panel, or paint, the office walls, starting with the offices of the Ambassador, the Deputy Chief of Mission, and the military attaches -- but you could not be certain that this defense would be totally effective.
 
 Dr. Wiesner said that he and Mr. Keeny had visited the 2 intercept rooms in the Embassy, and the operating personnel talked freely about what they were doing, with no apparent fear that they were being overheard by the Soviets.
 

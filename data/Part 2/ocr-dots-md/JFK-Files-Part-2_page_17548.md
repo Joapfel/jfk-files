@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17548.png
-
-Convert to Markdownindicted for criminal trespass in violation of Antiriot Laws statute as a result of activities that occurred during the 1968 Democratic National Convention in Chicago.
+indicted for criminal trespass in violation of Antiriot Laws statute as a result of activities that occurred during the 1968 Democratic National Convention in Chicago.
 
 The "Chicago Peace Council" is a coalition organization comprised of peace activist groups in the Chicago area.
 

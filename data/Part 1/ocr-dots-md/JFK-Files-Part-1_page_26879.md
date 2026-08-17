@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26879.png
-
-Convert to Markdown<table><thead><tr><th>Page</th><th>Status</th></tr></thead><tbody><tr><td>1</td><td>Open</td></tr><tr><td>2</td><td>Half Open</td></tr><tr><td>3</td><td>Closed</td></tr><tr><td>4</td><td>CLOSED</td></tr></tbody></table>
+<table><thead><tr><th>Page</th><th>Status</th></tr></thead><tbody><tr><td>1</td><td>Open</td></tr><tr><td>2</td><td>Half Open</td></tr><tr><td>3</td><td>Closed</td></tr><tr><td>4</td><td>CLOSED</td></tr></tbody></table>
 
 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34994.png
-
-Convert to MarkdownANEX "I-F"
+ANEX "I-F"
 Page No. 4
 
 Check No. Total

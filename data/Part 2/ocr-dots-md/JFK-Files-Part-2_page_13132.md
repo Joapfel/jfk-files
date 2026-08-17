@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13132.png
-
-Convert to MarkdownThese findings, compared with consensus demography, will reveal areas of underrepresentation. In the case of the Attica Fair Jury Project, a systematic analysis of jury selection records obtained by court order revealed that third world people are underrepresented by 34.3%, women by 68%, and people between the ages 21-29 by 83.6%. This study yielded concrete evidence that the Erie County jury system is illegal and unconstitutional, and the system has been challenged on these grounds.
+These findings, compared with consensus demography, will reveal areas of underrepresentation. In the case of the Attica Fair Jury Project, a systematic analysis of jury selection records obtained by court order revealed that third world people are underrepresented by 34.3%, women by 68%, and people between the ages 21-29 by 83.6%. This study yielded concrete evidence that the Erie County jury system is illegal and unconstitutional, and the system has been challenged on these grounds.
 
 There are four practical advantages to be gained from a jury challenge even if it does not result in the immediate modification of the composition of the master jury wheel which might provide a larger proportion of people from the less authoritarian sectors of the population.
 

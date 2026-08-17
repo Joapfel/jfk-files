@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31039.png
-
-Convert to Markdownh. Subject's contract does not cover for "non-official service providing pay" as originally requested by Station. Please advise,
+h. Subject's contract does not cover for "non-official service providing pay" as originally requested by Station. Please advise,
 
 i. Zürich will also be provided in Paris, (2) of which contract will be accounted for and paid locally, if the destination has no subjects.
 

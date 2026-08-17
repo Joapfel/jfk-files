@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_26517.png
-
-Convert to Markdownfunction of the guerrilla is to disrupt the regime, the social system. The revolution will continue for a long time. There is no way to stop it short of victory. [Occasional comments by the other two or three participants had been heard. More comments follow, all unintelligible as above.]
+function of the guerrilla is to disrupt the regime, the social system. The revolution will continue for a long time. There is no way to stop it short of victory. [Occasional comments by the other two or three participants had been heard. More comments follow, all unintelligible as above.]
 
 [A period of silence is followed by a series of recorded greetings, letters, other messages, short speeches, and songs, including mention of names and identities which are unintelligible.* The recording is poor, distorted, full of echoes. Upon the conclusion of this special section, there is a notable improvement in the tape quality, as reflected in the following pages.]

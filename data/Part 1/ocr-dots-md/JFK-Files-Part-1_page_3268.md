@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3268.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">A-66, FI<br/>JUN 30 1969<br/>21:07</td></tr><tr><td>SECRET</td><td>S F C R E T</td></tr></table>
 

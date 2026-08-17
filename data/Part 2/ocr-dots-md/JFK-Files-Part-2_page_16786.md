@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16786.png
-
-Convert to MarkdownA radiograph of the QJ64 mattress revealed the presence of considerable metallic particles. Accompanying holes were in the mattress cover. The areas from which metallic particles were removed were appropriately marked on the mattress and the particles removed are described as follows:
+A radiograph of the QJ64 mattress revealed the presence of considerable metallic particles. Accompanying holes were in the mattress cover. The areas from which metallic particles were removed were appropriately marked on the mattress and the particles removed are described as follows:
 
 From area #7 - A .45 Auto bullet identified as having been fired from the .45 Thompson Submachine gun, Serial Number 5954, referred to as specimen K21.
 

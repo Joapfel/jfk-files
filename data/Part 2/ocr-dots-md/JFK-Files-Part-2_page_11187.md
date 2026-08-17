@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11187.png
-
-Convert to MarkdownE. INVESTIGATIONS OF COMMUNIST FRONT ARE MISCELLANEOUS ORGANIZATIONS
+E. INVESTIGATIONS OF COMMUNIST FRONT ARE MISCELLANEOUS ORGANIZATIONS
 
 1.  **Purposes**
     a.  To obtain sufficient pertinent data to make possible accurate determination of organization's true character

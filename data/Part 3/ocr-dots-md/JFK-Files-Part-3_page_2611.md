@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2611.png
-
-Convert to Markdown1 In short, if we learn a murder or bombing is to be carried out now, can we truly meet our responsibilities by investigating only after the crime has occurred, or should we have the ability to prevent? I refer to those instances where there is a strong sense of urgency because of an imminent threat to human life.
+1 In short, if we learn a murder or bombing is to be carried out now, can we truly meet our responsibilities by investigating only after the crime has occurred, or should we have the ability to prevent? I refer to those instances where there is a strong sense of urgency because of an imminent threat to human life.
 
 7 Where there exists the potential to penetrate and disrupt, the Congress must consider the question of whether or not such preventive action should be available to the FBI.
 

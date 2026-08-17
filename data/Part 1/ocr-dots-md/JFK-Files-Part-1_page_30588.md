@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30588.png
-
-Convert to MarkdownFrom: SEOUL
+From: SEOUL
 
 To : WASH. FOX AND SHAN
 

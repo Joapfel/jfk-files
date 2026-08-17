@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_170.png
-
-Convert to Markdown-2-
+-2-
 
 returns for specified years and in most cases the Form 1023 Application for Tax Exempt Status. Ramparts asked the IRS to make these materials available for inspection at a mutually convenient time.
 

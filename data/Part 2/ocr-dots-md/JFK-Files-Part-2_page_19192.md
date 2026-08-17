@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19192.png
-
-Convert to MarkdownSan Francisco Chronicle, Saturday, May 20, 1967, Page 9.
+San Francisco Chronicle, Saturday, May 20, 1967, Page 9.
 
 # Jeannette Rankin Speaks Up
 

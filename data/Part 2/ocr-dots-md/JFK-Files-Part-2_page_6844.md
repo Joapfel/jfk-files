@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6844.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 14 May 1992
 

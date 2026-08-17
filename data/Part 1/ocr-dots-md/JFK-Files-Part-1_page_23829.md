@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23829.png
-
-Convert to Markdown33. Court record - court, date, arrests, charges, punishments, sentences, acquittals, denazification, etc.
+33. Court record - court, date, arrests, charges, punishments, sentences, acquittals, denazification, etc.
 
 None
 

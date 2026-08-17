@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10713.png
-
-Convert to MarkdownMemo for Mr. Tolson
+Memo for Mr. Tolson
 Re: Investigation of Ku Klux Klan and Other Hate Groups
 
 community where the crime occurred; i.e. informants and sources in the Klan, hate groups, subversive organizations, but also sources not connected with my group, who will report potential violence and individuals prone to violence. We are following the policy of aggressively seeking out persons addicted to violence even though they have not violated a Federal law as yet. He feels that the Division that is going to investigate these cases should forge the necessary tools to use for this purpose.

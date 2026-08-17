@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20934.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO : ACTING DIRECTOR, FBI
 

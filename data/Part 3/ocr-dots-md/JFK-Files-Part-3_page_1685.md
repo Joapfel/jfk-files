@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1685.png
-
-Convert to MarkdownFBI
+FBI
 
 <table><tr><td>TRANSMIT VIA:</td><td>PRECEDENCE:</td><td>CLASSIFICATION:</td></tr><tr><td><input type="checkbox"/> Teletype</td><td><input type="checkbox"/> Immediate</td><td><input type="checkbox"/> TOP SECRET</td></tr><tr><td><input type="checkbox"/> Facsimile</td><td><input type="checkbox"/> Priority</td><td><input type="checkbox"/> SECRET</td></tr><tr><td><input type="checkbox" checked="checked"/> Airtel</td><td><input type="checkbox"/> Routine</td><td><input type="checkbox"/> CONFIDENTIAL<br/><input type="checkbox"/> EFTO<br/><input type="checkbox"/> CLEAR</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19474.png
-
-Convert to MarkdownRev. 5-22-64)
+Rev. 5-22-64)
 
 FBI
 

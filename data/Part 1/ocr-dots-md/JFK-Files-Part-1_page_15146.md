@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15146.png
-
-Convert to Markdown-2-
+-2-
 
 i) Für eine Touristenreise brauchen keine konsularischen formalitäten erfüllt zu werden.
 

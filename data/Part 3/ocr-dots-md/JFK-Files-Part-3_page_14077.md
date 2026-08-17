@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14077.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 increase is expected over the next 5 - 6 years (except for new reconnaissance systems for which CIA might become responsible).
 

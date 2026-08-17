@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7295.png
-
-Convert to Markdown5.03.02 In your opinion, compared to most people in his culture with a similar background he __________ is as well-educated __________ is better-informed __________ appears better educated than he claims __________ appears less educated than he claims X I cannot conceive of him having the background he claims __________ if you doubt his background, please comment:
+5.03.02 In your opinion, compared to most people in his culture with a similar background he __________ is as well-educated __________ is better-informed __________ appears better educated than he claims __________ appears less educated than he claims X I cannot conceive of him having the background he claims __________ if you doubt his background, please comment:
 
 6. General Impression of Background (Check the most appropriate)
 

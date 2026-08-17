@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1348.png
-
-Convert to Markdown10 MAY 1963
+10 MAY 1963
 
 MEMORANDUM FOR: Secretary, CS Career Service Board
 SUBJECT: Recommendation for Promotion to GS-16, Mr. Robert P. Wheeler

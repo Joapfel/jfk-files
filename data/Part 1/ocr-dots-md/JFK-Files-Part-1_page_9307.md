@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9307.png
-
-Convert to Markdown29 Aug. '50
+29 Aug. '50
 
 LIPPAUER & PILKINSON
 200 Madison Avenue

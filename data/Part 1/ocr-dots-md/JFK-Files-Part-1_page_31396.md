@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31396.png
-
-Convert to Markdown10 July 1952
+10 July 1952
 
 1. At the last Project Review Committee meeting on NCFE, you asked that the State Department be consulted on policy in respect to National Councils. A review by State has begun. Moantime, however, for your information and in order to enable you to answer questions which may be raised by Meacro. Dolbeare or Miller, I want to explain to you how the IO Division is presently handling exile affairs.
 

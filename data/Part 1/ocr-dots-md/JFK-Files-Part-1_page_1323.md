@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1323.png
-
-Convert to Markdownc. Another contact of A/3 is Ramon Calzadilla, age 21, single, 8th grade education. He provided support in the form of food and safehousing to underground workers in the past. His home address is Corojo #1, Cotorro, Havana. He owns a butcher shop in the Cotorro section of Havana. Subject will be contacted by A/3 if he needs to be safeshoused in Havana.
+c. Another contact of A/3 is Ramon Calzadilla, age 21, single, 8th grade education. He provided support in the form of food and safehousing to underground workers in the past. His home address is Corojo #1, Cotorro, Havana. He owns a butcher shop in the Cotorro section of Havana. Subject will be contacted by A/3 if he needs to be safeshoused in Havana.
 
 2. The following assets would be contacted by A/2 after arriving in Havana. They will be contacted in the order listed. Their function will be to provide safehouses and vehicles for A/2.
 

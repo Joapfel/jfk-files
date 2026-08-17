@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4550.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 to the Secret Service in order to augment the Service's capacity to carry out its protective functions in the most secure manner.
 

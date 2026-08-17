@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3014.png
-
-Convert to MarkdownHARRIS:GSH
+HARRIS:GSH
 Sen. Sel. CIA
 
 12/2/75

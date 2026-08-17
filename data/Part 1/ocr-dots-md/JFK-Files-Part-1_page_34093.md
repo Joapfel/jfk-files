@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34093.png
-
-Convert to MarkdownDuring the last months, the Cuban government has had difficulty in keeping its vessels afloat. The M/V ARACELIO IGLESIAS suffered severe damages after crashing into the Norwegian M/V NIDAREID in the Panama Canal last June 11, 1965.
+During the last months, the Cuban government has had difficulty in keeping its vessels afloat. The M/V ARACELIO IGLESIAS suffered severe damages after crashing into the Norwegian M/V NIDAREID in the Panama Canal last June 11, 1965.
 
 On April 8, 1966, the M/V ORIENTE was sunk after colliding with the Norwegian M/V ESTARFORT off the coast of Holland. And, on April 27, 1966, another newly-built Spanish vessel, the M/V LA PLATA, while on a trip to Japan, was involved in an accident, also in the Panama Canal, with the M/V HONG KONG AMBER of Liberian registry.
 

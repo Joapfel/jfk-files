@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33222.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="2">

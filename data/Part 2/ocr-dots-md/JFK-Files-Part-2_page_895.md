@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_895.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">SECTION C</th></tr><tr><td colspan="2"><b>NARRATIVE COMMENTS</b></td></tr></thead><tbody><tr><td colspan="2">Indicate significant strengths or weaknesses demonstrated in current position keeping in proper perspective their relationship to overall performance. Suggestations made for improvement of work performance, give recommendations for training. Comment on foreign language competence, if required for current position. Amplify or explain ratings given in Section B to provide best basis for determining future personnel action. Mention of performance of managerial or supervisory duties must be described, if applicable.</td></tr><tr><td colspan="2">Subject during his tour of duty at this station demonstrated a thorough knowledge of the Factory Markings program and was sincere and competent in performing his duties. The establishment of the joint center (Comet) was a creditable achievement which should make an important contribution to the program in the years to come. He was cooperative and willing to undertake additional duties when requested. He has done an outstanding job in the training of both ODYOKE and- and foreign personnel.</td></tr><tr><td colspan="2">The reporting officer feels that Subject has a tendency to procrastinate and that on a few occasions he did not follow through on his commitments as aggressively as he might have. This, however, was the only weakness noticed in an otherwise competent performance.</td></tr></tbody></table>
 

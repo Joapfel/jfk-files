@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24590.png
-
-Convert to Markdownlives of millions of Americans _with_ Soviet Missiles...but I can say I never did receive any order from President Kennedy or from Robert Kennedy about taking action against Castro personally." (Lansdale, pp.61-62). Lansdale further testified that he told O'Leary that he did take orders from Robert Kennedy, but made clear that "it was on a very wide-ranging type of thing." (Lansdale, p.62). Lansdale testified as follows concerning his statement to the Star following the O'Leary report:
+lives of millions of Americans _with_ Soviet Missiles...but I can say I never did receive any order from President Kennedy or from Robert Kennedy about taking action against Castro personally." (Lansdale, pp.61-62). Lansdale further testified that he told O'Leary that he did take orders from Robert Kennedy, but made clear that "it was on a very wide-ranging type of thing." (Lansdale, p.62). Lansdale testified as follows concerning his statement to the Star following the O'Leary report:
 
 "After the story appeared, the... Washington Star asked me what wide-ranging things were you talking about?
 

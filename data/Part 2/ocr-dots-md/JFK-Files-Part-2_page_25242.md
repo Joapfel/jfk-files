@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25242.png
-
-Convert to MarkdownGEN. DON
+GEN. DON
 CONEIN
 AMBASSADOR LODGE
 

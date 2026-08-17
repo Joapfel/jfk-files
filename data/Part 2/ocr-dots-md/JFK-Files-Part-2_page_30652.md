@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30652.png
-
-Convert to Markdown# When what should be doing, could give RED'S
+# When what should be doing, could give RED'S
 
 C. was not involved in it
 It was introduced because it was too short term in time of resources, risk case may have been used by agency, but doesn't know, can do this because target is told

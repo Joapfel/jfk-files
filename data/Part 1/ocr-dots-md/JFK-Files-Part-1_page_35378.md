@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35378.png
-
-Convert to MarkdownPago No. 2
+Pago No. 2
 
 RODRIGUEZ GONZALEZ, Roberto $ 225.00
 SERRANO CAMILO, Félix T. 450.00

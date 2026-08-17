@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32330.png
-
-Convert to MarkdownV. Strengthening of Counter-Insurgency Capabilities
+V. Strengthening of Counter-Insurgency Capabilities
 Department of Defense
 
 a. Thirteen Latin American officers graduated from the counter-insurgency Operations Course of the U.S. Army School for Latin America in the Panama Canal Zone on 20 September. During the month, a total of 91 Latin American officers enrolled in courses stressing counter-insurgency at the Army Canal Zone school.

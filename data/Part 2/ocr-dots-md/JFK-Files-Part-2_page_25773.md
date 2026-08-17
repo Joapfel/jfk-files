@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25773.png
-
-Convert to Markdown- 10 -
+- 10 -
 
 Of the foregoing inter-locking courses of action, Items (1) and (2) are in train and no policy problems regarding them are expected. Item (3) is the subject of another paper which is being presented for concurrent consideration. Item (4) is the essence of our program and is dependent for its success on the results of all other overt and covert courses of action. Item (5) has been the subject of continual review since the inception of the program and is the primary subject of this paper. Consideration of Item (6) (autonomous operations) should take place with a discussion of sabotage and harassment (Item 5). These latter two items are discussed in more detail in Section V below:
 

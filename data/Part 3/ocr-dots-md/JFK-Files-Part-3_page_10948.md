@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10948.png
-
-Convert to MarkdownIt is significant that we have been able to operate for many years in the development of live sources in foreign diplomatic establishments, both Soviet bloc and non-bloc, without encountering any serious incidents embarrassing to the FBI or the United States Government.
+It is significant that we have been able to operate for many years in the development of live sources in foreign diplomatic establishments, both Soviet bloc and non-bloc, without encountering any serious incidents embarrassing to the FBI or the United States Government.
 
 In assessing the product of such live sources in a number of instances in the non-Soviet field, State Department has requested that we restrict our efforts to American citizens. To a considerable degree, this has limited the effectiveness of our program in the non-Soviet field since U.S. employees of foreign establishments will normally not have access to top-grade data. Thus, especially in the non-Soviet bloc field we are not tapping the full potential which exists for high-level foreign intelligence. This can only be realized through the development of high quality sources.
 

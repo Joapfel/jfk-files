@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15923.png
-
-Convert to MarkdownC. Former Defector Resettlement Cases (or Cases Still in Stage If) Requiring HARVARD Action During the Reporting Period:
+C. Former Defector Resettlement Cases (or Cases Still in Stage If) Requiring HARVARD Action During the Reporting Period:
 
 DS-964
 HARVARD has learned through CAMANTILLA that Subject and wife have returned to the U.S. where both have found employment and are now apartment hunting.

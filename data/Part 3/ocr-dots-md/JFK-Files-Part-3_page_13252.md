@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13252.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 information about the Communist activity. And Fidel was coming on his big thing, you know, about talking against the Americans.
 

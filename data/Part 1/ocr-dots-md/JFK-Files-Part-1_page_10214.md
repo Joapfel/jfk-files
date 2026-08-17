@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10214.png
-
-Convert to Markdown2.
+2.
 
 representing themselves to be from legitimate "revolutionary" movements. González recounted that he himself had to go into hiding for the previous two months as a result of his having been exposed to a certain Nuñez who had arrived in Mexico City with a group of Guatemalan exiles. González described Nuñez as a known member of the "Mano Blanca" and a former police officer ("tercero jefe de la Judicial").
 

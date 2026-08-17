@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26419.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 NOFORN/CONTINUED CONTROL/NO DISSEM ABROAD/BACKGROUND USE ONLY
 

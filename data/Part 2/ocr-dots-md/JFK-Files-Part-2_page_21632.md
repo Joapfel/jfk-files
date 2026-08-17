@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21632.png
-
-Convert to Markdown104
+104
 
 you accomplish it?
 

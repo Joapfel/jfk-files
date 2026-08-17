@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25197.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>SMITH, DAVID<br/>CONEIN<br/>LODGE<br/>MINH</td><td>Oct 5, 1963</td><td>DIEM</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>SMITH, DAVID<br/>CONEIN<br/>LODGE<br/>MINH</td><td>Oct 5, 1963</td><td>DIEM</td></tr></table>
 
 **OCCURRENCE:**
 

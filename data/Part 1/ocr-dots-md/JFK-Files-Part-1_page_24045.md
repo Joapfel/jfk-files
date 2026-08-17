@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24045.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>RYBAT</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>RYBAT</td></tr></table>
 
 CLASSIFICATION
 SECRET

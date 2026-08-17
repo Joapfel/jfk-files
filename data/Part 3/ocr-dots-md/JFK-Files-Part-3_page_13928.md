@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13928.png
-
-Convert to MarkdownMr. Murphy wondered whether the intelligence effort is adequately tied in to the policy process, and he cited the August 24 State Department message to Saigon representatives indicating a policy change. Mr. Bundy said that the State Department message was not very well coordinated in its preparation, but there was no failure of intelligence involved.
+Mr. Murphy wondered whether the intelligence effort is adequately tied in to the policy process, and he cited the August 24 State Department message to Saigon representatives indicating a policy change. Mr. Bundy said that the State Department message was not very well coordinated in its preparation, but there was no failure of intelligence involved.
 
 Next, as to the adequacy of intelligence community production of timely, cumulative assessments of current intelligence and indicator-type data, for example in the South Vietnam situation, Mr. Bundy said that the intelligence record on problems developing there since last May is pretty good. The difficulty is that when you get into a matter involving daily operational-type policy decisions, it is not easy to keep track of the very latest developments.
 

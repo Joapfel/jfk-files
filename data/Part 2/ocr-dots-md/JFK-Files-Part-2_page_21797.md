@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21797.png
-
-Convert to Markdown1 the period when Mr. Harvey was setting up the staff Task Force
+1 the period when Mr. Harvey was setting up the staff Task Force
 2 W, is that correct?
 
 3 What contact, if any, did you have with Task Force W

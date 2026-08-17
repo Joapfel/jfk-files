@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4494.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 On January 27, 1969, the records of the Providence, Rhode Island Police Department, Identification Division, reflected that ANGELO PALMISANO, date of birth December 9, 1915, FBI Number 2477651, was arrested on March 22, 1937, for assault and was sentenced to three months unappealed. Discontinued on" January 16, 1946, with payment of cost. He was arrested on April 14, 1939, for operating a motor vehicle without a license and fined $5.00 and costs. He was further arrested on May 29, 1955, for gambling with dice on Sunday, fined $5.00 and costs.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22003.png
-
-Convert to Markdownmore if it still appears desirable in light of the comments at that meeting and by higher authority. Also note that the Minutes of October 24, 1963 (02898) state that "CIA is dropping its earlier proposal to support Commandos L, due to the crackdown on exile raids by various U.S. and British Government agencies."
+more if it still appears desirable in light of the comments at that meeting and by higher authority. Also note that the Minutes of October 24, 1963 (02898) state that "CIA is dropping its earlier proposal to support Commandos L, due to the crackdown on exile raids by various U.S. and British Government agencies."
 
 29. The Minutes of November 12, 1963 (02905-08) indicate Mr. Fitzgerald reported on Cuban operations under six main headings. Given the length of this report, there may have been some formal paper from which Fitzgerald spoke, although the minutes do not refer to any particular piece of paper.
 

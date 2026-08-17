@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12860.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</td></tr><tr><td>STAFF</td></tr></table>
 

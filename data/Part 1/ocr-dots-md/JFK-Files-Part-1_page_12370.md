@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12370.png
-
-Convert to Markdown<table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>CLASSIF. KEY</td><td>*TOTAL COPIES/ ROUTING AND OR INITIALS-SEE BY</td></tr><tr><td colspan="2">PERSON UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td></tr><tr><td>SLOTTED</td><td></td></tr><tr><td>BY _________________________</td><td>_____________________________</td></tr><tr><td>DISSEN BY 35 fol</td><td>PER SOP .103</td></tr><tr><td>ACTION UNIT C/WHG</td><td>FILE VR DOP ACOAP JIPAN C/FI C/CJ CNARC-2</td></tr><tr><td>ACTION NO 124</td><td></td></tr></table>
+<table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>CLASSIF. KEY</td><td>*TOTAL COPIES/ ROUTING AND OR INITIALS-SEE BY</td></tr><tr><td colspan="2">PERSON UNIT NOTIFIED</td></tr><tr><td>ADVANCE COPY ☐</td><td>ISSUED ☐</td></tr><tr><td>SLOTTED</td><td></td></tr><tr><td>BY _________________________</td><td>_____________________________</td></tr><tr><td>DISSEN BY 35 fol</td><td>PER SOP .103</td></tr><tr><td>ACTION UNIT C/WHG</td><td>FILE VR DOP ACOAP JIPAN C/FI C/CJ CNARC-2</td></tr><tr><td>ACTION NO 124</td><td></td></tr></table>
 
 SECRET 151705Z FEB 73 STAFF
 

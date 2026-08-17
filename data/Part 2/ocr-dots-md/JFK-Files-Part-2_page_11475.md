@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11475.png
-
-Convert to Markdownunequivocal regardless of Yugoslavia's foreign policies.
+unequivocal regardless of Yugoslavia's foreign policies.
 
 Standards for inclusion of subjects in the special section of the security index are the same as those for any other potentially dangerous subject.
 

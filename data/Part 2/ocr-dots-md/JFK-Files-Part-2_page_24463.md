@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24463.png
-
-Convert to MarkdownHelms testified that he did not recall this conversation, but that he had no reason to doubt the accuracy of Harvey's testimony and the Inspector General's Report. (Helms, 6/13/75, pp. 32, 106)
+Helms testified that he did not recall this conversation, but that he had no reason to doubt the accuracy of Harvey's testimony and the Inspector General's Report. (Helms, 6/13/75, pp. 32, 106)
 
 Helms, when asked about Harvey's testimony that he and
 Harvey had agreed not to brief McCone, stated "I frankly don't

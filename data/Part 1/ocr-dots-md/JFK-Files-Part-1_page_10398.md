@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10398.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>OS: Marvin Francis/lq</td></tr><tr><td>TNT: WH/1/3E04</td></tr><tr><td>EXT: 4167:1973</td></tr><tr><td>DATE: 4 October 1968</td></tr></table>
 

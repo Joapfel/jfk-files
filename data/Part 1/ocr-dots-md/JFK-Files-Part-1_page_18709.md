@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18709.png
-
-Convert to Markdown6 September 1973
+6 September 1973
 
 MEMORANDUM FOR: Chief, CI/OPS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3683.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. South Korea President-elect Pak Chong-hui's success in winning control of the unicameral legislature in Tuesday's elections improves prospects for smooth operation of the new constitutional government. However, political stability will still depend on Pak's willingness to rule with moderation. If he interprets this victory as a popular mandate to pursue an aggressive authoritarian program, he could provoke serious unrest.
 

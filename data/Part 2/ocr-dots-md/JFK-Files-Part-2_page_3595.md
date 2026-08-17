@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3595.png
-
-Convert to Markdowntheir new responsibilities. There are, however, a few signs of dissen- sion within this group and between it and civilian politicians.
+their new responsibilities. There are, however, a few signs of dissen- sion within this group and between it and civilian politicians.
 
 g. One of the more ambitious and troublesome figures is the able but opportunistic General Ton That Dinh, the new Minister of Security. He has been travelling about the country spreading the idea that the coup was largely his doing and seems bent on developing his own independ- ent base of power. He is a man to watch.
 

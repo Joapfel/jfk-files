@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1831.png
-
-Convert to Markdown# S-F-C-11-S-T
+# S-F-C-11-S-T
 
 ## WRITING WORKSHOP (BASIC) NO. 8
 ### TRAINING EVALUATION

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21751.png
-
-Convert to MarkdownHUNT- Cont'd.
+HUNT- Cont'd.
 
 opportunity, for the allegations had gained wide credence while my own delayed response appeared only incompletely in the press. Still, nothing was heard from the Committee.
 

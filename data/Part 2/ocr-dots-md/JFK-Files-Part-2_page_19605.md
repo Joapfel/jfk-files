@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19605.png
-
-Convert to MarkdownTransmit the following in
+Transmit the following in
 
 FBI
 Date: 3/31/71

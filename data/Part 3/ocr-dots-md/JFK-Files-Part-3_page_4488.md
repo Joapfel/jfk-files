@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4488.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 On December 3, 1968, ELIZABETH MILLER, Principal, Peters Junior High, advised that DEBBIE PORTER ROSSI was an eighth grade student, but has been absent since November 18, 1968. No request for forwarding of her school records has been received. School records reflect her mother to be BARBARA ANNE PORTER ROSSI and her father to be ANTHONY ROSSI. She transferred from Sugar Hill School, Buford, Georgia.
 

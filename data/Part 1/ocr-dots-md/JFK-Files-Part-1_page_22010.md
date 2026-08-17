@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22010.png
-
-Convert to MarkdownQ: You have no idea who they are meeting, or when they are meeting them?
+Q: You have no idea who they are meeting, or when they are meeting them?
 
 A: When they are meeting an active development agent, they tell me afterwards. They are telling "this, this, this, this" and I am answering "this, this, this." But usually they are going to meet maids or they don't have to report. There is nothing active and there is....The file is going on.
 

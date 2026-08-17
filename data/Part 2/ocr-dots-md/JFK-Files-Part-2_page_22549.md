@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22549.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Germany, Vienna, Austria (7th World Youth Festival), USSR, Poland East Germany, West Germany and England.
 

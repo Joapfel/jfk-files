@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14744.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SX-31466
 

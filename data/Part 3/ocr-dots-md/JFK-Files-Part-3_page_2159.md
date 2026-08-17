@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2159.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 
 DEC 2 1977
 

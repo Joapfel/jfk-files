@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4069.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 that the actual trial would not take place until December next. He stated that he left California in August, 1962, and went to Mexico where he remained until October 28, 1962. He claimed that his wife's attorney knew this and apparently brought the case on prematurely so that he would be deprived of his day in court.
 

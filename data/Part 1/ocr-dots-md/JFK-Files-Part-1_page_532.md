@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_532.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>NAMES AND ADDRESSES</th><th>TELEPHONE</th></tr></thead><tbody><tr><td>Good Times (Larry Albers)</td><td>415</td></tr><tr><td>3327 Busch Boulevard</td><td>922-9981</td></tr><tr><td>Alcoa Ewing</td><td>: 213</td></tr><tr><td>63512 Hyatt Avenue</td><td>772-6284</td></tr><tr><td>(823) 2 Cherry Hill, N.J.</td><td>102-264-6811</td></tr><tr><td>Lou Goldieb, Sena</td><td>: 707</td></tr><tr><td>874 9974</td><td></td></tr><tr><td>Ralph Egan</td><td>: 915</td></tr><tr><td>DeBorntt Grier</td><td>: 445</td></tr><tr><td>200 S. Market St., 2nd flr</td><td>244 South</td></tr><tr><td>SF Sprott</td><td>: 213</td></tr><tr><td>Fabert Feld</td><td>: 215</td></tr><tr><td>Bell-Groome Ensign</td><td>: 415</td></tr><tr><td>Basseter's Drug Mart</td><td>: 219</td></tr><tr><td>Newark, N.J.</td><td>M-8790</td></tr><tr><td>Graedel Deak</td><td>: 415</td></tr><tr><td>Tinley Park, N.Y.</td><td>929-1836</td></tr><tr><td>J. John Griswold (Gerry's Bar &amp; B&B)</td><td>: 415</td></tr><tr><td>295-1414</td><td></td></tr></tbody></table>
 

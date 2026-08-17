@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4926.png
-
-Convert to MarkdownNY 100-111180
+NY 100-111180
 
 with LEVISION, the Party designated BEN DAVIS to contact LEVISION. LEVISION had always expressed the opinion that BEN DAVIS was the only CP functionary who had a sufficiently "militant attitude" as regards CP activities in behalf of the Negro movement. The fact that DAVIS and LEVISION as yet have not met should not be construed to mean that LEVISION has refused to confer with DAVIS. As NY 694-S* understands the situation, DAVIS has been awaiting contact by LEVISION, and LEVISION similarly has been awaiting contact by DAVIS. Each of these individuals is sufficiently egotistical to expect that the other would make the first move in an effort to establish contact. NY 694-S* believes that probably the reason why DAVIS and LEVISION have not met is that arrangements for their meeting were to be made by LEM HARRIS and that HARRIS has not made the proper efforts to effect a meeting between LEVISION and DAVIS.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30841.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPY</th><th colspan="4">RECIPIENT AND INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr><tr><td>2</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr><tr><td>3</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr><tr><td>8</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPY</th><th colspan="4">RECIPIENT AND INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr><tr><td>2</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr><tr><td>3</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr><tr><td>8</td><td></td><td>A.</td><td>B.</td><td>C.</td><td></td></tr></tbody></table>
 
 SECRET
 

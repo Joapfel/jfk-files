@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13292.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 What dissemination in CIA was made of the FBI report "Fair Play for Cuba Committee--New Orleans Division" which dealt only with Oswald and "A. J. Hidell," Oswald's alias? Other than this report, were any CIA employees or informants aware of Oswald's activities in New Orleans?
 

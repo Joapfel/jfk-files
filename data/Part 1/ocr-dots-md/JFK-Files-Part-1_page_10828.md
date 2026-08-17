@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10828.png
-
-Convert to MarkdownCamaguey sigue a la cabaza de la rebeldía. Incendios, explosiones, interrupción de la luz eléctrica, destrucción de alcantarillas, letreros en las paredes, llamando a la rebelión. Y fusdamientos.
+Camaguey sigue a la cabaza de la rebeldía. Incendios, explosiones, interrupción de la luz eléctrica, destrucción de alcantarillas, letreros en las paredes, llamando a la rebelión. Y fusdamientos.
 
 Ahora el comunismo quiere llevar a miles de comunistas habaneros a Camaguey, con el pretexto de que la región no está debida ante poblada. Los camagueyanos los rechazaran. No les dirigiran la palabra. Le harán sentir su desprecio.
 

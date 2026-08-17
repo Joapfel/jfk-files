@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19607.png
-
-Convert to MarkdownSECURITY INFORMATION
+SECURITY INFORMATION
 
 TO : Chief, Communications
 FROM : Chief, Security Division

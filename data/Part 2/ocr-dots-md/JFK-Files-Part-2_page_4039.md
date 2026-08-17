@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4039.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 of the U. S. Army. He stated that he had been shot through
 the chest in 1962 in Los Angeles, California, but that the

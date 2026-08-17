@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26827.png
-
-Convert to Markdownnorth from some plantations, was a long way over which everything went coffee to minerals in theattested. The Panamanian cargo was replaced by Nicholas and Dulce ricals and Lake Isabel to Santa Tomás and Puerto Barra, there to be transferred to American ships. Panamá was the site of another operation earned out by the Edgar Ibarra detachment. The guerrillas occupied it and then retreated without bearing any losses.
+north from some plantations, was a long way over which everything went coffee to minerals in theattested. The Panamanian cargo was replaced by Nicholas and Dulce ricals and Lake Isabel to Santa Tomás and Puerto Barra, there to be transferred to American ships. Panamá was the site of another operation earned out by the Edgar Ibarra detachment. The guerrillas occupied it and then retreated without bearing any losses.
 
 The government was compelled to issue an official announcement that "malefactors" and seized a considerable quantity of arms and that troops had been sent out after them with orders to bring them back "dead or alive." This official announcement was significant. Until then the government had denied the existence of a guerilla movement in Guatemala, now its existence was recognized as a fact.
 

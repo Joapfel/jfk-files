@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13490.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [06] Austin TOME (From Canaguay. Former governor in 1959-60. Trusted by the original revolution.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28899.png
-
-Convert to MarkdownAnswer item 27 only if the deceased died before this year.
+Answer item 27 only if the deceased died before this year.
 
 27. Did you or any child for whom you are filing earn more than $1,200 last year?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35016.png
-
-Convert to MarkdownU. S. DEPARTMENT OF LABOR
+U. S. DEPARTMENT OF LABOR
 
 FINANCIAL STATEMENTS
 

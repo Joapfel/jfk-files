@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15292.png
-
-Convert to Markdown-11-
+-11-
 
 David TEIGECKVILI
 

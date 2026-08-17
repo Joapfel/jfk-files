@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25533.png
-
-Convert to Markdown15 March 1970
+15 March 1970
 
 TO : Case Officer and Chief of Station
 FROM : GARENOE

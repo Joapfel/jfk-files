@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33917.png
-
-Convert to MarkdownDENVER, COLORADO
+DENVER, COLORADO
 
 "We shall be most happy in this parish to do something specific in a spiritual way for the restoration of freedom of religion in the satellite countries. It will be announced to our congregation on Sunday, March 16th, that a special Mass will be offered on the fourth Sunday of Lent, on Paragon Sunday, on Palm Sunday and again on Easter Sunday for religious freedom behind the Iron Curtain. I can assure you that in this parish many hundreds of prayers and Holy Communion will be offered to Almighty God for our distressed brothers and sisters behind the Iron Curtain. God grant that your request will receive the response that it so richly deserves. Humble prayers will be more potent than the most effective bomb."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4818.png
-
-Convert to MarkdownERRA, SALERNO and INDELICATO have been identified as members of the La Cosa Nostra (LCN).
+ERRA, SALERNO and INDELICATO have been identified as members of the La Cosa Nostra (LCN).
 
 On January 16, 1968, MM T-2 advised that PATTY ERRA, NORMAN ROTHMAN, and ANTHONY SALERNO regularly hang around the Hilton Plaza Hotel.
 

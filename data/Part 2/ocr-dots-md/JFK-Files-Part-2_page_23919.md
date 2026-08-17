@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23919.png
-
-Convert to MarkdownAgreed to by drafting
+Agreed to by drafting
 subcommittee on
 
 August 28, 1975*

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1423.png
-
-Convert to Markdown- 6 -
+- 6 -
 
 ## Chapter 8
 

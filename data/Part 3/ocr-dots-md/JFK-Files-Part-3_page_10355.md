@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10355.png
-
-Convert to MarkdownLegal Counsel to Adams Memo
+Legal Counsel to Adams Memo
 RE: SENSTUDY 75
 
 (2) That we furnish all information which has previously been furnished GAO and is within the ambit of the Senate Select Committee's request.

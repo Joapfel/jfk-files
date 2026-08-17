@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20436.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 FAIR PLAY FOR CUBA COMMITTEE
 
 The April 6, 1960, edition of "The New York Times"

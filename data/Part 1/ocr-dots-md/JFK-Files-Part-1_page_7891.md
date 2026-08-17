@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7891.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">MESSAGE FORM<br/>TOTAL COPIES: 24</td></tr><tr><td><table><tr><td>N. Perkins</td></tr><tr><td>WH/1</td></tr><tr><td>6954</td></tr><tr><td>8, 6 April 1967</td></tr></table></td><td><table><tbody><tr><td>BOUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>I did not find any text in this image.</td></tr><tr><td>I also could not find any characters in the provided image.</td></tr><tr><td>This image is too blurry and abstract to contain legible text.</td></tr></tbody></table></td></tr></table>
 

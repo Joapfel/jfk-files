@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3159.png
-
-Convert to Markdown1771
+1771
 
 gshn 5 were taking over the racial movements but our experts here couldn't or wouldn't see it."
 

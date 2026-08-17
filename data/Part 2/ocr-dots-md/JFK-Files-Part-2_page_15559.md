@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15559.png
-
-Convert to Markdown# CHICAGC COURTS - EXTENSION OF FUTILITY
+# CHICAGC COURTS - EXTENSION OF FUTILITY
 
 It is now crystal clear to the masses of the people at home and abroad that the United States is a downright fascist country. Thus has been exemplified, with the commercial movement of the trial of the so-called Conspiracy Act on September 24th in Chicago.
 

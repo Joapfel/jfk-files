@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14676.png
-
-Convert to MarkdownThe Acting Attorney General.
+The Acting Attorney General.
 
 January 5, 1967
 

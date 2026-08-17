@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35339.png
-
-Convert to Markdown# OPERACION GRIETA:
+# OPERACION GRIETA:
 
 Annex "IV-A"
 

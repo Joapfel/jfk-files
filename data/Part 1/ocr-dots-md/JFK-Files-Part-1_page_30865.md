@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30865.png
-
-Convert to MarkdownSECRET I
+SECRET I
 
 BIOGRAPHIC PROFILE (PART I) see: 7 May 1930
 

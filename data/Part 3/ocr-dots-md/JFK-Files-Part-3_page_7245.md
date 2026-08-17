@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7245.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A copy of the "Special Report" was delivered to Mr. Huston at the White House on 6/26/70. The "Special Report" was divided into three main sections: Part One, a summarized estimate of the internal security threat; Part Two, a summary of various operational limitations on certain intelligence collection techniques with cited advantages of maintaining such restrictions as well as the advantages of relaxing them; and Part Three, an evaluation of interagency cooperation with suggested measures to improve the coordination of domestic intelligence collection.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9257.png
-
-Convert to MarkdownCopy to:
+Copy to:
 
 1 - Secret Service, Detroit (RM)
 1 - USA, Detroit (RM)

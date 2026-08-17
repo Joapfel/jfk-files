@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23066.png
-
-Convert to Markdown1 of '61 which I would not have had any knowledge of because I was not involved in Cuban affairs until, as I told you, early February 1962.
+1 of '61 which I would not have had any knowledge of because I was not involved in Cuban affairs until, as I told you, early February 1962.
 
 4 Mr. Baron. The same would go for the shooting of a bazooka towards the Presidential Palace?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3019.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 this equipment might be dangerous from the security aspect. Allowing a ship-load of equipment manned by a Cuban crew to evade our Coast Guard would probably be a better method. The most secure means of help would be giving the money to Castro, who could then purchase his own arms. A combination of arms and money would probably be best.* 15/
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33209.png
-
-Convert to Markdown<table><thead><tr><td>3010<br/>JUN 17<br/>EST.<br/>DATE:</td><td>Buchlin<br/>FAMBRINI:gma<br/>WH/4/A<br/>6609%<br/>17 JUN 88</td></tr></thead><tbody><tr><td>CABLE SECRETARIAT ASSISTANCE</td><td><input type="checkbox" /> REC'D <input type="checkbox" /> DESTROY <input type="checkbox" /> RETURN TO ____________ BRANCH <input type="checkbox" /> FILE RID</td></tr><tr><td>BY 28 PES</td><td><input type="checkbox" checked disabled /> NO REC'D <input type="checkbox" checked disabled "/&nbsp;&nbsp;&nbsp;FILP IN CS FILE NO. 201-307337&nbsp;&nbsp;&nbsp;✓</td></tr><tr><td>COMP. WH8</td><td><input type="checkbox" checked disabled /> RID COPY <input type="text" value="REDCOPY"> RECO.</td></tr></tbody></table>
+<table><thead><tr><td>3010<br/>JUN 17<br/>EST.<br/>DATE:</td><td>Buchlin<br/>FAMBRINI:gma<br/>WH/4/A<br/>6609%<br/>17 JUN 88</td></tr></thead><tbody><tr><td>CABLE SECRETARIAT ASSISTANCE</td><td><input type="checkbox" /> REC'D <input type="checkbox" /> DESTROY <input type="checkbox" /> RETURN TO ____________ BRANCH <input type="checkbox" /> FILE RID</td></tr><tr><td>BY 28 PES</td><td><input type="checkbox" checked disabled /> NO REC'D <input type="checkbox" checked disabled "/&nbsp;&nbsp;&nbsp;FILP IN CS FILE NO. 201-307337&nbsp;&nbsp;&nbsp;✓</td></tr><tr><td>COMP. WH8</td><td><input type="checkbox" checked disabled /> RID COPY <input type="text" value="REDCOPY"> RECO.</td></tr></tbody></table>
 
 MESSAGE FORM
 TOTAL COPIES: 27

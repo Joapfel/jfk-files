@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28957.png
-
-Convert to MarkdownForm
+Form
 Department of the Treasury
 Internal Revenue Service
 

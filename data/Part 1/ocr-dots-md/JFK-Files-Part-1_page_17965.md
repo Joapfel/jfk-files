@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17965.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>TO</td><td>Chief, WH Division</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td>LIFEAT Progress Report for July 1962</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>TO</td><td>Chief, WH Division</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td>LIFEAT Progress Report for July 1962</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCES</td></tr></tbody></table>
 
 <table><caption>PROCESSING</caption><thead><tr><th>PROPOSED</th><th>ACTUAL</th><th>REASON</th></tr></thead><tbody><tr><td>BASIC INFILEING</td><td>X</td><td></td></tr><tr><td>NONE OF FILES REQUIRED</td><td></td><td></td></tr><tr><td>ONLY NEEDED<br>MEANINGS IFN<br>CAN BE OBTAINED</td><td></td><td></td></tr><tr><td>ABSTRACT</td><td></td><td></td></tr><tr><td>DISTURBANCE</td><td>PS</td><td></td></tr></tbody></table><p>DESENSITIZED</p><table><tbody><tr><td>BES</td><td>HYD</td></tr><tr><td>-PI</td><td></td></tr><tr><td>ARD</td><td></td></tr></tbody></table>
 

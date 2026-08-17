@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9575.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 to accompany NEWTON on a speaking tour to raise funds for
 the Detroit 16.

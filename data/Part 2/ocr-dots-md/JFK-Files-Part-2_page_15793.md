@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15793.png
-
-Convert to MarkdownCALVIN, WILLIE JAMES, born March 6, 1948, Captain of Defense, Chicago Branch of the Illinois Chapter of the BPP. Only rank on local level.
+CALVIN, WILLIE JAMES, born March 6, 1948, Captain of Defense, Chicago Branch of the Illinois Chapter of the BPP. Only rank on local level.
 
 CAMPBELL, ANN. CAMPBELL is Treasurer of the Illinois Chapter of the BPP.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12380.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FOR PHILIP SHARE<br/>UNITED STATES</td>
     <td rowspan="2">TOTAL CARRYING AMOUNTS</td>

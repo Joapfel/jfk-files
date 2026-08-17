@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28863.png
-
-Convert to Markdown14-0000
+14-0000
 
 25 January 1974
 

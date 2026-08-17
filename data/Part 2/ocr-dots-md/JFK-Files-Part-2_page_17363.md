@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17363.png
-
-Convert to MarkdownDELMOS RAYMOUND WARD
+DELMOS RAYMOUND WARD
 
 On November 6, 1968, Mrs. Marie Dickerson, Supervisor, Drivers' License Section, Illinois Secretary of States Office, Springfield, Illinois, advised an Agent of the Springfield Office of the FBI that a review of the records of her section failed to disclose either drivers' license or chauffeur's license having been issued to subject.
 

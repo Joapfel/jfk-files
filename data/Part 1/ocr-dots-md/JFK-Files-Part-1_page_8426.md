@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8426.png
-
-Convert to Markdown14-0000
+14-0000
 
 25 June 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35657.png
-
-Convert to Markdown(44)
+(44)
 
 FORM 1304
 

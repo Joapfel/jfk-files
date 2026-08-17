@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6318.png
-
-Convert to MarkdownMR. SULLIVAN - MR. MOORE
+MR. SULLIVAN - MR. MOORE
 ESPIONAGE - RUSSIA
 
 asked if the Bureau had any objection and was advised in the negative. This morning Mr. Hall called to advise that USA Hoey had now requested advice as to what answer could be given the court should he be asked (1) if there was a wiretap involved in this case and (2) if there was a mail intercept in this case. After checking, I called Hall back and said that we would leave the answer to #1 up to the Department, but that if the Department saw necessary, the Bureau would not object.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12099.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## Present Employment:
 

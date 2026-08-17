@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21159.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It should be noted that the MC GOWAN case is mentioned in the KGB document acquired by CIA in 1961 which, as noted below, NOSENKO reviewed after the defection of ANATOLIY GOLITZYN. His knowledge of this case obviously could have been acquired at that time, although it might well have been acquired when KGB, Minsk, was covering him under 7th Department guidance.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21520.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 such a person, in which you participated along with a man called Dennis Fleming and one called Peter Joast?
 

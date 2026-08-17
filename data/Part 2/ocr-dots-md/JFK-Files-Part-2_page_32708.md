@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32708.png
-
-Convert to Markdown- 12 -
+- 12 -
 
 report in compliance with this resolution; calling for termination of the
 quarantine upon U.N. certification of such compliance; and urgently recommending

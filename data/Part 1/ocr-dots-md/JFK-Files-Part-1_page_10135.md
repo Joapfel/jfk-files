@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10135.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">CUI.. FIED MESSAGE</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3832.png
-
-Convert to Markdown3. At 2:00 p.m., the next day (19 March 1969), with the prior approval by and coordination with Headquarters (Mr. Tim HARRINGTON), Mr. Thomas F. HUGHES, Jr., previously mentioned, was interviewed under Agency cover at the Sage's East Restaurant, 181 East Lake Shore Drive, Chicago. The place of interview was designated by Mr. HUGHES. Sage's East is an expensive and popular eating establishment on Chicago's Gold Coast, a neighborhood of fashionable hotels, apartment houses, shops, entertainment establishments, etc.
+3. At 2:00 p.m., the next day (19 March 1969), with the prior approval by and coordination with Headquarters (Mr. Tim HARRINGTON), Mr. Thomas F. HUGHES, Jr., previously mentioned, was interviewed under Agency cover at the Sage's East Restaurant, 181 East Lake Shore Drive, Chicago. The place of interview was designated by Mr. HUGHES. Sage's East is an expensive and popular eating establishment on Chicago's Gold Coast, a neighborhood of fashionable hotels, apartment houses, shops, entertainment establishments, etc.
 
 4. Mr. HUGHES' demeanor around Sage's East indicated a great deal of familiarity with the premises and personnel. Obviously, he is a regular patron with special privileges. For instance, without permission, he walked into a closed-off section of the restaurant and selected a table for the interview. He then beckoned a waiter to bring two cups of coffee.
 

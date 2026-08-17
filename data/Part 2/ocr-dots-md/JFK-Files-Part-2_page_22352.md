@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22352.png
-
-Convert to Markdown# Surveillance of Dissident Groups and Activity
+# Surveillance of Dissident Groups and Activity
 
 It has been mentioned above that Mr. Osborn informed us of the activity of the Anderson Security Associates in maintaining in the Washington, D.C. area a check on individuals and organizations who would represent potential threats to CIA personnel or organizations.
 

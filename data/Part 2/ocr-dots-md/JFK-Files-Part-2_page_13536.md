@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13536.png
-
-Convert to MarkdownGPO: 1974 - 538-864
+GPO: 1974 - 538-864
 
 <table>
     <tr>

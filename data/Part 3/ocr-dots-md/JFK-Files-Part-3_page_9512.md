@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9512.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Q. In response to these allegations by King, do you remember that Mr. Hoover became very concerned with King's allegations?
 

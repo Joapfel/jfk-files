@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23628.png
-
-Convert to Markdown# SECRET Security Information
+# SECRET Security Information
 
 REVISED PROJECT OUTLINE
 

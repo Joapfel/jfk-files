@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3370.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 21. Cable to Director from COS Havana, 18 Dec 58,
 HAVA 0704 (CHECK NO. 453). S.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3091.png
-
-Convert to Markdown<table><tr><td>DATE: FBI</td></tr><tr><td>Transmit the following in (Type in plaintext or code)</td></tr><tr><td>Via (Priority)</td></tr></table>
+<table><tr><td>DATE: FBI</td></tr><tr><td>Transmit the following in (Type in plaintext or code)</td></tr><tr><td>Via (Priority)</td></tr></table>
 
 Approved:
 Special Agent in Charge

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_193.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 Memphis Division forwarded anonymous letter to headquarters of Kimberly-Clark Company concerning efforts of Clinton Eugene Daniel, an employee of Kimberly-Clark in Memphis, to recruit Klan members at the company's Memphis operation.
 

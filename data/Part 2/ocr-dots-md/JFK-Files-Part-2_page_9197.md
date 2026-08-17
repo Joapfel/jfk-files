@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9197.png
-
-Convert to MarkdownRE: MICHAEL HALSEY BROWN
+RE: MICHAEL HALSEY BROWN
 
 On January 8, 1965, Mrs. R. S. Lowrey, 1920 Awapuhi Street, Honolulu, advised as follows:
 

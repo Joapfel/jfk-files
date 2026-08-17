@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9207.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CPL log.
 

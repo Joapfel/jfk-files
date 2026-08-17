@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8603.png
-
-Convert to MarkdownEn Honor del Consul
+En Honor del Consul
 de la Unión Soviética
 
 El señor Valentin S. Loguinov, cónsul de la Unión Soviética en México, y su distinguida esposa, Alejandra de Loguinov, regresaran en fecha proxima a su país; por ello un grupo de amigos ofrecieron en días pasados una fiesta para despedirles.

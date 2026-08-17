@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15177.png
-
-Convert to MarkdownMr. Robert P. Haghe
+Mr. Robert P. Haghe
 P. O. Box 8028
 South West Station
 Washington 24, D. C.

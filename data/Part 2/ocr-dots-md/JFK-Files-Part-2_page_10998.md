@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10998.png
-
-Convert to Markdown## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 (h.) If an item to be submitted appears on more than one page of the newspaper, the words "Continued on page...," the sub headline on the continued page, and the words "Continued from page..." should not be mounted.
 

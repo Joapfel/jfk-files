@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1779.png
-
-Convert to MarkdownII. Office of DD/P
+II. Office of DD/P
 
 1. Page 9: Important to move on an Assistant DD/P for Paramilitary operations and air support. There is continuing criticism of the Agency for lack of professionalism in these activities, most particularly airborne.
 

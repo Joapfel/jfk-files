@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17035.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROJECT APPROVAL NOTIFICATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10808.png
-
-Convert to Markdownindividuals and groups in the United States because of
+individuals and groups in the United States because of
 possible security implications. The report indicated the
 FBI possessed considerable information concerning many
 individuals and groups but this information had been obtained

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6074.png
-
-Convert to Markdown"The Cultural History of the Law of Libel," Department of History and College of Law, University of Illinois, April 1991.
+"The Cultural History of the Law of Libel," Department of History and College of Law, University of Illinois, April 1991.
 
 "The Legal Culture of the Great Plains," Keynote Address, Center for Great Plains Studies' Symposium on the Bill of Rights, University of Nebraska, Lincoln, Nebraska, March 1991.
 

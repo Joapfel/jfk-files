@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21422.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 008<br/>8 SEP 61</td><td>SECRECY</td><td>ROUTING</td></tr><tr><td>TO : DIRECTOR<br/>FROM : PARIS</td><td>RE Filing (check only)<br/>No Co. Involved Vves. Duzay.<br/>All this copy will be distributed<br/>(if any, copy if I can get it)</td><td>S.G.I.Ked 4</td></tr><tr><td>ACTION : SR 6</td><td>NB: [crossed out]<br/>Marked ☐ Not required ☑</td><td>SEP 9 0256Z 61</td></tr><tr><td>INFO : CI, CI/OPS, CI/IC 2, S/C 2, BE 4</td><td>[crossed out] L. Lynn</td><td>74-6-63/3</td></tr><tr><td colspan="2"></td><td>ROUTINE</td></tr><tr><td colspan="2"></td><td>IN 26002</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 008<br/>8 SEP 61</td><td>SECRECY</td><td>ROUTING</td></tr><tr><td>TO : DIRECTOR<br/>FROM : PARIS</td><td>RE Filing (check only)<br/>No Co. Involved Vves. Duzay.<br/>All this copy will be distributed<br/>(if any, copy if I can get it)</td><td>S.G.I.Ked 4</td></tr><tr><td>ACTION : SR 6</td><td>NB: [crossed out]<br/>Marked ☐ Not required ☑</td><td>SEP 9 0256Z 61</td></tr><tr><td>INFO : CI, CI/OPS, CI/IC 2, S/C 2, BE 4</td><td>[crossed out] L. Lynn</td><td>74-6-63/3</td></tr><tr><td colspan="2"></td><td>ROUTINE</td></tr><tr><td colspan="2"></td><td>IN 26002</td></tr></tbody></table>
 
 DIR CITE PARI 6667
 ---

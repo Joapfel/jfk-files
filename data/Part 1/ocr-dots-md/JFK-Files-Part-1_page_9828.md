@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9828.png
-
-Convert to Markdown2.
+2.
 
 it later when informed by Rowton as being in her best interest, She
 agreed that child could not be properly taken care of at mother's

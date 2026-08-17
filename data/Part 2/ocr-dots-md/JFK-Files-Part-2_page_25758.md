@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25758.png
-
-Convert to Markdown21 February 1964
+21 February 1964
 
 # SPECTRUM OF COURSES OF ACTION WITH RESPECT TO CUBA
 

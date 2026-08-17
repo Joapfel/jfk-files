@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21737.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Baron. Did CIA do ghostwriting for non-CIA publications?
 

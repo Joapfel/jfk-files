@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6941.png
-
-Convert to Markdown# Halperin Denies Giving Reds Advice on Latins
+# Halperin Denies Giving Reds Advice on Latins
 
 MOSCOW, Sept. 3 (AP) -Logic Services, an intelligence
 Maurice H. Halperin, former

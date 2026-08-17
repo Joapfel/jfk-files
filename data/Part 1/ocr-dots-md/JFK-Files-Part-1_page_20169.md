@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20169.png
-
-Convert to MarkdownSEC. - 4. CHILDREN OR DEPENDENTS (Include partial dependents)
+SEC. - 4. CHILDREN OR DEPENDENTS (Include partial dependents)
 
 1. NAME NOT APPLICABLE RELATIONSHIP AG
 CITIZENSHIP ADDRESS St. & No. City State Country

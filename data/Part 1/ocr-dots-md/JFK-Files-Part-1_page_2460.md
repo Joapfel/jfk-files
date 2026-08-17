@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2460.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 although he did then and still suspects that William VASSALL was the source. The references by NOSENKO to the KGB having such information were not developed in 1962 or later interrogations, and it was not until current interviews that it was established that NOSENKO had actually seen excerpts of information passed by George BLAKE.
 

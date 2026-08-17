@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25658.png
-
-Convert to MarkdownJim Braden: Author Peter Noyes And Judge Byrne
+Jim Braden: Author Peter Noyes And Judge Byrne
 
 Peter Noyes, the investigative reporter who uncovered most of the material regarding Jim Braden (Eugene Brading), is a former classmate and close friend of Judge Matthew Byrne, Jr., the U.S. District Court Judge who presided over the Ellsberg Pentagon Papers trial last year.
 

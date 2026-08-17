@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9712.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="3">SECTION XXIV</td>

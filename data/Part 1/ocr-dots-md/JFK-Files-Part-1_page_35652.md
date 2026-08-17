@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35652.png
-
-Convert to MarkdownDADE COUNTY MEDICAL ASSOCIATION
+DADE COUNTY MEDICAL ASSOCIATION
 
 2 Coral Way
 Miami, Florida 33131

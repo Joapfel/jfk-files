@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26476.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 GRADING OF SOURCE: A = Complete, B = Uncertain or possible C = False report, D = Not usually reliable, E = Not used, F = Not applicable
 NOTE: DO NOT base any decision on a source's reliability or its competence. Instead, use the sources of doubtful validity or certainty in place of those you are;ing.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19618.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 US National March on Pentagon, April 10, 1971
 

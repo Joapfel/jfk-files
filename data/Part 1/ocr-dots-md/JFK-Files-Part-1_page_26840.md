@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26840.png
-
-Convert to MarkdownSUBJECT: Antonio SOTO Y VASQUES - Cecilio Juan PADRON SANCHEZ
+SUBJECT: Antonio SOTO Y VASQUES - Cecilio Juan PADRON SANCHEZ
 
 Cecilio Juan PADRON SANCHEZ - Cuban passport number 46128 issued at Havana, Cuba - 26 August 1965.
 

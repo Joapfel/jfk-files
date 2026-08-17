@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28058.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Labeled To)
 
 <table><thead><tr><th colspan="13">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td colspan="4">MCM 5 SEPT 58</td><th colspan="4"></th><th colspan="4"></th><th colspan="2" style="text-align:center;">PREVIOUS ASSIGNMENT</th></tr><tr><th>1. Serial No.</th><th>2. Name (Last First-Middle)</th><th>3. Date Of Birth</th><th>4. Vot. Prof.</th><th>5. Sex</th><th>6. CS-100</th><th></th><th></th><th></th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>512170</td><td>RANDALL FREDERICK</td><td>Mo. 10 Da. 28 Yr. 26<br/>None-U 5 Pn-1 10 Pn-2</td><td>Code 1</td><td>M 1</td><td>Mo. 09 Da. 10 Yr. 51</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>7. SCD</td><td>8. CSC Rank.</td><td>10 Aptm Affidav.</td><td>11. FEGLI</td><td>18. LCD</td><td>13. Engr.</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th scope="row">Mo.</th><th scope="row">Da.</th><th scope="row">Yr.</th><th scope="col">Yes. 1<br/>No. 2</th><th scope="col">Code</th><th scope="col">Mo.</th><th scope="col">Da.</th><th scope="col">Yr.</th><th scope="col">Yes. 1<br/>No. 2</th><th scope="col">Code</th><th scope="col">Mo.</th><th scope="col">Da.</th><th scope="col">Yr.</th><th scope="col">Yes. 1<br/>No. 2</th><th scope="col">Code</th></tr><tr><td>12</td><td>27</td><td>50</td><td>1</td><td>50 USCA 403 J</td><td>09</td><td>10</td><td>51</td><td></td><td>2</td><td></td><td></td><td></td><td></td></tr></tbody></table>

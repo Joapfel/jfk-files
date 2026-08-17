@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15690.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 NOV 1950
 

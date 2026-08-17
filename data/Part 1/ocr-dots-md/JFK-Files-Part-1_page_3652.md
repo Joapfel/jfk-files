@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3652.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 212015Z NOV 72 STAFF
 CITE MANAGUA 18366 MANA

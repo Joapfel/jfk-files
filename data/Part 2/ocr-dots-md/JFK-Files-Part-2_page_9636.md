@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9636.png
-
-Convert to MarkdownSECRET ARMY OPERATION
+SECRET ARMY OPERATION
 
 SPECIAL BULLETIN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2644.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="12">FITNESS REPORT</th>

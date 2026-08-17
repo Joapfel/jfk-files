@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32860.png
-
-Convert to Markdown(Cont)
+(Cont)
 
 Miguel - en Santa Fe en el año en que fue comandante, un mes antes. Estaba Federico, no Federico no, Santamaría, Isaac, Fidel y no me acuerde quien más estaba. Entonces FIDEL le dice, se río y le dio Isaac tu de Jefe del Ejército y yo de Presidente de la República, a ver quién se mueve en Cuba, que fuera de estilo comunista, y desde entonces no nunca se vieron, y el retropago ya se conoce. Esas es una de las partes de .... con las cuales yo estaba predisuesto con ....... de Fidel, perfectamente con Fidel y conocía sus ideas, y así fue como en el año 1956 en los EEUS, en el 1957...... inclusive los primeros meses del gobierno, como diez muchachos conversamos eso y somos el ............, el lo sabe.
 

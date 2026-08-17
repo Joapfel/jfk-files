@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14193.png
-
-Convert to Markdown147. 10/10/62 - On this date CIA received Navy photographs taken of the Soviet ship Kasimov off Cuba, showing clearly identifiable IL-28 crates which later showed up in U-2 photography of 10/17 at San Julian airfield -- "along with a number of others which must have come in on unphotographed ships." (Source: CIA Chronology, 11/7/62)
+147. 10/10/62 - On this date CIA received Navy photographs taken of the Soviet ship Kasimov off Cuba, showing clearly identifiable IL-28 crates which later showed up in U-2 photography of 10/17 at San Julian airfield -- "along with a number of others which must have come in on unphotographed ships." (Source: CIA Chronology, 11/7/62)
 
 148. 10/10/62 - The DCI briefed the CIA Subcommittee of the House Appropriations Committee "on the buildup, including the IL-28s. He also commented on MRBMs essentially along the lines of his cables from Nice, adding that there were many experts who did not believe the Soviets would make such a move, but that he differed with them. He told the Subcommittee that he had authority for an overflight in the next day or so." (Source: CIA Chronology, 11/7/62)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12361.png
-
-Convert to Markdownb. Symbol number index
+b. Symbol number index
 
 This index shall contain card for each individual to whom symbol
 number has been assigned. File cards numerically and any symbols

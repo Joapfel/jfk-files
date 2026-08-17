@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6947.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tr><td>CLASSIFICATION</td><td>SECRET</td><td>DATE</td><td>INVENTING REQUESTED</td></tr></table>
 

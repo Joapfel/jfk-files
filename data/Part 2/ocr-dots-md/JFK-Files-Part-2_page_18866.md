@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18866.png
-
-Convert to MarkdownApproximately 20 minutes after the couple had entered the hotel for the second time, SA FLANAGAN, under suitable pretext, interviewed the elevator operator, who advised that a couple answering the description of Mr. and Mrs. JAFFEE had gotten off the elevator at the eighth floor.
+Approximately 20 minutes after the couple had entered the hotel for the second time, SA FLANAGAN, under suitable pretext, interviewed the elevator operator, who advised that a couple answering the description of Mr. and Mrs. JAFFEE had gotten off the elevator at the eighth floor.
 
 Upon receipt of the information from SA McGEARY, as obtained from the cab driver, that the couple were possibly associated with the Press, SA KENOYER contacted the appropriate supervisor and was instructed to discontinue the surveillance in view of the possibility that the unknown couple were associated with the Press.
 

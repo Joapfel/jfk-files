@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24515.png
-
-Convert to Markdownlombia, como lo confirman autoridades y voceros de expresión de Hójico y como también lo deben haber registrado los servicios de inteligencia de varios países. En Hójico por ejemplo no se le ha sindicado como cabeza de un vasto movimiento subversivo en países litorales americanos. "El Tiempo" de Bogotá on que dedicación del 24 de mayo del presente año, lo sembla como jefe de un sujeto apodado "Gregorian", ruso expulsado de Venezuela. Lo mismo sostienen los diarios "El Siglo" y La República de Bogotá.
+lombia, como lo confirman autoridades y voceros de expresión de Hójico y como también lo deben haber registrado los servicios de inteligencia de varios países. En Hójico por ejemplo no se le ha sindicado como cabeza de un vasto movimiento subversivo en países litorales americanos. "El Tiempo" de Bogotá on que dedicación del 24 de mayo del presente año, lo sembla como jefe de un sujeto apodado "Gregorian", ruso expulsado de Venezuela. Lo mismo sostienen los diarios "El Siglo" y La República de Bogotá.
 
 Todo esto pues nos indica que, mientras el Hóróti tiende su mano amiga hacia el mundo socialista, concrétamente, hacia la Unión Soviética, ya empiezan a deslizarse elementos que, coludidos o no con su Gobierno, esto deborán establecerlo nuestros servicios de inteligencia, tengan el propósito de inmiscuirse en nuestra política interna con propósitos subversivos.
 

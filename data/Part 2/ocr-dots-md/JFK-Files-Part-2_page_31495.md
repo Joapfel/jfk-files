@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31495.png
-
-Convert to Markdown# WORLD PEACE COUNCIL
+# WORLD PEACE COUNCIL
 
 The "Guide to Subversive Organizations and Publications" issued December 1, 1961, by the Committee on un-American Activities, U.S. House of Representatives, page 179, contains the following citation regarding the World Peace Council:
 

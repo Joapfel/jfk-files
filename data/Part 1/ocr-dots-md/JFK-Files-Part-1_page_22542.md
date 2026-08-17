@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22542.png
-
-Convert to MarkdownSECRET-ENYS ONLY
+SECRET-ENYS ONLY
 
 8 March 1961
 

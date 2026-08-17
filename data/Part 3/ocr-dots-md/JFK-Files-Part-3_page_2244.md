@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2244.png
-
-Convert to MarkdownN
+N
 
 CLASSIFY AS APPROPRIATE
 

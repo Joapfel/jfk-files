@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21616.png
-
-Convert to Markdown1. And you did that.
+1. And you did that.
 
 2 Mr. Phillips. Yes.
 

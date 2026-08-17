@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12113.png
-
-Convert to Markdowncreate the best possible situation to enable the Soviet target to defect. This all-out effort on the part of each team should be highly professional and treated as a Bureau "special" with resolve and overriding determination to succeed.
+create the best possible situation to enable the Soviet target to defect. This all-out effort on the part of each team should be highly professional and treated as a Bureau "special" with resolve and overriding determination to succeed.
 
 It is fully realized that your manpower directed against ~~Soviet~~ intelligence has been decreased. It is also realized that it is an extremely difficult job to defect a trained ~~Soviet~~ intelligence officer. Extremely difficult jobs require extraordinary and sometimes unorthodox methods. You should afford this proposal serious consideration and survey the New York and Washington Field Offices for their ideas regarding this proposal.
 

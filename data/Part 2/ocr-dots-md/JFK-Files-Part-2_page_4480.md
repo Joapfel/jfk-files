@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4480.png
-
-Convert to MarkdownA. A gradual but substantial reduction in the expenditures and personnel of Task Force W.
+A. A gradual but substantial reduction in the expenditures and personnel of Task Force W.
 
 B. Consideration of the re-positioning of Task Force W within the Clandestine Service, possibly as a major component of the WH Division under different direction.
 

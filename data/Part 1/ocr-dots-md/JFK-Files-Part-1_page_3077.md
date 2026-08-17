@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3077.png
-
-Convert to Markdown4
+4
 SECRET
 
 individual with a fairly good sense of humor. He appears to understand a fair amount of English but it is hard to judge his speaking ability since he seems to be reluctant to talk at length in the language. He also appears to know some Georgian. He claims to know the Soviet Union west of the Urals rather well but gives the impression that he has never traveled in the eastern part of the country. From his comments and from observation it can be assumed that he enjoys Mexican and modern American records and perhaps even prefers them to the new, socially conscious Soviet music. His one detracting mannerism is a heavy and constant blink.

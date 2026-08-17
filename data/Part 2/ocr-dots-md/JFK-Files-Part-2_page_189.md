@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_189.png
-
-Convert to MarkdownLa dinámica Juse Cob,
+La dinámica Juse Cob,
 
 21. de Mayo de 1966
 

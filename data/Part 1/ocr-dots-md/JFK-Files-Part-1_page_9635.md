@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9635.png
-
-Convert to Markdown5 November 1947
+5 November 1947
 
 TO: Chief, Liaison Control
 Att: Mr. Gaynor

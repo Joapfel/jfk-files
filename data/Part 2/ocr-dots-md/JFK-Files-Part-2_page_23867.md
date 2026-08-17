@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23867.png
-
-Convert to Markdown1 way we have recommended the change in 45, without objection
+1 way we have recommended the change in 45, without objection
 2 the Committee approves it.
 
 3 Let us go, then, to the next subject, the structural

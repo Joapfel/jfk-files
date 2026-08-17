@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1648.png
-
-Convert to MarkdownMr. James S. Woods
+Mr. James S. Woods
 
 25
 

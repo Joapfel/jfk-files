@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8933.png
-
-Convert to MarkdownMay.14, 1975
+May.14, 1975
 
 Hon. Donald C. Alexander
 Commissioner, Internal Revenue Service

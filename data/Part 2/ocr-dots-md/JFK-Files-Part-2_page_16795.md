@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16795.png
-
-Convert to MarkdownQ261. .45 Auto cartridge case, FBI #148
+Q261. .45 Auto cartridge case, FBI #148
 Q262 Metal fragment in wrapper marked "AA", FBI #149
 Q263 Metal fragment, FBI #150
 Q264 Pamphlet "Family Guide Emergency Health", FBI #208

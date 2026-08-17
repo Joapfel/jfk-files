@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1909.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FR SEC 72-125
 13 April 1972

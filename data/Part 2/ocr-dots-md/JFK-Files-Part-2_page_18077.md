@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18077.png
-
-Convert to MarkdownRJTE IN ENVELOPE
+RJTE IN ENVELOPE
 
 10-20
 

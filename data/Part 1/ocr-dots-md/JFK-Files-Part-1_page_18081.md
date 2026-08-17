@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18081.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 LIONION PROJECT RENEWAL
 

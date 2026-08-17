@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24626.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>NO: ROBERT BUCKMAN<br/>MIT: WH/3/C<br/>EXT: 7271<br/>DATE: 18 JUNE 1968</td><td></td><td>MESSAGE FORM<br/>TOTAL COPIES: 32<br/><br/><table border="1" style="border-collapse: collapse;"><tbody><tr><td colspan="2">F E O R E T 33</td></tr><tr><td></td><td></td></tr></tbody></table></td><td>ROUTING AGE, OR INITIALS - SEEN BY<br/><table border="1" style="border-collapse: collapse;"><tbody><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></tbody></table></td></tr></table>
 

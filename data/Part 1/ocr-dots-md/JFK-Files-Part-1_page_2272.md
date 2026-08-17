@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2272.png
-
-Convert to MarkdownJohn Carl Bishop
+John Carl Bishop
 (036385)
 
 DOB : (18 January) 1938

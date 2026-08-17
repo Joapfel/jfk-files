@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1778.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 SECRET
 
 ATT TO FJTT-10860

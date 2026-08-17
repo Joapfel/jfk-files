@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7914.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 CO SUMMARIES
 (LISTING OF DELIVERIES TO WHITE HOUSE)

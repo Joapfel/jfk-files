@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16370.png
-
-Convert to Markdown# PEOPLE'S COURT OF CHICAGO
+# PEOPLE'S COURT OF CHICAGO
 
 ## THE PEOPLE VS THE PIG
 

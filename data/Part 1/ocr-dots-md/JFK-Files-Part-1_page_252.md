@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_252.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMCLATTER-5
 Alberto de Jesus ALBERTY Garcia

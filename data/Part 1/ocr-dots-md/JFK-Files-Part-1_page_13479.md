@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13479.png
-
-Convert to Markdown# SECRET
+# SECRET
 
  agents who can be passed off as students at the Havana University. (He suggested preparing one for his W/T operator (Francisco).
 

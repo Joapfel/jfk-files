@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28562.png
-
-Convert to MarkdownRESNICK, Gina
+RESNICK, Gina
 
 Name of Employee
 Address

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4780.png
-
-Convert to MarkdownSECRET
+SECRET
 
 talking to human sources. It's working with humans. It's different than sitting in the laboratory coming up with a black box. And some of the black boxes, at least, we used to have to have humans put the black boxes in the right places. Some of the operations that we had where we were trying to drop them in the right places from overhead -- as a matter of fact, to give you some idea of the problem, one of the operations was called JAVELIN. You know what a javelin is?
 

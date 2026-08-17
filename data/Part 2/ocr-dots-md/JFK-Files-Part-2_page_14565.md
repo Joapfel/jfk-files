@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14565.png
-
-Convert to Markdown1 - Belmont
+1 - Belmont
 2 - Doncho
 3 - Liaiso.
 4 - Middleton

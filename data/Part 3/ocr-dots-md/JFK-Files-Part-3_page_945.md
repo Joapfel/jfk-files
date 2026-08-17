@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_945.png
-
-Convert to Markdown9. **Problem** - The question of a Civilian Review Board for the intelligence-gathering activities of the FBI should be examined. This is a recurrent suggestion which came up at the Princeton Conference, in addition to other forums.
+9. **Problem** - The question of a Civilian Review Board for the intelligence-gathering activities of the FBI should be examined. This is a recurrent suggestion which came up at the Princeton Conference, in addition to other forums.
 
 **Policy** - There is no Civilian Review Board to monitor the FBI inasmuch as various checks and reins are available to check or control the FBI. (See Options)
 

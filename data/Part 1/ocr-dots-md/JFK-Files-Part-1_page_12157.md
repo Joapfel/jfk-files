@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12157.png
-
-Convert to MarkdownGRANT
+GRANT
 
 CENTRAL INTELLIGENCE AGency
 

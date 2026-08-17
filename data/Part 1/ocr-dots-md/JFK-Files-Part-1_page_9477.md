@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9477.png
-
-Convert to Markdown10. Problems of Printed Invitations. Also cards for the Press. Cards for Tabernas guests. Preparation of Berlin Quest List — Key people for Titania Invitation, and special invites to Hegeer-Söderlein-Scholz-Lemmer-Montijo-Heis et al.—crowd in town.
+10. Problems of Printed Invitations. Also cards for the Press. Cards for Tabernas guests. Preparation of Berlin Quest List — Key people for Titania Invitation, and special invites to Hegeer-Söderlein-Scholz-Lemmer-Montijo-Heis et al.—crowd in town.
 
 11. Preparation of political-historical introduction to post-war Berlin. Simple, non-propagandistic, somewhat factual, possibly illustrated. (After fashion of excellent Breslau-Polish material)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6093.png
-
-Convert to Markdown3. As an ARRB member, I envision my relationship and responsibilities to:
+3. As an ARRB member, I envision my relationship and responsibilities to:
    a) the President to be one of faithfully executing to the best of my ability the provisions contained in the President John F. Kennedy Assassination Records Collection Act of 1992;
    b) the Congress to be one of fulfilling the purposes of the same legislation to the best of my ability, and to responding fully to requests for information from appropriate oversight groups concerning our progress;
    c) other executive branch agencies to be one of cooperating to the utmost of my ability to facilitate the review of any of their assassination records and to provide them with full information concerning our activities.

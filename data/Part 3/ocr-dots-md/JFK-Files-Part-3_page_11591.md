@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11591.png
-
-Convert to Markdown7/2-4/71 -- NPAC national antiwar convention, New York City.
+7/2-4/71 -- NPAC national antiwar convention, New York City.
 
 8/8-15/71 -- SWP national convention, Oberlin, Ohio, which also included Student Activist Educational Conference of the YSA.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25304.png
-
-Convert to MarkdownSECRET
+SECRET
 
 KOMIYORI, Nikolay Matveevich - diplomat, Naval Attache office
 wife: Nolli A. Komiya

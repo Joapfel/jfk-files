@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24526.png
-
-Convert to Markdown(e.g., "stir up workers in Latin America and Cuba," work through "ethnic language groups," "youth elements," or families through the Church") do not contain any indication of assassination. (Lansdale, Ex. 4, p. 1.)
+(e.g., "stir up workers in Latin America and Cuba," work through "ethnic language groups," "youth elements," or families through the Church") do not contain any indication of assassination. (Lansdale, Ex. 4, p. 1.)
 
 On January 19, 1962, Lansdale added an additional task to those assigned on January 18. This "Task 33" involved a plan to "incapacitate" Cuban sugar workers during the harvest by the use of chemical warfare means. (Lansdale, p. 29). Lansdale testified that the plan involved the use of non-lethal chemicals to sicken Cubans temporarily and keep them away from the fields for a 24-48 hour period "without ill effects." After initial approval for planning purposes (with the notation that it would require "policy determination" before final approval), the plan was ultimately cancelled after a study showed it was not feasible and before debate by the SGA. (Lansdale, p. 29, Special Group Minutes, 1/30/62, p. 1.)
 

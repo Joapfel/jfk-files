@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32622.png
-
-Convert to MarkdownCLASSIFIED TESTIMONY - PART II (Cont'd)
+CLASSIFIED TESTIMONY - PART II (Cont'd)
 
 | NO. | SUBJECT: | DATE: |
 |---|---|---|

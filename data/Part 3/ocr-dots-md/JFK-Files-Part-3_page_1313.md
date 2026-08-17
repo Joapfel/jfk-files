@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1313.png
-
-Convert to Markdown# Table 1: Sample Intelligence Form
+# Table 1: Sample Intelligence Form
 
 NW 88608 DocId:32989640 Page 352
 

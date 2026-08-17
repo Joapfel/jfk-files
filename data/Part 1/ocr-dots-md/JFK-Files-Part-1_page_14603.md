@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14603.png
-
-Convert to Markdownc. Description: She does not know in the country of an object or not, (Subject has done this before in America and had a vacation there.) She is now going to America (M.)
+c. Description: She does not know in the country of an object or not, (Subject has done this before in America and had a vacation there.) She is now going to America (M.)
 
 c. Languages:
 

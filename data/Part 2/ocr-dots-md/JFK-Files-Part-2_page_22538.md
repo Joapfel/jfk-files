@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22538.png
-
-Convert to MarkdownOn 2 November 1966, Wiley submitted a report on Edward Scannel Butler who was in New York on 26 October 1966 to review a documentary film he had produced about Castro. Apparently Butler had a radio debate with Lee Harvey Oswald just prior to President Kennedy's assassination.
+On 2 November 1966, Wiley submitted a report on Edward Scannel Butler who was in New York on 26 October 1966 to review a documentary film he had produced about Castro. Apparently Butler had a radio debate with Lee Harvey Oswald just prior to President Kennedy's assassination.
 
 In late 1966 or early 1967, Wiley submitted a number of public brochures distributed attendant to the production of the films, "Troublemakers," "Mass," etc.
 

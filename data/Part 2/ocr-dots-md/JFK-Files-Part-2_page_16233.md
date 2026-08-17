@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16233.png
-
-Convert to MarkdownB. Purposes, Aims and Rules of Chicago BPP Chapter
+B. Purposes, Aims and Rules of Chicago BPP Chapter
 
 On November 1, 1968, BOBBY LEE RUSH, Deputy Minister of State, Chicago BPP, flew to National Headquarters, Oakland, California, where he met with ELDRIDGE and KATHLEEN CLEAVER and BOBBY GEORGE SEALE. The CLEAVERS and SEALE are members of the Central Committee of the National BPP.
 

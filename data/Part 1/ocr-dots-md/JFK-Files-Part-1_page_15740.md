@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15740.png
-
-Convert to Markdowndirector for labor saving device re
+director for labor saving device re
 manufact. of device for automat. adjustment
 of cartridge cases.
 

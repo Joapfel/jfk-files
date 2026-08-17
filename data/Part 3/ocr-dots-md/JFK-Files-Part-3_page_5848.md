@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5848.png
-
-Convert to MarkdownFD-370 (Rev. 8-1-66)
+FD-370 (Rev. 8-1-66)
 
 SECRET
 

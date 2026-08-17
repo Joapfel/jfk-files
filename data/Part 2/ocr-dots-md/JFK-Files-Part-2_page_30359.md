@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30359.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 already notified the American embassy that he intended to defect?
 

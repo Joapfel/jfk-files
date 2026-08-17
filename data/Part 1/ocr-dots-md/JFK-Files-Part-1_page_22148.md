@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22148.png
-
-Convert to Markdown6. The SVERICHNISKY Case
+6. The SVERICHNISKY Case
 
 a. Information from NOSENKO:
 

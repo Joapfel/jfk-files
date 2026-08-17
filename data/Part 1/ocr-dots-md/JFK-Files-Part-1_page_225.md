@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_225.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER<br/>22<br/>FCTB-8572</th><th>DATE<br/>1 JUL 1966<br/>13 July 1966</th></tr></thead><tbody><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td>HQS FILE NUMBER</td></tr></tbody></table>
 

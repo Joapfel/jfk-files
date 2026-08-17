@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17009.png
-
-Convert to MarkdownSAC, CHICAGO
+SAC, CHICAGO
 
 2/20/70
 

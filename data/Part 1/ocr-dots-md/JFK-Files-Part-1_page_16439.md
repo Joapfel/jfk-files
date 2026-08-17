@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16439.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IN 234 350
 C

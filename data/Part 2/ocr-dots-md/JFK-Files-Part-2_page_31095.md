@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31095.png
-
-Convert to Markdown00034418
+00034418
 
 SCHRI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12681.png
-
-Convert to MarkdownList Maddox and my
+List Maddox and my
 handling of the Civil
 Rights Act of 1964?
 Case involving Maddox

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26522.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that this woman is a cut-out in the communica-
 tions between the pro-Communist Peasant Leagues,

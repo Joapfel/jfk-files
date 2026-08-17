@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8603.png
-
-Convert to MarkdownSTANDARD FORM NO. 1169A
+STANDARD FORM NO. 1169A
 
 Form prescribed by Comptroller General U.S.
 (Effective May 1, 1984)

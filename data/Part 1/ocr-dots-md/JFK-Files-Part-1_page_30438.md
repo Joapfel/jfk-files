@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30438.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DATE: 31 May 1967
 PROT.: 2-575

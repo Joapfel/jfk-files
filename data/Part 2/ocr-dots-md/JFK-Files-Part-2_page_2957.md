@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2957.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 November 1963 President Kennedy orders Colby to go to Saigon as Presidential emissary.
 

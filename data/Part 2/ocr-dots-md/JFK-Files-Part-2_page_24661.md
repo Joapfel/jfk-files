@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24661.png
-
-Convert to Markdownwhether Bissell had consulted with any "higher authority" about exploring the possibilities for assassinating Lumumba (Tweedy, 9/9, p. 28). Generally, Tweedy said, when he received an instruction from Bissell he would proceed to implement it on the assumption that it was fully authorized above the level of DDP:
+whether Bissell had consulted with any "higher authority" about exploring the possibilities for assassinating Lumumba (Tweedy, 9/9, p. 28). Generally, Tweedy said, when he received an instruction from Bissell he would proceed to implement it on the assumption that it was fully authorized above the level of DDP:
 
 > I would proceed with it on the basis that he was authorized to give me instructions and it was up to him to bloody well know what he was empowered to tell me to do. (Tweedy, 9/9, p.13)
 

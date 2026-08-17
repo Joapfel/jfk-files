@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11571.png
-
-Convert to MarkdownACCOMPLISHMENTS
+ACCOMPLISHMENTS
 FOREIGN INFLUENCE AND PRO-CHICOM UNIT
 
 A prime responsibility of the Bureau and the intel-

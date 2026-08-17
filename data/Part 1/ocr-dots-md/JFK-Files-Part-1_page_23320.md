@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23320.png
-
-Convert to Markdown5 April 1957
+5 April 1957
 
 MEMORANDUM FOR THE RECORD:
 

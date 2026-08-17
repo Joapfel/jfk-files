@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23100.png
-
-Convert to MarkdownA mediados del año 1964, los contrarrevolucionarios Osvaldo Valentín Figueroa Gálvez, conocido por "Mankeca", Reynaldo Figueroa-Gálvez, Felipe Alonso Herrera y José Manuel Rodríguez Cruz, conocidos por "Lolo",—miembros de la organización "Movimiento de Liberación Nacional", que formaba parte—del bloque de organizaciones, RCA, dirigidas por la CIA, comienzan a preparar un—plan de atentado contra el Primer Ministro.
+A mediados del año 1964, los contrarrevolucionarios Osvaldo Valentín Figueroa Gálvez, conocido por "Mankeca", Reynaldo Figueroa-Gálvez, Felipe Alonso Herrera y José Manuel Rodríguez Cruz, conocidos por "Lolo",—miembros de la organización "Movimiento de Liberación Nacional", que formaba parte—del bloque de organizaciones, RCA, dirigidas por la CIA, comienzan a preparar un—plan de atentado contra el Primer Ministro.
 
 Estos individuos estaban vinculados a los —agentes de la CIA, Alberto y Ramón Grau— Sierra, quienes formaban parte de la red —dirigida por Ramón y María Leopoldina Grau-Alsina, que posteriormente-en junio de 1965 intentaron envenenar al Primer Ministro.
 

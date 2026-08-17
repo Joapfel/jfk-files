@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4183.png
-
-Convert to Markdown2
+2
 
 ME #44-1897
 

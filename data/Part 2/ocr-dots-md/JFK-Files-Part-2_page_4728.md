@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4728.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to do any kind of damage control or approach it a totally different way, and
 the President may not have wanted to, because Ford wasn't the strongest guy in

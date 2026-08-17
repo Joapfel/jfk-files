@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4580.png
-
-Convert to MarkdownEMPLOYER - In the space provided below describe every position which you have held since you left school, including one active occupation. Begin each line with the word "Now," and list all former positions in reverse chronological order.
+EMPLOYER - In the space provided below describe every position which you have held since you left school, including one active occupation. Begin each line with the word "Now," and list all former positions in reverse chronological order.
 
 CONTINUATION SHEET IS SUGGESTED
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12161.png
-
-Convert to Markdown[107M-N SECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+[107M-N SECTION 107. [INTERNAL] SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
 
 2. Submit quarterly letter (FD-451b) to Bureau by secure teletype system (NITEL). Quarterly letter should include the following:
    a. Name, location and number of subversive groups including identities of groups on college campuses, exclusive of those in black extremist, white hate or espionage matters.

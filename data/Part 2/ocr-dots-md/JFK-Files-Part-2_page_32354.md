@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32354.png
-
-Convert to Markdowncarry refugees from Habana to Central America. CMA, as a result, stated that they had no intention of proceeding further with this project.
+carry refugees from Habana to Central America. CMA, as a result, stated that they had no intention of proceeding further with this project.
 
 e. Instructed our missions in Curacao and the Hague to investigate a report that KLM was planning to renew scheduled Curacao-Habana flights and to reiterate US opposition to resumption of air service to Cuba. KLM assured our Embassy that there is no plan to initiate service, scheduled or non-scheduled, to Habana.
 

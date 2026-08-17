@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14054.png
-
-Convert to MarkdownAt this point, Mr. Cottrell of the Department of State joined the Board meeting.
+At this point, Mr. Cottrell of the Department of State joined the Board meeting.
 
 In answer to a question by Mr. Murphy, Mr. Fitzgerald said that the intelligence teams mostly confined their activities to intelligence gathering rather than covert action, although the teams do have the mission of creating low-key "resistance and "subtle sabotage". Mr. Fitzgerald said that although CIA has no policy guidance for positive covert action programs of a specific sabotage nature, there is policy guidance for leaflet drops and radio propaganda, and an example of "subtle sabotage" would be the shorting out of a high tension power line by throwing a copper wire over it.
 

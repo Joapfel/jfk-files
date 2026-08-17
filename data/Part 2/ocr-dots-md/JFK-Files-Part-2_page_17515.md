@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17515.png
-
-Convert to MarkdownOn 7/13/69 who has furnished reliable information in the past advised that to date the following Chicago Panthers either have departed or plan to depart for the above conference:
+On 7/13/69 who has furnished reliable information in the past advised that to date the following Chicago Panthers either have departed or plan to depart for the above conference:
 
 JEWEL COOK, Field Secretary, Acting Deputy Chairman, (State Offices), Illinois Black Panther Party (BPP);
 

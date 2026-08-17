@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11028.png
-
-Convert to MarkdownCLASSIFIED VERSUS
+CLASSIFIED VERSUS
 
 <table><tr><td>SECRET</td></tr></table>
 

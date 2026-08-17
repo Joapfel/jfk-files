@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31193.png
-
-Convert to MarkdownSECRET
+SECRET
 
 0002225
 

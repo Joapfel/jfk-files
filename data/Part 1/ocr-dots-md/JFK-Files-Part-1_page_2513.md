@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2513.png
-
-Convert to Markdownhas never plausibly explained the circumstances which prompted his
+has never plausibly explained the circumstances which prompted his
 retention of the list until 1964, when he produced it for CIA in Geneva.
 
 During current interviews, the matter of the above list has been

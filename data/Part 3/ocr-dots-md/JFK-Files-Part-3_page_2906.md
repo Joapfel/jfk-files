@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2906.png
-
-Convert to Markdown1 protection. It's a matter of balance. Even in the Fourth
+1 protection. It's a matter of balance. Even in the Fourth
 2 Amendment, for example, which protects the right of privacy, it
 3 does not prohibit searches and seizures. I mention, it only
 4 refers to those that are unreasonable.

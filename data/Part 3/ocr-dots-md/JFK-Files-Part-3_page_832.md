@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_832.png
-
-Convert to Markdown4. Should the FBI Director be appointed for a term of years? (All the issues surrounding the appointment and tenure of the Director should be explored.)
+4. Should the FBI Director be appointed for a term of years? (All the issues surrounding the appointment and tenure of the Director should be explored.)
 
 5. Should the FBI be an independent agency or continue as part of the Justice Department? The pros and cons of this recurrent question should be analyzed again with the purpose of adopting a firm policy.
 

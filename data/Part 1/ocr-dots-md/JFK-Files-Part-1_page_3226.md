@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3226.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4" style="text-align:center;">SECTION XI</th>

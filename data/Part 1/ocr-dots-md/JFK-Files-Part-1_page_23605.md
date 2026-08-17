@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23605.png
-
-Convert to MarkdownSECRET
+SECRET
 
 J. C. KING
 

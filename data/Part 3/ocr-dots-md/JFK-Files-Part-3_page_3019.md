@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3019.png
-
-Convert to Markdown1957
+1957
 
 deals with whether we shouldn't impose a standard of probable
 cause that a crime has been committed as a means of controlling

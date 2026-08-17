@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5999.png
-
-Convert to Markdown7. The "necessary Manual changes" which were "attached for approval" to Mr. Baumbgardner's September 16, 1963 memorandum to Mr. Sullivan, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-Communist."
+7. The "necessary Manual changes" which were "attached for approval" to Mr. Baumbgardner's September 16, 1963 memorandum to Mr. Sullivan, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-Communist."
 
 8. All materials which support the following statement of Director Hoover which was noted on Mr. Baumgardner's September 16, 1963 memorandum to Mr. Sullivan, subject "Communist Party, USA, Negro Question, Communist Influence in Racial Matters, Internal Security-Communist":
 

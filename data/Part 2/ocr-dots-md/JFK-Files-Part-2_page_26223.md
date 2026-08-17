@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26223.png
-
-Convert to MarkdownFor its part, CIA had developed a whole series of functions paralleling already existing functions of the State Department, and of the Defense Department as well. Today it has its own political desks and military staffs; it has in effect its own foreign service; it has (or has had) its own combat forces; it even has its own air force. Its annual budget is about _times that of the State Department._ The contemporary CIA possesses many of the characteristics of a state within a state.
+For its part, CIA had developed a whole series of functions paralleling already existing functions of the State Department, and of the Defense Department as well. Today it has its own political desks and military staffs; it has in effect its own foreign service; it has (or has had) its own combat forces; it even has its own air force. Its annual budget is about _times that of the State Department._ The contemporary CIA possesses many of the characteristics of a state within a state.
 
 ## II. Doctrine
 

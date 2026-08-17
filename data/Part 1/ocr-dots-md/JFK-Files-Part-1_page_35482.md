@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35482.png
-
-Convert to MarkdownSarzo Mauri
+Sarzo Mauri
 
 Participó a la Juventud Socialista en el Fondo Esmeralda de Obras Públicas alrededor del comienzo del Gobierno Auténtico.
 

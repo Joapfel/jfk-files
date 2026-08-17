@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8862.png
-
-Convert to Markdown13. Padre - Nombre completo, ocupación, dirección actual, fecha y lugar de nacimiento, nacionalidad al nacer y nacionalidades subsequently:
+13. Padre - Nombre completo, ocupación, dirección actual, fecha y lugar de nacimiento, nacionalidad al nacer y nacionalidades subsequently:
 
 HERMINDA MARTINEZ DE LOPEZ, 5201 Buellong Ave. Los Angeles, California; Housewife. Born in April 16, 1955 in Chihuahua, Mexico. Naturalized American citizen in 1985.
 

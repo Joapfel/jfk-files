@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10625.png
-
-Convert to MarkdownCODE
+CODE
 
 TO SACS LOS ANGELES
 SAN DIEGO

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6870.png
-
-Convert to MarkdownIII. The Mechanics of Declassification
+III. The Mechanics of Declassification
 
 Declassification involves more than appropriate standards for the release of information. It also calls for the establishment of effective mechanisms to move records through the bureaucracy. Once again, the experience of the Review Board provides valuable lessons that should be of use to this Committee in considering legislation. I would like to draw attention to four important points involving the mechanics of declassification.
 

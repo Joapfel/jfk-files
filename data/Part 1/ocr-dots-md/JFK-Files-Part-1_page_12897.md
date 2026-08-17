@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12897.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM 83698
 7.10.19 MO 2/9

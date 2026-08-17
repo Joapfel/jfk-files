@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2921.png
-
-Convert to MarkdownGeneral. It was during this meeting, which approved intensifying MONGODB operations, that McCone first shared outside the CIA his fear that the Soviets might introduce offensive missiles into Cuba. His statement had little immediate impact. The experts unanimously and adamantly agreed that this was beyond the realm of possibility.
+General. It was during this meeting, which approved intensifying MONGODB operations, that McCone first shared outside the CIA his fear that the Soviets might introduce offensive missiles into Cuba. His statement had little immediate impact. The experts unanimously and adamantly agreed that this was beyond the realm of possibility.
 
 McCone's conclusion that the USSR might put offensive missiles into Cuba was set in motion by the continuing influx of Soviet military equipment. It was intensified by the arrival of Soviet personnel, then brought to a head by reports which suggested that the Soviet Union was preparing to install surface-to-air missiles (SAMs) there.
 

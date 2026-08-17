@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27275.png
-
-Convert to Markdown# INDEX
+# INDEX
 
 A. Memo for Record by Martin J. Lukoskie, Subj: Association of Robert R. Mullen & Co with the Hughes Tool Co. 30 Apr 71 SECRET
 

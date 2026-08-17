@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22571.png
-
-Convert to MarkdownSECRET-eyes ONLY
+SECRET-eyes ONLY
 
 to live in a free and democratic republic. Most of them were seeking
 vengeance or personal gain. General Román, who was to have taken over

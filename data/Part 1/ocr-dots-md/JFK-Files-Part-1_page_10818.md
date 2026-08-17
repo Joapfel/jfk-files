@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10818.png
-
-Convert to Markdownsuficientes
+suficientes
 
 El automóvil, el automóvil, el automóvil, el automóvil,
 

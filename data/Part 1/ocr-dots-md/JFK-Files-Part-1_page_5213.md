@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5213.png
-
-Convert to Markdownthat it is routine for business people to carry their own views. No one else and Allen concurred in the use of WICKLEY's private firm and abandoned WICKLEY to keep Charles on the string in view of our interest in his.
+that it is routine for business people to carry their own views. No one else and Allen concurred in the use of WICKLEY's private firm and abandoned WICKLEY to keep Charles on the string in view of our interest in his.
 
 6. Mr. Allen indicated to WICKLEY that we were definitely interested in Emigüiga and made a good argument such as WICKLEY had done on FALAYI. WICKLEY said that this presented to him no problem. He stated that he had not specifically asked Emigüiga who his opposite course are because he did not want Emigüiga to become an issue.
 

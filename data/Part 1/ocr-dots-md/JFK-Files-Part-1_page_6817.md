@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6817.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (WHEN FILMED IN)
 

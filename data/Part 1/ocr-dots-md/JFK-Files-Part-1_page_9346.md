@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9346.png
-
-Convert to Markdown11 December 1950
+11 December 1950
 
 32-C:GAT:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6641.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 HUNTER PITTS O'DELL.
 

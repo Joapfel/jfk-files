@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4966.png
-
-Convert to Markdown13-00000
+13-00000
 
 MHFNO: 96-3377691
 

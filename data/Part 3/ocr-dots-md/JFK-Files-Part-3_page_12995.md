@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12995.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO : Mr. J. B. Adams
 

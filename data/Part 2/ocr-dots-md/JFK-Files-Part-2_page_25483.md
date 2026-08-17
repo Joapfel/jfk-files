@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25483.png
-
-Convert to MarkdownFS: At the same time you tried to get as much information out of them as you can being on that friendly basis.
+FS: At the same time you tried to get as much information out of them as you can being on that friendly basis.
 
 ML: I was being on a very social...
 

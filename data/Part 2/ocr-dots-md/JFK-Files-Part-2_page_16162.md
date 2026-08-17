@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16162.png
-
-Convert to MarkdownPhotographs of interior of 2337 West Monroe, Chicago,
+Photographs of interior of 2337 West Monroe, Chicago,
 Illinois, were taken in the presence of Special Agents
 JOHN J. GOLDEN, WILLIAM J. DOWNEY, JR. and CHARLES E.
 CALFEE and Deputy U. S. Marshall LORENZO FOWLER.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11405.png
-
-Convert to Markdown# Unit Organization
+# Unit Organization
 
 **Chinese) Unit**
 Herbert J. Morgan

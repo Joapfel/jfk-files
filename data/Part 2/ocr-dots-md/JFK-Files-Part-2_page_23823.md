@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23823.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 want to refer to, but if we get into his death at all, I think
 2 we have got to present the case, that blowing his cover is not

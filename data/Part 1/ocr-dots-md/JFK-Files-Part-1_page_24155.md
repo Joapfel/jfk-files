@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24155.png
-
-Convert to MarkdownRICHARD JIBSON
+RICHARD JIBSON
 
 30, Stockleigh Hall
 Prince Albert Road

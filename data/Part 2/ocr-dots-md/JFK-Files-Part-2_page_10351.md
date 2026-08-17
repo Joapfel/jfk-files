@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10351.png
-
-Convert to MarkdownSUBJECT: Domestic Tests for Agency Research and Development Efforts
+SUBJECT: Domestic Tests for Agency Research and Development Efforts
 
 e. Remote Physiological Measurements - An ORD-developed cryogenic magnetometer is being tested at a contractor's site for use as a remote cardiograph (magnetocardiograph). Some test subjects are witting, but most tests are on naive subjects (they do not know they are being tested). The magnetometer is completely harmless to the subject and the test results are closely held.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25377.png
-
-Convert to Markdown# MEMORANDUM FOR THE RECORD
+# MEMORANDUM FOR THE RECORD
 
 Michael Madigan
 

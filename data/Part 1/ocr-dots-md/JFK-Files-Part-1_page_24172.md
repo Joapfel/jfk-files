@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24172.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 1: ECRET -->
         <tr>

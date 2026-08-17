@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25243.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NGO DINH NHU</td><td>11/1/63</td><td rowspan="2">DEEMED TOP SECRET</td></tr><tr><td>COL. HUAN</td><td></td></tr><tr><td colspan="3">GEN. DON</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NGO DINH NHU</td><td>11/1/63</td><td rowspan="2">DEEMED TOP SECRET</td></tr><tr><td>COL. HUAN</td><td></td></tr><tr><td colspan="3">GEN. DON</td></tr></tbody></table>
 
 **OCCURRENCE:** CON'T ON NEXT CARD ALSO
 

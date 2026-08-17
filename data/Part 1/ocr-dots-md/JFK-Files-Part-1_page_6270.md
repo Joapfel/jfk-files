@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6270.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>FILE ID</td><td>☐ RE: TO BRANCH ☐</td></tr><tr><td>DESTROY ☐</td><td>SIG. <del>معاشر</del></td></tr></table>
 

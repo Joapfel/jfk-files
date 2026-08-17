@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27215.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 G-C-H Files
 

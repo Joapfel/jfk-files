@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9417.png
-
-Convert to MarkdownNational Press Club
+National Press Club
 
 Washington
 

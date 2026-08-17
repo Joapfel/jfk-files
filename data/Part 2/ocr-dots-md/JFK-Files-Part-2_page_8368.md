@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8368.png
-
-Convert to Markdown6 December 1961
+6 December 1961
 
 MEMORANDUM
 

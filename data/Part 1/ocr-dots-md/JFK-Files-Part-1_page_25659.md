@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25659.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>Subject says he will be satisfied when the sum will be

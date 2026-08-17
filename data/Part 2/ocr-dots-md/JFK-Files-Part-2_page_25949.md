@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25949.png
-
-Convert to Markdownsome "high rollers" in would be
+some "high rollers" in would be
 more profitable — it was Rosselli
 who patched things up.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32169.png
-
-Convert to Markdown14-0000
+14-0000
 
 U. S. DEPARTMENT OF JUSTICE
 FEDERAL BUREAU OF INVESTIGA

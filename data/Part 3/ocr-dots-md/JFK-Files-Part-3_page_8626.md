@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8626.png
-
-Convert to Markdown9. We want all black people when brought to trial to be tried in court by a jury of their peer group or people from their black communities, as defined by the Constitution of the United States.
+9. We want all black people when brought to trial to be tried in court by a jury of their peer group or people from their black communities, as defined by the Constitution of the United States.
 
 We believe that the courts should follow the United States Constitution so that black people will receive fair trials. The 14th Amendment of the U.S. Constitution gives a man a right to be tried by his peer group. A peer is a person from a similar economic, social, religious, geographical, environmental, historical and racial background. To do this the court will be forced to select a jury from the black community from which the black defendant came. We have been, and are being tried by all-white juries that have no understanding of the "average reasoning man" of the black community.
 

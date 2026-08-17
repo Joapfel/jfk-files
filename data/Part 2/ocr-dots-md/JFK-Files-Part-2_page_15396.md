@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15396.png
-
-Convert to Markdown1 - Mr. Schaefer
+1 - Mr. Schaefer
 
 SAC, WFO
 

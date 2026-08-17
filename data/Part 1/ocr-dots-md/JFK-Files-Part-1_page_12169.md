@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12169.png
-
-Convert to Markdownhan y pisan en las esferas diplomáticas. Es muy estimado por el público, en general, al Consul General Sr. Guallalí Boriega es una personalidad, traba- ja por Colombia y vive alerta para dar oportunidad cualquier información que interese al Gobierno de Colombia. Con él personalmente osuvinos edto- niando datos e informaciones y merced a su ausencia no ha iniciado valiosas informaciones sobre la Legión Caribe, política costarricense etc., to- das que domina y conoce a la perfección.
+han y pisan en las esferas diplomáticas. Es muy estimado por el público, en general, al Consul General Sr. Guallalí Boriega es una personalidad, traba- ja por Colombia y vive alerta para dar oportunidad cualquier información que interese al Gobierno de Colombia. Con él personalmente osuvinos edto- niando datos e informaciones y merced a su ausencia no ha iniciado valiosas informaciones sobre la Legión Caribe, política costarricense etc., to- das que domina y conoce a la perfección.
 
 Dejo constancia ante el Gobierno Nacional de que these dos funcionarios diplomáticos, representan a nuestro país, con honor, dignidad y cabellerosidad.
 

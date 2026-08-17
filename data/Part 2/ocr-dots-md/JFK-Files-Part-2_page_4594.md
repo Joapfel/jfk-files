@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4594.png
-
-Convert to Markdown(5) WH/FI will prepare studies of Castro's subversive activities abroad.
+(5) WH/FI will prepare studies of Castro's subversive activities abroad.
 
 2. **S. DEVELOPMENTAL PHASE**
 

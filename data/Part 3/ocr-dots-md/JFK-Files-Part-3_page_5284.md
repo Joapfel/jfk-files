@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5284.png
-
-Convert to MarkdownSECRET
+SECRET
 
 August 4, 1975
 

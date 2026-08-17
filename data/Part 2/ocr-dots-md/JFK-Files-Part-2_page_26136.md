@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26136.png
-
-Convert to MarkdownGuatemala, and it worked very well there for a time. The Latin Americans became quite enthusiastic, though again jealousies come in. They thought the Guatemalans were boasting too much about it. So when I was told that problem, I said, "Well, get them to emulate and try and beat them and get a healthy rivalry going," which is what happened actually.
+Guatemala, and it worked very well there for a time. The Latin Americans became quite enthusiastic, though again jealousies come in. They thought the Guatemalans were boasting too much about it. So when I was told that problem, I said, "Well, get them to emulate and try and beat them and get a healthy rivalry going," which is what happened actually.
 
 O'BRIEN: I suspect [Fulton] Freeman is there as ambassador in Colombia when you're there--no, Freeman was in Colombia.
 

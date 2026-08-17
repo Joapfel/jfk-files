@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1547.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filled in)
 
 <table><thead><tr><th colspan="2">SECTION V</th><th colspan="4">GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th></tr><tr><th>NAME OF REGION OR COUNTRY</th><th>TYPE OF SPECIALIZED KNOWLEDGE</th><th>DATES OF TRAVEL OR RESIDENCE</th><th>DATE &amp; PLACE OF STUDY</th><th>ASSIGNMENT<br/>REPORTS TO<br/>TRAVELER</th><th>STUDY assignment</th></tr></thead><tbody><tr><td>1.</td><td></td><td></td><td rowspan="3">APR 24</td><td rowspan="3">2 15 PM '70</td><td></td></tr><tr><td>2.</td><td></td><td></td></tr></tbody></table>

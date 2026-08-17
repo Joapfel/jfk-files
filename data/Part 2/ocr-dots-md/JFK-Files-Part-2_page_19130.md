@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19130.png
-
-Convert to MarkdownU N I T E D S T A T E S D E P A R M E N T O F S T I C E
+U N I T E D S T A T E S D E P A R M E N T O F S T I C E
 FEDERAL BUREAU OF INVESTIGATION
 
 In Reply, Please Refer to

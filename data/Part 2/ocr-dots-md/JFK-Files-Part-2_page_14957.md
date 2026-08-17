@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14957.png
-
-Convert to MarkdownHERBERT WILLIAM BOECKENHAUPT
+HERBERT WILLIAM BOECKENHAUPT
 
 In early 1966, our Tophat informant, who is a defector-in-place in the Soviet Military Intelligence Service, identified Boeckenhaupt as an important Soviet intelligence agent. The identity of this source must be protected under all circumstances.
 

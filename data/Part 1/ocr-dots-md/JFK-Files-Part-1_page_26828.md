@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26828.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG: Alvin H. Hall</td></tr><tr><td>UNIT: VP/2 Guat</td></tr><tr><td>EXT: 5801</td></tr><tr><td>DATE: 19 Jan 65</td></tr></table>
 

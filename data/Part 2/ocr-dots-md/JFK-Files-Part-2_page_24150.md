@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24150.png
-
-Convert to Markdown88. **LPEPIC**
+88. **LPEPIC**
 
 A Delaware corporation based in New York City with a branch office in the Far East which provides commercial cover to a contract employee in the Far East targeted against foreign intelligence; net assets $27,265; one employee.
 

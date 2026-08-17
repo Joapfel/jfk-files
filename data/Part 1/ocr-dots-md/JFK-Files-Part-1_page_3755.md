@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3755.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. For further information regarding one Allan GROSS Quiros, you are referred to our CBCI 316 03614-67 being disseminated to the Bureau.
 

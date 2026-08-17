@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5044.png
-
-Convert to MarkdownDECODED COPY
+DECODED COPY
 
 ☐ AIRGRAM ☐ CABLEGRAM XXI RADIO ☐ TELETYPE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12178.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>ADVANCE COPY ISSUED/SLOIITED<br/>ACTION UNIT</th>

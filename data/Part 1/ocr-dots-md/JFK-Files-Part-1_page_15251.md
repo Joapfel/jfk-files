@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15251.png
-
-Convert to Markdown13. Indicate any proposals or suggestions on the part of SR for document legend; i.e., place of PASPORT issuance, etc.
+13. Indicate any proposals or suggestions on the part of SR for document legend; i.e., place of PASPORT issuance, etc.
 
 14. Has the agent been asked his ideas as to cover? If so list them briefly.
 

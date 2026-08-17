@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5300.png
-
-Convert to MarkdownSUBJECT: Pending ARRB (JFK Board) Issues
+SUBJECT: Pending ARRB (JFK Board) Issues
 
 **ISSUE 1 -- Unacknowledged Covert Actions**
 

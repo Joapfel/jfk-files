@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11671.png
-
-Convert to MarkdownSan Francisco was instructed 8-19-70 to submit monthly lists of nationwide bank accounts and expenses for BPP. This survey was devised by San Francisco; and since it is very helpful in establishing the "big picture" it is being required monthly.
+San Francisco was instructed 8-19-70 to submit monthly lists of nationwide bank accounts and expenses for BPP. This survey was devised by San Francisco; and since it is very helpful in establishing the "big picture" it is being required monthly.
 
 The Black Panther Party has formed a corporation known as Stronghold Consolidated Productions, Inc. (SCPI) to control all BPP funds and assets and to act as purchaser and/or lessee of any property utilized by the BPP. The corporation and its activities are under intensive investigation which has revealed that its activities are centered in San Francisco and New York. By airtels 1-7 and 1-19-71 to San Francisco and New York, these offices were instructed to submit a weekly summary of all pertinent developments concerning the corporation during the previous week plus a monthly review of SCPI bank accounts. These summaries keep the Bureau aware of SCPI operations and also enables us to regularly fulfill our dissemination requirements.
 

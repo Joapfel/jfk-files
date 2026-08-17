@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11903.png
-
-Convert to Markdown4. Contacts by Agents
+4. Contacts by Agents
 
 a. Except in espionage and foreign nationality matters where frequency of contact is dependent on circumstances, informants should be contacted as often as necessary, but at least one personal contact should be made every two weeks. If such frequent contacts cannot be established, obtain specific Bureau authority for exception to this requirement.
 

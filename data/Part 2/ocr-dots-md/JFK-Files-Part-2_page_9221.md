@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9221.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 <table>
    <tr>

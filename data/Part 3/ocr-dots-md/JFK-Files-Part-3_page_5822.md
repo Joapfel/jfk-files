@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5822.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>LOS ANGELES</td>

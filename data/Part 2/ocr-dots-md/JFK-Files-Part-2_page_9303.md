@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9303.png
-
-Convert to MarkdownDE T-4 advised in August, 1971, that the BPP had 18 active members, eight of which were community workers.
+DE T-4 advised in August, 1971, that the BPP had 18 active members, eight of which were community workers.
 
 DE T-4 advised in September, 1971, that during September, 1971, the BPP had 22 active members including four community workers.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33874.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 4. I am somewhat confused by the contents of the action paragraph following paragraph 3, in which you indicate that we are continuing to urge NCFE to extend cover assistance to the Kirk Committee. On the basis of our most recent conversations with Mr. Dulles and Admiral Miller, I was under the impression that you were trying to dig up some other forms of cover - particularly in view of the reluctance of the NCFE Board to extend the Crusade cover to the Kirk Committee. Perhaps this paragraph of the reference memorandum has been overtaken by events. yes.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21353.png
-
-Convert to Markdown# Office Me.. m . UNITEJ VERNMENT
+# Office Me.. m . UNITEJ VERNMENT
 
 TO : MR. F. A. FROHBOSE
 DATE: 12-2-59

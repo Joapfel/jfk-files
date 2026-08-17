@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8836.png
-
-Convert to MarkdownHABANA, -- Territorial. -- 2013 7 1697 2500 -- ajo D
+HABANA, -- Territorial. -- 2013 7 1697 2500 -- ajo D
 Cortez
 
 CIENTOREOS ANOY -- arroz D

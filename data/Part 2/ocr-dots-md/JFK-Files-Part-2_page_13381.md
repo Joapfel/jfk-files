@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13381.png
-
-Convert to MarkdownSections of the Manual of
+Sections of the Manual of
 Instructions Not Previously Furnished
 
 NOTE CONTINUED:

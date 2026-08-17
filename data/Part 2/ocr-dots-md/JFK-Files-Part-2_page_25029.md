@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25029.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 authorization for an assassination within the CIA?
 

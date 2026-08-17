@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10826.png
-
-Convert to MarkdownEMILIO MILIAH. De las voces más colizadas en el ambiente radical es una extraña alineación.
+EMILIO MILIAH. De las voces más colizadas en el ambiente radical es una extraña alineación.
 
 medico Alberto Chomat estido de miliciano y con stola al cinto, metiendole a todo el mundo por las de La Habana. Se desem- como jefe de la cimica que n los empleados de la an- compañia de electricidad devila...
 

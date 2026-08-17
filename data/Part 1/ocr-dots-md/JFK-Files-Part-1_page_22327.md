@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22327.png
-
-Convert to Markdownof the American Tourist Section, he was in Moscow only three months and for much of this time was involved in breaking into his new job or in preparing for his temporary assignment abroad. NOSENKO said he had "no accomplishments" in this period.
+of the American Tourist Section, he was in Moscow only three months and for much of this time was involved in breaking into his new job or in preparing for his temporary assignment abroad. NOSENKO said he had "no accomplishments" in this period.
 
 In the fall of 1962, NOSENKO went on leave for a month in Sochi with his wife and mother. NOSENKO has estimated that six months of 1963 were spent on various temporary assignments in the Soviet Union outside of Moscow, plus a one-month's vacation in 1963. From 15 June 1962 to his arrival in Geneva on 19 January 1964, a period of 18 months, NOSENKO was absent from KGB Headquarters for eight months. Thus in the period 1962-63, holding supervisory positions, NOSENKO was absent or "reading in" for about 13 months, or about 50 percent of the time.
 

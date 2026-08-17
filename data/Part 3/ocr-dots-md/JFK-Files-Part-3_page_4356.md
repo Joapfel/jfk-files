@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4356.png
-
-Convert to Markdown# MEMORANDUM FOR THE ATTORNEY GENERAL
+# MEMORANDUM FOR THE ATTORNEY GENERAL
 
 In view of the violence-prone nature of the [BPP] it can be reasonably anticipated that subjects involved in past or future criminal violations may be monitored. The guidelines to be followed, as previously furnished by you, will be strictly complied with in such instances.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27106.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The freezer in which the toxin was found is located under one of the work benches in the laboratory. The Fort Detrick material was the only thing in the freezer and was in two one-gallon cans along with several smaller containers. There were no labels on the gallon cans, but on top of each was a folded piece of paper with pertinent information about the contents. This information provided the types and amounts of material and the date on which it was put into storage. The shellfish toxin was, according to this information, put into the freezer in February 1970, and the cobra venom, in February 1961. The shellfish toxin was packaged in several different forms including two individual doses in tablet form.
 

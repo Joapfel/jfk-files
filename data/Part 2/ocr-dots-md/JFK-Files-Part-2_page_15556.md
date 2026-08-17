@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15556.png
-
-Convert to Markdown# STOP FASCISM
+# STOP FASCISM
 
 Fascism is the power of finance capital itself--- the greedy businessman, the demagogic politician( one who leads the people by appealing to prejudices and passions), and the racist dog cop. Each of which carries out the oppression and exploitation of the working class people in the guise of democracy.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21232.png
-
-Convert to Markdownbut NOSENKO did not know if he ever worked
+but NOSENKO did not know if he ever worked
 for KGB.
 
 22. [CARMEN TORREY] S

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26204.png
-
-Convert to Markdownout." And they got--Rusk and everything, you know... "You're off your subject, boy." But I said, "Well, Durby's an old friend of mine, and I like the guy, and I saw a lot of him when I was in Vietnam on this brief visit, and I think it's a shame that the guy's kept on there because he was quite ill, in bad shape." And Durby never forgave me for it; it got right back to him that I had sacked him and so on. Because he was withdrawn after that, but this certainly didn't hurt his career at all, in any way, and even though State put him on a make-work job after that, but he held the rank of ambassador which is as high as you can get in the foreign service. And he was ill; he really was.
+out." And they got--Rusk and everything, you know... "You're off your subject, boy." But I said, "Well, Durby's an old friend of mine, and I like the guy, and I saw a lot of him when I was in Vietnam on this brief visit, and I think it's a shame that the guy's kept on there because he was quite ill, in bad shape." And Durby never forgave me for it; it got right back to him that I had sacked him and so on. Because he was withdrawn after that, but this certainly didn't hurt his career at all, in any way, and even though State put him on a make-work job after that, but he held the rank of ambassador which is as high as you can get in the foreign service. And he was ill; he really was.
 
 O'BRIEN: Well, how does [Frederick E.] Nolting come into this . . .
 

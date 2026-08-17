@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Villas, Nicaragua or Oriente) without jeopardizing both shipments and person e.i. Hence, the need for unilateral action on our part to supply these fighting groups in these provinces. This explanation appeared to satisfy AMBINO-1, however he still insisted that his organization should at least be appraised of any materiel support provided other groups in Cuba. He was assured that we would take his request under consideration.
 

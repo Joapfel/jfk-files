@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18772.png
-
-Convert to MarkdownLetter to New York
+Letter to New York
 
 Re: Samuel Adason Jaffe
 (105-28333)

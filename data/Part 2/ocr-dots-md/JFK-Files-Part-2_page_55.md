@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_55.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memo No.: Jm 52
 Date : 13 July 1960

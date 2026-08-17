@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6821.png
-
-Convert to MarkdownDear Margaret a family.
+Dear Margaret a family.
 We missed all of you while
 you were away. Even now we offer,
 to look at your window helping

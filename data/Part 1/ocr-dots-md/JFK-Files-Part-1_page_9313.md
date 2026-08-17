@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9313.png
-
-Convert to Markdown**Caption:**
+**Caption:**
 
 "I had... fancied Lenin as a giant, stately and imposing."
 

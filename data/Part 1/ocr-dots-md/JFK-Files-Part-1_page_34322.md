@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34322.png
-
-Convert to Markdowninspected 104 cases containing art treasures during August 23, 24, and 25, in Milan, Italy, identifying 45 pieces as their own.
+inspected 104 cases containing art treasures during August 23, 24, and 25, in Milan, Italy, identifying 45 pieces as their own.
 
 Although 103 cases were only worth US$16,000, the contents of case #107 were said to be worth US$600,000. The first 103 cases delivered to Castro's "partner" Mahmood Mowlazadeh, contained religious and funeral pieces, but case #107, forwarded from Switzerland, contained solid gold and silver objects.
 

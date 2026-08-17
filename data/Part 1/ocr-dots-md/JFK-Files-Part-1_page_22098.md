@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22098.png
-
-Convert to Markdown(c) Receptivity and Audibility of Microphones
+(c) Receptivity and Audibility of Microphones
 
 NOSENKO made the following evaluations of the quality of intercept received from the chancery microphone installations:
 

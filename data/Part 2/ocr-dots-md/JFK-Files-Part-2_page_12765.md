@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12765.png
-
-Convert to MarkdownINDEX FOR SECTION 87
+INDEX FOR SECTION 87
 
 References are to page.
 

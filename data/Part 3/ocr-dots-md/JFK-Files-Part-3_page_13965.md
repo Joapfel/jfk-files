@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13965.png
-
-Convert to Markdown(30) That the Special NSC 5412/2 Group review the desirability and feasibility of C-130 aircraft reconnaissance flights over Iran from Turkish bases, with a view to covering Soviet missile tests and related activities.
+(30) That the Special NSC 5412/2 Group review the desirability and feasibility of C-130 aircraft reconnaissance flights over Iran from Turkish bases, with a view to covering Soviet missile tests and related activities.
 
 Rec. #28: That highest priority be placed on the acquisition of crucially-needed intelligence on the Soviet ICBM capability, with special and intensive efforts to advance the photographic reconnaissance capabilities of the OXCART and GAMBIT projects even earlier than now programmed.
 

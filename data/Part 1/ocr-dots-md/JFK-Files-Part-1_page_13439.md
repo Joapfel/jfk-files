@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13439.png
-
-Convert to Markdown14-00009
+14-00009
 
 <table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>SECRET</td><td>REPRODUCTION PROHIBITED</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td></td></tr><tr><td>ACTION</td><td>ADVANCE COPY</td></tr><tr><td>FILE, V.R. WHC-8 CIF/OPS, CIFO, CIF/C-2, FI, FICINT-2, CA-2, CA/FROP, CAFO-4</td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_339.png
-
-Convert to Markdown14-00000
+14-00000
 
 O'Rell, Howard
 8405 Weller Ave

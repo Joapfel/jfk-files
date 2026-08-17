@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6847.png
-
-Convert to Markdownthe fact that many of the documents belong to agencies other than CIA.
+the fact that many of the documents belong to agencies other than CIA.
 
 However, we've already taken steps to lift the sequestration, to coordinate with other agencies, and to begin the process of declassification.
 

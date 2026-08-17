@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9068.png
-
-Convert to MarkdownSECRET
+SECRET
 
 How much CIA learned about our border coverage is not known. Again, it is pointed out that former Bureau Agent George Munro may have been knowledgeable. As indicated, he later began performing services for CIA. If CIA learned that we were operating informants in Mexico, it could use such information as additional evidence of Bureau failure to cooperate and coordinate with the Agency pursuant to Directives. (Memorandum Roach to Belmont, June 14, 1957, re"Communist Coverage Along the Mexican Border, Relations with CIA," 100-356015-1238)
 

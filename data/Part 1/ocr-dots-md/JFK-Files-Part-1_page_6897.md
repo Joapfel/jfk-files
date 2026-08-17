@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6897.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG : W.King</td></tr><tr><td>UNIT : WH/3</td></tr><tr><td>EXT : 4456</td></tr><tr><td>DATE : 6 November 1958</td></tr></table>
 

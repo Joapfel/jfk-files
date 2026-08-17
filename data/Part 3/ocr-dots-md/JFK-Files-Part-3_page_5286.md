@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5286.png
-
-Convert to Markdown12. Material pertaining to an inspection of all FBI foreign liaison posts conducted in 1971 pursuant to instructions from Hoover to Assistant Director Ponder in charge of inspections.
+12. Material pertaining to an inspection of all FBI foreign liaison posts conducted in 1971 pursuant to instructions from Hoover to Assistant Director Ponder in charge of inspections.
 
 E. Materials pertaining to the origin, operation, and termination of the Mass Media Program implemented by the former FBI Crime Records Division.
 

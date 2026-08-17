@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6586.png
-
-Convert to MarkdownFSE NR17 - PRIORITY 1017587
+FSE NR17 - PRIORITY 1017587
 
 PRIORITY
 

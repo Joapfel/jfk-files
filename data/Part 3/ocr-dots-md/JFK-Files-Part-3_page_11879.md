@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11879.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR E. S. MILLER:
 (J. F. Hanlon: wjm 8/27/71)

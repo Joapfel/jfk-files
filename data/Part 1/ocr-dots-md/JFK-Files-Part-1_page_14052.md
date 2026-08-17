@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14052.png
-
-Convert to MarkdownFROM: SPAIN
+FROM: SPAIN
 
 Valentina Vasilievich BANULIN
 

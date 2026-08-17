@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28165.png
-
-Convert to MarkdownS-E-G-B-E-T
+S-E-G-B-E-T
 
 WEAK: Although the student may have met some of the standards but for minimum achievement of this course goal or objective, he demonstrated serious gaps in knowledge or sufficient lack of skill to be of doubtful competence.
 

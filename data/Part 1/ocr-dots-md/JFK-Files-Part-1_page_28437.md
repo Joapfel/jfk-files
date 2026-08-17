@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28437.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 5 May 1970.
 

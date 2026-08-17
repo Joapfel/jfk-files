@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28219.png
-
-Convert to MarkdownBROWN, William
+BROWN, William
 Name of Employee
 
 OFFICE OF THE CLERK

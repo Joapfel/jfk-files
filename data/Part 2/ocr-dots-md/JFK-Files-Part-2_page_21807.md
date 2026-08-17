@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21807.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 or would it be in some other file?
 2 Mr. Sarno. I don't think that they maintain a chrono on

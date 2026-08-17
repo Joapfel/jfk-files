@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29032.png
-
-Convert to MarkdownSchedule A&B—Itemized Deductions AND
+Schedule A&B—Itemized Deductions AND
 Dividend and Interest Income
 
 1972

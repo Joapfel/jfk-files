@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16734.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>NO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/WH .5</td></tr><tr><td>INFO : ADDP, C/SR , D/OP, RF 2</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4831.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Same as to telephone number HO 5-5588.
 

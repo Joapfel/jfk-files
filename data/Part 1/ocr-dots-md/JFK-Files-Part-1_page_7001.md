@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7001.png
-
-Convert to MarkdownCSCI-3/774,170
+CSCI-3/774,170
 
 SR/CI/DNL 3 January 1963
 

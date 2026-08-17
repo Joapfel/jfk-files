@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5842.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>KAPOK/SECRET</th></tr></thead><tbody><tr><td>10</td><td>Chief, U.S. Division</td><td></td></tr><tr><td>MARSHALL ISLANDS</td><td></td><td>LIVERPOOL</td></tr><tr><td>46</td><td>Chief of Station, JINWAVE</td><td>DOWNTOWN</td></tr><tr><td>NORTH CAROLINA</td><td>TYPIC/OPERATIONAL</td><td>SOUTHERN</td></tr><tr><td>CUIS Recruitment of IDENTITY</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>KAPOK/SECRET</th></tr></thead><tbody><tr><td>10</td><td>Chief, U.S. Division</td><td></td></tr><tr><td>MARSHALL ISLANDS</td><td></td><td>LIVERPOOL</td></tr><tr><td>46</td><td>Chief of Station, JINWAVE</td><td>DOWNTOWN</td></tr><tr><td>NORTH CAROLINA</td><td>TYPIC/OPERATIONAL</td><td>SOUTHERN</td></tr><tr><td>CUIS Recruitment of IDENTITY</td><td></td><td></td></tr></tbody></table>
 
 1. On 8 and 13 June 1967 the local LNERGO officer who is handling the *IDENTITY case informed a JINWAVE officer that she had been recruited by the CUIS on her recent visit to Cuba. LNERGO requests that the knowledge of this information be kept to a minimum, for they intend to operate her as a double agent. LNERGO does not intend to disseminate any information on the case, at this time; however, the following information was provided so that JINWAVE could furnish LNERGO with traces and comments:
 

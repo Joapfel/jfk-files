@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7428.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee, etc.
 
 large have not been successful. I told him that therefore we felt it would be appropriate for the FBI to express our view to the Committee because interviews of FBI personnel and former employees have been conducted and are scheduled in the near future.

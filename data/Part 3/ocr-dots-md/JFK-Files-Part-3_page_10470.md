@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10470.png
-
-Convert to MarkdownCPR
+CPR
 
 DECE 18 HEIR
 EUN.

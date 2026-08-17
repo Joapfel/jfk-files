@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25406.png
-
-Convert to MarkdownMr. LIEBELER. And Mr. Fernandez was, on this theory, aware of that and was aware of approximately the time Oswald would make this attempt, and, therefore, indicated to Lechuga that there would be some danger of Oswald being discovered as an attempted infiltrator?
+Mr. LIEBELER. And Mr. Fernandez was, on this theory, aware of that and was aware of approximately the time Oswald would make this attempt, and, therefore, indicated to Lechuga that there would be some danger of Oswald being discovered as an attempted infiltrator?
 
 Mr. BRINGUIER. I beg pardon? I don't understand the words.
 

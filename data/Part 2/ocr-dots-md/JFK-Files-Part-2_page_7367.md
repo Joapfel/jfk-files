@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7367.png
-
-Convert to Markdown(a) CIA cooperated fully in all respects in extending administrative support and in granting security clearances and access to information related to vouchered fund activities.
+(a) CIA cooperated fully in all respects in extending administrative support and in granting security clearances and access to information related to vouchered fund activities.
 
 (b) The Chairman of the interested oversight committee in the House of Representatives was fully informed of the nature and status of the activity.
 

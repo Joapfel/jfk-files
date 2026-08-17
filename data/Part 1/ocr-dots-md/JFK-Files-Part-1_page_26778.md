@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26778.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>FOR TO THE NO. 7</td></tr><tr><td>FRE TO THE NO.</td></tr><tr><td>FILE ID ☐ RE TO MANCH ☑</td></tr><tr><td>DESTROY ☐ SH 101</td></tr><tr><td colspan="2">FROM MEXICO CITY</td></tr><tr><td>ACTION W/18</td></tr><tr><td>ADVANCE COPY ☐ RJOVED ☑, CLOTTED ☐, SHOT ☑</td></tr><tr><td>UNIT NH</td></tr><tr><td>TIME 7:30</td></tr><tr><td>BY BZ</td></tr></tbody></table>
 

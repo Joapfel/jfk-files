@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21258.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. D. J. Brennan, Jr.
 

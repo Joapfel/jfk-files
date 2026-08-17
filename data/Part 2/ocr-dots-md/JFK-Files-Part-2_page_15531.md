@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15531.png
-
-Convert to Markdownhave no right over there in the black communities. They're only over there to brutalize, to murder and to protect the vicious, capitalistic, vicious system that your curses have set up.
+have no right over there in the black communities. They're only over there to brutalize, to murder and to protect the vicious, capitalistic, vicious system that your curses have set up.
 
 Questions (inaudible).
 

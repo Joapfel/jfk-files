@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15309.png
-
-Convert to Markdown-11-
+-11-
 
 JOHO or JOHIO and, thus, he learned that this was the name of
 the director. He does not remember the address of the place

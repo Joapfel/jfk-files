@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25848.png
-
 s -- is the person to be in touch with, and to keep him apprised of all developments.
 
 I later again got a word from Jean Daniel, the French correspondent who had come back from Havanna saying Cuba seemed ripe for a conversation. So this also came from another source, a Greek town planner named Doxiati, who said that Castro was very much interested in some kind of normalization relation, but that Che Guevera and Raul were opposed.

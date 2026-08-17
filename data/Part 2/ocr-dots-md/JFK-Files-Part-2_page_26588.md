@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26588.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">ROUTING</th></tr><tr><th>TO:</th><th>NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr></thead><tbody><tr><td>1</td><td rowspan="4">James Math's, Spec. Access, NARA</td><td rowspan="4">1/14/15</td><td></td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><th>ACTION</th><th>DIRECT REPLY</th><th>PREPARE REPLY</th></tr><tr><th>APPROVAL</th><th>DISPATCH</th><th>RECOMMENDATION</th></tr><tr><th>COMMENT</th><th>FILE</th><th>RETURN</th></tr><tr><th>CONCURRENCE</th><th>INFORMATION</th><th>SIGNATURE</th></tr></tbody></table>
+<table><thead><tr><th colspan="4">ROUTING</th></tr><tr><th>TO:</th><th>NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr></thead><tbody><tr><td>1</td><td rowspan="4">James Math's, Spec. Access, NARA</td><td rowspan="4">1/14/15</td><td></td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><th>ACTION</th><th>DIRECT REPLY</th><th>PREPARE REPLY</th></tr><tr><th>APPROVAL</th><th>DISPATCH</th><th>RECOMMENDATION</th></tr><tr><th>COMMENT</th><th>FILE</th><th>RETURN</th></tr><tr><th>CONCURRENCE</th><th>INFORMATION</th><th>SIGNATURE</th></tr></tbody></table>
 
 REMARKS:
 

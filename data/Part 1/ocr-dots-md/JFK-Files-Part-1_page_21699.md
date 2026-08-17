@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21699.png
-
-Convert to MarkdownThere is no reason to doubt the statement of NOSENKO concerning KGB efforts to determine when and where DWELLY was going "into the city" (Moscow) so that a homosexual compromise situation could be arranged. There were no specific developments from their efforts, according to NOSENKO.
+There is no reason to doubt the statement of NOSENKO concerning KGB efforts to determine when and where DWELLY was going "into the city" (Moscow) so that a homosexual compromise situation could be arranged. There were no specific developments from their efforts, according to NOSENKO.
 
 DWELLY has categorically denied being a homo-sexual; NOSENKO has not said he was, but only that the homosexual agent of GRYAZNOV assessed DWELLY as a homosexual. There does not appear to be any reason to consider the statements of NOSENKO about DWELLY as reflecting adversely on NOSENKO.
 

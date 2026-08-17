@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28623.png
-
-Convert to MarkdownMerete Muff Rosen
+Merete Muff Rosen
 
 1519 Kingman Place, N.W.
 Washington D.C. 20005

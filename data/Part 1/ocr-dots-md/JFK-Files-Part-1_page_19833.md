@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19833.png
-
-Convert to Markdown(8)
+(8)
 
 FROM 3/2 TO 4/4 CLASSIFICATION GRADE (IF IN FEDERAL SERVICE)
 

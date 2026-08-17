@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7890.png
-
-Convert to MarkdownSUBJECT: STAAR, Richard Felix
+SUBJECT: STAAR, Richard Felix
 aka: GWIAZDOWSKI, Richard Felix
 
 DPOB : 10 January 1923, Warsaw, Poland

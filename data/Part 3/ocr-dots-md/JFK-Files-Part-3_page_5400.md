@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5400.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>Crawford, James E.</td>

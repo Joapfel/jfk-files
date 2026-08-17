@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4502.png
-
-Convert to MarkdownJUN 18 JUN 1968
+JUN 18 JUN 1968
 
 WATERMAN
 STEAMSHIP CORPORATION

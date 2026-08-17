@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28521.png
-
-Convert to MarkdownCOPY FOR INITIATING OFFICE OR COMMITTEE
+COPY FOR INITIATING OFFICE OR COMMITTEE
 
 <table>
    <tr>

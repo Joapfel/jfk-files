@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_7107.png
-
 s for any officials above those levels.
 
 ## B. Budget and Cash Flow

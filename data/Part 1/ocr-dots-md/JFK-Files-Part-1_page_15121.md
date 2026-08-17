@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15121.png
-
-Convert to Markdown-3-
+-3-
 
 Weltkrieg gefallen war. Sie lebte mit einer Tochter,
 die währendessen geboren worden war, in einer beschei-

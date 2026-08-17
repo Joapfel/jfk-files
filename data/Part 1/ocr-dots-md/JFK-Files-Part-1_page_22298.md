@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22298.png
-
-Convert to Markdown6. U.S. Embassy Section (1960-1961)
+6. U.S. Embassy Section (1960-1961)
 
 a. Introduction
 

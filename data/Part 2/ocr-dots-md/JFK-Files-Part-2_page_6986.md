@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6986.png
-
-Convert to Markdownhighly relevant to the assassination, others are not. Within the CIA there are about 62 boxes of material and 72 reels of microfilm.
+highly relevant to the assassination, others are not. Within the CIA there are about 62 boxes of material and 72 reels of microfilm.
 
 In the FBI in the same kind of sequestered collection is about 280,000 pages of records. Those records are the focus of the review board's work over the next year, if we get the extension.
 

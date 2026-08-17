@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27462.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Bruce C. Mastrocola
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15260.png
-
-Convert to MarkdownSalary payment record
+Salary payment record
 
 27 April $50.00 drawn from DOB/Finance by George Pill as initial $25.00
 payment each to A:ASPIC and AESUTMEG/3. Receipts obtained and

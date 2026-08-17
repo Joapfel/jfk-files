@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5412.png
-
-Convert to MarkdownIn connection with the possibility of finding a political leader,
+In connection with the possibility of finding a political leader,
 as indicated above, I must say that I have been in contact with a man
 whom, I feel, could very well fill the position. His name is Clénard
 Joseph Charles, President of Banque Commerciale d’Haiti, President of

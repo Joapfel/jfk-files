@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15828.png
-
-Convert to MarkdownMADE IN FRANCE
+MADE IN FRANCE
 
 DPAULO
 

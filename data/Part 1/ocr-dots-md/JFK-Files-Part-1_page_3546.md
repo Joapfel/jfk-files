@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3546.png
-
-Convert to Markdown18 March 1964
+18 March 1964
 
 MEMORANDUM FOR: Deputy Chief, Western Hemisphere Division (Special Affairs)
 

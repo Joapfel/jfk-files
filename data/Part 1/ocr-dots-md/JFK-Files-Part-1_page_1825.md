@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1825.png
-
-Convert to Markdown**Assistant to DD/P for Paramilitary and Air Support Operations**
+**Assistant to DD/P for Paramilitary and Air Support Operations**
 
 We recommend the creation of an office in the DD/P to be
 known as Paramilitary and Air Support Operations, under the

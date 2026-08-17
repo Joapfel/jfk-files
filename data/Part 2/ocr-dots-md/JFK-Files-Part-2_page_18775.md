@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18775.png
-
-Convert to MarkdownSTANDARD FORM 20, 64
+STANDARD FORM 20, 64
 
 # Office Men And UNITED GOVERNMENT
 

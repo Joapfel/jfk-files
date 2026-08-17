@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1937.png
-
-Convert to Markdownaboard. He said that the plane would also have loose cargo
+aboard. He said that the plane would also have loose cargo
 as follows: outboard motors, radio beacons, silence weapons,
 other weapons, commo gear, medical equipment and parachute
 drop equipment. He also said Gambino may be carrying some

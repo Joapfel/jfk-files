@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27194.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CHANGE IN ALLOTMENT CODE
 

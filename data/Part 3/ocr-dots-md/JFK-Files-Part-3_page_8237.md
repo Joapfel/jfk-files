@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8237.png
-
-Convert to Markdownthe volume of the material you have requested is considerable. At our meeting, I showed you a list of the materials that have already been provided, and Mr. Miller has been kept advised about the status of other materials.
+the volume of the material you have requested is considerable. At our meeting, I showed you a list of the materials that have already been provided, and Mr. Miller has been kept advised about the status of other materials.
 
 In discussing some of the concerns of people in the Intelligence Community about the procedures addressed above, you agreed to raise with the Committee the question of ultimate disposition of materials provided. I understand that this is in train. In this connection, I was very much appreciative of your reassurance that you and the Committee members will consult with me prior to the release of any classified materials in public statements or unclassified reports of the Committee. Such consultation is consistent with the spirit of the inquiry.
 

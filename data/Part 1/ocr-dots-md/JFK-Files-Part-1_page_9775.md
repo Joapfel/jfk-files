@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9775.png
-
-Convert to Markdown25 April, 1968
+25 April, 1968
 
 Subject: LIMING/4 Report of Visit to LIKING offices.
 

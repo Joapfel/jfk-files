@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17195.png
-
-Convert to Markdown# 5. LIAISON AND INTER-AGENCY COORDINATION.
+# 5. LIAISON AND INTER-AGENCY COORDINATION.
 
 Not applicable to Project LIMFTY.
 

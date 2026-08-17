@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1939.png
-
-Convert to MarkdownMr. James A. Noel
+Mr. James A. Noel
 1807 Sebastian Drive
 Burlingame, California 94010
 

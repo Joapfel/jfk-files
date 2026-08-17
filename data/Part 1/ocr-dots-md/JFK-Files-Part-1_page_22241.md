@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22241.png
-
-Convert to Markdown649.
+649.
 
 NOSENKO'S reporting on individual cases wherein he was a personal participant or supervisor is not, with few exceptions, contradicted by information available from other sources. Nearly all of his statements have proven accurate when they could be compared with collateral information: In fact, the Americans whom he cited did visit or live in the Soviet Union, and many of them are known to have been of operational interest to the KGB, as NOSENKO said. The exceptions to his general accuracy of reporting, however, are of major importance in themselves and in reference to his claimed positions in the U.S. Embassy Section during 1960-1961:*
 

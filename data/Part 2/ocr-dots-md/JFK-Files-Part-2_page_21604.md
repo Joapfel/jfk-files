@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21604.png
-
-Convert to MarkdownFILE:
+FILE:
 
 wanted to know the identity of the FBI agent who gave the information. The CIA officer refused and there was a bitter clash. (Things like this had happened in the past. FBI field agents had contacted Papich and Papich had always told them to get on with the job.) The SAC sent a teletype to Hoover. Hoover said to Papich, go to Helms and get the identity of the FBI source. Helms called in the CIA man, who refused to identify him. Helms sent Hoover a letter explaining this and said he was "taking the necessary administrative action". Hoover noted on this letter that he "continue liaison with CIA".
 

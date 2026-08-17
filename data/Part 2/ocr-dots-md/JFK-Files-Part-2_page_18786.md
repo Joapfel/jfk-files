@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18786.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 that he is a close associate of this uncle and said that
 this uncle was active on behalf of Russian war relief

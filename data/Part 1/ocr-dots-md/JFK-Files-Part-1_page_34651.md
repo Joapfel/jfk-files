@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34651.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DISPATCH</td></tr><tr><td>CLASSIFICATION<br/>SP/ASST/AY BAT</td></tr><tr><td>PROCESSING</td></tr><tr><th>PON<br/>INSIDE</th><th>ACTION</th><th>ACCOM<br/>PARED</th></tr><tr><td colspan="3">MARKET FOR INTERFING<br/>NO INQUIRING REQUIRED</td></tr><tr><td colspan="3">ONLY QUALIFIED<br/>HEADQUARTERS DESK<br/>CAN GIVE INTERFING</td></tr><tr><td colspan="2">ABSTRACT</td><td></td></tr><tr><td colspan="2">MICROFILM</td><td></td></tr></table>
 

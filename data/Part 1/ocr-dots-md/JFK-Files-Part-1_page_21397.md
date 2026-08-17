@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21397.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 24 Aug. 1962 (Philadelphia)
 

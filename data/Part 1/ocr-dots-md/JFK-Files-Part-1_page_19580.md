@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19580.png
-
-Convert to MarkdownSECRET
+SECRET
 When Filed In
 
 OFFICIAL USE ONLY, cannot be altered or copied without written permission from the Secretary of Defense.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4227.png
-
-Convert to MarkdownDuring this period we also analyzed the progress of the war and the thrust of our reporting was to the effect that as the American advisers were able to exercise their influence on the South Viet Namese military, and our Embassy and General Headquarters were able to persuade Diem to reorient and redeploy his forces, gradual but consistent favorable progress was made.
+During this period we also analyzed the progress of the war and the thrust of our reporting was to the effect that as the American advisers were able to exercise their influence on the South Viet Namese military, and our Embassy and General Headquarters were able to persuade Diem to reorient and redeploy his forces, gradual but consistent favorable progress was made.
 
 ### J. Attitude of the Station and Others
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34087.png
-
-Convert to Markdownfected.
+fected.
 22 dairies were partially affected, and 9 were dog
 troyed.
 Several goat-barns were damaged.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4651.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the floorboards. When he got on those highways he was
 murder. This is what always made me think somewhere

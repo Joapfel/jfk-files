@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23442.png
-
-Convert to Markdown# GORDON GRAY: Short Summary
+# GORDON GRAY: Short Summary
 
 Gordon Gray was Special Assistant to the President for National Security Affairs from 1958-1961. During this period Gray represented President EISENHOWER at Special Group meetings at which the following subjects were discussed: "any particular kind of activity which might contribute to getting rid of LUMUMBA"; provision of small arms to opponents to TRUJILLO in the Dominican Republic; and detailed planning for "how the U. S. wishes to move against CASTRO".
 

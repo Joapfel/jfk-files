@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3437.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **Action to counter these activities as they might affect U.S. interests. While all the U.S.S.R. diplomatic missions are targets of vital importance for U.S. intelligence, the Soviet Embassy in Mexico City has special significance because of its proximity to the U.S. The Mexico City Station has attacked this target with determination and imagination. The Chief, SI Division, and his principal officers have commended highly the Soviet operations in Mexico City Station. The failure thus far to achieve the major objectives is tertiary more to the ingratibility of the target than to a lack of resourcefulness in attacking it. Thus, we believe that until some new methods, offering greater promise of ultimate success are developed, the present mode of attack should be continued at the present level.**
 

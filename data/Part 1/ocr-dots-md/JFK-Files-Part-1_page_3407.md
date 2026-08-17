@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3407.png
-
-Convert to Markdownment ought to do in Cuba in respect to these matters, my answer is: Regarding private education: protect it in every possible way, and raise public education to the same level as private. Regarding the press: liberty of the press and assistance for the school for reporters to make Cuban newspaper men more efficient. The Cuban press will educate our peoples' background so as to definitively wash the wounds which communism has inflicted on the spirit of our children and young people.
+ment ought to do in Cuba in respect to these matters, my answer is: Regarding private education: protect it in every possible way, and raise public education to the same level as private. Regarding the press: liberty of the press and assistance for the school for reporters to make Cuban newspaper men more efficient. The Cuban press will educate our peoples' background so as to definitively wash the wounds which communism has inflicted on the spirit of our children and young people.
 
 Regarding private enterprise: protection for it, assistance for small business, and by means of modern tax laws make sure that business performs its social function. The United States, Western Germany and many other countries can give us an exact idea of what we want.
 

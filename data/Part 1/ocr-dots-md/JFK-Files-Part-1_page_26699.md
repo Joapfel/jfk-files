@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26699.png
-
-Convert to MarkdownAttachment 6. o UNGA-123,
+Attachment 6. o UNGA-123,
 
 19 May 1965
 

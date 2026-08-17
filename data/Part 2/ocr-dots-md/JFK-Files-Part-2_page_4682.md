@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4682.png
-
-Convert to MarkdownSECRET
+SECRET
 
 going on. They just weren't. Usually the staff directors of each of the small units were the only ones cleared for most of things and sat in on the meetings.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24210.png
-
-Convert to Markdown8 July 1966
+8 July 1966
 
 MEMORANDUM FOR: Chief, CI/OA
 SUBJECT: Field Traces on QUIBOSY, A. 201-306052

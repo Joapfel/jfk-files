@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21474.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Richard Thomas Gibson
 

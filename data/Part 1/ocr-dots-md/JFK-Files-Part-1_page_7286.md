@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7286.png
-
-Convert to Markdown4.08.04 Body build Skinny ____ Average ____ Heavy X Obese __
+4.08.04 Body build Skinny ____ Average ____ Heavy X Obese __
 
 4.08.05 When conversing, in what direction does he primarily lean in relation to the other person? Towards ____ Away X Neither __
 

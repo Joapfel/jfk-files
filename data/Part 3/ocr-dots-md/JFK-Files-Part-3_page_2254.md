@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2254.png
-
-Convert to MarkdownDecember 18, 1975
+December 18, 1975
 
 provided during the last week of December and the first
 week of January:

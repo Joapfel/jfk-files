@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6451.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 (5) Blow up ammunition inside the base; start fires.
 
 (6) Burn aircraft on air base (sabotage).

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16679.png
-
-Convert to MarkdownDate January 23, 1970
+Date January 23, 1970
 
 At the Cook County Courthouse, 26th and California Avenue, Room 452, known as the Special Grand Jury Room, an inventory under order of Cook County Judge JOHN POWERS was instituted of evidence surrendered by FRANCIS E. ANDREW, Attorney, and his Investigative Assistant VICTORY KADISH, representing the Black Panther Party of Illinois.
 

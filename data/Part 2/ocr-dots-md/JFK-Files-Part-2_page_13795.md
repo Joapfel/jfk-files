@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13795.png
-
-Convert to MarkdownE. COINTELPRO and Disruptive Activities
+E. COINTELPRO and Disruptive Activities
 
 The Committee is investigating the circumstances surrounding the origins of, authorization for, and implementation of the FBI program known as COINTELPRO and any similar programs. This inquiry may involve allegations of abuse and controversial matters where there is reason to believe improprieties may have occurred. The scope of this investigation covers:
 

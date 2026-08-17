@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10625.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CENTRAL INTELLIGENCE AGENCY
 

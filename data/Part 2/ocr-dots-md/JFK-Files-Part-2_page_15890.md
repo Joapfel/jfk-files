@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15890.png
-
-Convert to MarkdownSmiley, Donald
+Smiley, Donald
 
 Arrested: 9/10/69
 Charge: Unlawful Use of a Weapon and Failure to Register a Firearm

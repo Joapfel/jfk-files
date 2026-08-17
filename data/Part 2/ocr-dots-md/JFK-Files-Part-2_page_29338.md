@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29338.png
-
-Convert to MarkdownPHILLIPS, page 15.
+PHILLIPS, page 15.
 
 The timing of the departures of Calderon and Proenza was
 pointed out to Mr. Phillips as well as the indications that

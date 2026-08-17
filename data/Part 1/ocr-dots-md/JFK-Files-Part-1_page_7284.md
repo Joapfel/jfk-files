@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7284.png
-
-Convert to Markdown4.05 Face:
+4.05 Face:
 
 4.05.01 Expressiveness
 

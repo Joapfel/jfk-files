@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25761.png
-
-Convert to Markdown22 October 1959
+22 October 1959
 
 MEMORANDUM FOR: Contract Personnel Division
 SUBJECT: Contract Extension for Raymond H. GERENDE (ps)

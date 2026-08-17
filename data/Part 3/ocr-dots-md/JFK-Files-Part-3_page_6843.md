@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6843.png
-
-Convert to Markdown1. (DELETED)
+1. (DELETED)
 
 2. All materials relating to rental or other arrangements made by the FBI for the use of an apartment or premises located in the Peachtree Towers, Atlanta, Georgia, as a listening post, as well as all materials relating to the termination of such arrangements, use, and/or occupancy.
 

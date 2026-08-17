@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17453.png
-
-Convert to MarkdownInformant furnished the following information on May 6, 1969:
+Informant furnished the following information on May 6, 1969:
 
 There was a Black Panther Party (BPP) meeting at ROBERT BRUCE's house on the evening of May 2, 1969. Present were FRED HAMPTON, BRUCE, WALTER ALLEN, GREGORY PERKINS, TYRONE GLADNEY, MATTHEW ANGRUM, NEAL THOMAS and DAVID VALENTINE. Several other young Negro males were present whose identities are unknown to the informant. PERKINS claimed he had talked to the owner of the Tastee-Freeze at 12th and Madison and the owner said he would drop the charges against PERKINS and LEN WATTS for the damage they had done. The case comes up in court on May 21, 1969.
 

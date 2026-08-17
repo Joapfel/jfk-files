@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4386.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 Your authority is requested to continue the telephone surveillance at 1520 Hill Street, Ann Arbor, Michigan, for a period of 30 days.
 

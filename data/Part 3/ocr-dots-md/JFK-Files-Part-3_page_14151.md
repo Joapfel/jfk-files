@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14151.png
-
-Convert to Markdown(29. 3/21/62 Continued)
+(29. 3/21/62 Continued)
 
 "not preclude the liberal provision of Bloc advisers, instructors, and service personnel, the provision of such defensive weapons and equipment as surface-to-air missiles and radars, and such improvement of Cuban naval and air facilities as would enable them to service Soviet units." A foreword to the above estimate states that "Our information on internal developments is not as complete or as reliable as we could wish. On some matters, it is seriously inadequate . . . In general, the information available is sufficient to support the estimate."
 

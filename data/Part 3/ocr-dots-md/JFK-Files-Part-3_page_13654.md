@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13654.png
-
-Convert to Markdown760010c140a
+760010c140a
 
 WARD & PAUL
 

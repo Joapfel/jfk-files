@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6910.png
-
-Convert to MarkdownThe whole point of this legislation was to create new criteria and new procedures to maximize the release of information hitherto withheld by the Government. The old laws and old procedures have been tried for the last 30 years, and have not produced the type of disclosure needed to restore the confidence of the American people.
+The whole point of this legislation was to create new criteria and new procedures to maximize the release of information hitherto withheld by the Government. The old laws and old procedures have been tried for the last 30 years, and have not produced the type of disclosure needed to restore the confidence of the American people.
 
 It seems to me that just this once, where the public policy interest in full disclosure of these records is so apparent, the Justice Department could dispense with its usual "to-the-last-man" defense of Executive branch prerogatives, and help us deal with solving the problem.
 

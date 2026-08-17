@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17365.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTINUATION OF<br/>DISPATCH</td>
     <td>SECRET/<br/>HEIMMA-20395</td>

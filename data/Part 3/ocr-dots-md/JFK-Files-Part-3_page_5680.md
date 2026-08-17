@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5680.png
-
-Convert to MarkdownHe has been closely aligned with communists for several years and has shown not only a willingness, but at times even an eagerness, to associate and confer with communist leaders and to work closely with and rely upon the advice and guidance of dedicated communists -- this despite the fact that they have been reliably identified to him as such. In February, 1962, Stanley David Levison, a secret Communist Party (CP) member, passed the word to the Party's General Secretary, Gus Hall, that "King is a wholehearted Marxist who has studied it (Marxism), believes in it, agrees with it, but because of his being a minister of religion, does not dare to espouse it publicly."
+He has been closely aligned with communists for several years and has shown not only a willingness, but at times even an eagerness, to associate and confer with communist leaders and to work closely with and rely upon the advice and guidance of dedicated communists -- this despite the fact that they have been reliably identified to him as such. In February, 1962, Stanley David Levison, a secret Communist Party (CP) member, passed the word to the Party's General Secretary, Gus Hall, that "King is a wholehearted Marxist who has studied it (Marxism), believes in it, agrees with it, but because of his being a minister of religion, does not dare to espouse it publicly."
 
 ### Levison -- Key Communist Directing King
 

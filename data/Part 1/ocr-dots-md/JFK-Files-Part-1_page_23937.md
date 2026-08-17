@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23937.png
-
-Convert to MarkdownVerges wanted somebody from Pakistan on the board. He said "I'm certain that the Mulana Bashani Kaan will agree".
+Verges wanted somebody from Pakistan on the board. He said "I'm certain that the Mulana Bashani Kaan will agree".
 
 (That would be Mulana Abdul Hamid Bashani)
 

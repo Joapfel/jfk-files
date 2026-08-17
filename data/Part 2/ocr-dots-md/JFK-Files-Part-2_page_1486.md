@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1486.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>SECTION M.</th><th>FUTURE PLANS</th></tr></thead><tbody><tr><td colspan="2">1. TRAINING OR OTHER DEVELOPMENTAL EXPERIENCE PLANNED FOR THE INDIVIDUAL<br/>Subject should remain at hq. at least another year in order that he may further broaden his experience.</td></tr><tr><td colspan="2">2. NOTE OTHER FACTORS, INCLUDING PERSONAL CIRCUMSTANCES, TO BE TAKEN INTO ACCOUNT IN INDIVIDUAL'S FUTURE ASSIGNMENTS<br/>Subject is married and has six children ranging in age from 3 to 14 years.</td></tr></tbody></table>
 

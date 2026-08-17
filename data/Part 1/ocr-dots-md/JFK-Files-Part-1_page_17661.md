@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17661.png
-
-Convert to Markdown52-4-63, dated 28 April 1963, and Hs -276, dated
+52-4-63, dated 28 April 1963, and Hs -276, dated
 20 December 1963, describe a lenient
 series of contacts between "Parsa" HITL,
 an Ethiopian student in exire, and FORS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26262.png
-
-Convert to Markdown1. Do you think a violent Communist revolution is a necessary stage in the development of Latin America?
+1. Do you think a violent Communist revolution is a necessary stage in the development of Latin America?
 
 2. Do you agree with the view expressed by Fidel Castro that most Latin America countries are ripe for violent revolution?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18834.png
-
-Convert to MarkdownSTANDARD FORM NO. 84
+STANDARD FORM NO. 84
 
 Office Memo
 

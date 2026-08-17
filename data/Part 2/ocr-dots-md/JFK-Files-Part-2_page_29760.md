@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29760.png
-
-Convert to Markdown# Classification: TOP SECRET
+# Classification: TOP SECRET
 
 1240/ In 1963 Raul Roa interviewed Eusebio Azcue in Cuba about Lee Harvey Oswald's activities in Mexico City.
 

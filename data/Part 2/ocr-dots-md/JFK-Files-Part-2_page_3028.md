@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3028.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 objected to the Army's proposals, the COS nonetheless
 had been "instructed" to cooperate.* <u>27</u>/<br><br>

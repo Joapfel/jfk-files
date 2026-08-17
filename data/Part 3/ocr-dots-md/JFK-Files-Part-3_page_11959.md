@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11959.png
-
-Convert to Markdown4-H
+4-H
 
 investigation. All counterintelligence proposals are submitted
 to the Bureau for approval and positive results achieved from

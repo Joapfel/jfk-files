@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23852.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 number of things that the Committee has already decided to do.
 

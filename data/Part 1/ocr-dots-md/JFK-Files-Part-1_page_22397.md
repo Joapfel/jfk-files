@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22397.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 b. The Compromise of PENKOVSKIY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19060.png
-
-Convert to MarkdownI = Mr. C. D. DeLoach
+I = Mr. C. D. DeLoach
 I = Mr. T. E. Bishop
 
 SAC, WFO (105-8906)

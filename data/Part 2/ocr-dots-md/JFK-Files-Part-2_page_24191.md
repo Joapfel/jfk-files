@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24191.png
-
-Convert to MarkdownTAB D
+TAB D
 
 POVARSITY
 

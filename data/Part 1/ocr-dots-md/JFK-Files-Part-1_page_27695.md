@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27695.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>X</td><td>V to V</td><td>V to UV</td></tr><tr><td colspan="3">UV to V</td></tr></table>

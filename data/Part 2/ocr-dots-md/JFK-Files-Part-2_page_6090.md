@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6090.png
-
-Convert to Markdown2. I have not resigned my permanent position at Princeton University, as I have stated above, and expect to meet my responsibilities at Princeton while also serving the government. I also have a temporary teaching assignment for a twelve week period, from January 10 through March 25, 1994, at the University of California, Los Angeles, though I have arranged my schedule in order to be able to attend meetings of the Assassination Records Review Board. I have also arranged a leave from Princeton for this period.
+2. I have not resigned my permanent position at Princeton University, as I have stated above, and expect to meet my responsibilities at Princeton while also serving the government. I also have a temporary teaching assignment for a twelve week period, from January 10 through March 25, 1994, at the University of California, Los Angeles, though I have arranged my schedule in order to be able to attend meetings of the Assassination Records Review Board. I have also arranged a leave from Princeton for this period.
 
 3. My only commitment during my service with the government is to continue in my permanent position working for Princeton University, as stated above.
 

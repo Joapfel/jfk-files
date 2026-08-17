@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5767.png
-
-Convert to MarkdownSearch Terms
+Search Terms
 
 Lee Harvey Oswald
 Harvey Lee Oswald

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12062.png
-
-Convert to Markdown(6) Informants should include in the body of their statements specific dates and places; purpose of the meeting or activity being related; identities of speakers and persons present, plus their known status in any group; specific activity engaged in by each individual present; and comments made by each individual.
+(6) Informants should include in the body of their statements specific dates and places; purpose of the meeting or activity being related; identities of speakers and persons present, plus their known status in any group; specific activity engaged in by each individual present; and comments made by each individual.
 
 (7) Informant should identify each page at the bottom by affixing his code name. Any corrections, erasures, changes, or additions should be similarly identified.
 

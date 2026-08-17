@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19633.png
-
-Convert to MarkdownMemorandum to Mr. Callahan
+Memorandum to Mr. Callahan
 
 Re: APRIL TENTH WOMEN'S COMMITTEE
 "MARCH ON THE PENTAGON"

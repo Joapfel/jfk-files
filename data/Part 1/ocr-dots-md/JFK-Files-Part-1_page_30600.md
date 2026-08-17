@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30600.png
-
-Convert to MarkdownUnvouchered Funds
+Unvouchered Funds
 
 DATE 27 December 1948
 

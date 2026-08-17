@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_569.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>E-2 IMPDET</td></tr></table>
 

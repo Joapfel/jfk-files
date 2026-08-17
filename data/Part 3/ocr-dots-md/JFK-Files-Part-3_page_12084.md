@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12084.png
-
-Convert to Markdownheavy demands on them, are unable to afford the necessary direction and
+heavy demands on them, are unable to afford the necessary direction and
 assistance to the clerical employee handling Foreign Police Cooperation
 cases.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19323.png
-
-Convert to MarkdownF B I
+F B I
 
 Date: 1/5/68
 

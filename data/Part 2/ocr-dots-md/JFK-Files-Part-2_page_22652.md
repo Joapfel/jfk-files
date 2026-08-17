@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22652.png
-
-Convert to Markdown1. Canadians, and New Zealanders and Australians, because we have this common denominator of the military and other agreements where they do share common information.
+1. Canadians, and New Zealanders and Australians, because we have this common denominator of the military and other agreements where they do share common information.
 
 2.
 

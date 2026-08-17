@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33338.png
-
-Convert to Markdownthe Chilean people over the single pí. Allende radio station that had not yet been shut down by the military. He began:
+the Chilean people over the single pí. Allende radio station that had not yet been shut down by the military. He began:
 
 This is surely the last time that I will be able to speak to you. . . . My words are not spoken in bitterness but disappointment. In the face of these events I can only say to the workers, "I am not going to resign." At this historic juncture I will pay with my life for the loyalty of the people.
 

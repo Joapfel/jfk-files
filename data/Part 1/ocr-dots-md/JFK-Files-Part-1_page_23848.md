@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23848.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 <table>
   <thead>

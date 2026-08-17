@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13129.png
-
-Convert to MarkdownFROM: HVC-15519, 7 June 1968
+FROM: HVC-15519, 7 June 1968
 
 SUBJECT: CIVILIAN Operational Reporting for May 1968
 

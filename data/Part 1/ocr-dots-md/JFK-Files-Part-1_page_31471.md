@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31471.png
-
-Convert to Markdownd. When budgets have been presented by NCFE, they have not been presented with reasonable thoroughness or accuracy nor have they indicated expenditures which are reasonably certain and those which are projections of possible activities for which NCFE has nevertheless asked for funds.
+d. When budgets have been presented by NCFE, they have not been presented with reasonable thoroughness or accuracy nor have they indicated expenditures which are reasonably certain and those which are projections of possible activities for which NCFE has nevertheless asked for funds.
 
 e. In certain instances, i.o. grants to certain national councils, NCFE makes expenditures for which there is no adequate accounting to NCFE and on which the Committee has had little or no information on how the money is spent.
 

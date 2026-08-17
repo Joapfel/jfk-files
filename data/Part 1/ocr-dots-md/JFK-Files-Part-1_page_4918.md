@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4918.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ASL SEC DISSED BY [circled{25}] PER</td>
     <td>TOTAL COPY 5</td>

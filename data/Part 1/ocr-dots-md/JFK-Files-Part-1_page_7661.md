@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7661.png
-
-Convert to MarkdownBOLETIN CONSULAR
+BOLETIN CONSULAR
 
 Organo del Cuerpo Consular de México
 Plaza de la República # 9-105 México, D. F.

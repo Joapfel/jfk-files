@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_990.png
-
-Convert to Markdown1. NSCA Request, 22 December 1977 (OCC #77-5635/4) for access to files or documents on or referring to:
+1. NSCA Request, 22 December 1977 (OCC #77-5635/4) for access to files or documents on or referring to:
 
 6. Lucien CONEIN. Former CIA employee, currently in Special Operations at DEA.
 

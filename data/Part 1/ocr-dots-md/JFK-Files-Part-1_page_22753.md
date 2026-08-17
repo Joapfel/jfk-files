@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22753.png
-
-Convert to MarkdownThis is a sample of my handwriting.
+This is a sample of my handwriting.
 Este es un ensayo de mi lettera.
 
 Rocío L. Cruzía

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6853.png
-
-Convert to Markdown13-00000
+13-00000
 
 rtt-rw TEXT-ASSASSINATIONS-2
 a0831

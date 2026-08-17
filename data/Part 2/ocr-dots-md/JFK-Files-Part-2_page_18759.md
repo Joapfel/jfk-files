@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18759.png
-
-Convert to MarkdownSAC, NEW YORK (65-15026)
+SAC, NEW YORK (65-15026)
 
 Re NY letter dated 12/15/58, and San Francisco
 letter dated 12/23/58.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15209.png
-
-Convert to MarkdownUNITED STATES C
+UNITED STATES C
 
 NT
 

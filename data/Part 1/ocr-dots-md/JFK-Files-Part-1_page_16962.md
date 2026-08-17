@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16962.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG:</td><td>Charles W. Anderson:nev</td></tr><tr><td>UNIT:</td><td>C/WH/C/CA/PA ☐ INDEX ☑ NO INDEX</td></tr><tr><td>EXT:</td><td>.4197</td></tr><tr><td>DATE:</td><td>2 September 65 ☐ FILE IN C3 FILE NO. 201-20481</td></tr></table>
 

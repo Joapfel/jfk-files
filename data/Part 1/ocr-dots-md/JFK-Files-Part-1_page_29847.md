@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29847.png
-
-Convert to Markdown2130 E Street, N.W.
+2130 E Street, N.W.
 Washington, D. C.
 
 5 April 1948

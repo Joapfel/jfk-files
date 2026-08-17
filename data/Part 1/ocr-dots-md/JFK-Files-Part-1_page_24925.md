@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24925.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 15
 
 ORIG : J.LINTON:bd

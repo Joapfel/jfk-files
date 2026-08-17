@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23255.png
-
-Convert to MarkdownJanuary 20, 1958
+January 20, 1958
 
 MEMORANDUM
 

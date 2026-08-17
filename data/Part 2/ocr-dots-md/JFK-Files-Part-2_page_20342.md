@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20342.png
-
-Convert to MarkdownToday, January 15, Congress reconvenes in Washington.
+Today, January 15, Congress reconvenes in Washington.
 
 Women from all over the United States have gathered there to petition the Congress in the name of the Jeanette Rankin Brigade. Jeannette Rankin, the first woman to serve in Congress and the only person to vote against U.S. entry into both World Wars, leads the women there, along with such other sponsors as Mrs. M.L.King, Mrs. Harry Belafonte, Mr's. John C. Bennett, Mrs. Benjamin Spock, Mrs Judith Morse Eaton. The Brigade is a
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25602.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 To : Terry Lenzner
 From : Bob Muse

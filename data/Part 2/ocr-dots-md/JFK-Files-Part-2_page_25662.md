@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25662.png
-
-Convert to MarkdownThe Nevada Gaming Board is continuing an investigation into Braden's alleged role as syndicate courier for "skimmed" gambling revenue from Las Vegas. Investigator Hoyes was told by several high government officials that Jim Braden had indeed been identified as the personal courier for Never Lansky. One official disclosed that Braden was suspected of taking over $72 million out of the country for the syndicate. Another official said that was a "low estimate."
+The Nevada Gaming Board is continuing an investigation into Braden's alleged role as syndicate courier for "skimmed" gambling revenue from Las Vegas. Investigator Hoyes was told by several high government officials that Jim Braden had indeed been identified as the personal courier for Never Lansky. One official disclosed that Braden was suspected of taking over $72 million out of the country for the syndicate. Another official said that was a "low estimate."
 
 In the summer of 1971, Braden came under renewed investigation by California authorities following an incident at La Costa.
 

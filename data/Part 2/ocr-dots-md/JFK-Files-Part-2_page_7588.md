@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7588.png
-
-Convert to MarkdownDF - 440
+DF - 440
 
 9 July 1963
 

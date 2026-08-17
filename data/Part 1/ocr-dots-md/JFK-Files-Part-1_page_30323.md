@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30323.png
-
-Convert to MarkdownMEMORANDUM FOR: Chairman, OS Career Board
+MEMORANDUM FOR: Chairman, OS Career Board
 
 SUBJECT : Quality Step Increase for Mr. James W. McCord, Jr.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_928.png
-
-Convert to Markdown5-E-C-R-F-T
+5-E-C-R-F-T
 
 - 2 -
 

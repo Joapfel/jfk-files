@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11526.png
-
-Convert to Markdown2.
+2.
 
 4. In reply to Rowton's questions concerning the identity of the following names that appear in the letters to him from Marta Barrios de León, LIKING/3 made the following clarifications:
 

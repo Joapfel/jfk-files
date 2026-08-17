@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13754.png
-
-Convert to MarkdownSECRET
+SECRET
 
 for subversive actions throughout Latin America. The extent
 to which this potential is realized will depend upon the situation

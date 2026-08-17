@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23506.png
-
-Convert to MarkdownWILLIAM HARVEY
+WILLIAM HARVEY
 
 Short Chronology*
 

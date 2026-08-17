@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3198.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 it would be "desirable" to break relations with Cuba
 prior to 20 January of 1961.

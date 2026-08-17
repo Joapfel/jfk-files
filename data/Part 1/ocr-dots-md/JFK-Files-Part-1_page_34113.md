@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34113.png
-
-Convert to Markdown# SUPPRESSION OF REGISTERED TRADE MARKS
+# SUPPRESSION OF REGISTERED TRADE MARKS
 
 As is known, the Castro regime, after monopolizing foreign trade and seizing private industries, arbitrarily decreed that all Cuban trade-marks had become the property of the government. However, with the lawful owners of these trade- marks scattered as exiles over the free world, Castro has met considerable legal difficulties in using the stolen brand names for his exports. Abroad, Castro has been unsuccessful, in most cases, in assigning these trade-marks to the regime's export enterprises, as, in most countries, the brands are registored in the names of their lawful owners.
 

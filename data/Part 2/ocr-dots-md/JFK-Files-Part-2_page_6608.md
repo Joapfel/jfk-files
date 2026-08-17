@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6608.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>FOR SECRET-NOTICE ORN</td></tr><tr><td>SPECIAL HANDLING</td></tr></table>
 

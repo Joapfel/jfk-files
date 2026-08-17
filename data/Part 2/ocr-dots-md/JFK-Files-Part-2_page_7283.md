@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7283.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 August 1975
 

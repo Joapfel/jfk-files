@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_429.png
-
-Convert to Markdown(6) The Bureau shall make copies of such materials as are specified by the staff under the provisions of (5) above for transfer to the Committee's offices
+(6) The Bureau shall make copies of such materials as are specified by the staff under the provisions of (5) above for transfer to the Committee's offices
 
 (a) before the copies of such materials are taken to the Committee's offices, the Bureau shall, within 24 hours of the selection, make appropriate excisions and paraphrases of information which might, if inadvertently disclosed, endanger sensitive FBI sources and ongoing operations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19649.png
-
-Convert to MarkdownSHEETILIAL
+SHEETILIAL
 
 To: CFU, Payroll Section
 

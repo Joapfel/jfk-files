@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3896.png
-
-Convert to Markdown13-00000
+13-00000
 
 # DA Seeking Copies of 'CIA' Letter by Novel
 

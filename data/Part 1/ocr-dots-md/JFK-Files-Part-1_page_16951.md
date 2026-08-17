@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16951.png
-
-Convert to Markdowne) LICALLA - Throughout this period, the LICALLA basehouse provided photographic coverage of the garden and patio area of the LIMERICK installation, an area where many of the officers, their families and visitors congregate. In providing this coverage, LICALLA produced 1160 individual photographs as well as regular, daily reports on the salient activities in this area.
+e) LICALLA - Throughout this period, the LICALLA basehouse provided photographic coverage of the garden and patio area of the LIMERICK installation, an area where many of the officers, their families and visitors congregate. In providing this coverage, LICALLA produced 1160 individual photographs as well as regular, daily reports on the salient activities in this area.
 
 f) LIEMPTY-4 - All the above cited operational film (160 rolls, 4,297 frames) provided by the basehouses and the LIENTRAP unit was developed and printed by LIEMPTY-4 at the LIEMPTY photo lab. As noted in paragraph 2 above, a new semi-automatic PAKO print dryer was recently installed in the photo laboratory. With the installation of this dryer, the Station's modernization of the LIEMPTY photo laboratory has been completed. (See paragraph 5 of HMA-27653, dated 17 November for the details of this program).
 

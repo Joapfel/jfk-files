@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1546.png
-
-Convert to MarkdownSTATE OF NEW YORK,
+STATE OF NEW YORK,
 COUNTY OF
 
 On this 2nd

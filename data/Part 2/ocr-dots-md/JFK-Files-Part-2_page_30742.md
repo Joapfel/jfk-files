@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30742.png
-
-Convert to MarkdownBetsy Palmer
+Betsy Palmer
 
 Miscellaneous documents not in files
 Page 3

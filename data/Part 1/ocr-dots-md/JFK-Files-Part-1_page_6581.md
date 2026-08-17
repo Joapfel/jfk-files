@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6581.png
-
-Convert to MarkdownChief, Contact Division
+Chief, Contact Division
 ATTN: F/P David Lu
 
 Chief, New York Office

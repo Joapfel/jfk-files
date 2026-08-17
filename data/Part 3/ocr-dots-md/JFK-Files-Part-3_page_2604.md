@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2604.png
-
-Convert to Markdown1 the Honorable Clarence M. Kelley, the Director of the Federal Bureau of Investigation.
+1 the Honorable Clarence M. Kelley, the Director of the Federal Bureau of Investigation.
 
 2
 

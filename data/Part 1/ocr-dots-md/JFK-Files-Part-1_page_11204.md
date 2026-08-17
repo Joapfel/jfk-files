@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11204.png
-
-Convert to MarkdownLa Habana, 13 de Abril de 1966
+La Habana, 13 de Abril de 1966
 
 "ANO DE LA SOLIDARIDAD"
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14199.png
-
-Convert to Markdown175. 10/28/62 - Until immediately prior to the President's statement of this date welcoming Khrushchev's decision to stop building bases in Cuba, dismantling offensive weapons and returning them to the Soviet Union, it appears that in Cuba the Soviets continued at feverish pace with the construction and camouflaging of their MRBM and IREB bases in Cuba.
+175. 10/28/62 - Until immediately prior to the President's statement of this date welcoming Khrushchev's decision to stop building bases in Cuba, dismantling offensive weapons and returning them to the Soviet Union, it appears that in Cuba the Soviets continued at feverish pace with the construction and camouflaging of their MRBM and IREB bases in Cuba.
 
 176. 10/29/62 - By this date, accumulated evidence showed that the Russians had put first-line modern equipment in Cuba, including such items as FRUITSET radar with C-Band, armored personnel carriers, etc.
 

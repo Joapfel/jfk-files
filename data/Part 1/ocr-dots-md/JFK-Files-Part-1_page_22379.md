@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22379.png
-
-Convert to Markdownis much more valuable to the FBI and CIA than was Oleg PENKOVSKIY because of the fact that he knows so much about the methods of work of the First and Second Directorates of the KGB and is familiar with so many individuals in the KGB both in Moscow and abroad. that PENKOVSKIY was able to furnish American and British Intelligence with a lot of information concerning defense secrets of the Soviet Union, but NOSENKO is much more knowledgeable in intelligence and counterintelligence operations of the KGB."
+is much more valuable to the FBI and CIA than was Oleg PENKOVSKIY because of the fact that he knows so much about the methods of work of the First and Second Directorates of the KGB and is familiar with so many individuals in the KGB both in Moscow and abroad. that PENKOVSKIY was able to furnish American and British Intelligence with a lot of information concerning defense secrets of the Soviet Union, but NOSENKO is much more knowledgeable in intelligence and counterintelligence operations of the KGB."
 
 (Reported to the
 FBI on 9 March 1964)

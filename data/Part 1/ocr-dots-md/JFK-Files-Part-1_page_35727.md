@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35727.png
-
-Convert to Markdown2. "CIF"
+2. "CIF"
 
 "CIF", without further details, was mentioned by the Federal Bureau of Investigation as having offices with Robert R. Mullen and Company. The Bureau was advised "no record" on the basis of available information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_427.png
-
-Convert to Markdown14-00000
+14-00000
 
 SR-6 - Research SECTION
 1960-1962:

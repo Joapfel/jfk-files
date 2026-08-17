@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1947.png
-
-Convert to Markdownbeen approached. Certainly this is a strange arrangement if
+been approached. Certainly this is a strange arrangement if
 it has been allowed to continue. The Hughes Tool Company.
 would do well to drop Morgan completely. As INTERTEL
 attempted to interview him it's doubtful that it would be produc-

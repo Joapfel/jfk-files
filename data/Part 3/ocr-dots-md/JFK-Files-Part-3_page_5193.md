@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5193.png
-
-Convert to MarkdownSA GARY ~~MAVITY:~~
+SA GARY ~~MAVITY:~~
 10/28/70
 GNM:j1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15653.png
-
-Convert to Markdown/19/
+/19/
 
 and for which he is not necessarily being paid. He acts out of principle, with no special reason. He helped the French prisoners despite the fact that he had sympathy for the Germans. However, his sympathy for the Germans was based on the fact that some Georgians had relatives in Germany and he preferred that the Germans would defeat the Russians.
 

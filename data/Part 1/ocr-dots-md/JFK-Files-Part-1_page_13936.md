@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13936.png
-
-Convert to MarkdownORIG: JOHN M. BURKE:mli
+ORIG: JOHN M. BURKE:mli
 UNIT: WII/COG/OPS
 Ext: 7141/1819
 DATE: 27 MAY 1970

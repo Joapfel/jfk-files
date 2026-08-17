@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25628.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABE 24 July '74
 while not directly involved & admittedly unaware

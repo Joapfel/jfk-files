@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34219.png
-
-Convert to Markdown"UNESCO.... UNITED REVOLUTIONARY" (U.P.U.L.)
+"UNESCO.... UNITED REVOLUTIONARY" (U.P.U.L.)
 
 December 1, 1965: "The Soviets Order The Sugar Harvest To Start".- While Redil sought military and economic aid in the USSR, Fidel Castro defiantly warned that the sugar harvest would begin as late as Jan. 7. But back came Redil from Moscow, not with a pledge of substantial aid, but with instructions to have the harvest begin immediately. That is why Castro changed his strategy and launched the harvest right away.
 

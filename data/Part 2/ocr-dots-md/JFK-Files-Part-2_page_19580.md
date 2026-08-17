@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19580.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 1.
 

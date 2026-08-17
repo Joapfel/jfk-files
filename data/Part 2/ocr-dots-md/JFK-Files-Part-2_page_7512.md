@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7512.png
-
-Convert to Markdown26 Dec 62
+26 Dec 62
 
 CIA=A-3.246.539
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28777.png
-
-Convert to Markdown resume - Joan Talbert Thornell
+resume - Joan Talbert Thornell
 
 1/72 - Staff Director
 10/72 The National Black Political Convention, Inc. Administrative follow-up to the Gary Convention; publication of "The National Black Political Agenda"

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13237.png
-
-Convert to Markdowndecided to locate him. The plan seems to be for Mankel to develop a business as an art dealer in some German town selling French paintings. It is contemplated that the Agency will supply the initial capital for the formation of his business. The final sentence in this dispatch asked headquarters for projected operational plans for QJWIN.
+decided to locate him. The plan seems to be for Mankel to develop a business as an art dealer in some German town selling French paintings. It is contemplated that the Agency will supply the initial capital for the formation of his business. The final sentence in this dispatch asked headquarters for projected operational plans for QJWIN.
 
 19. Cable, dated March 17, 1962, from Director to Luxembourg indicates that the Agency still contemplates some activity for Mankel in Leopoldville. Paragraph 2 of this cable reads as follows: "Tell him will at same time discuss Leopoldville assignment and have him sign contract." The cable directs Luxembourg to tell Mankel to meet James Rabney at certain locations in Germany on the 28th and 29th of March, 1961, telling him to be prepared to travel in Europe for about two weeks.
 

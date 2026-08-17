@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22551.png
-
-Convert to MarkdownSECRET-eyes only
+SECRET-eyes only
 
 /Consul General Dearborn:
 

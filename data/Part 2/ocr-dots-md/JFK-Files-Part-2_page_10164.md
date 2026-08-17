@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10164.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 personnel, support costs and overhead.
 

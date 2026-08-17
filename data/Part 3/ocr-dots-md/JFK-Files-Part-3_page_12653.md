@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12653.png
-
-Convert to MarkdownA. Yes, I recall news media information concerning such allegations.
+A. Yes, I recall news media information concerning such allegations.
 
 Q. In response to these allegations by King, do you remember that Mr. Hoover became very concerned with King's allegations?
 

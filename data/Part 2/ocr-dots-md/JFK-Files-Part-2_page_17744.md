@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17744.png
-
-Convert to MarkdownThis proposed use of sanitization as a special arrangement
+This proposed use of sanitization as a special arrangement
 to protect selected issues contained in material provided to Select
 Committees by one agency may prove to be a futile exercise if not
 practiced in common by all participating departments and agencies.

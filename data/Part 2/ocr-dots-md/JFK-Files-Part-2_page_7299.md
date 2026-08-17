@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7299.png
-
-Convert to MarkdownCovert Action Operations Concerning Right-Wing Regimes
+Covert Action Operations Concerning Right-Wing Regimes
 
 ## CATEGORY I
 

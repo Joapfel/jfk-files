@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27025.png
-
-Convert to MarkdownATTACHMENT I.
+ATTACHMENT I.
 
 DOCUMENTS REQUESTED FOR STAFF REVIEW
 

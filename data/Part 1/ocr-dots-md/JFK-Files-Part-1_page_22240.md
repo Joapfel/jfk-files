@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22240.png
-
-Convert to MarkdownSTORSBERG rejected the recruitment approach, and when inter-
+STORSBERG rejected the recruitment approach, and when inter-
 viewed on the basis of the NOSENKO lead, STORSBERG confirmed
 this. Both agree the approach was made in the latter part
 of 1961.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_980.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>REPLIES, MEMOS TO EIS</th></tr></thead><tbody><tr><td>HSCR CCS CHRON REQUESTS RECEIVED HSLA REQ DATE OLC<sup>#</sup> ITEMS</td></tr><tr><td>1978:</td><td></td></tr><tr><td>6/20</td><td>2460 8</td></tr><tr><td>14</td><td>2185 2⅔(2+1)</td></tr><tr><td>8</td><td>2039 5</td></tr><tr><td>6</td><td>2098 3</td></tr><tr><td>6</td><td>2093/1 10</td></tr><tr><td>5/23</td><td>2099 9 + ?</td></tr><tr><td>1/2</td><td>1580/1 4+A,B</td></tr><tr><td>1/4</td><td>1566 1</td></tr><tr><td>1/3</td><td>1565 15+</td></tr><tr><td>1/2</td><td>1554 5</td></tr><tr><td>1/9</td><td>1790* 5</td></tr><tr><td>4/28<sup>(2)</sup></td><td>1789 11</td></tr><tr><td>4/28</td><td>1784 2</td></tr><tr><td>4/28<sup>(3)</sup></td><td>*1790 41</td></tr><tr><td>.20</td><td>1534 14</td></tr><tr><td>19</td><td>1500 5</td></tr><tr><td>17</td><td>1524 2</td></tr><tr><td>14</td><td>1523 1</td></tr><tr><td>5</td><td>1455 &amp;?10</td></tr><tr><td>5</td><td>0966 4</td></tr><tr><td>3/29</td><td>1409 2</td></tr><tr><td>28</td><td>1410 2</td></tr><tr><td>23</td><td>1129 3</td></tr><tr><td>22</td><td>1128 1</td></tr><tr><td>13</td><td>1070 1</td></tr><tr><td>13</td><td>4</td></tr><tr><td>8</td><td>1035 19</td></tr><tr><td>8</td><td>1037 65</td></tr><tr><td>6</td><td>0448 4</td></tr><tr><td>2</td><td>0443 2 +</td></tr><tr><td>1</td><td>0070/30 14</td></tr></tbody></table>
 

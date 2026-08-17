@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26566.png
-
-Convert to Markdownc. The Soviet note was designed to make a record, showing that the USSR exercises "control" of the auto-bahn and that the recent incidents resulted from US refusal to comply with "existing procedures."
+c. The Soviet note was designed to make a record, showing that the USSR exercises "control" of the auto-bahn and that the recent incidents resulted from US refusal to comply with "existing procedures."
 
 d. On the other hand, the Soviet procedures described in the oral replies seem to reflect actual Allied practices, though there is enough ambiguity to afford the USSR flexibility in any future actions.
 

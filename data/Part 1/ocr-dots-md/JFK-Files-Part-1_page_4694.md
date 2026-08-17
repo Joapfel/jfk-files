@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4694.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 **Intelligence Information Cable**
 
 IN 0350612

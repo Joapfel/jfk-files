@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20987.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 THROUGH : Career Management Group,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19601.png
-
-Convert to MarkdownNRØØ6 WF PLAIN
+NRØØ6 WF PLAIN
 
 7:48PM NITEL 3-31-71 FMK
 

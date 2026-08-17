@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19005.png
-
-Convert to Markdown# Jaffe's "Exclusive" Regarding Khrushchev Ouster
+# Jaffe's "Exclusive" Regarding Khrushchev Ouster
 
 Jaffe continued: "Khrushchev was ousted after this. 'Slava' called me and said: 'A friend of yours is out - somebody that likes you and you like,'" Jaffe continued: "I said, why are you telling me this. He said I thought you should be the first one to know."
 

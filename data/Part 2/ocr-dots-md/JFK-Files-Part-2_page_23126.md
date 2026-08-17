@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23126.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 associated with you folks at that time?
 

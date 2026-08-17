@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25743.png
-
-Convert to MarkdownAt the conclusion of the meetings with Amlash, Headquarters cabled on 9 September that, based on what little feel Headquarters had, Amlash appeared hopeless as an intelligence performer and should be approached as a chief conspirator allowed to recruit his own co-horts. He should be urged to recruit a few trusted friends to assist him, initially in "FI and Ops reporting" and then progress to sabotage and more serious matters on an orderly basis. (DIR 67110 to Porto Alegre, JMWAVE and Rio.)
+At the conclusion of the meetings with Amlash, Headquarters cabled on 9 September that, based on what little feel Headquarters had, Amlash appeared hopeless as an intelligence performer and should be approached as a chief conspirator allowed to recruit his own co-horts. He should be urged to recruit a few trusted friends to assist him, initially in "FI and Ops reporting" and then progress to sabotage and more serious matters on an orderly basis. (DIR 67110 to Porto Alegre, JMWAVE and Rio.)
 
 On 11 September, Porto Alegre 0708 to DIR summarized the intel-
 ligence information Amlash had given on Soviet units in Cuba, saying

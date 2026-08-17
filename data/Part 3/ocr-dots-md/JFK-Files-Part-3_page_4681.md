@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4681.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 <table><tr><td>REPORTING OFFICE</td><td>OFFICE OF ORIGIN</td></tr><tr><td>MINNEAPOLIS</td><td>MINNEAPOLIS</td></tr><tr><td>TITLE OF CASE</td><td>CRIME CONDITIONS IN MINNESOTA, NORTH DAKOTA AND SOUTH DAKOTA</td></tr><tr><td colspan="2">Program</td></tr></table>
 

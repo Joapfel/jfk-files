@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29335.png
-
-Convert to MarkdownPHILLIPS, page 12.
+PHILLIPS, page 12.
 
 Carlos Blanco had probably been made up for the purposes of this one report. He said that he recalled the name of Luisa Calderon a bit better after reading the document. He said that she may have been the asset who worked in the Embassy for the Agency but he still could not be certain because he could not recall the true names. He said that he did not know if there would have been a "further report" and that, if there was, it would not have necessarily been sent to Headquarters unless it had been of special interest.
 

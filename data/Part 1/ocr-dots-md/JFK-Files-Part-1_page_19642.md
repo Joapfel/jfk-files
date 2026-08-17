@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19642.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>STANDARD FORM 52<br/>PROPOSED BY THE<br/>U. S. CIVIL SERVICE COMMISSIONER<br/>JANUARY 1970-SEPTEMBER 1974<br/>WARRANT CHAPTER 8</td>

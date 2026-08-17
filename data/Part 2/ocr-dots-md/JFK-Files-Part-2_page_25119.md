@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25119.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DEPTEL 243<br/>DEPTEL 256</td></tr><tr><td>RICHARDSON</td><td>TAYLOR</td><td>LODGE</td></tr><tr><td>SPERA</td><td>HARKINS</td><td></td></tr><tr><td>CONEIN</td><td>TRUEHEART</td><td></td></tr><tr><td>MINH</td><td>WEEDE, Gen. Richard G.</td><td></td></tr><tr><td>KHIEM</td><td>(Chief of Staff, MAC/V)</td><td></td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td><td>DEPTEL 243<br/>DEPTEL 256</td></tr><tr><td>RICHARDSON</td><td>TAYLOR</td><td>LODGE</td></tr><tr><td>SPERA</td><td>HARKINS</td><td></td></tr><tr><td>CONEIN</td><td>TRUEHEART</td><td></td></tr><tr><td>MINH</td><td>WEEDE, Gen. Richard G.</td><td></td></tr><tr><td>KHIEM</td><td>(Chief of Staff, MAC/V)</td><td></td></tr></table>
 
 <table><thead><tr><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>29 Aug. 1963</td><td>DIEM✓<br/>TOP SECRET<br/>CARD 1 of 2</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15891.png
-
-Convert to MarkdownWard, Jesse
+Ward, Jesse
 
 Arrested: 6/9/69
 Charge: Possession of Drugs

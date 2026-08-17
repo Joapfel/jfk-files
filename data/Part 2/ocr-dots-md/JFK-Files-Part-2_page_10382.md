@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10382.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 B. During the period from 1968 to 1973, several items of positive audio equipment consisting primarily of clandestine transmitters and touch-tone dial recorders were loaned to the Metropolitan Police Department, Fairfax-County,-Virginia, Police Department, Montgomery-County, Maryland; Police Department, New-York-City-Police Department, and the San Francisco, California, Police Department.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7856.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 171740Z CITE MEXICO CITY 3524
 DIRECTOR

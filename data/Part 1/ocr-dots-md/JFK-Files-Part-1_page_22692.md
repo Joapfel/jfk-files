@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22692.png
-
-Convert to Markdown<table><thead><tr><td>DISPATCH</td><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NO.</td></tr></thead><tbody><tr><td colspan="3">TO Chief, WH Division</td></tr><tr><td>INFO</td><td colspan="2"></td></tr><tr><td>FROM</td><td colspan="2">Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td colspan="2">Hospitalization Benefits for Dependents of Harold R. NOEMAYR</td></tr><tr><td>ACTION REQUIRED</td><td colspan="2">See paragraph 2 below,</td></tr><tr><td>REFERENCE(S)</td><td colspan="2">PR 20-1000, paragraph 2, c.</td></tr></tbody></table>
+<table><thead><tr><td>DISPATCH</td><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NO.</td></tr></thead><tbody><tr><td colspan="3">TO Chief, WH Division</td></tr><tr><td>INFO</td><td colspan="2"></td></tr><tr><td>FROM</td><td colspan="2">Chief of Station, Mexico City</td></tr><tr><td>SUBJECT</td><td colspan="2">Hospitalization Benefits for Dependents of Harold R. NOEMAYR</td></tr><tr><td>ACTION REQUIRED</td><td colspan="2">See paragraph 2 below,</td></tr><tr><td>REFERENCE(S)</td><td colspan="2">PR 20-1000, paragraph 2, c.</td></tr></tbody></table>
 
 1. Harold R. NOEMAYR, a Career Agent, is incurring medical expenses from the required hospitalization and medical/surgical treatment of one of his minor dependents. He wishes to know if he is covered by insurance that includes the above type of expenses for his dependents.
 

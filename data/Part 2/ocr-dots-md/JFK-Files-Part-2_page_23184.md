@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23184.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 (The Witness reads the document.)
 

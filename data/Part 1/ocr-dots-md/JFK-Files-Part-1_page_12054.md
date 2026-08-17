@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12054.png
-
-Convert to MarkdownChief, Staff C
+Chief, Staff C
 Attention: Staff C/RB
 Chief, Special Security Division
 

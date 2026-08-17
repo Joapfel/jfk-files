@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28045.png
-
-Convert to MarkdownPONDER, Mary
+PONDER, Mary
 
 Name of Employee
 Address

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31294.png
-
-Convert to Markdown# TRAINING EVALUATION
+# TRAINING EVALUATION
 
 1. The official to show this report is entrusted with personally responsible for it. Although he may, within his discretion, show little other interest in his staff, the report should never be shown to the student unless it concerns.
 

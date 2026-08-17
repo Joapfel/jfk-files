@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32775.png
-
-Convert to Markdownf. General Carter pointed out that reference to support of all Cuban exile groups (number 48) is impractical. The word was changed to selected.
+f. General Carter pointed out that reference to support of all Cuban exile groups (number 48) is impractical. The word was changed to selected.
 
 g. Mr. Martin cautioned that results of number 50 (actions to be undertaken by other Hemisphere governments) would not be expected overnight.
 

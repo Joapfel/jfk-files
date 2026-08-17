@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17773.png
-
-Convert to MarkdownSupplemental Agreement No. IV.
+Supplemental Agreement No. IV.
 to the Delimitations Agreement
 
 Investigation of Private Contractors

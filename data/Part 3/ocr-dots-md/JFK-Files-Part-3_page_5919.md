@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5919.png
-
-Convert to MarkdownCommissioner
+Commissioner
 
 REC-114 OCT 20 1975
 

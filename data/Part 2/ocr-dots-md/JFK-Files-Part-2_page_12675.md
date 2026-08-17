@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12675.png
-
-Convert to Markdown11. Interviews with subjects of security investigations
+11. Interviews with subjects of security investigations
 
 a. Policy
 

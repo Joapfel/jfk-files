@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11833.png
-
-Convert to MarkdownSECRET
+SECRET
 
 K. VASQUEZ, Jose AKA "Pepe". Not identified.
 

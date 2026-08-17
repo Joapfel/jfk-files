@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14970.png
-
-Convert to Markdownhis life. AEPADDLE stated he was non-committal to Platipodis in evaluating Couram. Couram lives with his father Begrat on Square Leon Guillot.
+his life. AEPADDLE stated he was non-committal to Platipodis in evaluating Couram. Couram lives with his father Begrat on Square Leon Guillot.
 
 ### 10. Kalistrat SALIA (SSALIA)
 

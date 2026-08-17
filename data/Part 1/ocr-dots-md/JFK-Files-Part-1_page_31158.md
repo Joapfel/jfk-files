@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31158.png
-
-Convert to MarkdownSTANDARD FORM 50 (A PART)
+STANDARD FORM 50 (A PART)
 
 REV. APRIL 1981
 PROMulgated BY

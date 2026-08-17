@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_72.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## CHINA (Continued)
 

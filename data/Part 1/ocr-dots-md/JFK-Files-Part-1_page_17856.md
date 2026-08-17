@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17856.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO</td><td>Chief, WH Division</td><td>SECRET</td><td>CONFIDENTIAL</td></tr><tr><td>INFO</td><td></td><td></td><td>ONLY QUALIFIED USER</td></tr><tr><td>FROM</td><td>Chief of Station, Mexico City</td><td></td><td>ONE COPY</td></tr><tr><td>SUBJECT</td><td colspan="3">Memoranda of Oral Commitments LIFET</td></tr><tr><td>ACTION REQUIRED</td><td colspan="3">REFERENCES</td></tr></tbody></table>
 

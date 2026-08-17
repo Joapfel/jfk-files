@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28969.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">SECTION XXII CLUBS, SOCIETIES, AND OTHER ORGANIZATIONS</th></tr><tr><td colspan="3">NOTE: Last names and addresses of all clubs, societies, professional societies, employee groups or organizations of any kind (include membership in, or support of, any organization having headquarters or branch in a foreign country) to which you belong or have belonged</td></tr><tr><th rowspan="2">NAME AND CHAPTER</th><th rowspan="2">ADDRESS<br>(Number, Street, City, State, Country)</th><th colspan="2">DATES OF MEMBERSHIP</th></tr><tr><th>FROM</th><th>TO</th></tr></thead><tbody><tr><td>Airborne Association</td><td>Ft. Bragg, North Carolina</td><td>1956</td><td>Present</td></tr><tr><td>Reserve Officers Association</td><td>Washington, D.C.</td><td>1957</td><td>Present</td></tr><tr><td>Assoc of U.S. Army</td><td>Washington, D.C.</td><td>1958</td><td>Present</td></tr></tbody></table>
 

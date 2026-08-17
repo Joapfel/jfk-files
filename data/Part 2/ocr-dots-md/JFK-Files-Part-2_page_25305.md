@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25305.png
-
-Convert to Markdown3.
+3.
 
 Jim Braden's Arrest On November 22
 

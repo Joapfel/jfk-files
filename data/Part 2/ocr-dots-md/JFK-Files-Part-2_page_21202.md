@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21202.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 5. W. E. JOHNSON
 

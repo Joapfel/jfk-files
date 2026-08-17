@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11832.png
-
-Convert to Markdowna. Receipts should be of such a nature that they will be self-sufficient so that, if it becomes necessary to introduce receipts in evidence, they will not relate to other documents or files.
+a. Receipts should be of such a nature that they will be self-sufficient so that, if it becomes necessary to introduce receipts in evidence, they will not relate to other documents or files.
 
 b. Receipts should clearly show:
 

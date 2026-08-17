@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1394.png
-
-Convert to Markdowng. Target personalities who are suspected of being disaffected and on whom A/27 and A/14 will attempt to gather information in Havana are as follows:
+g. Target personalities who are suspected of being disaffected and on whom A/27 and A/14 will attempt to gather information in Havana are as follows:
 
 1. Comandante "Macho" Parra
 

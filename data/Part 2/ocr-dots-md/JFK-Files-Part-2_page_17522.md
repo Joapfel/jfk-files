@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17522.png
-
-Convert to Markdown6/3/69
+6/3/69
 
 ## Black Panther Party
 

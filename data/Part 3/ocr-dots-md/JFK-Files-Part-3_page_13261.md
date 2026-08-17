@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13261.png
-
-Convert to Markdownthe CIA.
+the CIA.
 
 MR. OLSEN: When you say CIA, you were talking about
 the Watergate, not the other agent and me?

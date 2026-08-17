@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22329.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 7. A hotel room in Los Angeles was bugged by Brewer several years ago. It was to be used for some kind of interview.
 

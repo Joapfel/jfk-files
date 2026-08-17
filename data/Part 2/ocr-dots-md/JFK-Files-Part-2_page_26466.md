@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26466.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OCI No. 0515/63
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31615.png
-
-Convert to Markdownwho thought that they will achieve anything by the balloon.
+who thought that they will achieve anything by the balloon.
 
 True, the Crusaders of Freedom in the East are losing life and more possibilities for conducting enemy activity on the territory of our Republic. On the frontiers of our country there stands a vigilant guard which breaks all the attempts of their agains and so they must be confronted with the balloon action which our people overtly laughed at and which they condemn.
 

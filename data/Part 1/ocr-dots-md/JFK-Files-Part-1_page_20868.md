@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20868.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>1. DATE OF REQUEST</td></tr><tr><td>10 May 1972</td></tr><tr><td>3 POSITION TITLE</td></tr><tr><td>COS</td></tr><tr><td>4 GRADE</td></tr><tr><td>GS-17</td></tr><tr><td>6. EMPLOYEE & SAT.</td></tr><tr><td>7431</td></tr></table>
 

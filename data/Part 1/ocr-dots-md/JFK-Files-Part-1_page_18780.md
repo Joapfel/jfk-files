@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18780.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 8 March 1948
 

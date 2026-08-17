@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27388.png
-
-Convert to MarkdownMay 16, 1975
+May 16, 1975
 
 David W. Belin,
 Executive Director

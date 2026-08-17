@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6709.png
-
-Convert to MarkdownLeaves Soviet 'Home"
+Leaves Soviet 'Home"
 
 s. Federal Bureau of Investigation transmittal
 of report from Dallas, Texas, dated 30 August

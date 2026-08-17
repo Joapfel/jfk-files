@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30528.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Planes would take place in small room in CT Staff.
 

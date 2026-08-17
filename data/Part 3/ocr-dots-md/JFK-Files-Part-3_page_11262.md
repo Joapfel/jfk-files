@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11262.png
-
-Convert to Markdown# POSITION
+# POSITION
 
 PER CENT OF TIME
 

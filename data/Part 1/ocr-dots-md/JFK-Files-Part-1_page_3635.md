@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3635.png
-
-Convert to Markdown**Father:** Oscar J. VILA; DPOB: 28 January 1915
+**Father:** Oscar J. VILA; DPOB: 28 January 1915
 Havana, Cuba
 
 **Mother:** Zeida MASOT; DPOB: 19 December 1917

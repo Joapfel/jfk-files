@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6481.png
-
-Convert to Markdownwhich could be used as a pretext for such action.
+which could be used as a pretext for such action.
 
 (2) By the same token, it is not US policy to encourage unorganized and uncoordinated mass uprisings since these would be too easily crushed by indigenous Cuban military forces. The likelihood of any spontaneous uprising surviving long enough to receive adequate US aid is small unless it is a part of, or followed immediately by, a planned and coordinated revolt led by a significant element of the Cuban military forces.
 

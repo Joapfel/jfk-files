@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16054.png
-
-Convert to Markdown1
+1
 
 Dolo. 6/4/69
 

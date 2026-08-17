@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34578.png
-
-Convert to Markdown14,000.000
+14,000.000
 
 Nosenko's Account Disputes Charge by Soviet
 Diplomats

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12534.png
-
-Convert to Markdown(2) Informants and sources should not be directed by FBI to join or participate in activities of target organization. However, if subversive group requests informant to do so, latter may comply.
+(2) Informants and sources should not be directed by FBI to join or participate in activities of target organization. However, if subversive group requests informant to do so, latter may comply.
 
 (3) Be certain all persons interviewed, including informants, are aware that FBI is not interested in normal activities of target organization but solely in efforts to influence or control the organization by subversive elements.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1939.png
-
-Convert to Markdown62-117290-408
+62-117290-408
 
 COPY
 63

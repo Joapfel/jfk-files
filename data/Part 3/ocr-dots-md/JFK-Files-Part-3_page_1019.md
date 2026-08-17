@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1019.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 Public source information which exposes the Communist Party affiliation of Hunter Pitts O'Dell, a consultant to the field staff of the Southern Christian Leadership Conference (SCLC), was furnished October 19, 1962, to contacts in the news media field in Augusta, Savannah, Charleston, and Atlanta.
 

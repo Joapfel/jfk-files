@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8633.png
-
-Convert to MarkdownFrom Webster's New Collegiate Dictionary
+From Webster's New Collegiate Dictionary
 
 **AGENT:** 
 1) A power that acts; a moving force; as by some human AGENT.

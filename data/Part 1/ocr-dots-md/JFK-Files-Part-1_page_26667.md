@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26667.png
-
-Convert to MarkdownSEC. TÉRIA DE
+SEC. TÉRIA DE
 GOBERNACIÓN
 
 5.11.

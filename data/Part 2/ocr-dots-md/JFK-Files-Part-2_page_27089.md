@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27089.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 N. The Special Group Decision of 9 October
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16256.png
-
-Convert to Markdown# IV. PUBLICATIONS
+# IV. PUBLICATIONS
 
 The Chicago Chapter of the BPP has no regularly scheduled publications; however, on occasion leaflets have been distributed in connection with appearances by members at various functions.
 

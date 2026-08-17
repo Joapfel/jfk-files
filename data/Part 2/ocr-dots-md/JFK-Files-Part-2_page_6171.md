@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6171.png
-
-Convert to Markdown04/23/97
+04/23/97
 
 WED 15:53 FAX 202 724 0457
 

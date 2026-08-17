@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9142.png
-
-Convert to Markdown27 June
+27 June
 
 Laundry & valet 3.00
 Breakfast & Top 1.80

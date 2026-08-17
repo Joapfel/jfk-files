@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12877.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>0</td><td>1</td><td></td><td></td><td></td><td>3</td><td>5</td><td></td><td>7</td><td>9</td><td></td></tr><tr><td colspan="11">SIGNAL CENTER /08 ONLY</td></tr><tr><td>O MF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="12">CLASSIFICATION</td></tr><tr><td colspan="12">SECRET</td></tr><tr><td colspan="12">MESSAGE TRANSLATOR</td></tr><tr><td>CONF:</td><td colspan="4"></td><td>INFO: FILE</td></tr></table>
 

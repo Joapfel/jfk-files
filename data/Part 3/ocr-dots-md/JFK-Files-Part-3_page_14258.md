@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_14258.png
-
 counselor, who acts as department chief of mission.
 
 With crowbars and drills the Marines took down the inside walls and carefully carted the debris down to the embassy basement for sifting. After the wrecking operation was completed, Washington revealed last week, more than 40 tiny microphones were found in the debris.

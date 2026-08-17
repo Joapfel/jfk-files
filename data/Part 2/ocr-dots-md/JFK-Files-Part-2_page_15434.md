@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15434.png
-
-Convert to MarkdownADDENDUM BY MR. TOLSON
+ADDENDUM BY MR. TOLSON
 
 10/13/61
 

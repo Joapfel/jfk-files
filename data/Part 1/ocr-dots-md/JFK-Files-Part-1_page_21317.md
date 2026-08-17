@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21317.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 
 (SUBMIT AT LEAD PATCH)
 

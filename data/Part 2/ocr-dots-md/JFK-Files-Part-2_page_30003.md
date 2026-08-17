@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30003.png
-
-Convert to MarkdownDATE      03/09/78          U. S. HOUSE OF REPRESENTATIVES              PAGE      1214
+DATE      03/09/78          U. S. HOUSE OF REPRESENTATIVES              PAGE      1214
 REPORT ID   D01.00.00         PAYROLL CERTIFICATION                            PAYROLL
 ACCOUNTING PERIOD   02/01/78 TO 02/28/78                                     CERTIFICATION
 OFFICE     83000 SELECT COMMITTEE ON ASSASSINATIONS                          SALARY LIMITS: MIN 1,200.00 MAX 47,500.00

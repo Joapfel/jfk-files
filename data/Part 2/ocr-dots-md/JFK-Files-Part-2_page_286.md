@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_286.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LICOOKY-2 admitted the access to her communist contacts here had been hurt as a result of her known association with LINLUCK. at the time he publicly broke with the party. As an example of this, Miguel Toralla told her that Gutierrez had referred to LINLUCK and LICOOKY-1 as "enemies" of the party and that he had been reprimanded for seeing LINLUCK when he first arrived in town. He had been forbidden to see either one of them.
 

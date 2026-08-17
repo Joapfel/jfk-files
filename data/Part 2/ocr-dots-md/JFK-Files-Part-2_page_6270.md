@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6270.png
-
-Convert to Markdown(printouts)
+(printouts)
 
 - Other records
 

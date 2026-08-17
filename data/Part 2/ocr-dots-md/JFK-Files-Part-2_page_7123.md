@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7123.png
-
-Convert to Markdown7-71 MFG. 2/75
+7-71 MFG. 2/75
 
 CABLE SEC DISSEM BY ________ PER ________
 TOTAL COPIES

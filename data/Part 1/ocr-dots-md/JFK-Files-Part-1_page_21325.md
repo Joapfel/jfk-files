@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21325.png
-
-Convert to Markdown# REPORT No. 351
+# REPORT No. 351
 
 **MARIA RODRIGUEZ,** about 29 years old. Comes from a comfortably-off peasant family in the Province of Orense. She is very sluggish and at every question repeats that she does not know and that women do not understand many things. She had only a little more than an hour to spare as she was busy in the evening and had to leave for the interior in the morning.
 

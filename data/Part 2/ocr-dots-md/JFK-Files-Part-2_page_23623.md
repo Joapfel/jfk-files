@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23623.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="3">ING<br/>FRT: WH/3/DR&amp;H<br/>ATE: 29 MAY 1961</td>

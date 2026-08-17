@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19064.png
-
-Convert to MarkdownLetter to SAC, WFO
+Letter to SAC, WFO
 RE: FORMER NY 2524-S
 105-28333
 

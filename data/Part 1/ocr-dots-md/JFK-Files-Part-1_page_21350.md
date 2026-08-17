@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21350.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 27 Jan 69 (NY)
 RE: Carl Winter, Helen Winter
 DBC 41305

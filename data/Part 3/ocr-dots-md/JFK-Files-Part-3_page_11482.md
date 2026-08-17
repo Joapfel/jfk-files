@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11482.png
-
-Convert to Markdownin the first year of the program. Among the individuals and organizations whose mail was examined were Arthur Burns, Mrs. Martin Luther King, Jr., Richard Nixon, Senators Humphrey and Kennedy, the Ford Foundation, Harvard University, and the Rockefeller Foundation.
+in the first year of the program. Among the individuals and organizations whose mail was examined were Arthur Burns, Mrs. Martin Luther King, Jr., Richard Nixon, Senators Humphrey and Kennedy, the Ford Foundation, Harvard University, and the Rockefeller Foundation.
 
 The FBI mail-opening program ran from 1940 to 1966, with Federal agents in seven American cities reading and photographing letters written by citizens of the United States. The FBI also cooperated with the CIA mail program in New York City, receiving copies of more than 50,000 intercepted letters from the Agency between 1958 and 1973. Military intelligence units shared the CIA take, too.
 

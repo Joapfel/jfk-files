@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6446.png
-
-Convert to MarkdownSECRET
+SECRET
 
 voluntary concession, the program should find the means through
 other contractors, or through its own offices, of arranging for dis-

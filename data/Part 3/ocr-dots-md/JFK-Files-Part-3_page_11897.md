@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11897.png
-
-Convert to MarkdownDuring the conduct of these background investigations the field should be particularly alert to every potential opportunity for developing member informants in not only the ECCSL but also in other sympathetic and splinter groups which develop or spin off from the vortex of this group.
+During the conduct of these background investigations the field should be particularly alert to every potential opportunity for developing member informants in not only the ECCSL but also in other sympathetic and splinter groups which develop or spin off from the vortex of this group.
 
 It is noted that you have pointed out elsewhere
 in this report that 97 individuals have been involved

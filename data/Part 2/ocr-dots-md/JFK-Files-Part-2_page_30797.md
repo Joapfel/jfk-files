@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30797.png
-
-Convert to Markdown11110763
+11110763
 
 Cristina Aron, Clearwater, Fla., also had FCC meetings at her home husband Manuel Aron had beer chairman of Tampa FPCC Aug. 19.63 they moved to Tampa
 

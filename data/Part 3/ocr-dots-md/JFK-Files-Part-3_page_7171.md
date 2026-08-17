@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7171.png
-
-Convert to MarkdownHonorable Mike Mansfield
+Honorable Mike Mansfield
 United States Senate
 Washington, D. C. 20510
 

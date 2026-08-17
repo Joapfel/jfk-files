@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21750.png
-
-Convert to MarkdownIf information was received from an important FCD agent
+If information was received from an important FCD agent
 such as George BLAKE or through another valuable FCD agent which
 led to KGB suspicion of POPOV prior to his return to Moscow in
 November 1958, it is highly unlikely such information would receive

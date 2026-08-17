@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9761.png
-
-Convert to MarkdownMay 14, 1953
+May 14, 1953
 
 Director, FBI.
 

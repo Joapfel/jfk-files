@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10506.png
-
-Convert to Markdown4. Republican National Convention (21-24 August 1972): At the request of the White House, a series of estimates was prepared by the IES on "Potential Disruptions at the 1972 Republican National Convention, Miami Beach, Florida." The Agency provided from February through August 1972 periodic contributions for these estimates concerning foreign support for activities planned to disrupt or harass the Republican National Convention (copies attached).
+4. Republican National Convention (21-24 August 1972): At the request of the White House, a series of estimates was prepared by the IES on "Potential Disruptions at the 1972 Republican National Convention, Miami Beach, Florida." The Agency provided from February through August 1972 periodic contributions for these estimates concerning foreign support for activities planned to disrupt or harass the Republican National Convention (copies attached).
 
 5. Democratic National Convention (10-13 July 1972): At the request of the White House, a series of estimates was prepared by the IES on "Potential Disruptions at the 1972 Democratic National Convention, Miami Beach, Florida." The Agency provided between March and July 1972 contributions on foreign support for activities planned to disrupt or harass the Democratic National Convention (copies attached).
 

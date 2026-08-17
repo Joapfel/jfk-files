@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4000.png
-
-Convert to MarkdownJune 9
+June 9
 
 To: Andy
 

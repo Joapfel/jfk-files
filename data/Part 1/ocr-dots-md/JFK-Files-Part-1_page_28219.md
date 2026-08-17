@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28219.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When filled In)
 
 S/C ATT TO FJTT-12144

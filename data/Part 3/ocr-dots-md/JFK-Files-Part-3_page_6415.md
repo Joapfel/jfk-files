@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6415.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 November 2, 1962
 

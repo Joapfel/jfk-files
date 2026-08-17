@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6573.png
-
-Convert to Markdownpublic. We believe that the commission is especially qualified
+public. We believe that the commission is especially qualified
 to fulfill this function since they are a group of private
 Americans talking to fellow Americans.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8158.png
-
-Convert to Markdownpublic works projects on massive scales beyond the scope of the individual
+public works projects on massive scales beyond the scope of the individual
 entrepreneur.
 
 Secondly, there's considerable doubt as to the real intentions of

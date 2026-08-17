@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9571.png
-
-Convert to Markdownmust be forgotten until liberation is won. Then,
+must be forgotten until liberation is won. Then,
 we can disagree among ourselves as much as we
 like over leftist, rightist, socialist or liberal
 ideas...

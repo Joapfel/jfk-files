@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13189.png
-
-Convert to MarkdownMM 92-1047
+MM 92-1047
 
 Wife
 Children

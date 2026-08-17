@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15681.png
-
-Convert to Markdownyou of any, and all benefits which may accrue to you by virtue of this
+you of any, and all benefits which may accrue to you by virtue of this
 agreement,
 
 12. <u>Instructions</u>. During the term of this agreement, and in your official business capacity you herein agree to act in conformance with instructions, oral or written given you by authorised representatives of this organization.

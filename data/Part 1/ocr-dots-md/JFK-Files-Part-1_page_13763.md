@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13763.png
-
-Convert to Markdowng. That FERNANDO Fernandez was deliberately creating differences and providing upstanders in connection with Cuban plans to put an end to the Batista regime. (Perhaps this falling out may be attributable in part to the current competition to electarin President AMBROZIO)
+g. That FERNANDO Fernandez was deliberately creating differences and providing upstanders in connection with Cuban plans to put an end to the Batista regime. (Perhaps this falling out may be attributable in part to the current competition to electarin President AMBROZIO)
 
 h. On 5 June Hernández GILABERTO and Angel GONZÁLEZ Dávila arrived from Cuba to attend some sort of URBAN meeting. Staying at the Hotel Matadero, GILABERTO attended a number of the meetings. They are scheduled that both of these men have Spanish names. They are scheduled to return to Cuba about 3 July. GILABERTO's trip was paid for by IMITECO, not so with GONZÁLEZ. GILABERTO remarked that in Cuba he is only one of the lighting maintenance crews chosen by the Ministry of Public Works.
 

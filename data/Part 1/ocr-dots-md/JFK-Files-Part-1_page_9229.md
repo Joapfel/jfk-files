@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9229.png
-
-Convert to Markdown12. Re Shub & other SPERS. JRIII, a week or two ago, was about to phone Shub about some job he wanted him to do. I suggested he leave him to concentrate on the photo-book.
+12. Re Shub & other SPERS. JRIII, a week or two ago, was about to phone Shub about some job he wanted him to do. I suggested he leave him to concentrate on the photo-book.
 
 13. Re Doris Shub's & David Shub's "BIOGRAPHY OF STALIN". Last summer, OUSTEAD having raised the matter, I was told to draw up a project to give David Shub $3,000 for 6 months leave-of-absence from his job, to complete the biography. This was killed because, I was told, you had instructed Shub to work on it himself, during working-time.
 

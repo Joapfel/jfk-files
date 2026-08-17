@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2043.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Director of Personnel
 SUBJECT: State Department Promotion of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15368.png
-
-Convert to MarkdownMemo Papich to Roach
+Memo Papich to Roach
 RE: COVERAGE OF NONCOMMUNIST DIPLOMATIC ESTABLISHMENTS
 
 2. We can collect valuable intelligence information as we already have under established coverage. We actually may be in a position to outdo other agencies, such as CIA, in developing positive intelligence information as a by-product to our counterintelligence responsibilities.

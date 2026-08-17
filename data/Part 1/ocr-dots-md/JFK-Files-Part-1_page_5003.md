@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5003.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="2">F O B 3005</td>

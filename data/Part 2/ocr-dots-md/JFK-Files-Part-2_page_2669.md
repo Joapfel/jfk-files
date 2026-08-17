@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2669.png
-
-Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+SEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
 
 | | | | |
 |---|---|---|---|

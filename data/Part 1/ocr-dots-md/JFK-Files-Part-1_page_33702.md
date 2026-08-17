@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33702.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 Inclusion of Dr. Coughly, or any other person, as one of the 12 representatives of the National Council, who, together with the 12 representatives of the National Committee am to carry on the discussions leading to the formation of a permanent body to represent Czechoslovakia exiles.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23918.png
-
-Convert to Markdown14-00000
+14-00000
 
 They have some people in Algeria. They may even have persuaded
 the Algerians to train some people. I don't know. But they were trying.

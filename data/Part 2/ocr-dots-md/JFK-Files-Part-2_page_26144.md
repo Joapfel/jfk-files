@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26144.png
-
-Convert to Markdown-50-
+-50-
 
 Eisenhower administration. Now this wasn't
 true throughout the administration at all,

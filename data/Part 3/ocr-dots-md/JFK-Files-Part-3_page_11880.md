@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11880.png
-
-Convert to MarkdownASSISTANT DIRECTOR C. D. BRENNAN: Domestic Intelligence
+ASSISTANT DIRECTOR C. D. BRENNAN: Domestic Intelligence
 Division is appreciative
 
 of the observations and suggestions set forth in the

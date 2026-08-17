@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12045.png
-
-Convert to Markdown5. Mr. McLean has business interests in Dallas and said that he is willing to explore this possibility with Mr. McLendon if we provide guidance.
+5. Mr. McLean has business interests in Dallas and said that he is willing to explore this possibility with Mr. McLendon if we provide guidance.
 
 6. Mr. McLean himself perhaps offers more potential via International Ventures, Inc. Mr. McLean is seeking venture capital opportunities abroad. For example, he and a Mr. Lincoln Epworth in New York City are working with a Japanese named Ikvo Kasai who is President of Nichimen Co. of Tokyo, a firm seeking to export to the States. Mr. McLean was frank to say that International Ventures is more a dream than a reality in terms of business but the concern is making progress. Mr. McLean offered to be of any assistance.
 

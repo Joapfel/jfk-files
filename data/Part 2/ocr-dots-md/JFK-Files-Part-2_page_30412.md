@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30412.png
-
-Convert to Markdown1
+1
 2
 
 Directorate would include or would turn up anything that was in the ISR. I am just not sure how it works.

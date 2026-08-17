@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1547.png
-
-Convert to MarkdownTHIS MORTGAGE, made the 2nd day of MARCH
+THIS MORTGAGE, made the 2nd day of MARCH
 
 nineteen hundred and seventy-eight , between and
 husband and wife, both residents of the State of

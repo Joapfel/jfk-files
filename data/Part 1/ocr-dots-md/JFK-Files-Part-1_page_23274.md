@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23274.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG</td>
     <td>H.O. MACAULEY</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23862.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 they are to perform some service. Up to that time they are
 still maybe prospects, where they may not have been recruited.

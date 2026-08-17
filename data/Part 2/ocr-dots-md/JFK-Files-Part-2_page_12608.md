@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12608.png
-
-Convert to Markdownwith Atomic Energy Commission (AEC). Dissemination to AEC is made only at Bureau.
+with Atomic Energy Commission (AEC). Dissemination to AEC is made only at Bureau.
 
 Disseminate copies of reports for Marine Corps locally to Naval Investigative Service Office (NISO). Dissemination to Defense Atomic Support Agency, Research and Development Board and Maritime Administration is made only at Bureau.
 

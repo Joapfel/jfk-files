@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5393.png
-
-Convert to Markdown14-00600
+14-00600
 
 CENTRAL INTELLIGENCE AGENCY
 # Intelligence Information Cable

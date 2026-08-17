@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11983.png
-
-Convert to Markdown4-H
+4-H
 
 RADIO AND TECHNICAL EQUIPMENT PURCHASED BY THE SOVIETS
 

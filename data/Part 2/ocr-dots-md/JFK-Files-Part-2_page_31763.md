@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31763.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SF 100-46832
 WEH·ay

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19394.png
-
-Convert to MarkdownAGENCY G-2, ONI, OSI, SEC. GEN.
+AGENCY G-2, ONI, OSI, SEC. GEN.
 
 DATE FORW:
 HOW. FORW:

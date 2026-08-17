@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21166.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It is considered probable that the 1961 communication referred to by GOLITZYN is identical with, or related to, data furnished by [SHAMROCK] in (S) 1967 which indicated KGB was emphasizing operations against code clerks in 1961. The contents of the document made available by [SHAMROCK] undoubtedly (S) emanated from JOHN DISCOE SMITH, a former State Department code clerk and crypto technician who resigned in December, 1959, left the United States in May or June, 1960, and whose whereabouts there- after were unknown until he was publicized as a defector by the Soviets in the Fall of 1967.
 

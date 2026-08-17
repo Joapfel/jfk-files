@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24425.png
-
-Convert to Markdowninvolved with an anti-Batista faction that only grudgingly accepted Castro's rule (Case Officer 2, p. 9, 39).* The meeting was incon- clusive, but lead to subsequent meetings at which AM/LASH-1 agreed to cooperate with the CIA.
+involved with an anti-Batista faction that only grudgingly accepted Castro's rule (Case Officer 2, p. 9, 39).* The meeting was incon- clusive, but lead to subsequent meetings at which AM/LASH-1 agreed to cooperate with the CIA.
 
 AM/LASH-1 was viewed as an important "asset" inside Cuba. As a high-ranking military leader who enjoyed the confidence of Fidel Castro, he could keep the CIA informed of the internal workings of the regime (Case Officer 2, pp. 23, 40). It was also believed that he might play a part in fomenting a coup within Cuba (Case Officer 2, p. 43).**
 

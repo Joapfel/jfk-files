@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22632.png
-
-Convert to Markdown8.
+8.
 
 J. de Rosnowo Vieralles, on Celle Aresilles 40, Mexico City. Chenzasos, Mexico.) The only one given to the garage, Teller other article isoflag. (Voir: 8: Sito Bojivar, Caffe de Ia Casse, Union de Seguros (Insurance company) and Union GANVAR, owner of the business card was given to a (Pun) DURAM, legal inspector for the business card in connection with my automobile accident on 13 December 1950, the
 

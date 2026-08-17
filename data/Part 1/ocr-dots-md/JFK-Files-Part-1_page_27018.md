@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27018.png
-
-Convert to MarkdownINFORMATION REPORT INFORMATION REPORT
+INFORMATION REPORT INFORMATION REPORT
 CENTRAL INTELLIGENCE AGENCY
 
 This material contains information affecting the National Defense of the United States within the meaning of the classified laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or dissemination of which in any manner to an unauthorized person is prohibited by law.

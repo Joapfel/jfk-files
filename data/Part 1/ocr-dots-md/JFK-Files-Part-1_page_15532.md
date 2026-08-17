@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15532.png
-
-Convert to MarkdownORIG : DANIEL BIESCIUR
+ORIG : DANIEL BIESCIUR
 UNIT : AP/W/2
 EXT : 4818
 DATE : 2 MAY 1961

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25894.png
-
-Convert to MarkdownRUSSIAN ENB:SUU. 10-10-65
+RUSSIAN ENB:SUU. 10-10-65
 
 1 Octobor 65
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6813.png
-
-Convert to MarkdownThe New York Times
+The New York Times
 1 September 1960
 
 # FORMER U. S. AIDE AT WORK IN SOVIET

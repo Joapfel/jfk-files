@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7441.png
-
-Convert to MarkdownNR 005 NK CODE
+NR 005 NK CODE
 
 12:00PM IMMEDIATE JUNE 5, 1975 JCG
 

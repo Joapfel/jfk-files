@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6006.png
-
-Convert to MarkdownNov. 25 de 1962
+Nov. 25 de 1962
 
 La Catedral, Noviembre 25 de 1962
 

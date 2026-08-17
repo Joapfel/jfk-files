@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7572.png
-
-Convert to MarkdownISAACS, H
+ISAACS, H
 
 Probably Harold R ODETT
 

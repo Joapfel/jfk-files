@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_238.png
-
-Convert to MarkdownIn late July 1959, Haiti was invaded by a small group of Cubans, supposedly as a prelude to an invasion of the neighboring Dominican Republic. The incursion was successfully repelled by the Haitian Government, which publicly charged RODRIGUEZ with complicity in the raid. RODRIGUEZ then closed the Cuban Embassy and returned to Cuba after selling his private property in Haiti.
+In late July 1959, Haiti was invaded by a small group of Cubans, supposedly as a prelude to an invasion of the neighboring Dominican Republic. The incursion was successfully repelled by the Haitian Government, which publicly charged RODRIGUEZ with complicity in the raid. RODRIGUEZ then closed the Cuban Embassy and returned to Cuba after selling his private property in Haiti.
 
 While RODRIGUEZ was still in Haiti, two attempts were made on his life. He accused the Trujillo regime in the Dominican Republic and, indirectly, the Haitian Government of complicity in those attacks.
 

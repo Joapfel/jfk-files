@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1082.png
-
-Convert to Markdown6. LISTEN (George CadswORTH T) who has supplied counsel, ghost pretrialing, to Gerenda over the years to involve social security payments & revenue tax payments to GOH.
+6. LISTEN (George CadswORTH T) who has supplied counsel, ghost pretrialing, to Gerenda over the years to involve social security payments & revenue tax payments to GOH.
 
 7. LIRAZON -1 (Oliver Secretleny)
 

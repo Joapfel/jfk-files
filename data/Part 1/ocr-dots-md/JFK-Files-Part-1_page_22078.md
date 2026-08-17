@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22078.png
-
 s?
 
 **NOSENKO:** Yes, yes, yes.

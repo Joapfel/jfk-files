@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24195.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4 APR 1967
 

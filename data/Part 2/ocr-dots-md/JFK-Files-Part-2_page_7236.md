@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7236.png
-
-Convert to Markdown13-00000
+13-00000
 
 FRANK HURCH, IDAHO, C.I.
 JOHN G. TOWER, TEXAS, VICE

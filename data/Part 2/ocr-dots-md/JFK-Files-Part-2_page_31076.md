@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31076.png
-
-Convert to MarkdownFile review, Manuel Ray
+File review, Manuel Ray
 Volume 11 of xviii
 
 whom he says is gaining strength in Cuba. Says students eager to join active group and will go to Ray if DRE can't get help soon.

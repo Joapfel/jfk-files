@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20722.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 During early March, 1972, TOBA FINGER reported that at an increasing rate abortion work was becoming a more important area of work than FL and that a number of SWP and YSA female members were being transferred into the abortion work.
 

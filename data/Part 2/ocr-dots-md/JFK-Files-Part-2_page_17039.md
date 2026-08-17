@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17039.png
-
-Convert to Markdown3/9/70 BOBBY RUSH, SONNY RUSH, TRAVEL OF BPP LEADERSHIP
+3/9/70 BOBBY RUSH, SONNY RUSH, TRAVEL OF BPP LEADERSHIP
 
 RUSH and his wife will depart for San Francisco,
 California, tonight. The purpose of this trip is not known.

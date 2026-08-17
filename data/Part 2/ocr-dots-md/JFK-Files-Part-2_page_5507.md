@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5507.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. On the other hand, CIA could use this situation as a way to highlight the problems HRG has had with the JFK review process - that documents are being reviewed and released to the National Archives in such quantity and speed that it is difficult for CIA to focus on any one document and, more importantly, how seemingly innocuous information in one document can actually be quite significant in relation to prior or subsequent releases. Since September, when this cable was originally released, the issue of protecting Mexican liaison has become increasingly important because of other releases on this subject and because of your appearance before the Board in February.
 

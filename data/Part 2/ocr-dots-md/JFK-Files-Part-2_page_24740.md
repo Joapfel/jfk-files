@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24740.png
-
-Convert to MarkdownThe following testimony regarding the relationship
+The following testimony regarding the relationship
 between "the White House" and the executive action capability
 was obtained by the Committee:
 

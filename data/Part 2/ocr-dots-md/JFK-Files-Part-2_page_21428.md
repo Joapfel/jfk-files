@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21428.png
-
-Convert to MarkdownDANGER - AMERICAN AGENT AT WORK...
+DANGER - AMERICAN AGENT AT WORK...
 
 Many people on the left tend to get a little paranoid about the C.I.A., and to suspect absolutely everyone. There is, however, one person who meves around in the British left who should be avoided - it is just a little more than coincidental that so many people and organisations abroad seem to think that he is working for the Americans.
 

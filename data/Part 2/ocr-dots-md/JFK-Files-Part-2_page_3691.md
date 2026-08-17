@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3691.png
-
-Convert to Markdownachieves independence on 12 December. This will fall under the jurisdiction of communications minister Oneko, who has well developed contacts within the Soviet Bloc.
+achieves independence on 12 December. This will fall under the jurisdiction of communications minister Oneko, who has well developed contacts within the Soviet Bloc.
 
 c. TASS has already agreed to equip the new agency, and Kenyan requests for further financial and technical help are being discussed in Prague and Moscow.
 

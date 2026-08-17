@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_629.png
-
-Convert to Markdown104-10069-10260
+104-10069-10260
 
 NO-173-65
 

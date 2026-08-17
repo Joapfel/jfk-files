@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26167.png
-
-Convert to Markdown# SECRET/NO FOREIGN DISSEM
+# SECRET/NO FOREIGN DISSEM
 INTERNAL USE ONLY
 
 ## SOURCES OF DATA: (Continued)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23091.png
-
-Convert to MarkdownEn octubre de 1961, las organizaciones con trarrevolucionarias "II Frente del Escambray" y "Movimiento de Recuperación Revolucionaria" (MRR) dirigidas por la Agencia Central de Inteligencia (CIA), aprobaron un plan conjunto de sabotajes en la capital, a fin de provocar la indignación popular e influir sobre la concurrencia masiva al ac to de recibimiento al Presidente de la República, Dr. Osvaldo Dorticós Torrado, a su llegada de Punta del Este.
+En octubre de 1961, las organizaciones con trarrevolucionarias "II Frente del Escambray" y "Movimiento de Recuperación Revolucionaria" (MRR) dirigidas por la Agencia Central de Inteligencia (CIA), aprobaron un plan conjunto de sabotajes en la capital, a fin de provocar la indignación popular e influir sobre la concurrencia masiva al ac to de recibimiento al Presidente de la República, Dr. Osvaldo Dorticós Torrado, a su llegada de Punta del Este.
 
 Esta táctica estaba encaminada a viabilizar el plan de atentado que ejecutarían el día 4 del propio mes, disparando con una bazooka hacia la tribuna situada en la terraza del antiguo Palacio Presidencial desde un apartamento situado en un edificio contigo. La retirada sería cubierta con el cri minal lanzamiento de granadas contra el público, para crear la confusión y el páni co.
 

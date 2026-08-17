@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8270.png
-
-Convert to MarkdownI do not have any knowledge as to what electronic surveillance
+I do not have any knowledge as to what electronic surveillance
 may ever have been conducted by the Atlanta Police Department.
 
 Q. While in Atlanta you were assigned to what was referred

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17829.png
-
-Convert to MarkdownFrom: Mexico, Mexico City
+From: Mexico, Mexico City
 
 No. of Pages: 1
 

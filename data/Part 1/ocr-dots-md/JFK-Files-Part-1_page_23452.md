@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23452.png
-
-Convert to Markdown# CLASSIFIED MESSAGE
+# CLASSIFIED MESSAGE
 
 356 LK/RFL
 DATE : 01 JUNE 1956

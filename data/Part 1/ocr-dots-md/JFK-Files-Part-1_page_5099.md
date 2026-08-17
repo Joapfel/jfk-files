@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5099.png
-
-Convert to MarkdownSTATE CABLE
+STATE CABLE
 
 FROM AMEMBASSY CARACAS 0854
 

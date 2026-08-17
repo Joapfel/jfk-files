@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8721.png
-
-Convert to Markdown14.02 Cuando esposa y familia están cuentes de casa
+14.02 Cuando esposa y familia están cuentes de casa
 Se ve muy solo y sin saber qué hacer
 Mantiene probablemente su rutina
 Probablemente intensifica su actividad social

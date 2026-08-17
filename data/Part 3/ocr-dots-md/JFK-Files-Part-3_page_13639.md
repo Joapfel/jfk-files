@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13639.png
-
-Convert to MarkdownPhone (Area 202) 546-6000
+Phone (Area 202) 546-6000
 
 WARD & PAUL
 

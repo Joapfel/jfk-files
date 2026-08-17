@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21732.png
-
-Convert to Markdown(a) During March 1953-late May 1955 NOSENKO was a case officer in the First Section, First Department, SCD. NOSENKO does not claim that he would have known the details concerning any recruitments (other than "ANDREY") in this period, but states if there had been he would have heard "something."
+(a) During March 1953-late May 1955 NOSENKO was a case officer in the First Section, First Department, SCD. NOSENKO does not claim that he would have known the details concerning any recruitments (other than "ANDREY") in this period, but states if there had been he would have heard "something."
 
 (b) During late May 1955 to December 1959 NOSENKO was in the Seventh Department, not the First Department, but continued to have contact with certain officers in the First Section, First Department. NOSENKO is of the opinion that if there had been a recruitment in the United States Embassy during this period he would have heard "something" even though he would probably have learned few details.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25832.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jose Rebelon
 

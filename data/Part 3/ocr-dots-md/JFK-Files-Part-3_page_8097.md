@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8097.png
-
-Convert to Markdown14. All memoranda and other materials in the possession of the FBI pertaining to the activities of the Intelligence Evaluation Committee.
+14. All memoranda and other materials in the possession of the FBI pertaining to the activities of the Intelligence Evaluation Committee.
 
 15. All memoranda and other materials pertaining to the decision by Assistant Attorney General Henry Petersen to terminate the Intelligence Evaluation Committee on June 11, 1973. (Further documents regarding the Intelligence Evaluation Committee were requested in the letter of the Chief Counsel to the Deputy Attorney General dated April 23, 1975. See Appendix A, Item 8.)
 

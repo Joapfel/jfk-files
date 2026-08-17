@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2086.png
-
-Convert to MarkdownHouse Select Committee on Assassinations
+House Select Committee on Assassinations
 
 Telephone Surveillances of SCLC
 

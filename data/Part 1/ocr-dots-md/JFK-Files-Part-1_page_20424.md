@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20424.png
-
-Convert to MarkdownSEC. 6. MOTHER-IN-LAW
+SEC. 6. MOTHER-IN-LAW
 
 FULL NAME TEANNETTE ELNER DAVIS
 First Middle Last

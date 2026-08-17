@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24514.png
-
-Convert to Markdown# LAS RELACIONES PELIGROSALES
+# LAS RELACIONES PELIGROSALES
 
 Cuando se anunció que nuestro país iba a establecer relaciones con los países socialistas, entendimos que dichas relaciones serían aprovechadas convenientemente desde el aspecto comercial, sin descartar por supuesto la vinculación de amistad que siempre robustece transacciones y mejora el cuadro de las necesidades y vital internacional.
 

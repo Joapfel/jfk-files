@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26565.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">4.09 JUIU</td></tr><tr><td>INDEX: ☐ YES ☐ NO</td><td class="CLASSIFIED MESSAGE"></td></tr><tr><td>CLASSIFY TO FILE NO.</td><td>TOTAL COPIES 15</td></tr><tr><td>D-REF TO FILE NO.</td><td rowspan="3" style="vertical-align: top; text-align: center;">SECRET<br/>PERSON/UNIT NOTIFIED</td></tr><tr><td>FILE ID ☐ REF. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ ID.</td></tr><tr><td>ASSEMB BY 3 PER FAD #1</td><td></td></tr><tr><th>ACTION</th><th>ADVANCE COPY</th><th>UNIT</th><th>TIME</th><th>BY</th></tr><tr><td>clbl 4</td><td>☑ RID COPY ☐ ....... ☐ .......</td><td></td><td></td><td></td></tr><tr><th>INFO</th><td colspan="4"></td></tr><tr><td>FILE VR, CIFI, CLWH 2, ACWHLC 5</td><td colspan="4"></td></tr></table>
 

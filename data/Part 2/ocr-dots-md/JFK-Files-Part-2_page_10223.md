@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10223.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">MEMORANDUM FOR:</td>
    </tr>

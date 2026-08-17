@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_70.png
-
-Convert to Markdown13-00000.
+13-00000.
 
 February 19, 1963
 

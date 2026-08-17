@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3002.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 CIA Internal Use Only
 Access Controlled by

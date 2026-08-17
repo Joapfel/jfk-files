@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7221.png
-
-Convert to Markdown27 July 1966
+27 July 1966
 
 CONTACT: RABOR, ORONSKY
 

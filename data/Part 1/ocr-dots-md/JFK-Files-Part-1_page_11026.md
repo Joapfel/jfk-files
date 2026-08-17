@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11026.png
-
-Convert to Markdown18 February 1963
+18 February 1963
 
 **EDUCATION RDR: Member of Trading**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17436.png
-
-Convert to MarkdownIDENTITIES
+IDENTITIES
 
 Iden A - President of Mexico
 

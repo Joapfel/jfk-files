@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13626.png
-
-Convert to Markdown7
+7
 
 Mr. Johnston. In my review of the file -- and I don't think
 we have the document here today, but my notes indicate there

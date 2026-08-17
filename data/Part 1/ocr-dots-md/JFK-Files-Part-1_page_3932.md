@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3932.png
-
-Convert to MarkdownAtt. 58 to UFGA-21693 dated ____
+Att. 58 to UFGA-21693 dated ____
 
 SUBJECT: *RAMIRO (mat. unk.), Hector UFGA · 21693/14
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2705.png
-
-Convert to Markdown8 - DEC 1961
+8 - DEC 1961
 
 MEMORANDUM FOR: William M. Kent
 SUBJECT : Commendation

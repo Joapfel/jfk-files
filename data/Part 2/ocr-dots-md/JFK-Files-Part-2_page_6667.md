@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6667.png
-
-Convert to MarkdownUnfortunately, and for reasons that I do not know, what we are dealing with is a mass of material that is not indexed, is uncatalogued, and is highly disorganized, all of which makes the review process more difficult. The material contains everything from the most sensitive intelligence sources to the most mundane news clippings.
+Unfortunately, and for reasons that I do not know, what we are dealing with is a mass of material that is not indexed, is uncatalogued, and is highly disorganized, all of which makes the review process more difficult. The material contains everything from the most sensitive intelligence sources to the most mundane news clippings.
 
 These records include documents that CIA had in its files before the assassination, a large number of records that CIA received later as routine disseminations from other agencies, as well as the reports, correspondence, and other papers that CIA prepared in the course of the assassination investigations. I should emphasize that these records were assembled into the present collection as a result of specific inquiries received from the Warren Commission or the House Select Committee on Assassinations.
 

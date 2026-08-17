@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14021.png
-
-Convert to Markdown**Application for Employment**
+**Application for Employment**
 
 FD-140 (Rev. 10-16-73)
 

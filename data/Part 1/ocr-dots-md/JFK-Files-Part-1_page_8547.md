@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8547.png
-
-Convert to Markdown21 Augst. t 1963
+21 Augst. t 1963
 
 CONTRIBUT
 SUBJECT: H.B.OCHT/

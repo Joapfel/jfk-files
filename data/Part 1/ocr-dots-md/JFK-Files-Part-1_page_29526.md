@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29526.png
-
-Convert to MarkdownCIA INTERNAL USE ONLY
+CIA INTERNAL USE ONLY
 
 11 December 1950
 

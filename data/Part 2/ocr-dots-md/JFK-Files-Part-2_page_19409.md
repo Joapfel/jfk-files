@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19409.png
-
-Convert to MarkdownPARTIAL LIST OF SPONSORS
+PARTIAL LIST OF SPONSORS
 
 Mrs. Harry Bellefonte
 Mrs. John C. Bennett

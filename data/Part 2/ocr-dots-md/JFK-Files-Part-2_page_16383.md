@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16383.png
-
-Convert to MarkdownHMH
+HMH
 2
 
 "POWER TO THE PEOPLE

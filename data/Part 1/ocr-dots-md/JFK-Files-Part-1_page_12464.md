@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12464.png
-
-Convert to Markdown<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HVCW-9636</td><td>26 JAN 1972</td></tr><tr><th colspan="2">CLASSIFICATION</th><th>NOS FILE NUMBER</th></tr><tr><td></td><td>SECRET</td><td>201-300985</td></tr></tbody></table>
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>HVCW-9636</td><td>26 JAN 1972</td></tr><tr><th colspan="2">CLASSIFICATION</th><th>NOS FILE NUMBER</th></tr><tr><td></td><td>SECRET</td><td>201-300985</td></tr></tbody></table>
 
 | | |
 |:---|:---|

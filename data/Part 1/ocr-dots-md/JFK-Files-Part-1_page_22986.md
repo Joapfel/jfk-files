@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22986.png
-
-Convert to Markdown13. Father - full name, occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
+13. Father - full name, occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
 
 Lesler Earl Crozier, Trucking business, Sterling Illinois, born 1900 in Palestine Illinois, U/S/ citizen with no subsequent nationalities.
 

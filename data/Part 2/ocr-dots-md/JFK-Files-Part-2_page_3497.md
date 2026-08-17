@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3497.png
-
-Convert to Markdown2.
+2.
 
 noted that Dr. Killian had seen it at the previous meeting. Mr. McCone went on to say that the Board should realize that the people in receipt of his cables had been receiving intelligence on an hour to hour basis.
 Mr. Clifford noted that the Director's messages would be of tremendous interest in any Congressional investigation and thought that the Board should have copies of them. Mr. McCone replied that he realized this and would supply copies.

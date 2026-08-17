@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8958.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 OPG : LOUIS P. NAPOLI:pk
 UNIT : WH/2 1687

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12792.png
-
-Convert to MarkdownCABLE SEC DSKED BY______ PER______ TOTAL CC______
+CABLE SEC DSKED BY______ PER______ TOTAL CC______
 PERSON/UNIT NOTIFIED______ S-E-C-H-E-T______ RUN______
 REPRODUCTION BY OTHER THAN
 ISSUING OFFICE IS PROHIBITED

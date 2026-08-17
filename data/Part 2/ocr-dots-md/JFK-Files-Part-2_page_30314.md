@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30314.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of the CIA. I am on a private contract, used as a consultant
 on counterintelligence of the Soviet KGB.

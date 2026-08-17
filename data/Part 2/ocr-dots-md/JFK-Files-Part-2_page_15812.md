@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15812.png
-
-Convert to Markdown# INDICT HANRAHAN !!
+# INDICT HANRAHAN !!
 
 Racist pig Edward V. Hanrahan has publicly justified the cold-blooded murder of two members of the Illbtanch of the Black Panther Party - Fred Hampton Deputy Chairman and Mark Clark. He has even gone so far as to praise his "mon" for their "bravery".
 

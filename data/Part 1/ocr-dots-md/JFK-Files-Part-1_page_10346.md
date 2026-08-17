@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10346.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>CABLE SECRETARIAT DISSEMINATION</th>

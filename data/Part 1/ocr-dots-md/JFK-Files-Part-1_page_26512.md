@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26512.png
-
-Convert to Markdownphone is under surveillance. He can use the same Rolando and address me in the familiar form ["ti"], as an old friend who has come in from the provinces. Then I shall look for him and try to find a way to solve the problems he may have.
+phone is under surveillance. He can use the same Rolando and address me in the familiar form ["ti"], as an old friend who has come in from the provinces. Then I shall look for him and try to find a way to solve the problems he may have.
 
 As to this matter of Rolando's health I think it is very important to discard the "theory" that it is nothing serious, etc., which he himself is spreading about. I do not think this situation can be allowed to remain indefinitely, with him in poor health. I have talked about this to the comrades in the PRT here, although it looks as though they are not very fond of him for the time being--and of course that makes sense--and they have promised to take care of the matter. I have also asked Comandante Adan as commander-in-chief to do something about the problem. I think it would be useful, do you not? [phrase blurred].
 

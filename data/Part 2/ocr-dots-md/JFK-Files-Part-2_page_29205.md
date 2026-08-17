@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29205.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 January 11, 1967
 

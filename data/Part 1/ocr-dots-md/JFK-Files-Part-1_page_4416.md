@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_4416.png
-
-Convert to MarkdownCA/4's interest, obviously, is to protect project KNOCHROID, our proprietary fund in Philadelphia which mutsdx would pay for the training, from becoming tarnished in liberal Latin American circles by sponsoring Cubans who lack qualifications as in the rural labor field but are overqualified as guerrilla warriors.
+CA/4's interest, obviously, is to protect project KNOCHROID, our proprietary fund in Philadelphia which mutsdx would pay for the training, from becoming tarnished in liberal Latin American circles by sponsoring Cubans who lack qualifications as in the rural labor field but are overqualified as guerrilla warriors.
 
 Meanwhile, any comments you might have on Artine's candidates would be appreciated, and we wish to thank you for your help in keeping informed of George's next moves.

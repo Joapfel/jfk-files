@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12925.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Salvador ROMANI ORUF Garcia, a Cuban exile who is a journalist in Caracas, has been reported by an untested Caracas Station source to be suspected by Cuban Embassy officials as involved in the plane crash. Their suspicion is based on the fact Romani was seen surveilling a Caracas hotel occupied by members of a Cuban fencing team, who subsequently were killed in the crash. Romani was employed by Caracas Station from September 1960 until December 1966 as a writer and press placement asset in the Station's anti-Castro propaganda campaign. His termination was somewhat less than amicable, but in March of 1967 Romani was paid a termination bonus and signed a quit claim.
 

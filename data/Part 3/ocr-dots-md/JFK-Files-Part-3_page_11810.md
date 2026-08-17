@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11810.png
-
-Convert to MarkdownAdequacy of Personnel
+Adequacy of Personnel
 New Left Section 6-E
 
 of necessity, include several organizations currently handled by this Section. Based on past experience, the preparation of a case for presentation before the SACB requires the services of one supervisor on a full-time basis. No request is being made at this time for additional Agent personnel. However, based on the above, it appears that a request for one additional Agent will be necessary when the above proceedings are instituted.

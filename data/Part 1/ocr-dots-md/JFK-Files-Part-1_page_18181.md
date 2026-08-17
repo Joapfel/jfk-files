@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18181.png
-
-Convert to Markdown9 December 1959
+9 December 1959
 
 ME GRANDIN FOR: FI - Projects Branch
 SUBJECT : Purchase of one Automobile and Increase of LIEMTY TVA by One

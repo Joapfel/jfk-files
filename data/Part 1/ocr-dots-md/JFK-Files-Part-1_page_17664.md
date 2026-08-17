@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17664.png
-
-Convert to MarkdownPROJECT OUTLINE
+PROJECT OUTLINE
 
 COPYING LIFRAT
 

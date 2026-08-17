@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27314.png
-
-Convert to Markdown26 JUL 1960
+26 JUL 1960
 
 MEMORANDUM FOR: Director of Personnel
 

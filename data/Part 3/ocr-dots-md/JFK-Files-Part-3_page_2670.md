@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2670.png
-
-Convert to Markdown1 or a viable intent.
+1 or a viable intent.
 
 2 Mr. Schwarz. So that's what you're looking for in the
 3 intelligence investigation?

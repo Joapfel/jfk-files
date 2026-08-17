@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35296.png
-
-Convert to MarkdownPROPAGANDA
+PROPAGANDA
 
 Annex "I-A"
 

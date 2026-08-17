@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12280.png
-
-Convert to Markdown4. Statements
+4. Statements
 
 a. A subfile is recorded on each formant who submits statements, written for oral, except espionage or foreign nationality matters where a subfile is accessed only in those instances involving possible prosecution. The original of each statement, whether personally written by the informant or furnished orally and reduced to writing by contacting Agent, should be filed in his subfile. Executed form FD-306 or a channelizing memorandum containing all applicable items set forth on form FD-306 should be stapled with the original of each such statement.
 

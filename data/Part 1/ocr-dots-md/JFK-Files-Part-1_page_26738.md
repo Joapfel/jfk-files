@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26738.png
-
-Convert to Markdown# keel 72-KICO-27
+# keel 72-KICO-27
 
 2 May 1963
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28753.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td rowspan="2">TELEPHONE REQUEST FOR RECORDS OR INFORMATION</td>
     <th>DATE OF REQUEST</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11599.png
-
-Convert to MarkdownIV. Counterintelligence and Special Operations
+IV. Counterintelligence and Special Operations
 
 In this category, on a highly selective basis we take initiative in actions which are designed to disrupt, deter or otherwise disadvantage the operations of SBIS. We employ our own resources and whenever feasible, those of other U. S. agencies. Brief examples of activity in this category since the last inspection are set forth.
 

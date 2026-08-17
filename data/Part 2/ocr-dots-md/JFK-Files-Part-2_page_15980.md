@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15980.png
-
-Convert to MarkdownOn January 6, 1969, Central Committee of the BPP at Chicago met and decided to conduct no activity or attempt to recruit members from BR territory. BPP leaders do not plan, as of this time, to meet with JEFF FORT or any members of BR.
+On January 6, 1969, Central Committee of the BPP at Chicago met and decided to conduct no activity or attempt to recruit members from BR territory. BPP leaders do not plan, as of this time, to meet with JEFF FORT or any members of BR.
 
 1/6/69)
 

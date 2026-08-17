@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8658.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CSI NO. 10-5
 

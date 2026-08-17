@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34421.png
-
-Convert to Markdownbut somewhat aggressive. He was again contacted in 1962 for briefing subsequent to a US visit of a Soviet counterpart.
+but somewhat aggressive. He was again contacted in 1962 for briefing subsequent to a US visit of a Soviet counterpart.
 
 10. **Relative or Best Friends in Allied Armies:** Subject's wife was born in Sofia, Bulgaria. She now reportedly holds US citizenship. In November 1964 subject managed to arrange for immigration to the US of his author-in-law, Israel's Mosadieh. After a short stay in this country, however, she returned to her home in Sofia in March 1965. In addition to his author-in-law, presumably there are other relatives of his wife still living in Bulgaria.
 

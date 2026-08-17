@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6600.png
-
-Convert to Markdown13-00000
+13-00000
 
 (6) Lt. Col. Patchell brought up comparison between Hitler's speech after the unsuccessful Beer Hall Pustch and Castro's "History Will Absolve Me Speech" following his abortive attempt. CIA will look into this -- both for research and whether suitable for propaganda purposes.
 

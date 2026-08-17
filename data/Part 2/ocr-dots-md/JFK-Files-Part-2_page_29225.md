@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29225.png
-
-Convert to MarkdownDEPARTMENT OF POLICE
+DEPARTMENT OF POLICE
 INTEROFFICE CORRESPONDENCE
 
 TO : Major Presly J. Trosclair Jr. DATE August 12, 1963

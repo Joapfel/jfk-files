@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4847.png
-
-Convert to MarkdownSECRET
+SECRET
 
 take on this kind of stuff. You've got to play games with
 these guys on the Hill. You've got to wine them and dine them

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25357.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: MIKE MADIGAN
 TOM MOORE

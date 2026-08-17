@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20804.png
-
-Convert to Markdown# ADMINISTRATIVE
+# ADMINISTRATIVE
 
 ## Internal Use Only
 

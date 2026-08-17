@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4312.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY,
 
 - J -

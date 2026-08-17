@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35181.png
-
-Convert to Markdown# STATEMENT OF EXPENDITURE
+# STATEMENT OF EXPENDITURE
 
 ## AGENCY "A"
 Page 1 of 14

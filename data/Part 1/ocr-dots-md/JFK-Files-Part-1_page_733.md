@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_733.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM</td><td>P.O. BOX 563</td></tr><tr><td>TOTAL COPIES:</td><td>25</td></tr><tr><td colspan="2">SECRET</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2436.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In 1964, NOSENKO had given two dates in 1952 as his time of entry into the KGB in an effort not to admit that he had failed to graduate from the Institute of International Relations in 1949.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14202.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>DISPATCH</td></tr><tr><td>CLASSIFICATION</td></tr><tr><td>SECRET</td></tr><tr><td>STYLE OF LETTER</td></tr><tr><td>MARKED FOR DISTRIBUTION</td></tr><tr><td>NO DISTRIBUTION REQUIRED</td></tr><tr><td>ONLY QUALIFIED OFFICERS MAY ACCESS</td></tr><tr><td>EXTERIOR</td></tr></table>
 

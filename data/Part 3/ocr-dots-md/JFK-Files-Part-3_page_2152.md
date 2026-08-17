@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2152.png
-
-Convert to MarkdownYour prompt attention to this matter will be greatly
+Your prompt attention to this matter will be greatly
 appreciated.
 
 GRB:mea

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7243.png
-
-Convert to MarkdownValentin F. Lequignon.
+Valentin F. Lequignon.
 Consul General de la Embajada de la U. S. A.
 U.S. Consul General de la U.S.A.
 

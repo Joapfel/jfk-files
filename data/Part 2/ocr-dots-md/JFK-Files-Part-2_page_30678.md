@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30678.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Langelle
 L'Angeli was born on October 7/92.

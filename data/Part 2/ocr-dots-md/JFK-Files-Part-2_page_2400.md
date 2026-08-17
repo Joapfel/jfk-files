@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2400.png
-
-Convert to MarkdownSEC. 10. RELATIVES BY BLOOD OR MARRIAGE, IN MILITARY, NAVAL OR OTHER GOV'T SERVICE — U.S. OR FOREIGN:
+SEC. 10. RELATIVES BY BLOOD OR MARRIAGE, IN MILITARY, NAVAL OR OTHER GOV'T SERVICE — U.S. OR FOREIGN:
 
 <table><thead><tr><th>NAME</th><th>RELATIONSHIP</th><th>AGE</th></tr></thead><tbody><tr><td>NATIONALITY</td><td>ADDRESS<br/>St. & No.</td><td>City<br/>State<br/>Country</td></tr><tr><td colspan="3">REASON FOR LISTING UNDER THIS QUESTION</td></tr></tbody></table>
 

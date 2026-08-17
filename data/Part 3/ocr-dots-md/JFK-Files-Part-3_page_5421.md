@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5421.png
-
-Convert to Markdownall such activity was terminated with the exception of
+all such activity was terminated with the exception of
 a small amount of actions which were conducted in connection
 with foreign counterintelligence investigations which we
 felt had a grave impact upon the security of the Nation.

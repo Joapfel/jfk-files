@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10307.png
-
-Convert to Markdown14-00050
+14-00050
 
 nuestra, 8 de octubre,
 1963.

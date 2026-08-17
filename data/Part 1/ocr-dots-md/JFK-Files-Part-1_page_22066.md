@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22066.png
-
-Convert to Markdownabout it because the foreign Legal Residencies of the KGB First Chief Directorate would not accept a request for operational action against an American diplomat coming from Moscow.
+about it because the foreign Legal Residencies of the KGB First Chief Directorate would not accept a request for operational action against an American diplomat coming from Moscow.
 
 In February 1965 NOSENKO was asked a number of times whether he knew of any occasions on which ABIDIAN took trips in the Soviet Union outside of Moscow. He replied each time that he knew of no such trips and that if ABIDIAN had made such a trip or trips he would have known of them and would remember them as it would have been his responsibility as case officer to take certain actions. Among the latter he listed:
 

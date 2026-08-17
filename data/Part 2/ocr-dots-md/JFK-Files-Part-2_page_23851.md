@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23851.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Bader. How do you feel about this, Joe?
 

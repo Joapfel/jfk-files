@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8765.png
-
-Convert to MarkdownContinent must be the target of our guns, from New York and Washington to Santiago de Chile and Buenos Aires." On 2 Jan 61 CASTRO asked Latin Americans to take arms against their own governments; on 26 July 62 he demanded a continental revolutionary drive; in 1963 he predicted that Venezuela and Guatemala would surrender the said year. CASTRO's sister Juana (Juanita) arrived in Mexico City from Cuba on 20 June 64. Although she was considered a defector of the CASTRO regime, she had been an agent (CIA) for the prior two and a half years.
+Continent must be the target of our guns, from New York and Washington to Santiago de Chile and Buenos Aires." On 2 Jan 61 CASTRO asked Latin Americans to take arms against their own governments; on 26 July 62 he demanded a continental revolutionary drive; in 1963 he predicted that Venezuela and Guatemala would surrender the said year. CASTRO's sister Juana (Juanita) arrived in Mexico City from Cuba on 20 June 64. Although she was considered a defector of the CASTRO regime, she had been an agent (CIA) for the prior two and a half years.
 
 AMPUNCH Project 19-6-118/2,3,4
 

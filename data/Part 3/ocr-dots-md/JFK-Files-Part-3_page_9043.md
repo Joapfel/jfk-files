@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9043.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>If the woman is correct, police investigators conceded, it could well force them to revise their current theories about the case.</td>
    </tr>

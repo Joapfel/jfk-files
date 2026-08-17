@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8639.png
-
-Convert to Markdown9. Supervisor's comments (continued)
+9. Supervisor's comments (continued)
 
 3. If he had been looking for me, it could be that he has been asked to step in where Val failed. That is, as an American friend, I never invited Val to my home. He never met other Americans through me. Note, however, that he never invited me to his home either--though he did invite us frequently to various events which were under the auspices of the Soviet embassy. We did not but rarely accept, One such occasion was the Moscow circus.
 

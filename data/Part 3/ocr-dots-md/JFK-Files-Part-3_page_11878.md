@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11878.png
-
-Convert to MarkdownIn conclusion, it is my studied judgement that
+In conclusion, it is my studied judgement that
 there is no necessity for augmenting the requirement
 concerning FD-302s in the various Manuals presently being
 utilized in the FBI.

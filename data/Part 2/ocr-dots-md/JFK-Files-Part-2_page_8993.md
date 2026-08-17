@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8993.png
-
-Convert to Markdown--En la Ciudad de México, Distrito Federal, siendo las
+--En la Ciudad de México, Distrito Federal, siendo las
 
 11.00 once horas del día 29 veintinueve de Noviembre de 1963 mil novecientos sesenta y tres, el suscrito Capitán FERNANDO GUTIÉRREZ BARRIOS, Subdirector de la Dirección Federal de Seguridad, con el que acuerda legalmente con testigos de asistencia, HA CE CONSTAR: Que habiendo sido presentado en esta Oficina el证人呈告书所载的被告在案，经审阅后，即予署名、 Veredas, &c., &c. &c., &c., se procedió a levantar la presente acta.
 

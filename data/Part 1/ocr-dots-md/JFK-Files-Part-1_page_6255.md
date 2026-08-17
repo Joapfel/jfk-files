@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6255.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "LIBERATED BY THE COMMUNISTS"
 Graphic Evidence of Marxist Lies

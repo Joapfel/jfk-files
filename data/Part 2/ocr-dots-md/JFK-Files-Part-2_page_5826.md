@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5826.png
-
-Convert to MarkdownER 95-8097
+ER 95-8097
 
 6 April 1995
 

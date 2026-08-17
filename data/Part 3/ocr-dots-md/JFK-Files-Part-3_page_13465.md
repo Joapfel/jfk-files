@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13465.png
-
-Convert to Markdown1 in to institute some privacy in the mails. I will try and get
+1 in to institute some privacy in the mails. I will try and get
 2 some citations on that for the staff to look at. But this is
 3 not new in our history.
 

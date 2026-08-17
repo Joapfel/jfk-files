@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9987.png
-
-Convert to Markdown2.
+2.
 
 returned. L/3 has admitted to Rowton that he had revealed to Sergio Valdez and Enrique Horales that he has a business issue who finances him in certain commercial ventures, but swears that he has never revealed Rowton's alias to anyone ( this can most effectively be checked in an EQUATE examination).
 

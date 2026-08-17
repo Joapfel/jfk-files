@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30482.png
-
-Convert to Markdown1-57
+1-57
 
 Mr. Shaw. The photographs were squared off and were annotated. We knew the day. We knew, usually, morning or afternoon, a.m. or p.m. Sometimes you could judge by the sequence.
 

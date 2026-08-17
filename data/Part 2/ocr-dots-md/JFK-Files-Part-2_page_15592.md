@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15592.png
-
-Convert to Markdown**In Re:Reply, Please Refer to File No.**
+**In Re:Reply, Please Refer to File No.**
 
 Chicago, Illinois
 November 26, 1969

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10318.png
-
-Convert to Markdownhide any pure we might here been carrying "under the pretence" since
+hide any pure we might here been carrying "under the pretence" since
 the military would search the bus. Just then we saw a can glass us
 a rather high speed car recognized the Conyul in the driver's seat.
 Iden A's previousness joined him again and he showed into by hand

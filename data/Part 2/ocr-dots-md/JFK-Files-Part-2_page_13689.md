@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13689.png
-
-Convert to MarkdownEYES ALONE
+EYES ALONE
 
 THE DIRECTOR OF CENTRAL INTELLIGENCE
 

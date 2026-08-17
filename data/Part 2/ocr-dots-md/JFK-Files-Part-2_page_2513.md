@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2513.png
-
-Convert to MarkdownSECRET
+SECRET
 
 commitments to him regarding a house is more explicitly documented in a 14 August 1972 memorandum for the file from the Deputy Chief, Security Research Group, which quotes PDDONOR/1 as saying that he "considers that the assistance in purchasing furniture, a house, etc. which he has been given since 1969 should be considered as cancelling the matter of the $50,000". (Emphasis added).
 

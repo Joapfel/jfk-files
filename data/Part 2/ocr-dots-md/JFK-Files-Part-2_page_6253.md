@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6253.png
-
-Convert to Markdown# FOR OFFICIAL USE ONLY
+# FOR OFFICIAL USE ONLY
 
 (draft)
 

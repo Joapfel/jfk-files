@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20833.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 TO: DIRECTOR, FBI (100-468406)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3178.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 forcefully as being sure their host would object.
 

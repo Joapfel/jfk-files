@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21670.png
-
-Convert to Markdown157-10005-10224
+157-10005-10224
 
 Date: 10/01/93
 Page: 1

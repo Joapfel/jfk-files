@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25980.png
-
-Convert to Markdownmet them,¹ I didn't get in on that. The one person who ~~has~~ would have [William P.] would probably be Bill Bundy, (William P. ~) ~~Bundy~~ who I know at the time was discussing this with them.
+met them,¹ I didn't get in on that. The one person who ~~has~~ would have [William P.] would probably be Bill Bundy, (William P. ~) ~~Bundy~~ who I know at the time was discussing this with them.
 
 O'BRIEN: Did you have his f... ... at that point?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7400.png
-
-Convert to Markdown21 February 1974
+21 February 1974
 
 MEMORANDUM FOR THE RECORD
 

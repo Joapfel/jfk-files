@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18466.png
-
-Convert to MarkdownF. Clandestine Informant Activities
+F. Clandestine Informant Activities
 
 The Committee is examining all aspects of the FBI's use of informants, sources, and undercover personnel and the techniques employed by such persons. Although informants are the single most productive source of intelligence information, the difficulties of controlling their activities may increase the possibility of improper conduct. The use of informants to infiltrate organizations also may pose dangers to the right of associational privacy. Consequently, proposals have been made for the imposition of a judicial warrant requirement or other safeguards for the use of informants. The Committee seeks to evaluate such proposals as well as the contributions of informants to the accomplishment of legitimate objectives.
 

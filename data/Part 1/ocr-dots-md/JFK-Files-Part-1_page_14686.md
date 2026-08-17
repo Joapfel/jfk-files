@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14686.png
-
-Convert to MarkdownC C G H T 1-10% MAY BE DUE W/1.19 (CHECKER ACTING)
+C C G H T 1-10% MAY BE DUE W/1.19 (CHECKER ACTING)
 
 DIVISION 1995 MADRID
 

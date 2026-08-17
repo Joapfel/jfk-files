@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24492.png
-
-Convert to Markdown# Los Secuestreros, Clave de Simiestro Plan Comunista
+# Los Secuestreros, Clave de Simiestro Plan Comunista
 
 ## Denuncian Actividades en Colombia
 

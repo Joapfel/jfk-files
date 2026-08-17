@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1574.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Yurily Ivanovich NOSENKO
 

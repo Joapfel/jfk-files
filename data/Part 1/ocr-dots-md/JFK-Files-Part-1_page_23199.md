@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23199.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Harold B. Roemayr (P)
 Washington, D.C.

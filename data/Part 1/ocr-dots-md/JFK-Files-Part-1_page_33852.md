@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33852.png
-
-Convert to MarkdownApril 2, 1952
+April 2, 1952
 
 Mr. Visoiam called at his request to inform us of the high
 lights of his recent trip to Europe. He had first attended the

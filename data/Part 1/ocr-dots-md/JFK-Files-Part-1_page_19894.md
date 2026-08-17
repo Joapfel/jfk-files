@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19894.png
-
-Convert to Markdown14-0000
+14-0000
 
 PP MacDougall/lvr
 WH/Personnel

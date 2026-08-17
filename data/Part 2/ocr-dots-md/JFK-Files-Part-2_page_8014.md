@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8014.png
-
-Convert to MarkdownIn 1969 Lums purchased the Ceasar's Palace Hotel and Casino in Las Vegas for $60,000,000. A month later the Nevada state gambling authorities were looking into the hotels' "catering to twelve underworld figures from Kansas City".
+In 1969 Lums purchased the Ceasar's Palace Hotel and Casino in Las Vegas for $60,000,000. A month later the Nevada state gambling authorities were looking into the hotels' "catering to twelve underworld figures from Kansas City".
 
 A few months after the purchase the SEC filed suit charging Lums and Ceasar's Palace with "false and misleading" statements. The SEC wondered how Ceasar's managed to lose $1,000,000 in five months when the previous year (before Lums bought in) there was a $2,200,000 profit for a comparable time period.
 

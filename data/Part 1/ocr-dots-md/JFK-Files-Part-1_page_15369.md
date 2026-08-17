@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15369.png
-
-Convert to MarkdownAttachment to Dispatch No. UAPA-0099
+Attachment to Dispatch No. UAPA-0099
 
 MEMORANDUM FOR THE RECORD
 

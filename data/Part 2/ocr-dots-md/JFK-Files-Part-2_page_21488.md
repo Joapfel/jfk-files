@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21488.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>RECEIPT NO.</td>
     <td>21,326</td>

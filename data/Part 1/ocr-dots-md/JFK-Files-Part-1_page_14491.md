@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14491.png
-
-Convert to Markdown<table><tr><td>5</td></tr><tr><td>4</td></tr><tr><td>3</td></tr><tr><td>2</td></tr><tr><td>1</td></tr></table>
+<table><tr><td>5</td></tr><tr><td>4</td></tr><tr><td>3</td></tr><tr><td>2</td></tr><tr><td>1</td></tr></table>
 
 U Y&S
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22065.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 (See the 13 names listed below)
 

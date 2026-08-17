@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29390.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TECHNICAL SERVICES DIVISION -- TECHNICAL SCHOOL.
 

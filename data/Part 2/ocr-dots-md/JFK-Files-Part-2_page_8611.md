@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8611.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Where more than one Division is involved, a single coordinated reply may be provided. If there are any questions, please contact the writer on x1542.
 

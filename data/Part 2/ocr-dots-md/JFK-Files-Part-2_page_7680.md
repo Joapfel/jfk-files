@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7680.png
-
-Convert to Markdown13-00000
+13-00000
 
 (Commission Exhibits Nos. 868 and 869 were marked for identification and received in evidence.)
 

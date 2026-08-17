@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10756.png
-
-Convert to MarkdownPH 52-7165 SUB 8
+PH 52-7165 SUB 8
 
 the inside of his right wrist which revealed a small abrasion or our which was obviously a small amount of blood.
 

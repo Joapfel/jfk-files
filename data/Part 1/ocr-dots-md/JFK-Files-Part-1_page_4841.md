@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4841.png
-
-Convert to MarkdownCONF: 0300 0000
+CONF: 0300 0000
 
 SECRET
 

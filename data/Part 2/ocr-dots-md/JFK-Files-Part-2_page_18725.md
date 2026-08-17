@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18725.png
-
-Convert to Markdown<table><tr><td>FBI</td></tr><tr><td>Date: 7/8/59</td></tr><tr><td>Transmit the following in</td></tr><tr><td>(Type in plain text or code)</td></tr><tr><td>Via AIRTEL</td></tr><tr><td>(Priority or Method of Mailing)</td></tr></table>
+<table><tr><td>FBI</td></tr><tr><td>Date: 7/8/59</td></tr><tr><td>Transmit the following in</td></tr><tr><td>(Type in plain text or code)</td></tr><tr><td>Via AIRTEL</td></tr><tr><td>(Priority or Method of Mailing)</td></tr></table>
 
 NY 134-3315
 

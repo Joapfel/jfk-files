@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21575.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (d) NOSENKO claimed personal contact with [Edmund STEVENS] who, according to NOSENKO, had been recruited by the KGB. (NOSENKO actually had never personally met [STEVENS] and only had seen [STEVENS] once at a distance.)
 

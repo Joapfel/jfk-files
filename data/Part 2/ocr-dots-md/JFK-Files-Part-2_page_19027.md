@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19027.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SAMUEL ADASOM JAFFE
 

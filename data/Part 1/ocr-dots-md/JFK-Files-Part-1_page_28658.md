@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28658.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 <table><thead><tr><th colspan="6">SECTION VIII<br>GEOGRAPHIC AREA KNOWLEDGE</th></tr><tr><td rowspan="2">NAME OF REGION OR COUNTRY</td><td rowspan="2">TYPE OF SPECIALIZED KNOWLEDGE</td><td rowspan="2">DATES OF RESIDENCE, TRAVEL, ETC.</td><th colspan="3">KNOWLEDGE ACQUIRED BY</th><td rowspan="2">WORK ASSIGNMENT</td></tr><tr><th>RESIDENCE</th><th>TRAVEL</th><th>STUDY</th></tr></thead><tbody><tr><td>France, Switzerland</td><td>political affairs, history, geography</td><td>1926-28, 47-50</td><td>X</td><td>X</td><td>X</td><td></td></tr><tr><td>West of Western Europe and Central Europe</td><td>"</td><td>1947-50</td><td></td><td>X</td><td>X</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

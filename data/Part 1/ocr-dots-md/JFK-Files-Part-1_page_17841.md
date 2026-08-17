@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17841.png
-
-Convert to Markdown25 April 1968
+25 April 1968
 
 MEMORANDUM FOR: DDP/MPS
 VIA: WH/LOG

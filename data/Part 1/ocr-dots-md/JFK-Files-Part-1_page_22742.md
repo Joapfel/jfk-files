@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22742.png
-
-Convert to MarkdownAl:
+Al:
 
 12 July 1963
 

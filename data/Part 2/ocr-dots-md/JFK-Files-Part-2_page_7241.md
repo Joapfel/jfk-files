@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7241.png
-
-Convert to Markdown13-0000Q
+13-0000Q
 
 T 333576 EIA022
 

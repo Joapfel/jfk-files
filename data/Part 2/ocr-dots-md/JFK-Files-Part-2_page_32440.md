@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32440.png
-
-Convert to Markdownfact, that Juliao's Peasant Leagues have received not only money but also
+fact, that Juliao's Peasant Leagues have received not only money but also
 shipments of small arms from Cuba. These Brazilian Communist leaders also
 said that the reason Juliao sent his family to Cuba was his fear that they
 might be endangered in the civil war he expects to erupt shortly in Brazil.

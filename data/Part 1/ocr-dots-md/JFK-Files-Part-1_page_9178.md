@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9178.png
-
-Convert to Markdown21 May 1951
+21 May 1951
 
 If you decide you really need any of these, please let us know promptly, citing the X12 number, so I can get the necessary permission.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15401.png
-
-Convert to MarkdownSAC, WFO
+SAC, WFO
 
 December 4, 1959
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24703.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 11 September 1976
 

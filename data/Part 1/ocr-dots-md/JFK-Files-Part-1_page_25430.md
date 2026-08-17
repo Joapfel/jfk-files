@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25430.png
-
-Convert to MarkdownA-04-61-88
+A-04-61-88
 
 HUGH C. McDONALD
 

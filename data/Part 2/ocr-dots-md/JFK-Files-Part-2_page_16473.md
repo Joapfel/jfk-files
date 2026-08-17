@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16473.png
-
-Convert to Markdownvided, confused, fighting among ourselves, we are still
+vided, confused, fighting among ourselves, we are still
 in the elementary stage of throwing rocks, sticks, empty
 wine bottles and beer cans at racist cops who lie in wait
 for a chance to murder unarmed Black people. The racist

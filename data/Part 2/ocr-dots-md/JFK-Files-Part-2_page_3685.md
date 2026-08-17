@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3685.png
-
-Convert to Markdown13-00000
+13-00000
 
 NLJ 94-484 (#8)
 

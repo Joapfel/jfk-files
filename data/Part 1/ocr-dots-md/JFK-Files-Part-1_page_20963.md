@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20963.png
-
-Convert to Markdowncontemplating a series of lectures on Latin America to be given in various cities within the United States.
+contemplating a series of lectures on Latin America to be given in various cities within the United States.
 
 (c) Mr. Langevin would be ready and able to accept a field assignment in South America following the conclusion of the period of Headquarters' duty referred to.
 

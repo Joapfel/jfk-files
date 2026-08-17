@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25826.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The following films were exhibited and critiqued:
 

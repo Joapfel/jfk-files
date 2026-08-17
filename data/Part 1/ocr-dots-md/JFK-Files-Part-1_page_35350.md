@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35350.png
-
-Convert to Markdown# COUNTY COMMISSIONERS
+# COUNTY COMMISSIONERS
 
 ## FEBRUARY
 ### 1951

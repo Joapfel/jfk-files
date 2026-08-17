@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6243.png
-
-Convert to MarkdownS
+S
 
 TRAINED, MEETING ENDED ON FRIENDLY AND BUSINESSLIKE NOTE.
 

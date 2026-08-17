@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32319.png
-
-Convert to Markdowninto Ecuador. Ship movement information had been provided to the
+into Ecuador. Ship movement information had been provided to the
 US Naval Attache Bogota by the District Intelligence Officer of the
 Fifteenth Naval District. There was no apparent involvement of
 Cuban arms or Cuban trained personnel in this instance.

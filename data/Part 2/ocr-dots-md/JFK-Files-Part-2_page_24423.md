@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24423.png
-
-Convert to Markdownhotel bill during his stay in Miami in October 1960.* The CIA's involvement with Roselli caused the Agency some difficulty during Roselli's subsequent prosecutions for fraudulent gambling activities and living in the country under an assumed name.**
+hotel bill during his stay in Miami in October 1960.* The CIA's involvement with Roselli caused the Agency some difficulty during Roselli's subsequent prosecutions for fraudulent gambling activities and living in the country under an assumed name.**
 
 (d) Plans in Early 1963
 

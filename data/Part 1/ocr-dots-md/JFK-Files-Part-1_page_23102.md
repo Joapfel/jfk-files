@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23102.png
-
-Convert to MarkdownSECRET
+SECRET
 
 VOLUME II OF II
 JANUARY 1966 Thru

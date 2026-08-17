@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30286.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 consisted of periodic checks of his places of employment,
 inquiries of neighbors and associates, and review of his mail."

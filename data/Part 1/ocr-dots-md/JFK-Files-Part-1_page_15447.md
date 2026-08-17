@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15447.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1.00 FOR THE RECORD:
 

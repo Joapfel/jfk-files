@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9533.png
-
-Convert to MarkdownOCCUPATION ____ NA ____ LAST EMPLOYER ____ NA ____
+OCCUPATION ____ NA ____ LAST EMPLOYER ____ NA ____
 EMPLOYER'S OR OWN BUSINESS ADDRESS ____ St. & No. ____ City ____ State ____ Country
 MILITARY SERVICE FROM ____ TO ____ BRANCH OF SERVICE ____
 COUNTRY ____ DETAILS OF OTHER GOVT SERVICE, U.S. OR FOREIGN.

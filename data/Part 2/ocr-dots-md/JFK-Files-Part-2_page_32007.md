@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32007.png
-
-Convert to MarkdownDate : 08/19/98
+Date : 08/19/98
 Page : 1
 
 # JFK ASSASSINATION SYSTEM IDENTIFICATION FORM

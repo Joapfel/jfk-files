@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5877.png
-
-Convert to Markdown**23 September 1998**
+**23 September 1998**
 
 **MEMORANDUM FOR:**
 Robert M. McNamara@DCI

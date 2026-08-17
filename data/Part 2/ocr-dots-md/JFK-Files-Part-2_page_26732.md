@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26732.png
-
-Convert to MarkdownQ. And again with particular reference to the Miami area?
+Q. And again with particular reference to the Miami area?
 
 A. Yes.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23609.png
-
-Convert to MarkdownVIA:
+VIA:
 
 (SPECIFY AIR OR SEA POOR)
 

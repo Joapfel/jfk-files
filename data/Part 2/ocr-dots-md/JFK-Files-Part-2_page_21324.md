@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21324.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 6/30/61, Ralph Huquet, former officer in the Cuban Rebel Air Force, advised that Eloy Gutierrez Menoyo and Max Edgardo Lesnick Menendez (105-64869) resided with him at the Blue Bay Motel, Normandy Isle, Miami Beach, Fla. Gutierrez desired to come to the Miami Office for an interview. Huquet advised that his knowledge, neither Lesnick nor Gutierrez were involved in any activity or in any way connected with the current Cuban government.
 

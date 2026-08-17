@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4059.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 Automobile
 (Cont'd)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27021.png
-
-Convert to MarkdownMr. William E. Colby
+Mr. William E. Colby
 
 June 26, 1975
 

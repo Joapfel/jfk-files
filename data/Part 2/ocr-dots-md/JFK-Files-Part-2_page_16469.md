@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16469.png
-
-Convert to Markdown# INTRODUCTION
+# INTRODUCTION
 
 "Essays From the Minister of Defense" is a collection of truths, principles and beliefs practiced by the Black Panther Party. The writings come from the pen of Huey Newton, the Minister of Defense of the Black Panther Party but the spirit of the writings, the faith expressed and the undying love for black people exhibited therein comes from the souls of colonized black people. The people are the heroes.
 

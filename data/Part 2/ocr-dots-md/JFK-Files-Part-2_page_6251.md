@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6251.png
-
-Convert to Markdown7 [WUBONBON] Operations FY 65 folder 25
+7 [WUBONBON] Operations FY 65 folder 25
 
 Contains two memos for the Records by Hunt re 8/8/63 meetings
 

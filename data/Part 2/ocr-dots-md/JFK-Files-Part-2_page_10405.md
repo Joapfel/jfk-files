@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10405.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of
+SUBJECT: Sensitive Activities Performed by the Office of
 Logistics
 
 Executive Fellowship. The book is entitled "Where's

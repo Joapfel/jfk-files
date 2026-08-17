@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9002.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 17 JUL. 61</td>
     <td>032</td>

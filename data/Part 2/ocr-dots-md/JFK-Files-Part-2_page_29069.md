@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29069.png
-
-Convert to MarkdownSchedule D (Form 1040) 1973
+Schedule D (Form 1040) 1973
 
 PartV Capital Loss Limitation—Where Losses Are Shown on Both Lines 12(a) AND 13
 

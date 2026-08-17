@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11540.png
-
-Convert to MarkdownInvestigation at Washington, D. C., has pinned down Ellsberg's access to the documents in question and has additionally revealed his early change from "hawk" to "dove." It has also revealed his contacts with individuals at high levels in Federal Government attempting to persuade them to put before American public details of decisions underlying the U. S. policy in Vietnam.
+Investigation at Washington, D. C., has pinned down Ellsberg's access to the documents in question and has additionally revealed his early change from "hawk" to "dove." It has also revealed his contacts with individuals at high levels in Federal Government attempting to persuade them to put before American public details of decisions underlying the U. S. policy in Vietnam.
 
 Investigation at Boston has uncovered activity by Neil and Susan Sheehan, employees of "The New York Times," in late March, 1971. This activity has included extensive details of sessions where duplication of portions of the "McNamara Study" were involved. Revealed have been details identifying the printing companies utilized by the Sheehans, considerable travel between these companies and apartments available to or utilized by Ellsberg. We have uncovered extensive detail of Ellsberg's contacts from his Cambridge, Massachusetts, residence with members of the news media. Also revealed has been contact by Ellsberg with factions of the New Left and anti-Vietnam peace groups.
 

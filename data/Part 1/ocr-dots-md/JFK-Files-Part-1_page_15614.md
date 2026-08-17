@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15614.png
-
-Convert to Markdown513
+513
 
 ORIG: D. Miesciur
 UNIT: AF/AF/2

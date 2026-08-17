@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28950.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>1. INSURED INDIVIDUAL</td>
         <td colspan="4"></td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4994.png
-
-Convert to Markdown65-116395
+65-116395
 
 December 2, 1975
 

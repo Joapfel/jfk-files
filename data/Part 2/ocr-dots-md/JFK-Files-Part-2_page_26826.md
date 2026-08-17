@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_26826.png
-
 s, including a secretary. These people were directly under his control. Though the organization as it was set up, they had their own chief and this type of thing, but the chief took his instructions from the On-Site Case Officer.

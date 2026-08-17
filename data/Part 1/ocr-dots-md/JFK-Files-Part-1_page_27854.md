@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27854.png
-
-Convert to Markdown<table><tr><td>UNCLASSIFIED</td><td>CONFIDENTIAL</td><td>SECRET</td></tr></table>
+<table><tr><td>UNCLASSIFIED</td><td>CONFIDENTIAL</td><td>SECRET</td></tr></table>
 
 DEPUTY DIRECTOR FOR OPERATIONS
 ROUTING SHEET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17309.png
-
-Convert to MarkdownIn this capitalist health care system, women are especially oppressed, both as patients and as the lowest-paid, hard-working hospital workers. Black women are used as "teaching material" for medical students to do surgery on. They are used as "guinea pigs" for the testing of new drugs. There is no consideration for the personal dignity or health of the woman. Obstetrical and gynecological care are given far too little attention. Routine, unnecessary sterilizations and widespread misinformation are the results of the racist, male-dominated health industry.
+In this capitalist health care system, women are especially oppressed, both as patients and as the lowest-paid, hard-working hospital workers. Black women are used as "teaching material" for medical students to do surgery on. They are used as "guinea pigs" for the testing of new drugs. There is no consideration for the personal dignity or health of the woman. Obstetrical and gynecological care are given far too little attention. Routine, unnecessary sterilizations and widespread misinformation are the results of the racist, male-dominated health industry.
 
 The PEOPLE'S FREE MEDICAL CARE CENTER in its commitment to SERVE THE PEOPLE will give high priority to the care and prevention of sickness in all women.
 

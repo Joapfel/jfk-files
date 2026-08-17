@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3508.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Report # DD-742, C-4, 20 Mar 64 (cont.)
 

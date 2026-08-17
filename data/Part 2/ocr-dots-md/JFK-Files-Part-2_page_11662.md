@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11662.png
-
-Convert to Markdown# PART II
+# PART II
 ## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 SACs must be alert in recommending SAC contacts that they are not proposing individuals who because of business connections or personal activities or close association with other persons will be involved in unfavorable publicity or become the subject of adverse investigative activity, or who will capitalize on their friendly association with the SAC.

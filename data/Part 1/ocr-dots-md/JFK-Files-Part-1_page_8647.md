@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8647.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. A second reason why both LIREALM-1 and his wife plan to go to the Club is to see if they can identify the new "girl-friend" of AEDIEHARD. LIREALM-1 says he almost always carries his camera with him when he goes to the club and frequently takes pictures of his wife and their friends. Under this pretext, he will try and take a picture of the girl friend if the opportunity presents itself where it will not come to the attention of AEDIEHARD.
 

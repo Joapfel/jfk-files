@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11013.png
-
-Convert to Markdownd. The "SUMMARY OF CONTENTS" section should be brief, but also should clearly indicate what is being provided to the Committee. I wonder, for instance, whether your sample on the letterhead memoranda was issued in widely separated time periods. The summary as written gives no indication as to the particular subject of any of the memoranda and the single sentence now used to describe all of them covers the waterfront.
+d. The "SUMMARY OF CONTENTS" section should be brief, but also should clearly indicate what is being provided to the Committee. I wonder, for instance, whether your sample on the letterhead memoranda was issued in widely separated time periods. The summary as written gives no indication as to the particular subject of any of the memoranda and the single sentence now used to describe all of them covers the waterfront.
 
 e. If the request for information comes officially from the Committee, the Committee title should be entered under "REQUESTOR," but if the requestor is an individual member of the Staff, his name should be indicated.
 

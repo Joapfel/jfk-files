@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6920.png
-
-Convert to Markdown542 LB AIP
+542 LB AIP
 
 ORIG : JENNY G. CLEAVIN
 UNIT : W-3/GUATEMALA

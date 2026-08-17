@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25631.png
-
-Convert to Markdown2/15/72 Osb memos to Colley re Russell
+2/15/72 Osb memos to Colley re Russell
 
 DCI ignored Russell exposure threat, taking
 calculated risk as to exposing [Senitier

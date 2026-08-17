@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1491.png
-
-Convert to MarkdownC-0-J-F-1-D-E-M-I-I-A-L
+C-0-J-F-1-D-E-M-I-I-A-L
 
 (When Filled In)
 

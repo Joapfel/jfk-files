@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28576.png
-
-Convert to MarkdownRebecca Anne Rife
+Rebecca Anne Rife
 
 125 South Reynolds Street, J-410
 Alexandria, Virginia 22304

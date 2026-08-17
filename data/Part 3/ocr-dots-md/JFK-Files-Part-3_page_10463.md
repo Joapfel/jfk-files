@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10463.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 RELETYPE UNIT
 
 TMR-25 7 19PH-7/8

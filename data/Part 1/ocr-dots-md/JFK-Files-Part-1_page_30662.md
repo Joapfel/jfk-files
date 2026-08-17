@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30662.png
-
-Convert to MarkdownSECRET
+SECRET
 
 dd. Provide briefings and training lectures to the DD/1, the DD/S&T, to the military services, and to other governmental departments and agencies on CI matters.
 

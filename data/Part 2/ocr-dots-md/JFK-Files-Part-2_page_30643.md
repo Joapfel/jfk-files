@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30643.png
-
-Convert to Markdown11
+11
 
 9/13/63
 HMM A-22135-

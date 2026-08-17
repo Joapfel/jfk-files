@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11104.png
-
-Convert to Markdown002. Salida al 145709.-0814.-Pedro propuesta a HF qué pasa con Abreu que no ha llegado y HF acepta y dice que es un descarado.
+002. Salida al 145709.-0814.-Pedro propuesta a HF qué pasa con Abreu que no ha llegado y HF acepta y dice que es un descarado.
 
 021. Salida al 422194.-0341.-Pedro pide le manden un saco de-papás y HF queda de envíarselo.- 029.-
 

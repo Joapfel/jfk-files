@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8031.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 "AIRETAPPING, USE OF IN FBI"
 

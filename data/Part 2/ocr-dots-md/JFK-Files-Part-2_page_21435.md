@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21435.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : DIRECTOR, FBI (105-93072)
 

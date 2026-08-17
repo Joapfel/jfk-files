@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26520.png
-
-Convert to MarkdownSECRET
+SECRET
 
 arrested some 48 members of the URJE (Union of
 Revolutionary Ecuadorean Youth). The leaders of

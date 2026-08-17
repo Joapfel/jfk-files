@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9352.png
-
-Convert to MarkdownEvery member of the BLACK PANTHER PARTY shall be subject to the rules and regulations of the Party. CENTRAL COMMITTEE members, CENTRAL Staff, and LOCAL TANGibles, including all captains, are subordinate to either national, state, or local leadership of the BLACK PANTHER PARTY unless these rules, length of suspension or other disciplinary action be reserved for violation of those rules will depend on national, state, or local committees and staffs where said rule or rules of the BLACK PANTHER PARTY were VIOLATED.
+Every member of the BLACK PANTHER PARTY shall be subject to the rules and regulations of the Party. CENTRAL COMMITTEE members, CENTRAL Staff, and LOCAL TANGibles, including all captains, are subordinate to either national, state, or local leadership of the BLACK PANTHER PARTY unless these rules, length of suspension or other disciplinary action be reserved for violation of those rules will depend on national, state, or local committees and staffs where said rule or rules of the BLACK PANTHER PARTY were VIOLATED.
 
 Every member of the Party must know those verbal guidelines and apply them daily. Each member must report any violation to their leaders or they are considered-revealed and are also subject to suspension by the BLACK PANTHER PARTY.
 

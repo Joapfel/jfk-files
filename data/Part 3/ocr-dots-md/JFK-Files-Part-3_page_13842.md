@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13842.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 NO FOREIGN DISSEM
 
 This material contains information affecting the National Defense of the United States within the meaning of the Espionage Laws, Title 18, U.S.C. Secs. 793 and 794, the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15129.png
-
-Convert to MarkdownPWO ( protívo- wosdischnaja oborona) ( Luftschutz ) für die Stadt Michurinsk ernannt. Das Hauptquartier der Division war in Michurinsk, während die Batterie in der Nabe der Station TARASOV bei der Siedlung Konskoje, 7 km von Michurinsk und 6 km von den 6 errichteten Gehegen bei Kochetova ( Station) lag. Ein höhes Hauptquartier war in Tambow und wurde erst von Oberst TSCHERNJASZEI und später von Oberst ZBETOW, einem de- gradierten General kommandiert.
+PWO ( protívo- wosdischnaja oborona) ( Luftschutz ) für die Stadt Michurinsk ernannt. Das Hauptquartier der Division war in Michurinsk, während die Batterie in der Nabe der Station TARASOV bei der Siedlung Konskoje, 7 km von Michurinsk und 6 km von den 6 errichteten Gehegen bei Kochetova ( Station) lag. Ein höhes Hauptquartier war in Tambow und wurde erst von Oberst TSCHERNJASZEI und später von Oberst ZBETOW, einem de- gradierten General kommandiert.
 
 Als ich zuerst in Michurinsk eintraf wurde ich erst als Last- wagenfahrer dem Verpflegungszug der Division zugeteilt ( chos- wswod oder chosjajstwennyi wswod ), komandiert von Junior Leutnant MAKAROV. Später wurde ich mit dem oben erwähnten ENDELADSE bekannt, ein Landsmann von mir und wurde durch sei- nen Einfluss dem Divisions-Kommandeur GURGENIDSE, auch ein Georgier der später zum Oberstleutnant befördert wurde, als persönlicher Fahrer zugeteilt. Er behielt mich in dieser Po- sition bis ich vom Militärdienst ehtlassen wurde.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12626.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ☐ UNCLASSIFIED ☐ INTERNAL ONLY SECRET ☐ CONFIDENTIAL ☐ SECRET
 

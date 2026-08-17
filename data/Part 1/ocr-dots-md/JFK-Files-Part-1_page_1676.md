@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1676.png
-
-Convert to MarkdownSection D (Cont'd)
+Section D (Cont'd)
 
 a denied area. His exemplary conduct and personal courage during the resulting two and one-half years incarceration permitted the maintenance of a very difficult cover situation and successful extraction of all three men.
 

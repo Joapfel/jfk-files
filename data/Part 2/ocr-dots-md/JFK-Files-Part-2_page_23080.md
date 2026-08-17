@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23080.png
-
-Convert to MarkdownLa Agencia Central de Inteligencia(CIA) de Estados Unidos, ha jugado el papel principal en la historia de las agresiones contra Cuba, promoviendo, organizando, financiando y en muchos casos dirigiendo acciones vandálicas, no sólo contra el territorio cubano sino también contra nuestras representaciones e intereses en países extranjeros o en aquas-internacionales.
+La Agencia Central de Inteligencia(CIA) de Estados Unidos, ha jugado el papel principal en la historia de las agresiones contra Cuba, promoviendo, organizando, financiando y en muchos casos dirigiendo acciones vandálicas, no sólo contra el territorio cubano sino también contra nuestras representaciones e intereses en países extranjeros o en aquas-internacionales.
 
 En esta amplia gama de actividades desplegadas por la CIA, y demás órganos subversivos de Estados Unidos contra nuestro país, se destacan por su peligrosidad, los reiterados planes dirigidos a la eliminación física de los principales dirigentes de la Revolución y, en especial, contra la figura de nuestro Primer Ministro.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12018.png
-
-Convert to MarkdownCongress of African Peoples (CAP)
+Congress of African Peoples (CAP)
 
 to establish black political power through four basic activities
 which are:

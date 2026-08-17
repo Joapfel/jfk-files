@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23347.png
-
-Convert to Markdown12
+12
 
 Mr. Baron. Were there any other meetings that you recall between yourself and Richard Bissell where he asked you to move beyond the exploratory stage to the implementation stage in assassinating Lumumba?
 

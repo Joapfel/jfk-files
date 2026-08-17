@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13764.png
-
-Convert to Markdown237.
+237.
 
 Salidas al 181260.-1253.- Sin contestación. Luego-
 VEGA separa espacios para el vuelo del próximo día 26 a -

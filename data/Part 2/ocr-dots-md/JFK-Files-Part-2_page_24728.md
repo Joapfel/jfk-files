@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24728.png
-
-Convert to Markdownophy that "no man is indispensable" (Eisenhower, 7/18/75, p. 14.)*
+ophy that "no man is indispensable" (Eisenhower, 7/18/75, p. 14.)*
 
 As a participant at NSC meetings who frequently attended dis-
 cussions in the Oval Office relating to national security affairs,

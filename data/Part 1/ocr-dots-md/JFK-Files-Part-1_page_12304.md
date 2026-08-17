@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12304.png
-
-Convert to MarkdownSUBJECT: Cuban Exiles Involved with DEA
+SUBJECT: Cuban Exiles Involved with DEA
 
 informant. DEA Caracas was advised that GARCIA was a former Agency asset and that we have maintained contact with him over the years. Although it is known that GARCIA has associated with known traffickers, no hard facts concerning his direct involvement in narcotics have been uncovered. GARCIA has been described over the years as a political thug, a murderer, a con-man, a pathological liar, and a "bright, aggressive rogue who is ruthless when necessary." GARCIA has apparently always sided with the men in power and seems to have gained the confidence of many leaders in the countries around the Caribbean. A DEA ROI, dated 10 October 1974, written by S.A. Brom at Miami reported that GARCIA was in the United States and was in contact with Ricardo MORALES (see paragraph 4). GARCIA made several trips to the U.S. on behalf of the GOV during 1974-75. Your Agency is referred to the FBI for information concerning GARCIA's activities in the U.S.
 

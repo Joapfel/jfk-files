@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22898.png
-
-Convert to Markdown1
+1
 
 There is this troublesome dictum in U.S. vs. Nixon about
 what might be nondiscoverable, all of which seems to bear on

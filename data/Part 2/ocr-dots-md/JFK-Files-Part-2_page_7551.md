@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7551.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>TI</td>
     <td>5MITTAL SLIP</td>

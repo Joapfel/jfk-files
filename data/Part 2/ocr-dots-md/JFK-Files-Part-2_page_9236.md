@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9236.png
-
-Convert to MarkdownA PROGRAM FOR SURVIVAL
+A PROGRAM FOR SURVIVAL
 
 Free Breakfast Program
 

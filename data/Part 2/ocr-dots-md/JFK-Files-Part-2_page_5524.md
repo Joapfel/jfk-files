@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5524.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. The Agency has made available to the HSCA two studies conducted in 1967 and 1968 by SE Division, both of which questioned Nosenko's bona fides. A subsequent study by the Office of Security in 1968 has also been made available; it reached a conclusion contrary to the preceding studies and supports Nosenko's bona fides. Other Soviet defectors have been interviewed by the HSCA staff, as well as knowledgeable CIA officers and retirees. As a result, much of the information on the case has been revealed to the Committee.
 

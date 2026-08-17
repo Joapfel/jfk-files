@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22446.png
-
-Convert to MarkdownSECRET
+SECRET
 
 published materials that he was the person who was in charge of
 organizing a political unit among Cubans in this country which

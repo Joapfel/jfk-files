@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18099.png
-
-Convert to MarkdownMajor General Edgar C. Doleman
+Major General Edgar C. Doleman
 
 NOTE:
 

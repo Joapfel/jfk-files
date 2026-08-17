@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5592.png
-
-Convert to MarkdownUAC, Birmingham (107-625)
+UAC, Birmingham (107-625)
 
 2/23/85
 

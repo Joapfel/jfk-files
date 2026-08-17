@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6883.png
-
-Convert to MarkdownI'll write to Bravo very soon; I was absolutely starrydry commitments, and am struggling now to finish until at September. And then I have a book to finish (which is a long way from my home town of New York City), and deadlines surround me on all sides.
+I'll write to Bravo very soon; I was absolutely starrydry commitments, and am struggling now to finish until at September. And then I have a book to finish (which is a long way from my home town of New York City), and deadlines surround me on all sides.
 
 With very best wishes,
 

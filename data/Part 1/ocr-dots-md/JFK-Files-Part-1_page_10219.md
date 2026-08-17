@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10219.png
-
-Convert to Markdownletter at once, and to take the occasion to mention casually that he
+letter at once, and to take the occasion to mention casually that he
 has met a Guatemalan in Mexico City by the name of Humberto González
 Vega who seems to know everyone there quite well. I/3 hopes that this
 will provoke some sort of comment from the León Barrios brothers wither

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12086.png
-
-Convert to Markdownhis counterpart in Internal Security (306 vs. 356). It is noted in this regard that the Racial Intelligence case load raises the Espionage Branch figures, since the Nationalities Intelligence Section has an average of only 278 and Espionage Section of only 280 cases per man. The average in Racial Intelligence Section is 350.
+his counterpart in Internal Security (306 vs. 356). It is noted in this regard that the Racial Intelligence case load raises the Espionage Branch figures, since the Nationalities Intelligence Section has an average of only 278 and Espionage Section of only 280 cases per man. The average in Racial Intelligence Section is 350.
 
 We next conducted surveys to determine whether the complexity of cases in Espionage and Nationalities work was appreciably more complex to justify the above-noted differences in case load.
 

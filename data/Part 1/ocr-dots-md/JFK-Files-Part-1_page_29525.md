@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29525.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Irving C. DEVUONO
 Thru : Recorder, Honor and Merit Awards Board

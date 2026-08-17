@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7422.png
-
-Convert to MarkdownLegal Counsel to Mr. Adair's Home
+Legal Counsel to Mr. Adair's Home
 
 RE: MATTE SELECT COMMITTEE
 ON COMMITTEE, 7 AND 10 MENUS

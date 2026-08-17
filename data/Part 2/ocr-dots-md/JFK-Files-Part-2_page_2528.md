@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2528.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CI Staff made a personal commitment to BERTOTALLY that he could indeed have his wife accompany him on any operational trips abroad, if he chose to have her do so, and that her travel expenses would be borne by the Agency. It was understood that her travel expenses would be limited to the cost of her travel and per diem.
 

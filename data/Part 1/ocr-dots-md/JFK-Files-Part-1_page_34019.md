@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34019.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>INDEX: ☐ YES ☐ NO</td></tr><tr><td>CLASSIFY TO FILE NO. 19-Bal-H</td></tr><tr><td>Z-REF TO FILE NO.</td></tr><tr><td>FILE RID ☐ RET. TO BRANCH ☑</td></tr><tr><td>DESTROY ☐ SIG. #21129</td></tr><tr><td colspan="3"><table><tr><td rowspan="2">ROOM<br/>z/</td><td>SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td></tr></table></td></tr><tr><td>ACTION<br/>WH/COG-8 ☑ RID COPY</td><td>ADVANCE COPY<br/>☐ ISSUED ☐ FILLED ☐ FILMED</td><td>UNIT<br/>TIME / BY</td></tr><tr><td>INFO<br/>FILE V.R, WH-8, CA-2, CAMP/PROP, CHMO-4</td><td colspan="2"></td></tr></table>
 

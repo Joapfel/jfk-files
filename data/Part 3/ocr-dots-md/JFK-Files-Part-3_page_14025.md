@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14025.png
-
-Convert to MarkdownHOLD BY COMINT CHANNELS ONLY
+HOLD BY COMINT CHANNELS ONLY
 
 TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9535.png
-
-Convert to Markdownand the topics used concerned the "Battlefield in
+and the topics used concerned the "Battlefield in
 Cairo."
 
 DE T-27

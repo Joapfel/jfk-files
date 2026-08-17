@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1400.png
-
-Convert to MarkdownSECRET
+SECRET
 
 He held this job until he defected to the U.S. in December 1962. It is worth noting that he rarely pursued one activity in one place for more than a year at a time from 1945 to 1962.
 

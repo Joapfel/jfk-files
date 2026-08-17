@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3399.png
-
-Convert to Markdownnever had blind confidence in anything human, because everything
+never had blind confidence in anything human, because everything
 that is done blindly is done badly, it is true that I had con-
 fidence in North American material help. Reason: because we
 were seeing it. (I do not think it was a secret to anyone where

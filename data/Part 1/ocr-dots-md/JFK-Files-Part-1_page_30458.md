@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30458.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>Mar. Two</td>
     <td>Prcblly</td>

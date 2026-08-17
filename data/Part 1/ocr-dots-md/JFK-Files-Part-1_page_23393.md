@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23393.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">40. With what agencies and files has subject's name been checked? When?</td>
    </tr>

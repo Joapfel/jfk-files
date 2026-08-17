@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4343.png
-
-Convert to MarkdownCABEZAS DE COMERCIO
+CABEZAS DE COMERCIO
 
 Alcal Testaporte....75 No.164. Habana.
 Indrad No.528. Habana. Cuba.

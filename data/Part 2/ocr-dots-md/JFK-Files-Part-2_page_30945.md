@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30945.png
-
-Convert to Markdown111055
+111055
 
 Carlos Zarraga Martinez no-notes
 Cuban Revolutionary Council + Norte Revolucionario Democrats

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5429.png
-
-Convert to Markdown14-00000
+14-00000
 
 TDCSC3-315/02404-67
 HTP 1072

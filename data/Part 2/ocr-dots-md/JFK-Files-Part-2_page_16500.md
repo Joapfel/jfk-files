@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16500.png
-
-Convert to Markdown# WHAT TO DO
+# WHAT TO DO
 
 It should be clear that the police institute will not in any way benefit the black and Latin communities, the working people or the youth of this country: will not in any way help to solve the serious problems we face—racial inequality, imperialist wars, poverty. In fact, by emphasizing a policy of overwhelming police power and continued repression it may aggravate the problems.
 

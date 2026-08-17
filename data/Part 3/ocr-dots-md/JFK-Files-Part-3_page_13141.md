@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13141.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Manuel Artime Buesa was in Nicaragua the week of 5/4/64 where he met with Teodoro Picado, Costa Rican pilot who returned to San Jose in April, 1964 after having been jailed in Cuba for seven months. (CIA)
 

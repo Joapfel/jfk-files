@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5027.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MHFNO</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30363.png
-
-Convert to Markdown1 will be yes and no kinds of questions.
+1 will be yes and no kinds of questions.
 
 2 Did you conduct in the KGB a program to compromise and
 3 recruit journalists?

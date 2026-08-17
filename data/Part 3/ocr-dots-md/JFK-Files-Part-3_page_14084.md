@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14084.png
-
-Convert to Markdown206-10001-10008
+206-10001-10008
 
 <table>
    <tr>

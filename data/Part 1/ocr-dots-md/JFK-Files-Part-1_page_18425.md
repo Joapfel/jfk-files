@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18425.png
-
-Convert to Markdown(when follows.. in)
+(when follows.. in)
 
 SECRET
 

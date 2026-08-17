@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12134.png
-
-Convert to Markdownduring their Cuban stay to all manner of propaganda. On
+during their Cuban stay to all manner of propaganda. On
 their return to the United States many have gone underground
 and disappeared completely; others have become involved in
 crime, violence, and general disruptive activities; still

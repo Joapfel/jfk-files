@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18002.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td></td><td>SECRET</td><td>HIMMA-15319<br/>1803</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td></td><td>SECRET</td><td>HIMMA-15319<br/>1803</td></tr></table>
 
 ## e. Technical
 

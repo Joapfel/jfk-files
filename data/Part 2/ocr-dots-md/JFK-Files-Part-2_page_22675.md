@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22675.png
-
-Convert to MarkdownHW 30955 DocID:32423393 Page 82
+HW 30955 DocID:32423393 Page 82
 
 Phone (Area 202) 544-6000
 

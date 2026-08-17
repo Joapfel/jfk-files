@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12945.png
-
-Convert to Markdown5/24
+5/24
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE 208/0J/0T<br/>4 MAY 1959<br/><br/>TO DIRECTOR<br/>FROM [LUXEMBOURG] 15-A<br/>ACTION: WE 6<br/>INFO . COP, CI, CI/OPS, CI/IC, FI, FE 4, S/C 2</td><td>SECRET</td></tr><tr><td colspan="2"><table><caption>ROUTING</caption><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table><br/>May 5 '57 17:43:59<br/>RECD CHG SECT.<br/><br/>ROUTINE</td></tr><tr><td colspan="2">IN 12839</td></tr></tbody></table>
 

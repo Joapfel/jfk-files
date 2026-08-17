@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15535.png
-
-Convert to MarkdownAssailing the conviction, he launched into an attack on the court system, prisons and a 'capitalistic society full of fascist, demagogue politicians, variousious businessmen and racist pig police.'
+Assailing the conviction, he launched into an attack on the court system, prisons and a 'capitalistic society full of fascist, demagogue politicians, variousious businessmen and racist pig police.'
 
 'My case shouldn't have even been tried by Judge Sidney Jones,' Hampton asserted. 'Jones had just acquitted this guy Kamberos whose car killed a kid.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20701.png
-
-Convert to MarkdownWomens National Abortion
+Womens National Abortion
 Action Coalition (WONAAC)
 
 On March 23, 1972, NY T-1 advised that on March 19, 1972, it was announced at a meeting of the Upper West Side Branch of YSA, New York City, that a meeting was being held at the WONAAC Office, to discuss the plans for the May 1-6, abortion action week rally.

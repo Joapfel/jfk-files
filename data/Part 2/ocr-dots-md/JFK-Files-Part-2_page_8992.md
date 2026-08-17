@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8992.png
-
-Convert to MarkdownOSWALD
+OSWALD
 
 ACTIVIDADES DE
 LEE HARVEY OSWALO

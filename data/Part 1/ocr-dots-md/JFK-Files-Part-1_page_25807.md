@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25807.png
-
-Convert to MarkdownSECRET
+SECRET
 
 h. MISCELLANEOUS
 

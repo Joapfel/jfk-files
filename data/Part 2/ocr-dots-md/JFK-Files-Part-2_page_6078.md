@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6078.png
-
-Convert to MarkdownD. Legal Matters
+D. Legal Matters
 
 1. Have you ever been disciplined or cited for a breach of ethics for unprofessional conduct by, or been the subject of a complaint to any court, administrative agency, professional association, disciplinary committee, or other professional group? If so, provide details.
 

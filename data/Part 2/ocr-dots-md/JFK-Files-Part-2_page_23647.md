@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23647.png
-
-Convert to Markdown1. NAME '24, recommendation 16. The Director also would be empowered to establish a board of senior advisors.
+1. NAME '24, recommendation 16. The Director also would be empowered to establish a board of senior advisors.
 
 2.
 

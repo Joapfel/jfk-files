@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9698.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 Number was put into the National Crime Information Center
 computers (NCIC) and it was determined this car was stolen

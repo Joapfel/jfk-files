@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1642.png
-
-Convert to MarkdownThe Honorable Griffin B. Bell
+The Honorable Griffin B. Bell
 January 26, 1978
 
 31) Robert Taylor, aka Bob Taylor

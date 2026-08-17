@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34824.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 States Government decided to resume this type of activity. I told him I fully understood his deep desire to see his country freed and what great efforts he had made toward this objective, and thanked him for the offer. He also asked that I do what I could to prevent suspension of remittances to families of those who had fought against Castro. I told him I knew nothing about this but would look into it.
 

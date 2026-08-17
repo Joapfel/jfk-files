@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31622.png
-
-Convert to Markdown16 July 1953
+16 July 1953
 
 MEMORANDUM FOR: IO/PP
 

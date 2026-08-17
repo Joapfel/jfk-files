@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14158.png
-
-Convert to Markdown- 7 -
+- 7 -
 
 Future Potentials:
 

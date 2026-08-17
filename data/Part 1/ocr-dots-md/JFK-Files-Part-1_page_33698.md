@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33698.png
-
-Convert to MarkdownThose in Parliament who had fought for human rights and social welfare were appalled by the new regime's tactics. They asked Milada for advice. She replied, "I have resigned. I shall not give in. I have chosen a straight path, and this I shall follow."
+Those in Parliament who had fought for human rights and social welfare were appalled by the new regime's tactics. They asked Milada for advice. She replied, "I have resigned. I shall not give in. I have chosen a straight path, and this I shall follow."
 
 Returning to a suborder job in the Social Service Procurery, Milada never less continued to fight Communists. At every point she talked people compared the '31 ple's Democracies with Germans, found me daily once in their drive world power. Both born dictatorship decades behind sledge practice, and prepare war
 

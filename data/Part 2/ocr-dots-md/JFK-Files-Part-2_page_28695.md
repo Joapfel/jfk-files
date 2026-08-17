@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28695.png
-
-Convert to Markdown<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Richard A. Sprague</td><td>3/30/77</td></tr><tr><th scope="row">Employee Social Security Number</th><th scope="col">Type of Action</th></tr><tr><td>402 30 6486</td><td><input type="checkbox" /> Appointment</td></tr><tr><td colspan="2"><input type="checkbox" /> Salary Adjustment</td></tr><tr><td colspan="2"><input type="checkbox" checked disabled/> Termination (At close of business on effective date)</td></tr><tr><th scope="row">Employing Office or Committee<br>Select Committee on Assassinations</th><td></td></tr></tbody></table>
+<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Richard A. Sprague</td><td>3/30/77</td></tr><tr><th scope="row">Employee Social Security Number</th><th scope="col">Type of Action</th></tr><tr><td>402 30 6486</td><td><input type="checkbox" /> Appointment</td></tr><tr><td colspan="2"><input type="checkbox" /> Salary Adjustment</td></tr><tr><td colspan="2"><input type="checkbox" checked disabled/> Termination (At close of business on effective date)</td></tr><tr><th scope="row">Employing Office or Committee<br>Select Committee on Assassinations</th><td></td></tr></tbody></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

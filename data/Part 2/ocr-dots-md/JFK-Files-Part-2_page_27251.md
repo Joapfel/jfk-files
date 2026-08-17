@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27251.png
-
-Convert to MarkdownA. DDO Instruction No. 1-14 - Organization and Functions Foreign Resources Div. - 6 Feb 74 SECRET
+A. DDO Instruction No. 1-14 - Organization and Functions Foreign Resources Div. - 6 Feb 74 SECRET
 
 B. Clandestine Service Instruction 1-14 - 15 Mar 72 SECRET
 

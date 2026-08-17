@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19030.png
-
-Convert to MarkdownSAMUEL ADASON JAFFE
+SAMUEL ADASON JAFFE
 
 March 27, 1969
 

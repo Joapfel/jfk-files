@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19606.png
-
-Convert to MarkdownSTATE OF GEORGIA
+STATE OF GEORGIA
 
 DEPARTMENT OF PUBLIC HEALTH
 

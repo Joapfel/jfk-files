@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20165.png
-
-Convert to MarkdownNY 100-174481.
+NY 100-174481.
 
 "There were many members of the SWP and YSA at the conference, and SWPers and YSAers are among those who have worked most consistently for abortion repeal and to build the abortion conference...."
 

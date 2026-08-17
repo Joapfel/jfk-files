@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33009.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. The message to AMCHALK-5 follows:
 

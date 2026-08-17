@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29884.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AES: 26 JULY 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28726.png
-
-Convert to Markdown# PAYROLL AUTHORIZATION FORM
+# PAYROLL AUTHORIZATION FORM
 
 (Please Use Typewriter
 or Ballpoint Pen)

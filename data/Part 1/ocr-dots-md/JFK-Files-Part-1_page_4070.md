@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4070.png
-
-Convert to Markdown# -17-
+# -17-
 
 En pozo y turbina, completa las instalaciones de la primera fase del proyecto, la que se fije en elollowará a cada hora el segundo de producción.
 

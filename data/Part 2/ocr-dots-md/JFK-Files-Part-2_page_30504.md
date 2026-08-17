@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30504.png
-
-Convert to MarkdownU.S. House of Representatives
+U.S. House of Representatives
 3342 HOUSE OFFICE BUILDING, ANNEX 2
 WASHINGTON, D.C. 20515
 

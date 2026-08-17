@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25510.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br/>TOTAL COPIES:</th><th>ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>ORIG:</td><td>J.J. BARRY:R:K</td><td rowspan="4"><table><tbody><tr><td>5</td></tr><tr><td>6</td></tr><tr><td>7</td></tr><tr><td>8</td></tr></tbody></table></td></tr><tr><td>UNIT:</td><td>WILL, GEORGE</td></tr><tr><td>LKT:</td><td>3167, K1973</td></tr><tr><td>DATE:</td><td>Nov 7 1973</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION</td><td>☐ INDEX ☐ NO INDEX ☐ RETURN TO ________ BRANCH ☐ FILE ID</td><td></td></tr><tr><td>BY ____ PER ____ # __________</td><td colspan="2">☑ FILE IN CS FILE NO. _________________</td></tr><tr><td>CONF:</td><td>I<br/>N<br/>FO<br/>O</td><td>FILE, VR.</td></tr><tr><td>(classification)</td><td>(date and time filed)</td><td>(reference number)</td></tr></tbody></table>
 

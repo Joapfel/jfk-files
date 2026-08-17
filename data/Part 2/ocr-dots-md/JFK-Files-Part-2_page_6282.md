@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6282.png
-
-Convert to Markdown3. Upon completion of the task of photographing the Category 1a and lb documents, those photographic copies (Category 1), the HSCA-generated materials based upon Agency material (Category 2), and the designated Agency-HSCA correspondence (Category 3), will be sealed and held in segregated storage by the Agency, in accordance with schedules established by the Archivist of the United States.
+3. Upon completion of the task of photographing the Category 1a and lb documents, those photographic copies (Category 1), the HSCA-generated materials based upon Agency material (Category 2), and the designated Agency-HSCA correspondence (Category 3), will be sealed and held in segregated storage by the Agency, in accordance with schedules established by the Archivist of the United States.
 
 4. Documents are now in the individual custodies of members of the Agency HSCA Task Force. These individuals are listed by attachment.
 

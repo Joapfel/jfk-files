@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27770.png
-
-Convert to MarkdownLEE, Sheila Jackson
+LEE, Sheila Jackson
 
 OFFICE OF THE CLERK
 U.S. HOUSE OF REPRESENTATIVES

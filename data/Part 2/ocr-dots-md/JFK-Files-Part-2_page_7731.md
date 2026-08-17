@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7731.png
-
-Convert to Markdownfor necessary reorganizations, together with the names of recommended chiefs. In a subsequent letter they recommended Sergey Ivanovich OGOLTSOV, then in prison for "political crimes," and Yevgeniy Petrovich PITOVRANOV, then chief or deputy chief of the MGB in the Uzbekistan SSR. STALIN met Subject and his friend a second time. OGOLTSOV was released from prison and appointed Chief of the First Chief Directorate, with PITOVRANOV as his deputy. A Chief Intelligence Directorate of the MGB was then formed, containing a Counterintelligence Department with an Emigre desk and seven geographical desks. Subject was appointed by OGOLTSOV as chief of the American Desk, supervising approximately 15 staff persons.
+for necessary reorganizations, together with the names of recommended chiefs. In a subsequent letter they recommended Sergey Ivanovich OGOLTSOV, then in prison for "political crimes," and Yevgeniy Petrovich PITOVRANOV, then chief or deputy chief of the MGB in the Uzbekistan SSR. STALIN met Subject and his friend a second time. OGOLTSOV was released from prison and appointed Chief of the First Chief Directorate, with PITOVRANOV as his deputy. A Chief Intelligence Directorate of the MGB was then formed, containing a Counterintelligence Department with an Emigre desk and seven geographical desks. Subject was appointed by OGOLTSOV as chief of the American Desk, supervising approximately 15 staff persons.
 
 March 1953:
 

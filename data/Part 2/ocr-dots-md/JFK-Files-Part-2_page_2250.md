@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2250.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MAY 7 1948
 

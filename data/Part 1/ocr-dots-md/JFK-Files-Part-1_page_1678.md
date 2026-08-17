@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1678.png
-
-Convert to Markdownthat in the court of danger the technicians planned to escape to an apartment which was occupied by an unoffending State Department secretary.
+that in the court of danger the technicians planned to escape to an apartment which was occupied by an unoffending State Department secretary.
 
 Since the initial briefing, Mrs. Christ has gradually placed additional information, mostly from newspaper articles, about the operation and subsequent trial. It is believed that Mrs. Christ has not obtained any substantive information about the operation other than what has been said in this statement. At the present time, she does not seem too frustrated in the operational aspect of the case, nor the reasons for her technician's long absence. At the time of the trial, what little publicly appeared in the press had been previously discussed with Mrs. Christ. She denies that the agent (Mr. Card) returned to Washington, D.C., but she was instructed not to ask any questions about his release nor his previous anywhere.
 

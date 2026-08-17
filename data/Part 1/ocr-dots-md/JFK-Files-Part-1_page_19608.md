@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19608.png
-
-Convert to MarkdownOSS Form 2261
+OSS Form 2261
 (Rev. 12/30/83)
 
 CONFIDENTIAL

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25764.png
-
-Convert to MarkdownGROUP 1
+GROUP 1
 from automatic
 ing and
 cation

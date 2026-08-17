@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24264.png
-
-Convert to Markdownreasonably effective in getting overall coordination. It was re-
+reasonably effective in getting overall coordination. It was re-
 sponsible for making a thorough inventory of all the equipment
 that the Agency had in the aviation field, and by and large was
 able to keep track of who needed what and whether an asset was

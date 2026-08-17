@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10802.png
-
-Convert to MarkdownDCID No. 2/8 is captioned "Domestic Exploitation of U. S. Government Organizations and Officials." It begins in very general terms, "Pursuant to the provisions of NSCID No. 1 and NSCID No. 2 . . ." It provides, "The Central Intelligence Agency shall coordinate and have the primary responsibility for exploitation of the foreign intelligence potential of non-USIB organizations and officials to meet community needs as a service of common concern."
+DCID No. 2/8 is captioned "Domestic Exploitation of U. S. Government Organizations and Officials." It begins in very general terms, "Pursuant to the provisions of NSCID No. 1 and NSCID No. 2 . . ." It provides, "The Central Intelligence Agency shall coordinate and have the primary responsibility for exploitation of the foreign intelligence potential of non-USIB organizations and officials to meet community needs as a service of common concern."
 
 As set forth above, there seems to be no basis for such CIA jurisdiction in NSCID No. 1 and No. 2. Paragraph 7 of NSCID No. 2 specifically restricts CIA in this area of operations to nongovernmental organizations and individuals.
 

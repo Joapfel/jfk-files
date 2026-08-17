@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6919.png
-
-Convert to Markdownleave some material under wraps but that other material was
+leave some material under wraps but that other material was
 simply missing. Would spinners of conspiracy theories take
 the Board's word? Would they not instead accuse it of col-
 luding in concealment of "smoking guns"?

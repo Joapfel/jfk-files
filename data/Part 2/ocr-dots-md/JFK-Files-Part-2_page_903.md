@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_903.png
-
-Convert to MarkdownContinuation of Section B:
+Continuation of Section B:
 
 Specific Duty No. 3
 

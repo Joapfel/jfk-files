@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15113.png
-
-Convert to MarkdownRYBAT
+RYBAT
 
 SECRET
 

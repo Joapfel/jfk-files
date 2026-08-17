@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25871.png
-
-Convert to MarkdownUCLJLI
+UCLJLI
 
 Re: W.H. MARTIN and B.F. MITCHELL
 

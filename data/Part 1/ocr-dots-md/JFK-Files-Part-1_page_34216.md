@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34216.png
-
-Convert to Markdown"HAMBURG UBER DIE LUCRATIVÄITÄ" (V.B.U.I.)
+"HAMBURG UBER DIE LUCRATIVÄITÄ" (V.B.U.I.)
 
 November 19, 1963: "How the Anti-Communist Fight Goes".- A summary is made of the anti-Communist struggle in Asia, which is synthesized in the Indonesian events. There, anti-communism is gaining force day by day. And in South Vietnam, where the U.S. Army has just gained a great victory, violating the principle of defending the integrity of South Vietnam. In the Americans, we can quote from the brave speech delivered by Brazilian President Marshall Castello Branco, who called for a revision of the old concepts of political intervention and creating that of counter-intervention against Communism. Lastly, we point out that the voice of arms rang out in Cuba with an attack against the Cuban coast line, which evidenced the Cubans' fighting spirit against Communism.
 

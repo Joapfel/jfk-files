@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23097.png
-
-Convert to Markdown<table><thead><tr><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>XXX & ATTS<br/>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>ONLY QUALIFIED DESIGNATED JUDGE INDEXED</td></tr><tr><td>MICROFILM</td></tr></tbody></table>
+<table><thead><tr><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>XXX & ATTS<br/>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>ONLY QUALIFIED DESIGNATED JUDGE INDEXED</td></tr><tr><td>MICROFILM</td></tr></tbody></table>
 
 <table><tr><td>DISPATCH</td><td>SECRET</td></tr><tr><td colspan="2">Chief, Western Hemisphere Division</td></tr><tr><td colspan="2">Chief, WH/COG and Chief of Station, JM'AVE U.F.</td></tr><tr><td colspan="2">Chief of Station, Mexico City</td></tr></table>
 

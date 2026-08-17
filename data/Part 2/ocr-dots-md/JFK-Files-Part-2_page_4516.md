@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4516.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section 1: Dispatch -->
         <tr>

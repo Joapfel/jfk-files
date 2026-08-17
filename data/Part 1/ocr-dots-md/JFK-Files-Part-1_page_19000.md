@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19000.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 This material contains information affecting the National Defense of the United States within the meaning of the classified laws, title 18 U.S.C. sections 726 and 727, and does not constitute a violation of any provision of military or naval law.
 

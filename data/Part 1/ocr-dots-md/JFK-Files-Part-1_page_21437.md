@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_21437.png
-
-Convert to MarkdownFARRIS J., General Counsel
+FARRIS J., General Counsel
 
 ACCOMPANY TO THE ORDER OF MAY 21, 1970 - AS TO REMOVAL OF CASE TO DISTRICT COURT OF ARIZONA

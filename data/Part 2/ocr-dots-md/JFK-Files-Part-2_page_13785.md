@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13785.png
-
-Convert to Markdown# 2. Warrantless Electronic Surveillance and "Leaks"
+# 2. Warrantless Electronic Surveillance and "Leaks"
 
 The Committee is examining several instances of the use of warrantless electronic surveillance and other investigative techniques in connection with "leaks" of classified information. These cases may involve specific allegations of abuse or other controversial matters where there is reason to believe improprieties may have occurred. These instances include:
 

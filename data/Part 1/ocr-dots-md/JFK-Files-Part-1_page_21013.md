@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21013.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 MEMORANDUM FOR: Office of Finance
 FROM : Administrative Allowance Committee

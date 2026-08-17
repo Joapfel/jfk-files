@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3372.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Dispatches: To Director from Havana, 5 Jun 59, HAVA 2233, 5 Jun 59; To COS Havana from DIR, 9 Jun 59, DIR 30041. S.
 

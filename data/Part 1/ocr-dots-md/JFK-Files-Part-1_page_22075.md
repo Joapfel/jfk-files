@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22075.png
-
-Convert to Markdownrecent account, NOSENKO had transferred from the U.S. Embassy Section to the Tourist Department about 28 December 1961 and that his participation in a Tourist Department approach to American citizen W. E. JOHNSON on 5 January 1962 had been confirmed by JOHNSON himself. Therefore, NOSENKO was told, much of what he had told CIA about his own role in the Pushkin Street affair became untenable. NOSENKO's response to this observation is described in Part V.F.3., which discusses NOSENKO'S approach to JOHNSON.
+recent account, NOSENKO had transferred from the U.S. Embassy Section to the Tourist Department about 28 December 1961 and that his participation in a Tourist Department approach to American citizen W. E. JOHNSON on 5 January 1962 had been confirmed by JOHNSON himself. Therefore, NOSENKO was told, much of what he had told CIA about his own role in the Pushkin Street affair became untenable. NOSENKO's response to this observation is described in Part V.F.3., which discusses NOSENKO'S approach to JOHNSON.
 
 Also during the February 1965 interrogations NOSENKO refused to sign the page of a protocol which read as follows:
 

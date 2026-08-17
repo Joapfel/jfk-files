@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5433.png
-
-Convert to MarkdownSUBJECT: Proposal for Dealing with Employees' Names
+SUBJECT: Proposal for Dealing with Employees' Names
 
 C. Identifiable names for employees that retired covertly:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21847.png
-
-Convert to Markdownthe Soviet Union.* Exfiltration plans were then implemented, and NOSENKO was driven across the border to Germany that same night. Debriefings resumed in a Frankfurt safehouse. The decision was reached on 11 February to bring NOSENKO to the United States, and in the early evening of 12 February he and his CIA escorts arrived in Washington via commercial aircraft, thence to a safehouse in the Washington area.
+the Soviet Union.* Exfiltration plans were then implemented, and NOSENKO was driven across the border to Germany that same night. Debriefings resumed in a Frankfurt safehouse. The decision was reached on 11 February to bring NOSENKO to the United States, and in the early evening of 12 February he and his CIA escorts arrived in Washington via commercial aircraft, thence to a safehouse in the Washington area.
 
 At the request of the Swiss and Soviet Governments, NOSENKO met on 14 February with representatives of their respective Washington Embassies in the offices of the U.S. Immigration and Naturalization Service. He told both that he had defected of his own free will after careful consideration and that he had no desire to return to the Soviet Union. In answer to the questions of the Soviet representatives, he orally renounced his status and rights as a citizen of the USSR.
 

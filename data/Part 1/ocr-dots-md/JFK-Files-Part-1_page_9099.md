@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9099.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 23-07-85
 

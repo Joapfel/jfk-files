@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16341.png
-
-Convert to MarkdownDate June 6, 1969
+Date June 6, 1969
 
 A search was conducted incidental to arrest, of the second floor of a building at 2350 West Madison, Chicago, Illinois, occupied by a Negro group known as the Black Panthers. The search began at 6:09 a.m. and ended at 7:56 a.m. on June 4, 1969. The following Special Agents participated directly in the search:
 

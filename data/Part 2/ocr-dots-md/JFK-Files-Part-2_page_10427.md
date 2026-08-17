@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10427.png
-
-Convert to MarkdownMay. 1973
+May. 1973
 
 MEMORANDUM FOR THE RECORD
 

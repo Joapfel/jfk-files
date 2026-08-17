@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21886.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Photographs submitted to PARIS MATCH (See Part III.H.)
 

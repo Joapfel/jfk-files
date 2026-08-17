@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6535.png
-
-Convert to Markdown(1) Counterinsurgency, anti-subversion and psychological operations training, through the medium of military missions and mobile training teams.
+(1) Counterinsurgency, anti-subversion and psychological operations training, through the medium of military missions and mobile training teams.
 
 (2) Provision of equipment and material on short notice for use in the face of subversion or subversive threats.
 

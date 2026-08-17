@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29341.png
-
-Convert to MarkdownPHILLIPS, page 18.
+PHILLIPS, page 18.
 
 Mr. Phillips said that he did not participate, nor was he aware of, in any campaign after the assassination to spread misinformation about the death of Kennedy. He could not explain why the misinformation that came from the Cuban groups and individuals that tended to point to Castro involvement were predominantly from assets that he had handled personally as opposed to ones that had been ran out of the Miami station. He said that he agreed that it was strange that the one piece of evidence that tended to show at least DGI foreknowledge was not pursued by his shop while disinformation from his former assets occupied the attentions of investigators in that area. Mr. Phillips stated that he did not know of any hard evidence that existed in 1963 that pointed to Castro's involvement.
 

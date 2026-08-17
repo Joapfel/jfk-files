@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25368.png
-
-Convert to Markdown14-00000
+14-00000
 
 a/ Nombre completo: Leona Guerra Figueroa
 b/ Fecha y lugar de nacimiento: 30 de abril de 1928, 18:51

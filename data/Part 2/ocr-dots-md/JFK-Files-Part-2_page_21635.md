@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21635.png
-
-Convert to Markdown1 wasn't aware of this.
+1 wasn't aware of this.
 
 2 Mr. Schwarz. After that initial occasion involving
 

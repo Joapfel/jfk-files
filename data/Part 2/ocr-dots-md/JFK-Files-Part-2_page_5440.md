@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5440.png
-
-Convert to Markdowncover. The test required by Mr. Gunn to satisfy the Board and thus continue postponement until 1 June of this year is a good faith showing that reasonable attempts were made to locate the officer and failed.
+cover. The test required by Mr. Gunn to satisfy the Board and thus continue postponement until 1 June of this year is a good faith showing that reasonable attempts were made to locate the officer and failed.
 
 The section contains the additional provision which advises the Board may continue a postponement beyond 1 June of this year (i.e., until 2010) if the CIA provides the board with evidence which satisfies the criteria of either category 1 or category 3. Such additional evidence must be provided by 1 May 1977.
 

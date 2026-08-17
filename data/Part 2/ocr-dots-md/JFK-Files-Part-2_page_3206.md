@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3206.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 On 10 January 1961, President Eisenhower got involved in a meeting concerning the planned operations against Castro. On that day the New York Times broke a story about the training of the Cuban troops in Guatemala. As the ex-President himself wrote:
 

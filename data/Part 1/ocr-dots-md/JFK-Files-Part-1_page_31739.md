@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31739.png
-
-Convert to Markdown27 January 1953
+27 January 1953
 
 (Haller)
 

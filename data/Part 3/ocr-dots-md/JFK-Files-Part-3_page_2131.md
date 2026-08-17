@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2131.png
-
-Convert to Markdown# LIMITED OFFICIAL USE
+# LIMITED OFFICIAL USE
 
 FBB605
 

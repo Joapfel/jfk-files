@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10883.png
-
-Convert to Markdown# B. INTELLIGENCE TERMINOLOGY
+# B. INTELLIGENCE TERMINOLOGY
 
 People who do not speak and understand a common language have difficulty in communicating their ideas. Even in a country such as ours where English is the common language, words take on different meanings in different geographical locales and in different social, political, and economic environments. Likewise, in professional fields, varying backgrounds and experiences have conveyed different meanings to terms in the professional vocabulary.
 

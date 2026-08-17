@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23093.png
-
-Convert to MarkdownEs de destacar que los autores inteligentes de este plan fueron los contra-revolucionarios Cay Hernández y Cay Gispert, militantes de la organización DRE, que era dirigida por el agente de la CIA, infiltrado en nuestro país, Julio Hernández Rojo.
+Es de destacar que los autores inteligentes de este plan fueron los contra-revolucionarios Cay Hernández y Cay Gispert, militantes de la organización DRE, que era dirigida por el agente de la CIA, infiltrado en nuestro país, Julio Hernández Rojo.
 
 It is worth noticing that the intellectual authors of this plan were the counter-revolutionaries Cay Hernández y Cay Gispert, members of the DRE organization, --- which was headed by Julio Hernández Rojo,--- a CIA agent infiltrated into our country.
 

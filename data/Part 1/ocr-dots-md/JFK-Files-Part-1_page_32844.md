@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32844.png
-
-Convert to MarkdownSECRET
+SECRET
 
 H/W Att. #3 to
 UFGA-20702

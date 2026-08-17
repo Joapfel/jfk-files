@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14648.png
-
-Convert to Markdownbe a fool." The man says, "You are very intelligent",
+be a fool." The man says, "You are very intelligent",
 and Ruiz answers, "It is not a question of intelligence. It
 is simply that in ten years we have learned something."
 The man then says, "Ten years, eh", and Ruiz answers "Ten

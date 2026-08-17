@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11564.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>FORM 864</td>
     <td>53a</td>

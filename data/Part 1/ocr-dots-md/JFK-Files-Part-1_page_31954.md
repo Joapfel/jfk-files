@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31954.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. To monitor and screen LA cable traffic and select items of CI significance for routing to appropriate CI Staff components, together with supplemental information as needed; to maintain liaison with other USG components as appropriate; to perform special assignments on CI cases as may be required by CI Staff.
 

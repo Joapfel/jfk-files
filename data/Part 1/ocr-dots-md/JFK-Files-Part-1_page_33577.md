@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33577.png
-
-Convert to MarkdownUS RECORD MATERIAL
+US RECORD MATERIAL
 
 DUE DATE
 

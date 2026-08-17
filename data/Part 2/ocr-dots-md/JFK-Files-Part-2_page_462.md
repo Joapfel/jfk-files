@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_462.png
-
-Convert to Markdown<table><tr><td colspan="3">INDEX: ☐ YES ☐ TO __________ CLASSIFIED MESSAGE E TOTAL COPIES 40</td></tr><tr><td>CLASSIFY TO FILE NO. __________</td><td colspan="2"></td></tr><tr><td>X-REF TO FILE NO. __________</td><td colspan="2"></td></tr><tr><td>FILE RIO ☐ RET. TO BRAKE ☐</td><td colspan="2"></td></tr><tr><td>DESTROY ☐ SIG. __________</td><td colspan="2"></td></tr><tr><td colspan="3">FROM Dissen, BY 24</td></tr><tr><td>ACTION DelWHG-5 ☑ RID COPY</td><td>ADVANCE COPY ☐ ISSUE ☐ LOTTERY S87009</td><td>UNIT CSDD TIME 2/20/3 PHL</td></tr><tr><td colspan="3">INFO FILE ICSDoy,R C/WH-6, C/CDC/FI-2 C/DQ-4 C/DQ/H-3 C/SOD-3TT DDP AddP.C/CA-2 C/CHF-2,C/SHB-3 C/EUP-3</td></tr></table>
+<table><tr><td colspan="3">INDEX: ☐ YES ☐ TO __________ CLASSIFIED MESSAGE E TOTAL COPIES 40</td></tr><tr><td>CLASSIFY TO FILE NO. __________</td><td colspan="2"></td></tr><tr><td>X-REF TO FILE NO. __________</td><td colspan="2"></td></tr><tr><td>FILE RIO ☐ RET. TO BRAKE ☐</td><td colspan="2"></td></tr><tr><td>DESTROY ☐ SIG. __________</td><td colspan="2"></td></tr><tr><td colspan="3">FROM Dissen, BY 24</td></tr><tr><td>ACTION DelWHG-5 ☑ RID COPY</td><td>ADVANCE COPY ☐ ISSUE ☐ LOTTERY S87009</td><td>UNIT CSDD TIME 2/20/3 PHL</td></tr><tr><td colspan="3">INFO FILE ICSDoy,R C/WH-6, C/CDC/FI-2 C/DQ-4 C/DQ/H-3 C/SOD-3TT DDP AddP.C/CA-2 C/CHF-2,C/SHB-3 C/EUP-3</td></tr></table>
 
 SECRET 251932Z CITE MEXICO CITY 2460
 

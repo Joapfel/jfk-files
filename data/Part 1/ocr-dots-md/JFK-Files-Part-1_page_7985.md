@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7985.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 b. Despatch 100, dated 23 July 1954, from Habana, Cuba, subjects: Organized Individuals in Cuba that Identified Themselves with Arbena Administration.
 

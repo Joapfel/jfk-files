@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25116.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>KENNEDY, JOHN F.</td><td>DATES:</td></tr><tr><td>KENNEDY, ROBERT F.</td><td>5 Oct 1963</td></tr><tr><td>MC CONE, JOHN<br>DIEM</td><td>CATEGORIES:</td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>KENNEDY, JOHN F.</td><td>DATES:</td></tr><tr><td>KENNEDY, ROBERT F.</td><td>5 Oct 1963</td></tr><tr><td>MC CONE, JOHN<br>DIEM</td><td>CATEGORIES:</td></tr></table>
 
 TOP SECRET
 

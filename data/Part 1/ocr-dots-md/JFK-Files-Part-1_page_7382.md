@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7382.png
-
-Convert to MarkdownOCC 65-2476a
+OCC 65-2476a
 
 19 AUG 1985
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33885.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The strongest force in inducing the national exile groups to pull themselves together into some kind of unified and active councils may well be our insistence that until they do so they will not become eligible to take over the proposed RFE responsibilities. If one National Council receives access to RFE facilities this should prove an incentive to the others without our intervention to put themselves in order so that they may do the same.
 

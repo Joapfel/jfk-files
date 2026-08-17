@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21123.png
-
-Convert to MarkdownI. PREFACE
+I. PREFACE
 
 A. Purpose of Paper
 

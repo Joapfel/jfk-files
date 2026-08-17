@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24907.png
-
-Convert to Markdown(a) Agency Officials Failed On Several Occasions To Reveal The Plots To Their Superiors, Or To Do So With Sufficient Detail and Clarity
+(a) Agency Officials Failed On Several Occasions To Reveal The Plots To Their Superiors, Or To Do So With Sufficient Detail and Clarity
 
 Several of the cases considered in this report raise questions concerning whether officials of the CIA sufficiently informed their superiors in the Agency or officials outside the Agency about their activities.
 

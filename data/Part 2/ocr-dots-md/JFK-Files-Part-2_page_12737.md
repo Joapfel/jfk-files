@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12737.png
-
-Convert to Markdown[(B) Each priority III security index case must be opened for verification of residence and employment on an annual basis. In connection with this verification, case file must be thoroughly reviewed for any necessary action including a reevaluation of subject's status. This will include removal from priority III or possible redesignation as a priority I or priority II security index subject.
+[(B) Each priority III security index case must be opened for verification of residence and employment on an annual basis. In connection with this verification, case file must be thoroughly reviewed for any necessary action including a reevaluation of subject's status. This will include removal from priority III or possible redesignation as a priority I or priority II security index subject.
 
 Where necessary, pertinent information may be submitted to Bureau or other field offices through preparation of a letterhead memorandum. When pertinent information is submitted to Bureau for dissemination to interested agencies of executive branch of U. S. Government, forms FD-305 and FD-376 should accompany cover communication transmitting letterhead memorandum. (Refer to 87D 7a (3) (a) IV (D) for instructions regarding change of office of origin.)]
 

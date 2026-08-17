@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6413.png
-
-Convert to Markdown<table><tr><td>MAILED 2</td></tr><tr><td>DEC 5, 1962</td></tr><tr><td>COMM-FBI</td></tr></table>
+<table><tr><td>MAILED 2</td></tr><tr><td>DEC 5, 1962</td></tr><tr><td>COMM-FBI</td></tr></table>
 
 ALL INFORMATION CONTAINED
 HEREIN IS UNCLASSIFIED

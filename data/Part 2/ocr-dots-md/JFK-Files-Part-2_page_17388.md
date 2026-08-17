@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17388.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Urbana, Illinois, on page 3, reported that Vic Berkey, member of SDS, dismissed rumors of his "abduction" by two Black Panther members as "baseless". The article continued as follows:
 

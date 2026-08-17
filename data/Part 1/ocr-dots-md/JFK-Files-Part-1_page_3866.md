@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3866.png
-
-Convert to Markdownwith the Organization may have against the Organization or the United
+with the Organization may have against the Organization or the United
 States Government which may in any way necessitate the disclosure of
 information described herein. I have been advised that any such claims
 will receive legal consideration. In the event, however, that the

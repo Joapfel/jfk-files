@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28739.png
-
-Convert to MarkdownDispositions:
+Dispositions:
 
 Alphonse Indelicato for the crime of perjury in the first degree.
 Dominick Trinchera for the crime of criminal contempt in the first degree.

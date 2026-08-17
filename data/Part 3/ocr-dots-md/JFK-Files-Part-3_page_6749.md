@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6749.png
-
-Convert to Markdown63-66-037-1-1
+63-66-037-1-1
 63-73-022-1-1
 
 Shelton claimed a standard deduction on each of the returns and they were filled timely and the tax paid which was shown to be due thereon.

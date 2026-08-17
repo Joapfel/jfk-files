@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24490.png
-
-Convert to MarkdownValencia Lopez said: "We are grateful to El Tiempo for the way in which it presented the report about this matter, and stressed its severity and criminal nature."
+Valencia Lopez said: "We are grateful to El Tiempo for the way in which it presented the report about this matter, and stressed its severity and criminal nature."
 
 However, he criticized some other reports published by other news-papers, which very nearly caused the failure of the negotiations for the rescue of Ernesto Gonzalez Caicedo.
 

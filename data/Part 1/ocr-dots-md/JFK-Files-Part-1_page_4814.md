@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4814.png
-
-Convert to MarkdownBoseh: seguiré conspirando
+Boseh: seguiré conspirando
 
 Orlando Bosch, el controvertido analista de la cubana que se encuen-
 tra rechizado en la cárcel de Cárava, espera para ser deportado en

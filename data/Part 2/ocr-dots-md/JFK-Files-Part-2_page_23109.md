@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23109.png
-
-Convert to MarkdownEl 17 de marzo de 1967, resultaron detenidos Félix Asencio Crespo, Wilfredo Martínez Díaz y Gustavo Areces Alvarez, al tratar de infiltrarse por la zona de Cayo Fragoso, - procedentes de Estados Unidos.
+El 17 de marzo de 1967, resultaron detenidos Félix Asencio Crespo, Wilfredo Martínez Díaz y Gustavo Areces Alvarez, al tratar de infiltrarse por la zona de Cayo Fragoso, - procedentes de Estados Unidos.
 
 El objetivo principal que traían era realizar un atentado contra nuestro Primer Ministro y desatar una actividad sistemática de sabotajes con explosivos plásticos, todo ello complementado con ataques piratas, para dar la imagen en el exterior de actividades subversivas de grupos en distintas zonas y crear una situación que permitiera a las organizaciones contrarrevolucionales radicadas en Estados Unidos, recabar ayuda oficial.
 

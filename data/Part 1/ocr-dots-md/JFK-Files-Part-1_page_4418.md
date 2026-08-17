@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4418.png
-
-Convert to MarkdownPhilippe J. Littauer Gudin
+Philippe J. Littauer Gudin
 
 20 years
 

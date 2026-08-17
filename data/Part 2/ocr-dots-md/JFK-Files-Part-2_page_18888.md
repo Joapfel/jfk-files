@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18888.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 On 2/25/71, JAFFE advised that NICHOLAS DANILOFF, a United Press International correspondent is acquainted with YAROCHEVSKIY and other Soviet correspondents in Washington, D. C. JAFFE stated that DANILOFF speaks Russian fluently and has dedicated himself to becoming an authority on Soviet Union affairs. JAFFE recalled that some time ago DANILOFF attempted to interest JAFFE in their pooling expenses and arranging social affairs for Soviet nationals here. Purpose of this was to give them an entré to the Soviets for background information which might serve their correspondent careers. (C) JAFFE was not interested.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19437.png
-
-Convert to Markdown<table><tr><td colspan="3">STANDARD FORM 80-18 PARTS<br/>OCTOBER 1968<br/>PROPOSED BY<br/>CHAPTER B.I. GENERAL PERSONNEL MANDATE<br/>U.S. CIVIL SERVICE COMMISSION</td></tr><tr><td colspan="2">CENTRAL INTELLIGENCE AGENCY</td><td>P.C. 12/1/89<br/>784 (sk) 130</td></tr><tr><td colspan="3">NOTIFICATION OF PERSONNEL ACTION</td></tr></table>
+<table><tr><td colspan="3">STANDARD FORM 80-18 PARTS<br/>OCTOBER 1968<br/>PROPOSED BY<br/>CHAPTER B.I. GENERAL PERSONNEL MANDATE<br/>U.S. CIVIL SERVICE COMMISSION</td></tr><tr><td colspan="2">CENTRAL INTELLIGENCE AGENCY</td><td>P.C. 12/1/89<br/>784 (sk) 130</td></tr><tr><td colspan="3">NOTIFICATION OF PERSONNEL ACTION</td></tr></table>
 
 <table><thead><tr><th>1. NAME (MR., MRS., ONE GIVE NAME, INITIAL(S), AND SURNAME)</th><th>2. DATE OF BIRTH</th><th>3. JOURNAL OR ACTION NO.</th><th>4. DATE</th></tr></thead><tbody><tr><td>A Mr. J. Walton Moore</td><td>10/5/89</td><td></td><td>12/6/89</td></tr></tbody></table>
 

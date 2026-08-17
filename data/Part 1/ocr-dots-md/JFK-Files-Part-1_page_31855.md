@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31855.png
-
-Convert to Markdown13 February 1957
+13 February 1957
 
 TO: CIA Security Control Officer
 

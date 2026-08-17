@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18743.png
-
-Convert to MarkdownSAC, New York (134-3315)
+SAC, New York (134-3315)
 
 January 29, 1959
 

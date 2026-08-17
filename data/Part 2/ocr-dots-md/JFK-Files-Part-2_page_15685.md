@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15685.png
-
-Convert to Markdownthat have stood up and said no more.
+that have stood up and said no more.
 I'm not a slave, I'm not a fool, I'm
 a man, I'm a woman and I'm not going to
 allow you to brutalize me and terrorize

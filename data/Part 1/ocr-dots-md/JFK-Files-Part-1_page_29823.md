@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29823.png
-
-Convert to MarkdownChief, Foreign Division B
+Chief, Foreign Division B
 
 1. December 1951
 

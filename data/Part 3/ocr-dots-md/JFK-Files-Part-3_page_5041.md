@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5041.png
-
-Convert to MarkdownDE CODED COPY
+DE CODED COPY
 
 ☑ APROGRAM ☐ CABLEGRAM ☒ RADIO ☐ TELETYPE
 

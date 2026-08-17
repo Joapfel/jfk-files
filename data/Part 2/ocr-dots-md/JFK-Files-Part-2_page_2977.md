@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2977.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (SAM) sites to the Cubans.
 

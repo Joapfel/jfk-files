@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28338.png
-
-Convert to Markdown20 August 1961
+20 August 1961
 
 In view of your accomplished cover action, you have been designated a Staff Agent. The purpose of this Supplement is to call your attention to a matter that is which, if correctly stated to you by an agent of yours and raised at righteously before me, should not be omitted from the rest of your program. I will take it as granted that upon receipt of my cable the matter will be taken up with due expeditiousness.
 

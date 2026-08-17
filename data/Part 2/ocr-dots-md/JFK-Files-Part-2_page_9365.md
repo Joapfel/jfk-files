@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9365.png
-
-Convert to MarkdownDE157-3075
+DE157-3075
 
 On July 21, 1971, ERONE C. DESSAUSURE, BENJAMIN W. FONDREN and DAVID M. JOHNSON were sentenced to three to four years, State Prison of Southern Michigan, Jackson, Michigan, by Detroit Recorders Court Judge JOHN R. MURPHY, on a charge of Felonious Assault.
 

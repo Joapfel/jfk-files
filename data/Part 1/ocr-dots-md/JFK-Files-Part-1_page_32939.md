@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32939.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: C. TRETTIN:jaf
 UNIT: WH/COG/CICS

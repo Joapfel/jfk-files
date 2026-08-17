@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31869.png
-
-Convert to MarkdownA-103535
+A-103535
 
 25 Jan 67
 

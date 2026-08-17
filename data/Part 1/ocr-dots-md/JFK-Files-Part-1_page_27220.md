@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27220.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 SECRET
 (over)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11114.png
-
-Convert to Markdowne. Correlation of other investigations with the security index and reserve index
+e. Correlation of other investigations with the security index and reserve index
 
 Individuals investigated by the Bureau under any character against whom subversive information is developed must be constantly borne in mind for inclusion in the security index and/or reserve index.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8697.png
-
-Convert to MarkdownAMCOVE-1 SW Message #66 dated 5 December 1963
+AMCOVE-1 SW Message #66 dated 5 December 1963
 
 Report giving names of travelers from Prague on
 22 November 1963; travelers from Spain on 23

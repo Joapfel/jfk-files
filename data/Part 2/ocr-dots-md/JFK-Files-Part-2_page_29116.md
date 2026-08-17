@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29116.png
-
-Convert to MarkdownPlease attach Copy B of Form W-2 here
+Please attach Copy B of Form W-2 here
 
 U.S. Individual Copy
 Income Tax Return for the year January 1-December 31, 1968,

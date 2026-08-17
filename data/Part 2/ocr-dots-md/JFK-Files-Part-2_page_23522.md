@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23522.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. Disposal --
 10. Targets who & where -- Must know before we can spot --

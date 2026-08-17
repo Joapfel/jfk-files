@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13246.png
-
-Convert to Markdownthe attempted assassination on two occasions of Fidel Castro and all the top military commanders that used to come to the Air Force Base. And remember that I had another job at the Air Force Base training the military police. And I also was still Chief of Security.
+the attempted assassination on two occasions of Fidel Castro and all the top military commanders that used to come to the Air Force Base. And remember that I had another job at the Air Force Base training the military police. And I also was still Chief of Security.
 
 MR. OLSEN: Let me ask you, are you telling us that you participated as a Cuban Air Force officer, and Chief of Training military police and security and intelligence operations in the Cuban Air Force, that participated in an attempt to assassinate Castro?
 

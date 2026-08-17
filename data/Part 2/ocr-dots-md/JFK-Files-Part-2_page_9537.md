@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9537.png
-
-Convert to MarkdownLET US HELP OUR FRENCH COUNTRY OUT!
+LET US HELP OUR FRENCH COUNTRY OUT!
 
 FINNEY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16267.png
-
-Convert to Markdown# BLACK PANTHER PARTY
+# BLACK PANTHER PARTY
 
 According to its official newspaper, the Black Panther Party (BPP) was started during December, 1966, in Oakland, California, to organize black people so they can take control of the few politics, and the destiny of the black community. It was organized by Son by George Seale, BPP Chairman, and Huey P. Newton. BPP Minister of I. Defense. Newton is presently serving a sentence of 2 to 15 years on a c i viction of man - slaughter in connection with the killing of an Oakland police officer,
 

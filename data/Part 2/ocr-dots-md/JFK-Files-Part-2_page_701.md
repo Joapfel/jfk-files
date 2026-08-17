@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_701.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 2. General Observations
 

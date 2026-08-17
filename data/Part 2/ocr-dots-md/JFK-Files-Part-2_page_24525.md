@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24525.png
-
-Convert to MarkdownLansdale also referred, in a memorandum to the Attorney General on January 27, 1962, to his feeling that "we might uncork the touchdown play" "independently of the institutional program we are spurring." (Lansdale Ex. 4, p.1). Lansdale testified that in this memorandum the phrase "touchdown play" was a "breezy way of referring to "a Cuban -revolt to overthrow the regime" rather than to a Castro assassination. (Lansdale, p.45).* The examples of such "plays cited in the memorandum
+Lansdale also referred, in a memorandum to the Attorney General on January 27, 1962, to his feeling that "we might uncork the touchdown play" "independently of the institutional program we are spurring." (Lansdale Ex. 4, p.1). Lansdale testified that in this memorandum the phrase "touchdown play" was a "breezy way of referring to "a Cuban -revolt to overthrow the regime" rather than to a Castro assassination. (Lansdale, p.45).* The examples of such "plays cited in the memorandum
 
 */ The testimony was as follows:
 

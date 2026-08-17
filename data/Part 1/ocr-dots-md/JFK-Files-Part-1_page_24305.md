@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24305.png
-
-Convert to MarkdownSECRET
+SECRET
 
 E. Close case officer direction has been made very difficult because of the echelons existing between QRPHONE/1 and LCPIPIT, coupled with relative infrequency of field case officer meetings.
 

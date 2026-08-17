@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_281.png
-
-Convert to Markdown1- AMPATROL PROJECT
+1- AMPATROL PROJECT
 
 2- HUMMAIL-1
 

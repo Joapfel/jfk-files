@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12438.png
-
-Convert to Markdown1332.- Precios a los efectos de liquidación del Impuesto de Explotación.
+1332.- Precios a los efectos de liquidación del Impuesto de Explotación.
 
 La Ley de Minas admite que el imposición de explotación de 3% en el caso del libre aprovisionamiento, sea cancelado por el compromiso en caso de que el minero no pudiera hacerlo. La liquidación de esa in- puesto tiene lugar en Ciudad Solivar y es generalmente un mayoris- ta que centraliza los diamantes provenientes de varios societarios el que presenta una solicitud de liquidación según el modelo anexo.
 

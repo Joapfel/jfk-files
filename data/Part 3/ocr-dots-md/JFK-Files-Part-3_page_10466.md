@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10466.png
-
-Convert to MarkdownG·J. 
+G·J. 
 
 I G: J. 
 

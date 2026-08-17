@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34369.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>ORIG<br/>R. Rastetter/bh</td>
     <td>MESSAGE FORM</td>

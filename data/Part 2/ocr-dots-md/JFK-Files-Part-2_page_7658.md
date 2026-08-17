@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7658.png
-
-Convert to Markdownwill be the truth, the whole truth, and nothing but the truth, so help you God?
+will be the truth, the whole truth, and nothing but the truth, so help you God?
 Mr. HOOVER. I do.
 The CHAIRMAN. Mr. Rankin will carry on the examination, Mr. Director.
 Mr. RANKIN. Mr. Chief Justice, do you want to tell him briefly what our

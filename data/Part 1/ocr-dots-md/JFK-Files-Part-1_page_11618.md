@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11618.png
-
-Convert to MarkdownSeparate Cover Attachment to HKHB-114
+Separate Cover Attachment to HKHB-114
 
 Source of Income for Tax Form 1099
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14283.png
-
-Convert to Markdown# Minutes of September 14, 1962 Meeting of the Special Group
+# Minutes of September 14, 1962 Meeting of the Special Group
 
 Those present were Mr. Bundy, Mr. Johnson, Mr. Nitze, General Lemnitzer, and General Carter.
 

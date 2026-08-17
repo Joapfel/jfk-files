@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8195.png
-
-Convert to Markdown8 March 1961
+8 March 1961
 
 MEMORANDUM FOR THE RECORD
 

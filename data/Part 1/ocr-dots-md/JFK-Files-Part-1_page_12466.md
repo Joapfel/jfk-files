@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12466.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MEMORANDUM FOR: Chief,<br/>W11/3/V - N. Davis</td><td><table><tr><td>NUMBER</td><td>201-300985</td></tr><tr><td>SUBJECT</td><td>CIFENCE/4</td></tr><tr><td>REFERENCE:</td><td>Your Memorandum, Dated<br/>1c</td></tr></table></td></tr></table>
 

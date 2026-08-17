@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22094.png
-
-Convert to Markdown253.
+253.
 
 "Office of the Minister Counselor, FREERS;
 "Office of the Naval Attache, HOUGHTON;

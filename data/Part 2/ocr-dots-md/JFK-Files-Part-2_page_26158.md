@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26158.png
-
-Convert to Markdownsecondhand from people, and this tended to
+secondhand from people, and this tended to
 isolate him more. Since his main intelli-
 gence officer was his brother, [Ngo Dinh] Nhu,
 who was an ambitious person, too. I felt that

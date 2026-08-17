@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2134.png
-
-Convert to Markdown18 JUL 1967
+18 JUL 1967
 
 MEMORANDUM FOR: Mr, James A. Noel
 SUBJECT : Retirement Information

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4334.png
-
-Convert to MarkdownFRIDAY
+FRIDAY
 29
 APRIL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9201.png
-
-Convert to Markdown26 March 1951
+26 March 1951
 
 MEMORANDUM FOR: File, STALIN PHOTO-BOOK
 

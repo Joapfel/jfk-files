@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15199.png
-
-Convert to Markdown**Israel**
+**Israel**
 
 Embassy, Washington, D. C.
 Consulate, NYC

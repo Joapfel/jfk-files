@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5062.png
-
-Convert to MarkdownRE - HOUSTUDY 62-116464-
+RE - HOUSTUDY 62-116464-
 OR
 SENSTUDY 62-116395-1153 EBF
 

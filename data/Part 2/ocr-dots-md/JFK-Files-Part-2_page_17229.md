@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17229.png
-
-Convert to MarkdownHAROLD KEITH BELL
+HAROLD KEITH BELL
 
 .12 gauge New Haven shotgun, no serial number
 1 box .38 ammunition

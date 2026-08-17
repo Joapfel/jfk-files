@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21336.png
-
-Convert to MarkdownDirector
+Director
 Central Intelligence Agency
 
 NOTE: This letter is classified "Secret" because it contains information so classified by CIA (u)

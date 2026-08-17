@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2427.png
-
-Convert to Markdown14-00000
+14-00000
 
 3. **Bogdanovskiy** - an deputy of chief of the navy intelligence of I Fleet (on agents) in 1957-1958.
 

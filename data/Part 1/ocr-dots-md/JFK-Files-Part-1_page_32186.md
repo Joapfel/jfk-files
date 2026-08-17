@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32186.png
-
-Convert to Markdown10. List all clubs, societies or organizations of which you are a member
+10. List all clubs, societies or organizations of which you are a member
 
 a) Junior Christian Club
 b) _________________________________________________________ Location Ft Lauderdale

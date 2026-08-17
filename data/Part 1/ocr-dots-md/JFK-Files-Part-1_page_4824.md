@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4824.png
-
-Convert to Markdown# OUTGOING-MESSAGE
+# OUTGOING-MESSAGE
 
 <table><tr><td>272142Z</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>DIRECTOR</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></table>
 

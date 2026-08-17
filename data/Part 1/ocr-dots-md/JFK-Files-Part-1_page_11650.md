@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11650.png
-
-Convert to MarkdownKAPOK
+KAPOK
 
 17 November 1950
 

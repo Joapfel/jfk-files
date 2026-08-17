@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13512.png
-
-Convert to Markdownknow if Ambassador Gustavo Arcos had returned from Prague. I informed him that I did not know. AMBANG-1 was most interested to learn that Franqui's wife and children had actually come out of Cuba, and indicated that he would intensify his efforts to maintain contact with Cuban Diplomat Cabrera Infante in Brussels as a means toward the eventual recruitment of Franqui.
+know if Ambassador Gustavo Arcos had returned from Prague. I informed him that I did not know. AMBANG-1 was most interested to learn that Franqui's wife and children had actually come out of Cuba, and indicated that he would intensify his efforts to maintain contact with Cuban Diplomat Cabrera Infante in Brussels as a means toward the eventual recruitment of Franqui.
 
 ### k. AMBANG-1 Relation with Jorge Volsky
 

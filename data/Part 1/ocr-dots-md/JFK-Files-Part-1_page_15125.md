@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15125.png
-
-Convert to Markdown-7-
+-7-
 
 5 - Otlitschno (sehr gut)
 

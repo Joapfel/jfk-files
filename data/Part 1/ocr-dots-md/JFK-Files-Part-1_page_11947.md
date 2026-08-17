@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11947.png
-
-Convert to Markdown039-559-74
+039-559-74
 
 23 March 1974
 

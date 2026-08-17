@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10469.png
-
-Convert to MarkdownC. V. NOYES
+C. V. NOYES
 
 My total contact with other agencies in terms of assistance
 with domestic operations has been in the field of audio sur-

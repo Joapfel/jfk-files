@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7421.png
-
-Convert to MarkdownL. B. R. Adams
+L. B. R. Adams
 
 4-0-76
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18360.png
-
-Convert to MarkdownStandard Form No. 31, Rev.
+Standard Form No. 31, Rev.
 Approved Dec. 1943
 C. S. C. Dept. Clr: No. 458
 

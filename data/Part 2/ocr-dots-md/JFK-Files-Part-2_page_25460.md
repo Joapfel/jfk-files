@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25460.png
-
-Convert to Markdown-11-
+-11-
 
 FS: You came back to Miami and you continued to go ahead and do some work
 

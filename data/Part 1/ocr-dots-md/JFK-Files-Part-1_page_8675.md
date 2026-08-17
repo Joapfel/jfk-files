@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8675.png
-
-Convert to Markdown4.03.05 Cristales de los espejuelos Gruesos Promedio
+4.03.05 Cristales de los espejuelos Gruesos Promedio
 Bifocales
 
 4.03.04 Estilo de los espejuelos Armadura gruesa

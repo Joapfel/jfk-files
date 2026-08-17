@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26495.png
-
-Convert to MarkdownSECTION A
+SECTION A
 Comunidades Guatemalenses y sus Inhabitos en México Quicieren Ser Visita de DO
 
 GUATEMALA. Guatemala, el. A. M., 1845—B.—y—el que, con el que se convocan las cua- dradas, undébiles, acuas, se trazas la mon- to, no se pisan tan los papeles históricos que están現在 en este momento. Y también quero decirte que, en Guatemala, he visto veinte, veintiuno, el que se sigue la marcha de las guerrillas. Si la opinión es q_ue el súdano guérrero en Guatemala ha preeminido definitivamente y que solo terminará con el fin del trienio.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4592.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 <table>
     <tbody>

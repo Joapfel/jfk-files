@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20251.png
-
-Convert to Markdown1 - Mr. Rozamus
+1 - Mr. Rozamus
 1 - Mr. R.H. Horner
 
 1/8/68

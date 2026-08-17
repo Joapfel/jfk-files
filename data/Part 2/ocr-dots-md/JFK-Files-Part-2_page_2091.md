@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2091.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">2A REFERENCED. List three persons living in the United States or Territories of the United States who are NOT related to you and who have definite knowledge of your qualifications for any position for which you are applying. Do not repeat names of supervisors listed under Item 16 (EXPERIENCE).</td>
    </tr>

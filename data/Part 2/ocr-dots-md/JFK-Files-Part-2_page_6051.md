@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6051.png
-
-Convert to MarkdownHENRY F. GRAFF cont'd
+HENRY F. GRAFF cont'd
 
 I have also contributed biographical sketches over the years to the *Dictionary of American Biography*. These have allowed me to indulge my affection for baseball. I have written the sketches of
 

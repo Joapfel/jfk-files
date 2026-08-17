@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13716.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 11
 

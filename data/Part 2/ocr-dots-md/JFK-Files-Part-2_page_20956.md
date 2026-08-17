@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20956.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 Mrs. JOHNSON related that she recalled that when she rented the dwelling to these three girls, they made a remark that they were employed by a "research organization", name unknown, and did most of their research at the Library of Congress.
 

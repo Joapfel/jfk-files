@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14472.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum from W. A. Branigan to Mr. E. S. Miller
 RE: [BUREAU INFORMANT 200]

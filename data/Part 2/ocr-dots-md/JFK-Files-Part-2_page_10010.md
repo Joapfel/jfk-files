@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10010.png
-
-Convert to MarkdownMay 8, 1974
+May 8, 1974
 
 Deputy Assistant Attorney General
 Criminal Division

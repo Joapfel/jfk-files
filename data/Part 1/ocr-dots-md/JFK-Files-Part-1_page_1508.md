@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1508.png
-
-Convert to Markdown# ALIAS
+# ALIAS
 
 | T107. | MENICUCCI, Andrew Robert   | 48-339 | 151. | STEVENS, James Henry |
 |---|---|---|---|---|

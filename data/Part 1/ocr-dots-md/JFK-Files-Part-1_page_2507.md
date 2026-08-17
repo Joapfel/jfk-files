@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2507.png
-
-Convert to Markdownresponded in the negative to a question regarding sexual relations with his maid. The failure of NOSENKO to report on this relationship can be ascribed to ignorance, but also can be plausibly explained by faulty memory on his part or failure on the part of the maid to report details of this relationship to the KGB.
+responded in the negative to a question regarding sexual relations with his maid. The failure of NOSENKO to report on this relationship can be ascribed to ignorance, but also can be plausibly explained by faulty memory on his part or failure on the part of the maid to report details of this relationship to the KGB.
 
 Second, NOSENKO had not reported that (ZWANG) was involved in the currency operations of Pietro CECCHI. (A fact that previous summary implied he should have known from KGB agent CECCHI.) From the record, however, it appears that the dealings of ZWANG were not directly with CECCHI, but rather through other Embassy employees, making it plausible that CECCHI was either unaware of the involvement of ZWANG or, as NOSENKO himself stated he suspected, CECCHI did not report all details of his currency operations to his KGB handler.
 

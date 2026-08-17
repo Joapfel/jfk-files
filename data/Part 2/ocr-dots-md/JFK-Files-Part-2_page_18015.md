@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18015.png
-
-Convert to Markdown# The Attorney General
+# The Attorney General
 
 A briefing for Senators Church and Tower has been provided covering warrantless electronic surveillances, surreptitious entry for recovery of cryptographic material, teletype coverage requested by the National Security Agency and electronic penetration of communications equipment requested by the National Security Agency. The White House asked that agencies of the intelligence community not respond to any requests from the SSC covering these matters until the briefing had been given. The goal of the briefing was to confine knowledge of these matters to Senators Church and Tower and avoid proliferation of this information throughout the SSC staff. In view of this, it is recommended that the enclosed material not be made available to the SSC staff until it is discussed with the White House. I further urge that it be made clear to the White House that if this material is to be made available to the SSC that access to the enclosed material be limited to Senators Church, Tower, and SSC Staff Director William Miller only.
 

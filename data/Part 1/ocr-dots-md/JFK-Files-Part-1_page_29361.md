@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29361.png
-
-Convert to Markdown30 JUN 1971
+30 JUN 1971
 
 MEMORANDUM FOR: Office of Finance/C&T)
 SUBJECT: Verification of Contract Service, Is

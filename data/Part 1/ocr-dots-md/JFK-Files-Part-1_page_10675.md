@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10675.png
-
-Convert to Markdown8 July 1966
+8 July 1966
 
 # MEMORANDUM
 

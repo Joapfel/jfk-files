@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3675.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">ROUTING</td>
     <td></td>

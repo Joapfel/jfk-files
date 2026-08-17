@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30365.png
-
-Convert to Markdown(S-204-R-1)
+(S-204-R-1)
 (When Completed)
 
 # TRAINING REPORT

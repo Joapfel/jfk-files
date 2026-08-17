@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22356.png
-
-Convert to Markdownindividual theories, it cannot explain the counterarguments discussed under component parts above.
+individual theories, it cannot explain the counterarguments discussed under component parts above.
 
 ### e. Insanity
 

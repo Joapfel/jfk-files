@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11703.png
-
-Convert to MarkdownJUNE 26, 1970
+JUNE 26, 1970
 
 MANUAL OF RULES AND REGULATIONS
 REVISION 217

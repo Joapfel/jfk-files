@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4874.png
-
-Convert to MarkdownFBI CABLE
+FBI CABLE
 
 FROM: DIRECTOR, FBI
 DATE: 14 FEBRUARY 1976

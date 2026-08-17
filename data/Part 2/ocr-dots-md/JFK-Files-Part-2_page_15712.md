@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15712.png
-
-Convert to Markdownfrom the gun. The Black Panther Party has a political program which it would like to see enacted for the benefit of black people. See below for the program.
+from the gun. The Black Panther Party has a political program which it would like to see enacted for the benefit of black people. See below for the program.
 
 ## WHAT IS THE STATUS OF THE BLACK MAN IN AMERICA TODAY?
 

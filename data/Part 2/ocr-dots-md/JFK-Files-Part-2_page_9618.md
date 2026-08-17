@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_9618.png
-
 leader" (Sergeant). These men shall be given special training by the Secret Army Organization at "leadership seminars".
 
 h. Team "marshalling points" should be selected in advance and be well defined. Practice "alerts" will determine the team's efficiency in response and security.

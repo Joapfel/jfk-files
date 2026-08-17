@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25538.png
-
-Convert to MarkdownFS: I would assume that these letters that were in code they would be classified material. Otherwise it wouldn't be in code.
+FS: I would assume that these letters that were in code they would be classified material. Otherwise it wouldn't be in code.
 
 ML: Very valuable, yes. The...
 

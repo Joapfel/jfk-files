@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25223.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 
 Mr. Walter J. STOESSEL, Jr.
 

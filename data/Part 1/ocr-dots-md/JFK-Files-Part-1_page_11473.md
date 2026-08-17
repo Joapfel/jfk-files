@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11473.png
-
-Convert to MarkdownS-E-L-B-T: NO FOREIGN DISEASE
+S-E-L-B-T: NO FOREIGN DISEASE
 
 3. There are currently two active cells under the guidance of the "Directive Committee:"
 

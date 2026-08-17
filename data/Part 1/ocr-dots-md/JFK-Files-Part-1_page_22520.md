@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22520.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 QAS assigned to investigate the charges reported on 8 June 1960 that the Dominican government was guilty as charged.
 

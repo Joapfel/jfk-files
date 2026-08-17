@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30737.png
-
-Convert to MarkdownS H C R T
+S H C R T
 (when Filled In)
 
 12-31 December 1974

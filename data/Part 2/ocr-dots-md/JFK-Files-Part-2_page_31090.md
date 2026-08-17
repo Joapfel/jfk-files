@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31090.png
-
-Convert to Markdown③ April 29, 1959 Classified Message D Director from Havana day Raúl Castro has begun a major purge of Cuban Armed Forces. Among those to be eliminated are Victor Panegu, aka "Diego"
+③ April 29, 1959 Classified Message D Director from Havana day Raúl Castro has begun a major purge of Cuban Armed Forces. Among those to be eliminated are Victor Panegu, aka "Diego"
 
 ④ 18 Oct. 1960
 

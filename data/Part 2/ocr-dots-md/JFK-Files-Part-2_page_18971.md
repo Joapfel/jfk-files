@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18971.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 or leading questions were put to him. For example, the disclosures he made to ~~were~~ confirmed in interview only after leading questions.
 

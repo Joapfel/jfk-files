@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33510.png
-
-Convert to MarkdownOUTGOING MESSAGE:
+OUTGOING MESSAGE:
 
 <table><tr><td colspan="5">SIGNAL CENTER USE ONLY</td></tr><tr><td>AGE</td><td>C/M</td><td>ALP</td><td>TMO</td><td>PM</td></tr><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></table>
 

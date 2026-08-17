@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23679.png
-
-Convert to Markdown Senator Hart. If it's happening, I don't think it should.
+Senator Hart. If it's happening, I don't think it should.
 2. If we have to sacrifice some human intelligence, I don't think
 3. we ought to have a CIA guy tugging on somebody's sleeve who's
 4. filling out his immigration forms because it is a very subtle

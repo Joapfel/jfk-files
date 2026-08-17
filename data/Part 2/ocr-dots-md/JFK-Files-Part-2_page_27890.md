@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27890.png
-
-Convert to Markdown# Library of Congress - Equal Opportunity Office
+# Library of Congress - Equal Opportunity Office
 Secretarial Assistant - Dictaphone Transcriber
 
 July 1973 to August 1973

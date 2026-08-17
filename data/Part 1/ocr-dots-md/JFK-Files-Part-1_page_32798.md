@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32798.png
-
-Convert to Markdown12 April 1968
+12 April 1968
 
 MEMORANDUM FOR: CI/OA
 Attention: Mr. Jack Lally

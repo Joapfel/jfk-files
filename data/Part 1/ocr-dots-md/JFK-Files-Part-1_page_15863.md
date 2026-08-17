@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15863.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: D. HISSCOR
 

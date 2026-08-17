@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21974.png
-
-Convert to Markdownwhereas NOSENKO related the ban specifically and only to
+whereas NOSENKO related the ban specifically and only to
 the U.S. Exhibition at Sokolniki Park which ended on
 4 September 1959.*
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9325.png
-
-Convert to Markdown(8) Photo of USSR being put on a war footing*
+(8) Photo of USSR being put on a war footing*
 
 I.e., photo of ______? a collective farm?
 photo of farmers during the enforced collectivisation?

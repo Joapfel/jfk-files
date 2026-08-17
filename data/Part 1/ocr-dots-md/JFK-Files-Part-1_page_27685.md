@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27685.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 <table><tr><td>REQUEST FOR PERSONNEL ACTION</td></tr><tr><td>8 APRIL 1963</td></tr></table>

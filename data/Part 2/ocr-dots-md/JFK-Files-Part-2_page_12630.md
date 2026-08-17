@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12630.png
-
-Convert to Markdown7. Status
+7. Status
 
 Carry cases as pending until all active investigation has been conducted.
 Thereafter, status shall be as follows:

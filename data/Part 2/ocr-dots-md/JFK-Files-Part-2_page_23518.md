@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23518.png
-
-Convert to Markdowne. Staffers _________ -selection.
+e. Staffers _________ -selection.
 
 5) Cover: planning should include provision for blaming Soviets or Czechs in case of blow.
 

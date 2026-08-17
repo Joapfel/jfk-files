@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30897.png
-
-Convert to Markdown1.3 DIVISION RANKING OF GS-14 CAREER AGENTS
+1.3 DIVISION RANKING OF GS-14 CAREER AGENTS
 
 Last Promotion
 

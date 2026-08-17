@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17600.png
-
-Convert to MarkdownSECRET KAPOK
+SECRET KAPOK
 
 Attachment
 H04-A-12936

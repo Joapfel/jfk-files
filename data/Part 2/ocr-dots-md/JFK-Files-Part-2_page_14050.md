@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14050.png
-
-Convert to MarkdownJune 5, 1975
+June 5, 1975
 
 LEGAL DIVISION
 

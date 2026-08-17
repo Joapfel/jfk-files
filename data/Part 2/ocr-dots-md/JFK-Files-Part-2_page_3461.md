@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3461.png
-
-Convert to Markdown# SECRET BENSITIVE HOFORN
+# SECRET BENSITIVE HOFORN
 
 analytical effort on MORINE got underway. Beginning then
 with the cassette material (CC CPSU) International Department

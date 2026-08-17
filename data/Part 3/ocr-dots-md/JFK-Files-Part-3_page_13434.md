@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13434.png
-
-Convert to Markdown1
+1
 
 the question of amnesty, vitally affected one of the most important powers of the Congress, the power to raise armies, and in a period when the Congress was asserting its desire to re-establish its authority under the Constitution, did anyone in the Congress say that they ought to have participated in the amnesty decision? Not at all because it was a no win situation. Whatever the decision was, you were going to come out behind.
 

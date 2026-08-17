@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22940.png
-
-Convert to Markdown1962?
+1962?
 
 Mr. Bundy. I didn't say that. I said I had no independent
 recollection of them.

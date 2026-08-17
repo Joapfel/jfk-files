@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35467.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the ALABAU Lawyers' group in proclaiming Julio CARCERAN (one of the chief justices in exile) as "President of Cuba at War." He expressed his indignation at this unilateral "political" move by ALABAU and his adherents among the exiled lawyers and judges. He added his best wishes to me and reminded me that he would probably go to New York on October 11th or 12th for the SIP (Sociedad Interamericana de Prensa) meeting. I replied that I would appreciate if he would contact Clark after his arrival to give his location in New York City, and that Clark might have a request from me for an appointment with him, if this seemed desirable. I suggested that in future phone conversations I would be known as JUANITO. He agreed with pleasure that this would be a good procedure. I wished him Godspeed and he replied likewise to me.
 

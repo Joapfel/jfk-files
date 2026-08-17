@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13914.png
-
-Convert to Markdown5.1. Saifda al 140263.-1406.- J. avisa a ROGELIO que Ahí es - la Juáillo. ROGELIO que ya lo vió ayer, que le diga que - el abunto ya se resolvio. - J.que está bien.- 542.-
+5.1. Saifda al 140263.-1406.- J. avisa a ROGELIO que Ahí es - la Juáillo. ROGELIO que ya lo vió ayer, que le diga que - el abunto ya se resolvio. - J.que está bien.- 542.-
 
 276.
 

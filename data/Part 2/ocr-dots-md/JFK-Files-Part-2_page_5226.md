@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5226.png
-
-Convert to MarkdownAPR 15 '97 05:04PM
+APR 15 '97 05:04PM
 
 "confused Boy Scouts with "right wing paramilitary personnel." I worked as a volunteer leader for the Boy Scouts of America and the Venezuelan Scout Association from 1974 to about 1991.
 

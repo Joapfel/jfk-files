@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18855.png
-
-Convert to MarkdownSAG, Washington Field Office
+SAG, Washington Field Office
 
 7/22/54
 

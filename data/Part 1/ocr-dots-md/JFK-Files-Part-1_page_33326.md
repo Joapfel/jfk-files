@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33326.png
-
-Convert to Markdownwas an expansion of the electoral base of the Allende coalition by an appeal to the material interests and the class consciousness of the lower classes. It was the interaction of the various elements of this political and economic strategy that finally produced the breakdown of Chilean constitutionalism and the intervention of the armed forces that the extreme left of the Allende coalition had been predicting all along.
+was an expansion of the electoral base of the Allende coalition by an appeal to the material interests and the class consciousness of the lower classes. It was the interaction of the various elements of this political and economic strategy that finally produced the breakdown of Chilean constitutionalism and the intervention of the armed forces that the extreme left of the Allende coalition had been predicting all along.
 
 Initial Success
 

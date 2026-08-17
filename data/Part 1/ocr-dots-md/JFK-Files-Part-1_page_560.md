@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_560.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Ramon Joseph ALVAREZ Durant
 

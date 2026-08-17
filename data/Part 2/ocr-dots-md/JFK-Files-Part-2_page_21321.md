@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21321.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Francisco Rodriguez Couceiro, 6424 S.W. 38th St., Miami, Fla., advised that the Crusade of Revolutionaries Against Communism (CRAC) had planned an invasion of the Isle of Pines, Cuba. In June, 1959, Eloy Gutierrez Menoyo and William Alexander Morgan, Commanders in the Cuban Army, were in contact with the Movimento Revolucionario Democrata in Havana, and this was known to the CRAC in Miami. Rodriguez had advised the group in Cuba and the anti-Castro movement in the Dominican Republic, not to trust either Morgan or Gutierrez because he considered them both to be loyal to Castro, and their cooperation with the group was for the purpose of entrapment.
 

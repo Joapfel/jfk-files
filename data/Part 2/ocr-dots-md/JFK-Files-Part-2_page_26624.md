@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26624.png
-
-Convert to Markdown3. USSR-Cuba
+3. USSR-Cuba
 
 a. In the past week we inter- cepted Cuban military messages which show that Cuban interpreters are now posted at several surface-to-air mis- sile (SAM) sites on the island.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_21161.png
-
 to chief, planning division of housing authority of major city, $3,100 per annum; employed since then by CIA, pay range of $3,800 to $13,250 per annum.
 
 (5) Outside interests: photography, including own processing; writing, editing non-fiction and some fiction; gardening and do-it-yourself wood and metal working; interest in mechanics and electricity; interest in organisation, management, and administrative planning; member, British Interplanetary Society; former associate member, American Astronautical Society; former member, Japan Rocket Society. Interested in sports cars and other high quality automobiles and trucks. Skiing, swimming, horseback riding, hiking, camping, alpinism.

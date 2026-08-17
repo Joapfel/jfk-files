@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3742.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONTINUATION SHEET
 ---

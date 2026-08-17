@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11442.png
-
-Convert to MarkdownRE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+RE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
 
 "FBI documents obtained by the committee indicate that Dorsett, who was disenchanted with KKK Grand Dragon J. Robert Jones of Granite Quarry and with Imperial Wizard Robert Shelton of Tuscaloosa, Ala., was encouraged by the FBI to leave the Klan in the summer of 1967 and form the Confederate Knights of the Ku Klux Klan. The FBI helped Dorsett draft letters recruiting for the new group, according to the committee source.
 

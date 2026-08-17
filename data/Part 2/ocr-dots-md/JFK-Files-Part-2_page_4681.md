@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4681.png
-
-Convert to MarkdownSECRET
+SECRET
 
 different. I don't know. But they weren't blind and they weren't toothless.
 

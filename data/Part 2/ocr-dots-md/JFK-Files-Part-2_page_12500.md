@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12500.png
-
-Convert to MarkdownVII. Subject's arrest record and disposition of charges; any information indicating a propensity for violence.
+VII. Subject's arrest record and disposition of charges; any information indicating a propensity for violence.
 
 VIII. What is expected to be gained by interview?
 

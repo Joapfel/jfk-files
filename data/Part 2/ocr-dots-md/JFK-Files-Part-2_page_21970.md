@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21970.png
-
-Convert to Markdownmeeting on the 15th (see below) to have discussed the results of the
+meeting on the 15th (see below) to have discussed the results of the
 October 14th message. But the CIA record makes no mention of any
 such discussion. (Kissinger testimony, p. 53)
 

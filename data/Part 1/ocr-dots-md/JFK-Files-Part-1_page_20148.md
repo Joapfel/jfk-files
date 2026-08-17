@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20148.png
-
-Convert to MarkdownCOPY
+COPY
 
 FJTT-1950
 

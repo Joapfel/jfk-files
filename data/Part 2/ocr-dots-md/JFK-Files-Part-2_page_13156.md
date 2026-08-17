@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13156.png
-
-Convert to MarkdownDECODED COPY
+DECODED COPY
 
 ☑ PROGRAM ☐ CABLEGRAM XXX RADIO ☐ TELETYPE
 

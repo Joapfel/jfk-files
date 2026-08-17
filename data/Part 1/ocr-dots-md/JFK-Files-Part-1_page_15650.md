@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15650.png
-
-Convert to Markdownout of place.
+out of place.
 
 57. It is Subject's experience that his friends love him for what he is. He likes his friends as they are, probably because they are as they are. The idea of attempting to change a friend is unthinkable for him. He loves them for their bad points as well as their good points.
 

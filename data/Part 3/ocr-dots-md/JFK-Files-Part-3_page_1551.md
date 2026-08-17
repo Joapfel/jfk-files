@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1551.png
-
-Convert to MarkdownQLS0003 0102106Z
+QLS0003 0102106Z
 
 RR HQ
 DE LS

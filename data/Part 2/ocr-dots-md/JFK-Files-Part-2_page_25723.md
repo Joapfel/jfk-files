@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25723.png
-
-Convert to Markdown# Castro Plot Raises Ugly Questions
+# Castro Plot Raises Ugly Questions
 
 By Jack Anderson
 

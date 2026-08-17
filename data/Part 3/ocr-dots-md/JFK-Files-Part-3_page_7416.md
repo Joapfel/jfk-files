@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7416.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Appendix C, III, 24
 

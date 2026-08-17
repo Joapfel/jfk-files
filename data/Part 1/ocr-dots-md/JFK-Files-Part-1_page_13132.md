@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13132.png
-
-Convert to MarkdownSECRET
+SECRET
 
 After this discussion the question read: "Is it probable that your relatives (brothers) are working for PBRUMEN intelligence? Answer: Yes."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_760.png
-
-Convert to MarkdownDepartment of Justice
+Department of Justice
 
 Washington, D.C. 20530
 

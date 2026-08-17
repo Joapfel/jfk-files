@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 grant provided it in Section S(b) of the CIA Act, and because of the unique
 nature of its statutory responsibilities, possesses both the express power

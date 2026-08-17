@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7184.png
-
-Convert to Markdown11
+11
 
 1. of the results of the investigation and study conducted by
 

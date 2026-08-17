@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13598.png
-
-Convert to Markdown1 actually spent for the intended purpose, although it is
+1 actually spent for the intended purpose, although it is
 2 conceivable that we might run across a question along that
 3 line. It is not a function that we would normally perform.
 4 The inspector general role, of course, is one that we also do

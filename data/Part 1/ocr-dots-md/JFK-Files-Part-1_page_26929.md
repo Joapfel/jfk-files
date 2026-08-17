@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26929.png
-
-Convert to MarkdownMr. Greaney
+Mr. Greaney
 
 September 17, 1979
 

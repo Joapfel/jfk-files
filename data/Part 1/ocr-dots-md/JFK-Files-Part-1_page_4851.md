@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4851.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th></th><th colspan="2">ADVANCE COPY ISSUED/SLOTTED</th><th>BY</th><th>AT</th><th>2</th><th>STAFF</th></tr></thead><tbody><tr><td>ACTION UNIT</td><td>I</td><td>RF.</td><td>FILE</td><td>.</td><td>VR.</td><td></td></tr><tr><td>ACTION #</td><td>N<br/>F<br/>O</td><td colspan="5"></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12062.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 SECRET SECRET (When Filled In)
 
 23 Jan 76

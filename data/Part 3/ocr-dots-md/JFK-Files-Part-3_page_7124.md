@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7124.png
-
-Convert to MarkdownHonorable William J. Cotter
+Honorable William J. Cotter
 
 I am sending a copy of this letter to Mr. Colby for his records.
 

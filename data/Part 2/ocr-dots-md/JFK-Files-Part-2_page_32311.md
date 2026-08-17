@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32311.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (2) The semiannual maintenance check of two Panamanian 40 foot Coast Guard Utility Boats (CGUBs) was commenced on 16 December by an on-the-job training (OJT) program. Work should be completed by 10 January 1964.
 

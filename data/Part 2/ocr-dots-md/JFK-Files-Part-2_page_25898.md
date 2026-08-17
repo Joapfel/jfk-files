@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25898.png
-
-Convert to Markdown# Unofficial Envoy
+# Unofficial Envoy
 ## An Historic Report from Two Capitals
 
 by Jean Daniel

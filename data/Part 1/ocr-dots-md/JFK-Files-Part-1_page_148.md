@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_148.png
-
-Convert to Markdown10 July 1963
+10 July 1963
 
 MENORANDUM FOR THE CONCERN OF
 

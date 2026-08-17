@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23986.png
-
-Convert to Markdown# C. CIA Views of Difficulty of Project
+# C. CIA Views of Difficulty of Project
 
 On one point the testimony of CIA officials who were involved in Track II is unanimous: they all said they thought Track II was unlikely to succeed. That view ran from the working levels of the Agency to the top. They all said they felt they were being asked to do the impossible, that the risks and potential costs of the project were too great. At the same time, they felt they had been given an explicit Presidential order, and they tried to execute that order.
 

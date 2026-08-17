@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24604.png
-
-Convert to Markdownsaid yes, that I didn't think there was any need to." (Helms,
+said yes, that I didn't think there was any need to." (Helms,
 6/13/75, p. 132.)
 
 Helms said his view was that AM/LASH was a political

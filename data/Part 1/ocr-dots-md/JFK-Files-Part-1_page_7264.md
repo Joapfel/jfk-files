@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7264.png
-
-Convert to Markdownthe USSR and had given Lautz a list of three other invites to the Intourist conference. Lautz introduced me by true name as Oronsky's replacement. Subject, in what Lautz had forewarned me was his usual over-enthusiastic manner, greeted me with a "believe me, it is my pleasure" salutation and, upon confirming that it was the Intourist conference I was interested in, took off from there. Without the slightest prompting, he rattled off the following:
+the USSR and had given Lautz a list of three other invites to the Intourist conference. Lautz introduced me by true name as Oronsky's replacement. Subject, in what Lautz had forewarned me was his usual over-enthusiastic manner, greeted me with a "believe me, it is my pleasure" salutation and, upon confirming that it was the Intourist conference I was interested in, took off from there. Without the slightest prompting, he rattled off the following:
 
 a) He had received a telegram from Moscow on 6 September inviting him to an Intourist conference in Moscow from 24-29 October. He had immediately thought of informing the Embassy, but because of the pressure of business simply hadn't gotten around to it. When Lautz called him, he knew immediately what we were interested in.
 

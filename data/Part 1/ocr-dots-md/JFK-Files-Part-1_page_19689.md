@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19689.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PERIODIC STEP INCREASE - CERTIFICATION
 

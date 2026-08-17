@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10348.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. FILE 231-798381.
 

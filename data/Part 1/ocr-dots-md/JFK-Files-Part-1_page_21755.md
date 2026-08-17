@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21755.png
-
-Convert to MarkdownSECRET
+SECRET
 
 06 KADERA, Fred - IV, E, 45
 KANTOR, Marvin - IV, D, 5, 6

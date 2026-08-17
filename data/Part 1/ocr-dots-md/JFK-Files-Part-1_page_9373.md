@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9373.png
-
-Convert to MarkdownSECRET
+SECRET
 
 those men have written, (Note: We have only seen the one by Trovorn-Poper.) and the situation was complicated by the desire of Trovorn-Poper to maintain a high and academic objectivity in relation to world affairs, whereas the delegates to the Congress insisted on making it a realisticibilization of the Communist stringer-hold on culture and intellectual freedom. Boostler opitatorizes the lefty philosophical viewpoint by saying, "Do you want partial liberty or total slavery?" Lucky has written a reply, over his name, to Trovorn-Poper.
 

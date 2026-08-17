@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25940.png
-
-Convert to MarkdownIN NARCOTICS
+IN NARCOTICS
 
 1955, Wall's body was found and his throat had been murdered; nor was the body of Wall the one that was Trafficante's closed confidential facts.
 

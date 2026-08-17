@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6285.png
-
-Convert to Markdown14-0000
+14-0000
 
 Alpha 66 Activities in Los Angeles Area
 

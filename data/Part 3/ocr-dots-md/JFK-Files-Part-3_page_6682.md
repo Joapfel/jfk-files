@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6682.png
-
-Convert to Markdownthat these programs did generate such information apparently came as a surprise to the Headquarters officials who ran the programs and the obvious questions are whether this was permitted or encouraged, and, if neither, how it could have happened.
+that these programs did generate such information apparently came as a surprise to the Headquarters officials who ran the programs and the obvious questions are whether this was permitted or encouraged, and, if neither, how it could have happened.
 
 (5) Whether the selection of names for inclusion on the CIA's Watch List in the Hunter Project was sufficiently controlled and limited. Because the FBI requested the CIA for information on categories such as peace organizations and on specific individuals and groups involved in the peace and women's movement, a serious question is raised whether there was sufficient restraint on the use of this source.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5767.png
-
-Convert to MarkdownSM-64-72
+SM-64-72
 
 26 Jan 72
 c. 57.962

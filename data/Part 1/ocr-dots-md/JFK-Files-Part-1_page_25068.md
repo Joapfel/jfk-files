@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25068.png
-
-Convert to MarkdownSECRET
+SECRET
 
 21 Jan 69 IN76296
 

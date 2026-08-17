@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17138.png
-
-Convert to Markdown17 APR 1972
+17 APR 1972
 
 MEMORANDUM FOR: Assistant Deputy Director for Plans
 

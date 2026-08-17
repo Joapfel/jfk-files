@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_495.png
-
-Convert to MarkdownOct 2 10'52:72
+Oct 2 10'52:72
 
 SECRET 021510Z OCT 72 RESTRICTED HANDLING
 

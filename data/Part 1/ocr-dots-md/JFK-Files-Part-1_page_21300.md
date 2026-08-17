@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21300.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>DISPATCH</td>
         <td>AUTO-INITIATED<br/>SECRET<br/>FEB 23 1961</td>

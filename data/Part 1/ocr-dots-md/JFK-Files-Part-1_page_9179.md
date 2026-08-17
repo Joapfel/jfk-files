@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9179.png
-
-Convert to Markdown21 May 1951
+21 May 1951
 
 file "STALIN - PHOTO-REPORT
 

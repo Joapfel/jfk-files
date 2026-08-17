@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13459.png
-
-Convert to Markdownam t 22
+am t 22
 
 1. question of the Constitutional rights of American citizens,
 2. from whatever source, I think is very important. Last year I

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10708.png
-
-Convert to MarkdownDOCTOR WILLIAM ALBERT JOSEPH ANDERSON
+DOCTOR WILLIAM ALBERT JOSEPH ANDERSON
 
 As previously noted, captioned individual voluntarily surrendered to the FBI at Camden, N. J., on August 23, 1971. He was placed under arrest and was afforded a hearing on the same date before U. S. Magistrate CHARLES L. RUDD, Camden, N. J. He was released on $10,000 cash bond.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24367.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 SUBJECT: Domestic Proprietary Companies
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2101.png
-
-Convert to Markdown(CONTINUED ON NEXT PAGE)
+(CONTINUED ON NEXT PAGE)
 
 14-00000
 

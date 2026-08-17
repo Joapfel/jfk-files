@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9171.png
-
-Convert to MarkdownMay 5, 1942
+May 5, 1942
 
 R. Boulton
 Maj. David Bruce

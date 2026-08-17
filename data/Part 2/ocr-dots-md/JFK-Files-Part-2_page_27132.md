@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27132.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 The strength of CIA's counterintelligence unit was cut almost in half - to eighty-nine; and by December 1974 the on-board strength of our counterintelligence personnel, officer and clerical, was down to seventy-seven, a total comprising 1.7 per cent of Operations Directorate strength. This abrupt reduction in force was accompanied by the transfer of four interlocking staff elements (International Communism, Operational Approvals, Police and Counterintelligence Liaison) to other jurisdictions. I do not know of any reasons concerning the performance of the Counterintelligence Staff or the scope of hostile clandestine intelligence action against the U.S. which would justify this drastic reduction and weakening.
 

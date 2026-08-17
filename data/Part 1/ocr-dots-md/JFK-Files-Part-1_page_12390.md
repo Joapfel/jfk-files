@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12390.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Virginia)
 (duke, person)

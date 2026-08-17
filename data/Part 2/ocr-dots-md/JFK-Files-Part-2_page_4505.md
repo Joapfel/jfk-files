@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4505.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET T 221152Z
 

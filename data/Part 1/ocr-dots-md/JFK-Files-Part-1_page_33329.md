@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33329.png
-
-Convert to MarkdownChile, Nathaniel Davis, remarked on the pattern of "brinkmanship" that the Chileans exhibited." Social and political tensions increased—but as long as economic deterioration was not reflected in runaway inflation, the Chilean political system seemed able to contain them.
+Chile, Nathaniel Davis, remarked on the pattern of "brinkmanship" that the Chileans exhibited." Social and political tensions increased—but as long as economic deterioration was not reflected in runaway inflation, the Chilean political system seemed able to contain them.
 
 The Turning Point
 

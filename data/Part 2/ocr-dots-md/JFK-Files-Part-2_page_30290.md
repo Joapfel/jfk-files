@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30290.png
-
-Convert to MarkdownMr. Nosenko. No.
+Mr. Nosenko. No.
 
 Mr. Klein. But you told them about that, didn't you?
 

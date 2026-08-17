@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8584.png
-
-Convert to Markdownaffect the deal because IYANOV will be able to back it in Moscow. S commented that it sounded good and that both of them will make a nice sum of many money. With a smile on his face A told S that he did not want any money because he had all the money he wanted. A commented that this was the case which makes it evident that they were in position to help each other; A facilitates the platinum deal for S and S get hold of a girl who can bring out the phone directory for couple of hours.
+affect the deal because IYANOV will be able to back it in Moscow. S commented that it sounded good and that both of them will make a nice sum of many money. With a smile on his face A told S that he did not want any money because he had all the money he wanted. A commented that this was the case which makes it evident that they were in position to help each other; A facilitates the platinum deal for S and S get hold of a girl who can bring out the phone directory for couple of hours.
 
 10. A asked the regular question as to who will be the next President of Mexico. S told him it will be Luis ECHEVARRIA, but this is still not positive. A did not ask for the source of info.
 

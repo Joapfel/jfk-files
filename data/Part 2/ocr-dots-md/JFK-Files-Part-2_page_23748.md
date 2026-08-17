@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23748.png
-
-Convert to Markdown1. Mr. Aaron. I just think that in drafting the charter -- actually you can just say you recommend by statute or you could say that the Committee recommends that it be removed or moved back, and you can leave it to the DCL to do it.
+1. Mr. Aaron. I just think that in drafting the charter -- actually you can just say you recommend by statute or you could say that the Committee recommends that it be removed or moved back, and you can leave it to the DCL to do it.
 
 2.
 

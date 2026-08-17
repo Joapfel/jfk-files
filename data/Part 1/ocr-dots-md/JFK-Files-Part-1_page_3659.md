@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3659.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>CO. : B, [signature]<br/>DFT : MA<br/>EFT : 2860<br/>DATE : 19 February 1960</td>
         <td rowspan="4">

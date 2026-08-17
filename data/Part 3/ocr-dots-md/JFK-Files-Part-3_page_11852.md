@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11852.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR E. S. MILLER:
 (ESM:bhg, 9/9/71)

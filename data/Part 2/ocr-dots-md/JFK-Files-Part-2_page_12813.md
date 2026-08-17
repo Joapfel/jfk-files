@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12813.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WMIE to talk personally with ANGULO. JORGE GONZALEZ arrived at Radio Station WMIE, 36th Street and Allapattah, approximately 9:30 A.M., (at which time ANGULO was busily engaged in conversation with another Cuban exile about a different matter.) JORGE GONZALEZ listened to this conversation; however, did not participate and shortly after 10:00 indicated that he had to leave because he had a 10:30 appointment, not further described. JORGE GONZALEZ left Radio Station WMIE without talking over the matter of mutual interest concerning the alleged bombings and Cuban Power.
 

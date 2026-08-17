@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29188.png
-
-Convert to MarkdownC 38 B-10-84 (REV. 9-75)
+C 38 B-10-84 (REV. 9-75)
 
 <table>
   <tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_279.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The letter was passed to the Station where it will reach
 the proper Mexican authorities. This may not work, but if

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30270.png
-
-Convert to Markdown4. Mr. McCord is considered to be economical in his use of equipment, manpower and funds.
+4. Mr. McCord is considered to be economical in his use of equipment, manpower and funds.
 
 5. Perhaps one of the stronger attributes this employee possesses is his ability to organize. In a relatively short time, he has deliberated the Physical Security Division's mission and already taken steps to restructure it within existing manpower limitations to more effectively react to its responsibilities.
 

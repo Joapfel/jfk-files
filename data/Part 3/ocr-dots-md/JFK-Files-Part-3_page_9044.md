@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9044.png
-
-Convert to Markdown# Boulder housewife sure she talked to Riha
+# Boulder housewife sure she talked to Riha
 
 ## By ALAN CUNNINGHAM
 Rocky Mountain News Writer

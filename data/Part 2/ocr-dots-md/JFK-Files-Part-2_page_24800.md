@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24800.png
-
-Convert to MarkdownHe interpreted the May 29 cable as saying:
+He interpreted the May 29 cable as saying:
 
 "...we don't care if the Dominicans assassinate Trujillo, that is all right. But we don't want anything to pin this on us, because we aren't doing it, it is the Dominicans who are doing it:" (Dearborn, 7/29, p. 104)
 

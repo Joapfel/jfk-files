@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33490.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">CABLE SEC. FORM BY 38 PER TOTAL COPIES 33-2 RUN BY 2X</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td>SECRET</td></tr><tr><td colspan="2">ADVANCE COPY IS USUALLY SCOTTED BY AT D, J, & V, 2</td></tr><tr><td>ACTION UNIT</td><td>STAFF</td></tr><tr><td>AIRB</td><td>I</td></tr><tr><td>ACTION #</td><td>REF FILE VR plan, w/o 6, 555. c/o P-2, P-6 & 4, asst loc. cloak.</td></tr><tr><td></td><td></td></tr><tr><td>T 103782</td><td>EIA146</td></tr><tr><td></td><td>PAGE 01</td></tr></table>
 

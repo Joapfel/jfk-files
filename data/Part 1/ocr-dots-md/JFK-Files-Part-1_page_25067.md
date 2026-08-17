@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25067.png
-
-Convert to MarkdownValeri V. Kostikov, I have met him but I do not know his name.
+Valeri V. Kostikov, I have met him but I do not know his name.
 
 Valentin Longuinov, in charge of consular affairs, his wife Alexandra has been an skimming star, both very nice, speak very good Spanish, and fair English. Their daughter _________ Kirina, sixteen years old, very sophisticated, came here for a holiday. The only child of that age we have ever seen here. They have another child, who is in Moscow. Both have been at our house for a party. In general soviet people come alone, leaving the wives behind.
 

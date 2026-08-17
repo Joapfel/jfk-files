@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17800.png
-
-Convert to Markdowncont.
+cont.
 
 lado y otro por otro cuando tienen trabajo, pero si ya svi va a
 acabar mal es que él está enfermo.

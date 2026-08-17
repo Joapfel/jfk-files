@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2597.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (Summary of Case)
 

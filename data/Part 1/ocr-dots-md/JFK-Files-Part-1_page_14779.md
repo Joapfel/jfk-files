@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14779.png
-
-Convert to Markdown14-0000
+14-0000
 
 CABLE SEC DISSED BY PEG TOTAL COPIES RUN B
 

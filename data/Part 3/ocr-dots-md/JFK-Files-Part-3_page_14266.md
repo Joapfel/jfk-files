@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14266.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Minutes of Special Group meetings are provided only to the members. (In answer to a specific question from Mr. Murphy, Mr. Jessup said that to his knowledge there has been no systematic review by the Special Group concerning the results of actions taken pursuant to previous Group approvals.)
 

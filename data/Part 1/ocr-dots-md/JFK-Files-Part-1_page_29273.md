@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29273.png
-
-Convert to Markdown24 JUN 1978
+24 JUN 1978
 
 MEMORANDUM FOR: Director of Personnel
 

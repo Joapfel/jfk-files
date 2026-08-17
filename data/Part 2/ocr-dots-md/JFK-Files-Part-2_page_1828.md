@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1828.png
-
-Convert to Markdown16 April 1963
+16 April 1963
 
 **Japan**
 

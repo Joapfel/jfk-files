@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11427.png
-
-Convert to MarkdownIII. Persons active in Communist Party underground
+III. Persons active in Communist Party underground
 
 IV. Any other security index subject whose activities, past or present, regardless of membership in a revolutionary organization, clearly and unmistakably depict the individual as a potential saboteur, espionage agent, or disruptionist in the event of an emergency
 

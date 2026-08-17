@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10035.png
-
-Convert to Markdown(NW 88608 DocId:32989628 Page 312)
+(NW 88608 DocId:32989628 Page 312)
 
 PAGE TWO (DN 66-DEAD)
 

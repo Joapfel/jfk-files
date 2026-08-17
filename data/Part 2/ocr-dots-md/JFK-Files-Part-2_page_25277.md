@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25277.png
-
-Convert to MarkdownI could get in and out of the room, and I said, "Wait a minute," and then went away.
+I could get in and out of the room, and I said, "Wait a minute," and then went away.
 
 # Thought It Was a Joko
 

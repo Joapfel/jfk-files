@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18447.png
-
-Convert to Markdown## 3. FBI Foreign Counterintelligence Operations
+## 3. FBI Foreign Counterintelligence Operations
 
 The Committee seeks to determine the nature of FBI counterintelligence operations directed at foreign intelligence activities within the United States or at any other hostile foreign-related activities within the United States. Since FBI operations to "counter" these activities go beyond intelligence collection, the Committee must consider whether such practices require statutory authorization. The impact of counterintelligence operations on United States foreign relations will also be considered.
 

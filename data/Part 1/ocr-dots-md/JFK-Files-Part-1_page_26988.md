@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26988.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ATL-30-74
 26 February 1974

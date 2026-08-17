@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23703.png
-
-Convert to Markdown14-0004
+14-0004
 
 # CHIEF CIVILIAN
 ## - 3 -

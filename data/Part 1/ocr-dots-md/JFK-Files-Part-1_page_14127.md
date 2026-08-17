@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14127.png
-
-Convert to Markdown18 August 1967
+18 August 1967
 
 MEMORANDUM FOR: Chief, WH/3
 

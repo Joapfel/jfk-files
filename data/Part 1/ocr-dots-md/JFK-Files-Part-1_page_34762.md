@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34762.png
-
-Convert to MarkdownP. O. Box 8045
+P. O. Box 8045
 S. W. Station
 Washington 24, D. C.
 February 9, 1967

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11326.png
-
-Convert to MarkdownIII. COMMUNIST PENETRATION AND INFLUENCE IN RACIAL AND OTHER ORGANIZATIONS
+III. COMMUNIST PENETRATION AND INFLUENCE IN RACIAL AND OTHER ORGANIZATIONS
 
 Field offices should set out information concerning only the local branches of the organizations which are in its territory. The office covering the national headquarters of an organization should set out pertinent data as to the national headquarters, as well as any local affiliates in its territory, separating the national from the locals. The number of members, nationally and by locals, should be indicated. Include under each organization information as to officers and others in positions of influence who have present or past subversive connections; information as to other subversives who are merely members; specific evidence of influence wielded by subversives; policy concerning communist participation in the organization's activities, such as prohibition of communists holding office or membership (if no such stated policy, so indicate); and use and distribution of communist propaganda.
 

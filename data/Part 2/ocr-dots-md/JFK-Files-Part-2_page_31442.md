@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31442.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FID/rev
 
 Hollywood, or plays on Broadway under this Act. He said that communists can't even work in Government atomic plants.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21150.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 On November 4, 1967, (N-11), NOSENKO, in writing about the [FRIPPEL] case, stated that [FRIPPEL] returned to the USSR in the summer of 1962 with a group of correspondents and he saw him twice. In March, 1963, [FRIPPEL] was on the "Olympia" in Odessa "where I flew and have seen him.
 

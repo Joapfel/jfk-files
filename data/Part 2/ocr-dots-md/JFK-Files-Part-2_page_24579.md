@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24579.png
-
-Convert to Markdownsuggestion, Harvey testified:
+suggestion, Harvey testified:
 
 "I think the consensus of the Group was to sweep that particular proposal or suggestion or question or consideration off the record and under the rug as rapidly as possible. There was no extensive discussion of it, no discussion, no back and forth as the whys and wherefores and possibilities and so on."
 

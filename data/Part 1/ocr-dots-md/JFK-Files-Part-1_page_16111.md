@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16111.png
-
-Convert to Markdown"'" This is okay, but when are you going to teach me to chase wimmen?"
+"'" This is okay, but when are you going to teach me to chase wimmen?"
 
 Department did an odd, little publicized thing; it suddenly revoked licenses to export munitions to the Cuban government of President Batista.
 

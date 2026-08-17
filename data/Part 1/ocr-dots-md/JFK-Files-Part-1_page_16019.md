@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16019.png
-
-Convert to MarkdownI. INTERROGATORIES
+I. INTERROGATORIES
 
 Section 1001, Title 18, United States Code. Whoever, in any matter within the jurisdiction of any Department or Agency of the United States knowingly and willfully falsifies, conceals or covers up by any trick, scheme, or device a material fact or makes any false, fictitious or fraudulent statements or representations or makes or uses any false writing or document knowing the same to contain any false, fictitious or fraudulent statement or entry, shall be fined not more than $10,000 or imprisoned not more than five years or both.
 

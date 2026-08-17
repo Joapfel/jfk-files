@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5438.png
-
-Convert to Markdownnot going to read them, and I certainly do not sponsor any move
+not going to read them, and I certainly do not sponsor any move
 to revive anything such as may have once existed.
 
 **QUESTION:** Those files will remain? Rumors, gossips--gossip, whatever is in it?

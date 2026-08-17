@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5633.png
-
-Convert to MarkdownFrom the Desk of Linda C. Cipriani
+From the Desk of Linda C. Cipriani
 
 **NOTE FOR:**
 

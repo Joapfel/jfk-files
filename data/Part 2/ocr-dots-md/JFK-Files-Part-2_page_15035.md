@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15035.png
-
-Convert to Markdown# BRIEF
+# BRIEF
 
 LUNCHEON MEETING WITH ATTORNEY GENERAL AND OTHERS
 

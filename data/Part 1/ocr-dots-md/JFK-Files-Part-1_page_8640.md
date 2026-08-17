@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8640.png
-
-Convert to MarkdownOleg said that Val had not arrived as far as he knew. I said I had been training to get ready for Val. I wanted my revenge for last week.
+Oleg said that Val had not arrived as far as he knew. I said I had been training to get ready for Val. I wanted my revenge for last week.
 
 Oleg seemed amused by this and immediately asked if I would like to play with him since Val was not here. I agreed. We found a court and played for about one hour. Olegg won 6-3, 6-4.
 

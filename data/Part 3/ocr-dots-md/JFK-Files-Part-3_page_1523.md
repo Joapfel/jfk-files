@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1523.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 # Memorandum
 
 TO : DIRECTOR, FBI (62-117290)

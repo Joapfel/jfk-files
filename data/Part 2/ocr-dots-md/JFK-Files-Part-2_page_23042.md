@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23042.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 certainly he did not come across my horizon at the time that I
 was in Miami.

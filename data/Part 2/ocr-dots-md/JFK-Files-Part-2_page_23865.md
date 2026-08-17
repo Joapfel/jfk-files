@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23865.png
-
-Convert to Markdown1 would take care of it.
+1 would take care of it.
 
 2 Senator Mondale. Publicly attributed.
 

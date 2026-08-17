@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23467.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOTE TO: WH/FI/cuba
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_2651.png
-
 . NOSENKO claimed he reported to KOBULOV's office, and although he waited two hours to see the General, the latter was busy elsewhere. Instead of seeing KOBULOV, however, NOSENKO said he was finally taken to the office of Second Chief Directorate Deputy Chief SHUBNYAKOV, who assigned him forthwith to the Embassy Section of the American Department.
 
 In April 1964 NOSENKO introduced a new variant. He said that he met KOBULOV while accompanying his parents on a visit in January to KOBULOV's dacha [NOSENKO had previously graphically described KOBULOV's weekend visit at the elder NOSENKO's], KOBULOV intervened in his behalf, and he was called to the KGB Personnel Office to be interviewed and to

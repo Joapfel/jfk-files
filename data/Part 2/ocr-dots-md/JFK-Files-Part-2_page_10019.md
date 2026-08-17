@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10019.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 for Administration
 
 Your memorandum of November 1, 1974, in part,

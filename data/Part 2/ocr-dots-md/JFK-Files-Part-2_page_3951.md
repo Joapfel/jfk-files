@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3951.png
-
-Convert to MarkdownOriginated by: DC/CI/R&A:DEPratt;dim 10 December 1968
+Originated by: DC/CI/R&A:DEPratt;dim 10 December 1968
 
 Distribution:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32232.png
-
-Convert to Markdown6 January 1965
+6 January 1965
 
 MEMORANDUM FOR: Chief, CSPO
 

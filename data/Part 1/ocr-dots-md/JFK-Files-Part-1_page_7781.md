@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7781.png
-
-Convert to MarkdownLOG: "Excellent. Then I'd like to see you to discuss certain things."
+LOG: "Excellent. Then I'd like to see you to discuss certain things."
 
 GAZ: "Then I can come there tomorrow?"
 

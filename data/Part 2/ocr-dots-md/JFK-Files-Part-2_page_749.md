@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_749.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Deputy Director for Plans
 THROUGH : Director of Personnel

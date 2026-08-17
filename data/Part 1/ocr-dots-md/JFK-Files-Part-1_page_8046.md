@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8046.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 SECURITY RESTRICTION
 
 - 2 -

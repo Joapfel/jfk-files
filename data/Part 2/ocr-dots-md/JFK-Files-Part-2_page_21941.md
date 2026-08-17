@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21941.png
-
-Convert to MarkdownIII. CIA's Implementation of Track II
+III. CIA's Implementation of Track II
 
 A. Evolution of CIA Strategy
 

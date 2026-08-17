@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7997.png
-
-Convert to MarkdownReport No: HHI-1152, Page 2
+Report No: HHI-1152, Page 2
 Date 10 May 1957
 
 In 1953 he attended the Fourth World Youth Festival held in Warsaw, Poland. MARTINEZ stated he left Cuba by air for the United States, where he remained for several days visiting a number of universities; he departed from the United States for France via sea and, upon his arrival in France, took a train direct to Warsaw. While attending the Festival, he was invited by members of the Chinese delegation present to visit Communist China. MARTINEZ accepted, traveling across the USAR to China, where he remained for a short period of time. He returned to Cuba via Czechoslovakia, Austria, France, and Spain. His complete trip lasted approximately six months.

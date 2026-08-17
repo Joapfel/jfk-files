@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22995.png
-
-Convert to MarkdownSECRET
+SECRET
 
 58. Other miscellaneous operational data and comments.
 

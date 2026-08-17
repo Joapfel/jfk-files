@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12087.png
-
-Convert to Markdownwork who should be shifted to other work to balance your assignments. I do not feel that you need two more men in the Special Coordination Unit at this time since increased work load considerations due to the additional Legats has not yet happened. When and if it does, you should make necessary intra-Branch transfers.
+work who should be shifted to other work to balance your assignments. I do not feel that you need two more men in the Special Coordination Unit at this time since increased work load considerations due to the additional Legats has not yet happened. When and if it does, you should make necessary intra-Branch transfers.
 
 I agree with your recommended replacements for SAs Enright and Quinn; however, replacement for Quinn should be assigned to the Racial Section and not the Espionage Section. I am submitting separate recommendations regarding this.
 

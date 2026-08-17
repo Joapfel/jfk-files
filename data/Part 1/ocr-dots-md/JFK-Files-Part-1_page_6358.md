@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6358.png
-
-Convert to MarkdownCOH: 660
+COH: 660
 
 etb:je
 

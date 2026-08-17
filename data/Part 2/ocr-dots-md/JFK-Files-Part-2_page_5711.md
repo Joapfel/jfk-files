@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5711.png
-
-Convert to MarkdownThe Honorable John M. Deutch
+The Honorable John M. Deutch
 
 November 27, 1996
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7138.png
-
-Convert to Markdownnotes
+notes
 
 KADIDDLE might have been at Perla's Thanksgiving party. I know PRIKHODKO and KONSTANTINOV were invited, possibly KUCHE ROV but I can't find the names of the others.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22501.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 on a grant from the American Legion, 1608 K. Street, N.W., Washington, D. C., under the supervision of Lee Pennington. As a result, McCord scheduled National Agency Checks in the name of Wiley on 9 January 1956.
 

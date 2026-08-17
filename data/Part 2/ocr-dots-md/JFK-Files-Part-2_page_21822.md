@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21822.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 as soon as I take off from my house, my apartment, I would head over there and he was always seeing me in and offer me drinks, but he was not a big wheel, he was just one of their employees.
 

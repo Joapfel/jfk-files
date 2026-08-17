@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9359.png
-
-Convert to MarkdownRe-printed in Vol. VII No. 4
+Re-printed in Vol. VII No. 4
 of the Black Panther Party
 Intercommunal News
 

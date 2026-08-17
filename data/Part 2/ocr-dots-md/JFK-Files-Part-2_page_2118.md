@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2118.png
-
-Convert to Markdown3. Summary of Information Provided
+3. Summary of Information Provided
 
 4. Remarks:
 

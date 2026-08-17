@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5151.png
-
-Convert to MarkdownSECURE STORAGE
+SECURE STORAGE
 
 <table><tr><td>DISPATCH</td></tr></table>
 

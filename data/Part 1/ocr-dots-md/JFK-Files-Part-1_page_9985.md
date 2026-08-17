@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9985.png
-
-Convert to Markdown2.
+2.
 
 City. In view of the response of the Venezuela Station ( discouraging Rowton from directing L/3 into Venezuelan guernilla activities with Srgio Valdez and Raúl Moreno) Rowton instructed L/3 to refrain from involvement with them in this aspect of the operation. He agreed, however, with L/3 that the new company gave him much-needed additional financial cover, especially in the eyes of the PERUVENS in the likely event that they would question him more closely during a future trip into their area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_323.png
-
-Convert to MarkdownCOMMUNICATION SECTION
+COMMUNICATION SECTION
 
 AUG 13 1975
 

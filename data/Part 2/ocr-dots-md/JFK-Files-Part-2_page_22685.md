@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22685.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Senator Tower. We will take a recess for about two
 minutes while we go up and vote.

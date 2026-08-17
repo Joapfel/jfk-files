@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16259.png
-
-Convert to Markdownrecent raid on Panthers Headquarters by the FBI.
+recent raid on Panthers Headquarters by the FBI.
 
 6/30/69)
 

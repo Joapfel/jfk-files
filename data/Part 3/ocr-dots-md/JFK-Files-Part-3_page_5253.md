@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5253.png
-
-Convert to Markdownthe following areas to develop background and associates of
+the following areas to develop background and associates of
 Subject which may be of assistance in determining his present
 whereabouts and causing his apprehension:
 

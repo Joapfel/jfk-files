@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22263.png
-
-Convert to Markdownc. Compromise of CHEREPANOV
+c. Compromise of CHEREPANOV
 
 (i) Introduction
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17465.png
-
-Convert to MarkdownInformant stated there are rumors around Argo-Summit that NATHANIEL JUNIOR and DENNIS HARVEY are seeking a way to go to Cuba before they are arrested. Informant stated he believes JUNIOR is at 2350 West Madison hiding out.
+Informant stated there are rumors around Argo-Summit that NATHANIEL JUNIOR and DENNIS HARVEY are seeking a way to go to Cuba before they are arrested. Informant stated he believes JUNIOR is at 2350 West Madison hiding out.
 
 Informant advised the BPP meeting on 5/21 was held at Chuck's Record Shop, 1019 South 17th. The only thing discussed was the mock trial to be held at the Old Lutheran Seminary, 1644 South 11th Avenue, on Saturday night at 8:00 p.m. This building is used by the O.E.O. and apparently someone made it available to the BPP.
 

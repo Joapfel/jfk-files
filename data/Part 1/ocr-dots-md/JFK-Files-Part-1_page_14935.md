@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14935.png
-
-Convert to MarkdownHARD CARRY
+HARD CARRY
 
 Prepare in duplicate
 

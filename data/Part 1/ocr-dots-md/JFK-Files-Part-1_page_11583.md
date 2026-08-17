@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11583.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td></tr></thead><tbody><tr><td>PERSON/UNIT NOTIFIED</td><td>CLASSIFIED RESECRET: 53 TOTAL COPIES</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td><td>REPRODUCTION OF THIS COPY PROHIBITED</td></tr><tr><td>BY: ______ AT: ______<br/>DISSENT BY: ____ PER: ____</td><td>INDEX: ☐ YES ☐ NO<br/>CLASSIFIED TO whom? __________<br/>REF: __________<br/>D-SET TO BE FILED: ____________________<br/>☐ P儿: ____ ☐ Forward to: __________ BRANCH:</td></tr><tr><td>ACTION UNIT <u>JUN 68</u><br/>ACTION NO. S63</td><td>FILE. VR. RILAN, F12, ADD, DDPECSIDUCI, C1,C1/cops,c1/cnc2 SODC, CS/SGO,</td></tr></tbody></table>
 

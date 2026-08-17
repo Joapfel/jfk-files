@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13243.png
-
-Convert to Markdown1. Piece of thin white paper under tab C, the heading of which is "Secret-RYBAT." This document is a list of traits which desired recruits would have. This is similar to the list of traits deemed desirable in the handwritten memorandum contained in the far rear of the previous file reviewed. This set of characteristics, however, could refer to burglars and safecrackers as well as assassins. This is indicated by paragraph 8 which reads, "Commercial firms (unspecified)-- industrial documents cover."
+1. Piece of thin white paper under tab C, the heading of which is "Secret-RYBAT." This document is a list of traits which desired recruits would have. This is similar to the list of traits deemed desirable in the handwritten memorandum contained in the far rear of the previous file reviewed. This set of characteristics, however, could refer to burglars and safecrackers as well as assassins. This is indicated by paragraph 8 which reads, "Commercial firms (unspecified)-- industrial documents cover."
 
 2. Included under tab M is a dossier of one Harold Meltzer, a resident of Los Angeles, with a long criminal record. This is the first instance in which I have noted a U.S. citizen under consideration for any recruitment with respect to the ZRRIFLE project.
 

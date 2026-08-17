@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20882.png
-
-Convert to MarkdownNWW 88321 Doctd:32989546 Page 387
+NWW 88321 Doctd:32989546 Page 387
 
 PAGE TWO
 

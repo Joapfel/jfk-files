@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27301.png
-
-Convert to MarkdownSECRET
+SECRET
 
 out of his collaborators. He is easy to work with, exercises the soundest of judgments, maintains excellent relations in the community and will without question turn in a really fine performance as Chief, WH Division.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6056.png
-
-Convert to MarkdownDIRECTORIO REVOLUCIONARIO ESTUDIANTIL
+DIRECTORIO REVOLUCIONARIO ESTUDIANTIL
 
 Jose antonio echeverria con tus ideas en el mazo
 

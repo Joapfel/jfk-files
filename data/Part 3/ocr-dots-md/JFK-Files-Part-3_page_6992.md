@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6992.png
-
-Convert to MarkdownLetter to FAC, Los Angeles
+Letter to FAC, Los Angeles
 RS: JANE FORDA
 
 NOTE:

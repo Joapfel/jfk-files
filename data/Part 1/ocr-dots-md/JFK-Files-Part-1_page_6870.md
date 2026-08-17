@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6870.png
-
-Convert to Markdown3. This correspondence was obtained from a usually reliable and highly sensitive source and should not be disseminated outside your Bureau. Photocopies of this correspondence have been furnished the representative of your Bureau in Mexico City, with a request for any information available on "Tess and Bruno."
+3. This correspondence was obtained from a usually reliable and highly sensitive source and should not be disseminated outside your Bureau. Photocopies of this correspondence have been furnished the representative of your Bureau in Mexico City, with a request for any information available on "Tess and Bruno."
 
 CSCL-3/752,581
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7188.png
-
-Convert to Markdown20 April 1966
+20 April 1966
 
 SUBJ: Contact Report/ JCOZY-5
 

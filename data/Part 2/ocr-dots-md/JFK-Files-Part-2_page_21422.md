@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21422.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Mr. Cassidy
 1 - Mr. Ryan

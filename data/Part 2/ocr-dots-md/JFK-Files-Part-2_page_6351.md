@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6351.png
-
-Convert to Markdownsensitive activities even when the documents contain information that is only incidental to the assassination, such as a passing reference to a name. There is a potential risk that sensitive, non-relevant sources and methods would be compromised.
+sensitive activities even when the documents contain information that is only incidental to the assassination, such as a passing reference to a name. There is a potential risk that sensitive, non-relevant sources and methods would be compromised.
 
 We suggest that the Board consider adding wording to this section that accommodates those instances when there is a need to release ample information from a document to disclose assassination-related material, while still protecting obviously unrelated, sensitive information. The Board, of course, would continue to have access to the entire record.
 

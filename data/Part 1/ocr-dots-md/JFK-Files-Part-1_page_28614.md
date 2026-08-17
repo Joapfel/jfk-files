@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28614.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 2. Subject's weaknesses, which because of his outstanding ability and promise are rather magnified in this assessment, lie mainly in his occasionally faulty human relations. Subject rejects much of the social life which is customarily associated (although not necessarily for the best) with Kubark field posts. His interests, aside from his work, are primarily intellectual and artistic. These interests, coupled with his at best pro forma fulfilling of the customary Kubark social protocols, definitely weaken his relationship with the rest of the staff.
 

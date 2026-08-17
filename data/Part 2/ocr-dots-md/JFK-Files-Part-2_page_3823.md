@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3823.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Hoke MAY was granted a Covert Security Approval in April 1958 for unwitting use by Project FJINDULGE. MAY was not to be directly employed by FJINDULGE but was to be used in connection with his position with a private firm which handled work for the Project. The letter was presumably written to a "Mr. WEISS" in CIA and referred to classified DOUBLE-CHEK activities in 1961 in which NOVEL claimed he was involved. This matter was reviewed by CI/R&A at the time the matter received publicity and it was determined that DOUBLE-CHEK was created by the Agency for the sole purpose of making payments to the widows of American flyers who participated in the Bay of Pigs. No connection with NOVEL could be established. NOVEL knew Sergio ARCACHA-SMITH who was New Orleans head of the Frente Revolucionario Democratico, an Agency created and supported anti-Castro organization. Although ARCACHA-SMITH had no Agency clearance, NOVEL could have gained an impression from him that he was employed by CIA.
 

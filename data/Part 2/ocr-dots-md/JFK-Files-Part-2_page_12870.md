@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12870.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 NY 100-111180
 

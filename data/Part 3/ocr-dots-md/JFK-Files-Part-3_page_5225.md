@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5225.png
-
-Convert to MarkdownThe only reason this informant is being classified fair, instead of poor is because information contained in your letter to the Bureau dated September 18, 1970 wherein your informant reported information was furnished by a TE to the effect that the present "boss" of the San Francisco LCN "family" had been discussing leadership of the San Francisco LCN with the target. You are instructed that in the event he does not furnish valuable positive information within 90 days he should be closed and a more suitable target developed.
+The only reason this informant is being classified fair, instead of poor is because information contained in your letter to the Bureau dated September 18, 1970 wherein your informant reported information was furnished by a TE to the effect that the present "boss" of the San Francisco LCN "family" had been discussing leadership of the San Francisco LCN with the target. You are instructed that in the event he does not furnish valuable positive information within 90 days he should be closed and a more suitable target developed.
 
 SF 3061-PC (San Francisco file 137-4768; Bureau file 137-17558) was also rated fair. This target along with the other two targets rated fair should be closely followed for 90 days and be given specific assignments during that period of time. In the event they are unproductive they should be closed.
 

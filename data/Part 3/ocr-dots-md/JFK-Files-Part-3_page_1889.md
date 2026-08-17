@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1889.png
-
-Convert to Markdown<table><thead><tr><th>TRANSMIT VIA:</th><th>PRIORITY</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>[ ] Teletype</td><td>[ ] Immediate</td><td>[ ] TOP SECRET</td></tr><tr><td>[ ] Facsimile</td><td>[ ] Priority</td><td>[ ] SECRET</td></tr><tr><td>[X] Airtel</td><td>[ ] Routine</td><td>[ ] CONFIDENTIAL<br/>[ ] EFTO<br/>[ ] CLEAR</td></tr><tr><td></td><td></td><td>Date 2/10/78</td></tr></tbody></table>
+<table><thead><tr><th>TRANSMIT VIA:</th><th>PRIORITY</th><th>CLASSIFICATION:</th></tr></thead><tbody><tr><td>[ ] Teletype</td><td>[ ] Immediate</td><td>[ ] TOP SECRET</td></tr><tr><td>[ ] Facsimile</td><td>[ ] Priority</td><td>[ ] SECRET</td></tr><tr><td>[X] Airtel</td><td>[ ] Routine</td><td>[ ] CONFIDENTIAL<br/>[ ] EFTO<br/>[ ] CLEAR</td></tr><tr><td></td><td></td><td>Date 2/10/78</td></tr></tbody></table>
 
 <table><tr><td>Assoc. Dir.</td><td rowspan="3"></td></tr><tr><td>Dep. AD Adm.</td></tr><tr><td>Dep. AD Inv.</td></tr><tr><td>Asst. Dir.:</td><td rowspan="6"></td></tr><tr><td>Adm. Serv.</td></tr><tr><td>Crim. Inv.</td></tr><tr><td>Fin. & Pers.</td></tr><tr><td>Ident.</td></tr><tr><td>Intell.</td></tr><tr><td>Laboratory</td><td rowspan="5"></td></tr><tr><td>Legal Coun.</td></tr><tr><td>Plan. & Insp.</td></tr><tr><td>Rec. Mgmt.</td></tr><tr><td>Spec. Inv.</td></tr><tr><td>Tech. Serv.</td><td rowspan="4"></td></tr><tr><td>Training</td></tr><tr><td>Public Affs. Off.</td></tr><tr><td>Telephone Rm.</td></tr><tr><td>Director's Sec'y</td></tr></table>
 

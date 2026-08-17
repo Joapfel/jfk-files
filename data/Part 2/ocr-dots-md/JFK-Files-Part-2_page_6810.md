@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6810.png
-
-Convert to MarkdownThe Honorable Dan Burton
+The Honorable Dan Burton
 
 I understand the importance that the Congress and the President have placed on disclosing to the American people all available information about the assassination. To this end, we have released more than 200,000 pages of material and are working diligently to complete our review of the remaining records.
 

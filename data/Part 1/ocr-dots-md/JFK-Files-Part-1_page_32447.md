@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32447.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NARRATIVE RATING OF ACHIEVEMENT:
 

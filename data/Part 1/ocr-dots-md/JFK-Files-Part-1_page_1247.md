@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1247.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 <table><tbody><tr><td colspan="3">UNITED STATES DEPARTMENT OF DEFENSE</td></tr><tr><td>CORRESPONDENCE FORM</td><td>SECRET</td><td># 15734</td></tr><tr><td colspan="3">RECEIVED BY: COTHER THAN THE ISSUING OFFICE IS PROHIBITED.</td></tr><tr><td>COORDINATING OFFICERS</td><td rowspan="2" colspan="2"><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>RECEIVING OFFICER</td><td></td></tr><tr><td>AUTHENTICATING OFFICE</td><td></td></tr></tbody></table>
 

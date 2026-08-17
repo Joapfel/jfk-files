@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34109.png
-
-Convert to MarkdownSUGAR
+SUGAR
 
 As the Cuban representative to the International Sugar Council. I was able
 to observe at first hand some of the problems facing the Cuban sugar industry.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3780.png
-
-Convert to MarkdownSECRET
+SECRET
 
 243317Z CITE JMWAVE 738P
 DIRECTOR INFO MANAGUA

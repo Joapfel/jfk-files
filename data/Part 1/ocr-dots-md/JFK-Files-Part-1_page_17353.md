@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17353.png
-
-Convert to MarkdownGuillermo Oomes calls for Vega. Omes is the man who left a letter this morning, which was a letter Vega asked for. Their business seems to have to do with passport and visa details. Omes travels a lot and will call back when in town, possibly tomorrow.
+Guillermo Oomes calls for Vega. Omes is the man who left a letter this morning, which was a letter Vega asked for. Their business seems to have to do with passport and visa details. Omes travels a lot and will call back when in town, possibly tomorrow.
 
 A number of calls show that Roberto Jorrin, the gate man, has a local girlfriend he sees quite often and who also visits him at the Embassy. Her name is not known.
 

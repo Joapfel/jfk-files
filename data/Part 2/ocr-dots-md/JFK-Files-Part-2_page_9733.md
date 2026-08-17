@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9733.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT
+UNITED STATES DEPARTMENT
 Memorandum
 
 TO : Director, FBI (105-93072)

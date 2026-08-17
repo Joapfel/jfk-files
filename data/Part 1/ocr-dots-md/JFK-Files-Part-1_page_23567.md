@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23567.png
-
-Convert to Markdown# SECRET
+# SECRET
 Security Information
 
 MEMORANDUM FOR THE FILE:

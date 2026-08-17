@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3903.png
-
-Convert to MarkdownFUGA - 21693
+FUGA - 21693
 
 SUBJECT: DUQUENNE, fm
 

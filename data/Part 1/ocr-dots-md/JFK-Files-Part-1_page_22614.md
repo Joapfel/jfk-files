@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22614.png
-
-Convert to MarkdownFinance Division
+Finance Division
 
 WH/B&P
 WH/3/Mexico

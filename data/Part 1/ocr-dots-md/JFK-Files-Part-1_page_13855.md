@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13855.png
-
-Convert to Markdown14-05980
+14-05980
 
 776.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14461.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The purpose of Sonia's trip to Madrid was to discuss the 1970 work plan for the Embassy with the Charge, Guillermo RUIZ Perez. She also talked with the various Embassy officials, most probably to familiarize herself with their duties and to see if they had any problems. She pitched in and helped with the backlogged work of Orestes Barrera and Horacio FuentES. and also helped with the cultural activities. For instance, she sent two cables to MINREX - one regarding the forwarding of movie posters for a March exhibit and another regarding the forwarding of a Cuban stamp exhibition by end March.
 

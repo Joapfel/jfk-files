@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3680.png
-
-Convert to Markdownsubmachine guns identified as among
+submachine guns identified as among
 those shipped to Cuba from Belgium
 in 1959 and 1960. There were also
 mortars, bazookas, recoilless rifles,

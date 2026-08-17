@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_75.png
-
-Convert to Markdown15. Father - full name occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
+15. Father - full name occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
 
 14. Mother - same information as 13.
 

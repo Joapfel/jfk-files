@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9054.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT : Alleged Information on Assassination of President Kennedy
 

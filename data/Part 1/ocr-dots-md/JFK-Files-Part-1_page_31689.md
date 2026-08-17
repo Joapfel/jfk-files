@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31689.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY INFORMATION
 
 MEMORANDUM FOR: Chief, International Organizations Division

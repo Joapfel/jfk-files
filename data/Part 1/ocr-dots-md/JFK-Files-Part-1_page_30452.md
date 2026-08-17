@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30452.png
-
-Convert to Markdown26 March 1975
+26 March 1975
 
 **SIGNATURE:** FON: Chief, CROES/MH
 **ADDRESS:** Auditors, James

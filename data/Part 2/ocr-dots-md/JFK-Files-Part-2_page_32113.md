@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32113.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="3">WITNESS STATEMENT<br/>(AR 195-10 - TB PMG 3)</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20947.png
-
-Convert to MarkdownBS (100-44951)
+BS (100-44951)
 
 Sources familiar with Communist Party and Revolutionary Activities in the Boston area were contacted during August and Sept., 1972 and knew of no activity on the part of any of the aforementioned telephone subscribers. Sources are as follows:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4296.png
-
-Convert to Markdown**TRANSLATION**
+**TRANSLATION**
 
 MRR Letterhead
 

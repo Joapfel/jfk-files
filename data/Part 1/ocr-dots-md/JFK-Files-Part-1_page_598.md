@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_598.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FRP: , , , , ,
 DEFERRED TELEPOUC

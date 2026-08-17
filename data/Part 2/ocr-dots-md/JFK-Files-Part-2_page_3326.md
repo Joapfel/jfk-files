@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3326.png
-
-Convert to Markdown# Appendix C-1
+# Appendix C-1
 
 ## CNO Correspondence with Department of State and NSC:
 

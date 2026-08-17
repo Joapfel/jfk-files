@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12157.png
-
-Convert to Markdown[107K-L SECTION 107. [INTERNAL]SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
+[107K-L SECTION 107. [INTERNAL]SECURITY INFORMANTS AND CONFIDENTIAL SOURCES; [AND FOREIGN COUNTERINTELLIGENCE ASSETS]
 
 9. Use of informant by Department - filing correspondence re
 From time to time, Department expresses interest in using particular

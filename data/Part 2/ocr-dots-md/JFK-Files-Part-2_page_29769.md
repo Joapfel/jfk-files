@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29769.png
-
-Convert to Markdownis maintained by the CIA at Langley, Virginia headquarters and he thinks it was on the second floor in corridor "H." The fact that the contact report was out of New York was not significant because the report could have originated in Moscow and was rerouted and rewritten in New York, again to conceal the point of origin.
+is maintained by the CIA at Langley, Virginia headquarters and he thinks it was on the second floor in corridor "H." The fact that the contact report was out of New York was not significant because the report could have originated in Moscow and was rerouted and rewritten in New York, again to conceal the point of origin.
 
 He also told me that it was his experience that sometimes the Agency, when they want to surface material in the "overt" side of the CIA, will say that it came from that side when in fact it did not.
 

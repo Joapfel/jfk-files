@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_574.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE FOUR MEXICO CITY 4271 SECRET
 FOREIGN AFFAIRS.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21397.png
-
-Convert to MarkdownSECRET
+SECRET
 
 US Army Intelligence, Fort Holabird, Md., on 8/6/68, provided a list of personalities with whom Roy Ray Jones (105-172600) came in contact while in Denmark and Sweden which included Richard Gibson. In data given by Jones and his wife, Gibson was said to have resided in London, Eng., was allegedly a representative of International News and Features and was suspected by Jones to maintain a liaison with the Chinese Committee for Afro-Asian Solidarity, Peking, China. Gibson tried to induce Jones to undertake a speaking tour in Egypt. Charles Kurasia, a student from Southwest Africa, and who was believed to have been associated with an African underground movement in Sweden, introduced Jones to Gibson. Kurasia and Hans Goeran Franck, a Swedish lawyer who was believed to head the Swedish Chapter of Amnesty International, suspected Gibson of being a CIA agent.
 

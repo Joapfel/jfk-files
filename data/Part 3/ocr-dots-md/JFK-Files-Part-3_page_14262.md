@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14262.png
-
-Convert to Markdownc. Views as to whether either the CIA or elements of the Department of Defense should perform any operational audiosurveillance countermeasure role in U. S. installations behind the Iron Curtain.
+c. Views as to whether either the CIA or elements of the Department of Defense should perform any operational audiosurveillance countermeasure role in U. S. installations behind the Iron Curtain.
 
 4. Coordination of U. S. Foreign Intelligence Activities
 

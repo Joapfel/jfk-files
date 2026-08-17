@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23802.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Maxwell. What is the nature of the covert relationship with religious persons now in effect?
 

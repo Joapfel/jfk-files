@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5809.png
-
-Convert to Markdown"Underground headquarters in Washington, the memos said, included 'a violinist study near Dupont Circle run by Helen WARE, (and) a school on the outskirts of Washington run by Alice MERIDAM.'
+"Underground headquarters in Washington, the memos said, included 'a violinist study near Dupont Circle run by Helen WARE, (and) a school on the outskirts of Washington run by Alice MERIDAM.'
 
 "CHAMBERS was quoted as saying he entered 'the Washington picture' in 1935 and left it and the party at the end of 1937.
 

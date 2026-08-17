@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30635.png
-
-Convert to Markdown10 : october 1955
+10 : october 1955
 
 MEMORANDUM FOR: CHIEF, FINANCE DIVISION
 ATTENTION : Payroll Section

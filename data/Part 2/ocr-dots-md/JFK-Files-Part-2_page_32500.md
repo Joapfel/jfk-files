@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32500.png
-
-Convert to Markdowna. For many people outside of the US, even the export of subversion by force and sabotage also involves ideas and dedication, as well as funds, arms, and other equipment. (We, for example, are not ashamed of the Bay of Pigs expedition except that it failed.)
+a. For many people outside of the US, even the export of subversion by force and sabotage also involves ideas and dedication, as well as funds, arms, and other equipment. (We, for example, are not ashamed of the Bay of Pigs expedition except that it failed.)
 
 b. Usually attitudes toward violent subversion depend on attitudes toward the target. (Example: acts against Jiminez, Trujillo did not offend US/ most of Latin America/ most of the world; the parallel today: Somoza, Ydigoras, Stroesser). We run the danger of falling into the USSR projection of the US as the "world gendarme." Subversion directed against the Dutch government would outrage not only all Americans, but also all non-Communist Europeans; its legitimacy is total. But the same can not be said for most LA governments. The difference is decisive and perhaps sometimes neglected.
 

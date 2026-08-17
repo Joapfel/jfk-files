@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3915.png
-
-Convert to MarkdownFG. 21693/14
+FG. 21693/14
 
 Att. No. 38 to UPGA-21653
 

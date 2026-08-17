@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4419.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 whites and advocating the teachings of Marxism. The NCCF and
 the Patriot Party have combined to form the Rainbow Coalition,

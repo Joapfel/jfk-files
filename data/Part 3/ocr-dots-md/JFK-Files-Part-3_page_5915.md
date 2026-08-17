@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5915.png
-
-Convert to Markdown- 4 -
+- 4 -
 
 # Issues
 

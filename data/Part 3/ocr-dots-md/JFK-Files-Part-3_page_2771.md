@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2771.png
-
-Convert to MarkdownTime there were many questions raised. Why doesn't the FBI stop this? Why don't you do something about it? Well, we took the other route and effectively destroyed the Klan as far as committing acts of violence and, of course, we exceeded statutory guidelines in that area.
+Time there were many questions raised. Why doesn't the FBI stop this? Why don't you do something about it? Well, we took the other route and effectively destroyed the Klan as far as committing acts of violence and, of course, we exceeded statutory guidelines in that area.
 
 **QUESTION:**
 

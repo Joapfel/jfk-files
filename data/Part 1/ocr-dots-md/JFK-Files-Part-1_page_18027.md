@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18027.png
-
-Convert to MarkdownDISPATCH
+DISPATCH
 
 <table><tr><td>CLASSIFICATION</td><td>PROCESSING ACTION</td></tr><tr><td>SECRET</td><td>MARRED FOR INDICATING</td></tr><tr><td colspan="2">NO READING REQUIRED</td></tr><tr><td>FROM</td><td>ONLY QUALIFIED OFFICER IN ORDERING</td></tr><tr><td>Chief, WH Division</td><td rowspan="2">MICROFILM</td></tr><tr><td colspan="2">Termination of Project KDAFGHAN</td></tr><tr><td colspan="2">ACTION REQUIRED - REFERENCES</td></tr></table>
 

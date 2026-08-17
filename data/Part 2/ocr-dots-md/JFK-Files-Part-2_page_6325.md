@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6325.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 §1400.8 Implementing the ARCA -- Notice of Assassination Record Designation.
 

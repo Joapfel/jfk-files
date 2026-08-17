@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_314.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 Formerly Known As
 Black Panther Party for Self-Defense
 

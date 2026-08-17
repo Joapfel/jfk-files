@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6639.png
-
-Convert to Markdown3. PM
+3. PM
 
 Requirements set forth DIR-40133, dated 15 July. If permission could be obtained for use this territory, even if only for 72 hours prior and during the main strike operation, the project would be advanced materially.
 

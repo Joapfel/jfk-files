@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8655.png
-
-Convert to Markdownto the dinner.
+to the dinner.
 
 5. JOVAL-1 felt certain that LIBACON-1 was very nervous during the class and, especially, when he spoke about his meet with AEDIEHARD and the forthcoming dinner. He went to the bathroom & times in an hour and a half (he usually goes twice when served the same amount of liquor). This lead L-1 to speculate that there might be something fishy in the connection with the dinner, including the possibility that AEDIEHARD requested to meet L-1 at LIBACON-1B place and that his wife spoiled the plans by limiting the number of people.To keep the matter from developing into wishful thinking I told L-1 that it was possible that LIBACON-1 felt embarrassed for not being able to invite him to the dinner. L-1 commented that LIBACON-1 had no reason to tell him anything about the dinner and if he kept it to himself there would have been no reason for embarrassment. We agreed that there was no reason to speculate, but to wait and see. L-1 stated that his hopes went high because LIBACON-1 told him that AEDIEHARD told stated that his departure wasjostroned and that he did not count on leaving before the end of December '69. Difficulty in finding a suitable replacement was given as reason for postponement of departure.
 

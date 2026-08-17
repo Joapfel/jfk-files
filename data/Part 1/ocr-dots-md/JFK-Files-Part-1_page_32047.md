@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32047.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td colspan="2">SECTION E</td></tr><tr><td>NARRATIVE DESCRIPTION OF MANNER OF JOB PERFORMANCE</td><td>Stress strengths and weaknesses demonstrated in current position. Indicate suggestions made to employee for improvement of his work. Give recommendations for his training. Describe, if appropriate, his potential for development and for assuming greater responsibilities. Amplify or explain, if appropriate, ratings given in SECTIONS D, C, and E to provide the best basis for determining future personnel actions.<br/><br/>One of Mr. Piccolo's outstanding characteristics is his desire to improve himself. This is evidenced by both his continued educational program on the outside and by his successful effort to learn everything possible about his job. He wants very much to obtain further career training within the DD&F area, particularly in the FI field. I believe he has a definite potential for such work and that he should be given an opportunity for appropriate operational training as soon as possible.<br/><br/>His performance while under my supervision has consistently been well above that to be expected of an employee in his present grade, and I strongly recommend that he be promoted at once to GS-8. He has more than earned it.</td></tr></table>

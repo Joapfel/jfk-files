@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29030.png
-
-Convert to MarkdownUS Department of the Treasury / Internal Revenue Service
+US Department of the Treasury / Internal Revenue Service
 
 Individual Income Tax Return
 

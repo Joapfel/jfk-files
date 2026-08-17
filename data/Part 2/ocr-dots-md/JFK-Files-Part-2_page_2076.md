@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2076.png
-
-Convert to MarkdownSECRET
+SECRET
 - When Filled In
 
 <table><thead><tr><th colspan="5">TRADE, COMMERCIAL AND SPECIALIZED SCHOOLS</th></tr><tr><th>NAME AND ADDRESS OF SCHOOL</th><th>SUBJECT</th><th>FROM</th><th>TO</th><th>NO. OF MONTHS</th></tr><tr><td>NONE</td><td></td><td></td><td></td><td></td></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

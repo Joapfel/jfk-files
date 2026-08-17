@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24818.png
-
-Convert to Markdownof State U. Alexis Johnson:
+of State U. Alexis Johnson:
 
 2. ...you are now authorized to inform discreetly the Chilean military through the channels available to you that if a successful effort is made to block Allende from taking office, we would reconsider the cuts we have thus far been forced to make in Chilean MAP and otherwise increase our presently programmed MAP for the Chilean Armed Forces.... If any steps the military should take should result in civil disorder, we would also be prepared promptly to deliver support and material that might be immediately required.
 

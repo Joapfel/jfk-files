@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9589.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NFL-002-76
 PAGE 3

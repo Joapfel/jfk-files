@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14504.png
-
-Convert to MarkdownC. L.
+C. L.
 ARL LUNSFORD:mdu
 CH/COG/OPS
 R1S19/7144

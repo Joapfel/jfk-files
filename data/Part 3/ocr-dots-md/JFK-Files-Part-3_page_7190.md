@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7190.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the United States Government has entrusted its classified
 information. Some of these persons are members in American

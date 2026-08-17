@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35650.png
-
-Convert to MarkdownRADIO NEW YORK WORLDWIDE
+RADIO NEW YORK WORLDWIDE
 
 WVRL-2002
 

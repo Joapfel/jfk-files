@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9485.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On continuing the discussion, it was clear that in working alone Professor Fock had as yet been unable to make any considerable progress on behalf of the Congress, and that there was urgent need for (a) a minimum staff to handle the program in this country and (b) a small allocation of funds to pay for telephone, stationery, publicity, etc. Until the present time, Professor Fock has been carrying the entire expense and work himself, and apparently has had to be extremely careful about such items as long distance telephone calls. For example, he felt he could afford to telephone Professor John Dewey in Florida and ask him to sponsor the Congress (which invitation Professor Dewey accepted,) but he hesitated to put out the larger funds to telephone Upton Sinclair in California. He would also like to call the Congress headquarters in Berlin, but felt that the transatlantic toll charge was quite beyond his means.
 

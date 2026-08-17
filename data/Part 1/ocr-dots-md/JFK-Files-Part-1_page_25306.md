@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25306.png
-
-Convert to Markdown<table><tr><td>CONFIDENTIAL</td></tr></table>
+<table><tr><td>CONFIDENTIAL</td></tr></table>
 
 FIELD INFORMATION REPORT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7256.png
-
-Convert to MarkdownLICOWL-1 Contact Report -2-
+LICOWL-1 Contact Report -2-
 
 1 November 1968
 

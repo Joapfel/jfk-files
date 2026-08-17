@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24699.png
-
-Convert to MarkdownGroup
+Group
 
 agreed that planning for the Congo would not necessarily rule out "consideration" of any particular kind of activity which might contribute to getting rid of Lumumba. (Minutes of Special Group Meeting, 25 August 1960)
 

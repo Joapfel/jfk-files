@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12532.png
-
-Convert to Markdown7. Investigations and contacts with individuals connected with institutions of learning
+7. Investigations and contacts with individuals connected with institutions of learning
 
 a. Prior FBIHQ approval is required to:
 

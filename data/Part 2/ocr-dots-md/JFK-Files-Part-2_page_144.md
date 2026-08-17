@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_144.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM 8-43
 

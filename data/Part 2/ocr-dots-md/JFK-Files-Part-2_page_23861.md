@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23861.png
-
-Convert to Markdown1 of investors.
+1 of investors.
 
 2
 3

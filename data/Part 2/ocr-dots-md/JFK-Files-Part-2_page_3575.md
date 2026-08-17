@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3575.png
-
-Convert to Markdown1. Iraq-Syria
+1. Iraq-Syria
 
 a. Although sporadic gunfire continued through the night in Baghdad, the army is in control.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28030.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="7">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>LICS 07/31/74<br>1 SERIAL NUMBER<br>012170<br>2 NAME (LAST FIRST MIDDLE)<br>KANDALL FRED KILL</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td rowspan="3">CLASS ASSIGNMENT<br>& FUNDS</td><td rowspan="3">X<br>V TO V<br>C TO V</td><td colspan="4"></td><td>Y TO C</td></tr><tr><td colspan="4"></td><td>C TO D</td></tr><tr><td colspan="4"></td><td>D TO C</td></tr><tr><td colspan="7"><b>ORGANIZATIONAL DESIGNATIONS</b><br>UUO/FRO</td></tr><tr><td>11. POSITION TITLE<br>LPS OFFICER CH</td><td colspan="5"></td><td>12 POSITION NUMBER<br>C516</td><td>13 CARF SERVICE DESIGNATION<br>DMG</td></tr><tr><td>14 CLASSIFICATION SCHEDULE (GS, EB, etc)<br>GS</td><td colspan="3">15 OCCUPATIONAL SERIES<br>0156.01</td><td colspan="2"></td><td>16 GRADE AND STEP<br>14</td><td>17 SALARY OR RATE</td></tr><tr><td colspan="7"><b>REMARKS</b></td></tr><tr><td colspan="7">SIGNATURE OF ONE OR AUTHENTICATION</td></tr><tr><td colspan="7" style="text-align: center;">POSTED</td></tr></tbody></table>

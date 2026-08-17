@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5692.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Board, a compromise was reached.
 

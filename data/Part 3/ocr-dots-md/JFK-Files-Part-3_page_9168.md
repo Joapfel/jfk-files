@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9168.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Vannall
+Memorandum to Mr. W. R. Vannall
 To: Intelligence Evaluation Committee (IEC)
 
 "Robert C. Nordman, Assistant Attorney General, Internal Security Division, Meeting with the Director, 11/25/70," has been excised to delete information not germane to IEC.

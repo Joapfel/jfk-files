@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21227.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 COMMENT: NOSENKO's notes which pertain to [PECHTER](S) have been destroyed. On May 23, 1968, (N-197), NOSENKO stated that this case happened in 1959 before he went to the 1st Department in 1960.
 

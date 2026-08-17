@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1652.png
-
-Convert to Markdown14-0000
+14-0000
 
 TO: RELEASING ORGANIZATION—You are requested to furnish promptly the leave data on
 

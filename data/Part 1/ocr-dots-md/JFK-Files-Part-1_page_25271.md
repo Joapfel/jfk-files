@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25271.png
-
 had an affair.
 
 VIII. Ibarra 2005:

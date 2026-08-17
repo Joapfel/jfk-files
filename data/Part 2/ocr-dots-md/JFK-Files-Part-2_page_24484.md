@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24484.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 general covert action plan reported by Allen Dulles at that meeting and to
 the general consideration given at that time in the U. S. Government to

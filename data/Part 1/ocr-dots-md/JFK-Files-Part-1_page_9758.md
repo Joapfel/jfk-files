@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 121716Z JUL 68 CITE GUATEMALA CITY 9242
 

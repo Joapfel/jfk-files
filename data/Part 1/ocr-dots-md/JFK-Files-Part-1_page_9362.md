@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9362.png
-
-Convert to Markdown8 August 1950
+8 August 1950
 
 MEMORANDUM FOR L. E. PRECHINERIDGE
 

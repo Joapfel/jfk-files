@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11857.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## AGENT SERVICE RECORD
 

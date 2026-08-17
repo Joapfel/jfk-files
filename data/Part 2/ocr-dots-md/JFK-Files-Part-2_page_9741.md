@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9741.png
-
-Convert to Markdowninvestigative facilities of the Civil Service Commission, and other departments and agencies may use such facilities under agreement with the Commission.
+investigative facilities of the Civil Service Commission, and other departments and agencies may use such facilities under agreement with the Commission.
 
 (d) There shall be referred promptly to the Federal Bureau of Investigation all investigations being conducted by any other agencies which develop information indicating that an individual may have been subjected to coercion, influence, or pressure to act contrary to the interests of the national security, or information relating to any of the matters described in subdivisions (2) through (8)⁴ of subsection (a) of this section. In cases so referred to it, the Federal Bureau of Investigation shall make a full field investigation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30301.png
-
-Convert to MarkdownIUPROBLEMI
+IUPROBLEMI
 
 41
 

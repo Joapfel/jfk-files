@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24237.png
-
-Convert to MarkdownG. Very early in our relationship Q said that he would like to make a career in KUBARK, outside now, perhaps inside some day. He would work in PBERMIL or abroad. There was no indication then, and has been none since, that he regards the present relationship as a distasteful one to be terminated as soon as conditions permit.
+G. Very early in our relationship Q said that he would like to make a career in KUBARK, outside now, perhaps inside some day. He would work in PBERMIL or abroad. There was no indication then, and has been none since, that he regards the present relationship as a distasteful one to be terminated as soon as conditions permit.
 
 He would like to settle in an expatriate's paradise, such as Paris or Rome, presumably involved in journalism and other writing. If he could do these things in connection with his work for us, so much the better.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22361.png
-
-Convert to Markdown# Physical Surveillance
+# Physical Surveillance
 
 Mr. Osborn states that physical surveillance of individuals in this country has been very rare as far as the Office of Security is concerned. He doubts that it has exceeded ten times during his tenure in the Office of Security.
 

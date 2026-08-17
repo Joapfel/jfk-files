@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10473.png
-
-Convert to MarkdownLIVERPOOL
+LIVERPOOL
 
 TELETYPE UNIT
 

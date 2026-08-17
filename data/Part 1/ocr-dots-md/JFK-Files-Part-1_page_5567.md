@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5567.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 <table><tr><td>8-10-69</td></tr></table>
 

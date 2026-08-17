@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20999.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Date: 2/10/60
 

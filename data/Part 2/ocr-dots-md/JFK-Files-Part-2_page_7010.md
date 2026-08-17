@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7010.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. Before submitting appeal to the President, I faxed copy of appeal to JFK Board's General Counsel with the idea that if it presented new and convincing evidence, he would present it to the Board during its session.
 

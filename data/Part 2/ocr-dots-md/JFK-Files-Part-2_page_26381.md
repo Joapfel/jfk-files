@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26381.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFICATION — DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>SECRET<br/>(When Filled In)</td><td>TDCSDB-3/656,830</td><td>IN 25834<br/>PAGE 4</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFICATION — DISSEMINATION CONTROLS</th></tr></thead><tbody><tr><td>SECRET<br/>(When Filled In)</td><td>TDCSDB-3/656,830</td><td>IN 25834<br/>PAGE 4</td></tr></tbody></table>
 
 J. MAJOR NGUYEN VAN TU, COMMANDER OF THE EIGHTH REGIMENT, FIFTH DIVISION, WILL SUPPORT THE COUP WITH HIS FORCES. ALSO INVOLVED IS THE FIFTH RECONNAISSANCE COMPANY OF THE FIFTH DIVISION.
 

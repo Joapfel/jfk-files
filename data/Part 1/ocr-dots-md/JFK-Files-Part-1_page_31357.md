@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31357.png
-
-Convert to Markdown## SEC. 12 EDUCATION
+## SEC. 12 EDUCATION
 
 <table><tbody><tr><td rowspan="2">EDUCATIONAL LEVEL</td><td>SCHOOL NAME ADDRESS</td><td>BRIDGE�,MASS, U.S.A.</td></tr><tr><td>DATE ENDED</td><td>1928-1937</td></tr><tr><td colspan="2">ACHIEVEMENT</td><td>GRADUATE? YES</td></tr><tr><td rowspan="4">HIGH SCHOOL DEGREE</td><td>SCHOOL ADDRESS</td><td>BOSTON, MASS, U.S.A.</td></tr><tr><td>DATE ENDED</td><td>1937-1941</td></tr><tr><td colspan="2">ACHIEVEMENT</td><td>GRADUATE? YES</td></tr><tr><td>CITY STATE COUNTRY</td><td></td></tr><tr><td rowspan="2">COLLEGE DEGREE</td><td>SCHOOL ADDRESS</td><td>NEWYORK, CONN, U.S.A.</td></tr><tr><td>DATE ENDED</td><td></td></tr><tr><td rowspan="3">OTHER INFORMATION</td><td>DEGREE</td><td>A.B. (1947)</td></tr><tr><td>CITY STATE COUNTRY</td><td></td></tr><tr><td>DATE ENDED</td><td>1947-1950</td></tr><tr><td>OTHER INFORMATION</td><td></td><td>AM.H(1945)<br/>AND NORWEGIAN PH.D.</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14228.png
-
-Convert to Markdownif such a document exists. Please also provide the Committee with
+if such a document exists. Please also provide the Committee with
 a list of the classifications used in the FBI's filing system as well
 as a complete set of printed forms used by the Bureau (e.g., FD-165,
 etc.).

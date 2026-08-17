@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2978.png
-
-Convert to MarkdownSECRET
+SECRET
 
 would perforce have to attack Castro, and might there-
 fore be considered domestic propaganda exceeding CIA's

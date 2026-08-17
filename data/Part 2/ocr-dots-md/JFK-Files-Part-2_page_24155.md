@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24155.png
-
-Convert to Markdown- PDDYNAMIC
+- PDDYNAMIC
 
 - A domestic based corporation with a German branch which fosters the aims of a nationalistic group within the USSR and publishes selected books and periodicals for distribution to members of this nationalistic group. The New York and German offices under this project are largely subsidized by the Agency with some revenue to the German office from the sale of publications.
 

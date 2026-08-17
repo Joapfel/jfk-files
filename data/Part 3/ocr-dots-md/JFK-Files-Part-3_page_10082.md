@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10082.png
-
-Convert to MarkdownMAR 26, 1975
+MAR 26, 1975
 3:47 PM '75
 
 TELETYPE UNIT

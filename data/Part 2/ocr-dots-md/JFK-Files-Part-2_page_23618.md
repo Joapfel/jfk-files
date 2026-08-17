@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23618.png
-
-Convert to MarkdownTHE WHITE HOUSE OFFICE
+THE WHITE HOUSE OFFICE
 
 8. Begin conversations immediately with dissidents in-forming them of U.S. position and the necessity for an immediate request. If they are favorable to this procedure take all possible measures to prepare for the immediate transmittal of such a request short of the actual preparation of a written document for advance transfer to you.
 

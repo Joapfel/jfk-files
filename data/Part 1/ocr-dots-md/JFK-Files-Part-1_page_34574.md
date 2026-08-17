@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34574.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 EYES ONLY
 
 11 February 1964

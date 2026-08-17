@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7875.png
-
-Convert to Markdown13-00000
+13-00000
 
 UNCLASSIFIED CONFIDENTIAL SECRET TOP SECRET
 

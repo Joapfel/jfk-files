@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24319.png
-
-Convert to Markdownexercised by the Agency and, finally, the availability of meaningful accounting data within the instrumentality. In this light, fixed, pro forma accounting requirements are not sought; rather, each case will be approached individually through the fiscal annex with a view to establishing accounting requirements that will assure that use of Agency funds is controlled and adequately documented to a degree consistent with the nature of the instrumentality and its relationship with the Agency. A fiscal annex is required for all noncontrolled subsidies.
+exercised by the Agency and, finally, the availability of meaningful accounting data within the instrumentality. In this light, fixed, pro forma accounting requirements are not sought; rather, each case will be approached individually through the fiscal annex with a view to establishing accounting requirements that will assure that use of Agency funds is controlled and adequately documented to a degree consistent with the nature of the instrumentality and its relationship with the Agency. A fiscal annex is required for all noncontrolled subsidies.
 
 b. ACCOUNTING PRINCIPLES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19022.png
-
-Convert to MarkdownSAMUEL ADASCH JAFFE
+SAMUEL ADASCH JAFFE
 
 Jaffe covered the Youth Festival with Don Larrimore, United Press International (UPI) correspondent, with whom Jaffe got along well. He and Larrimore were having dinner with Miss Stevens in a Helsinki hotel when Kevorkov and the young poet appeared. Later they ended up on the Soviet ship "Drugba" (phonetic) where a conversation ensued. Jaffe did not see Kevorkov again until a year or two later in Moscow. According to Jaffe, when Larrimore was ultimately expelled from Poland "there was a KGB fake story which recalled the conversation (on the Soviet ship) and meeting at Helsinki." Jaffe stated he (Jaffe) was not mentioned in the story and he indicated that the only party who could have furnished the information in the story was Kevorkov, which convinced Jaffe that Kevorkov is connected with KGB.
 

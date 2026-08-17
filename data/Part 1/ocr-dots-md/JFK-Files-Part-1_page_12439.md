@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12439.png
-
-Convert to MarkdownA) Valores a los cuales el comprador dice haber adquirido las pie-
+A) Valores a los cuales el comprador dice haber adquirido las pie-
 das de los mineros.
 
 B) Valor fiscalizado.

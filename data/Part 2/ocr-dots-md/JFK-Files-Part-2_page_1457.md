@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1457.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. Mr. Wheeler's long operational experience, extensive contacts throughout the Agency, and exceptional writing ability have contributed to the realistic appraisal of programs and plans and to their effective presentation to the Director and to the Bureau of the Budget. Mr. Wheeler is effective in dealing with other elements of the Agency and has contributed useful suggestions for improving operations and analysis. In summary, Mr. Wheeler made a significant contribution while in the Office. In view of the similarity in functions between the two organizations, I would expect this contribution to be carried forward to his new assignment.
 

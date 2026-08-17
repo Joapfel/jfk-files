@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25867.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The following observations were made by KUNOV regarding MARTIN:
 

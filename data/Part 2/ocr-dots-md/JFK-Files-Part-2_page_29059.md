@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29059.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="2">FOR THE PERIOD ENDED</td>

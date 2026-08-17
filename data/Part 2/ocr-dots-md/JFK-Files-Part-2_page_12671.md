@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12671.png
-
-Convert to Markdown(10) Photographs Make reasonable efforts during investigation to obtain photo-graph of subject. Maintain cases on security index subjects in pending status until suitable photograph is obtained unless circumstances dictate otherwise, in which case advise Bureau. Once photograph has been obtained, be alert for more recent photographs. Forward copy of photographs of security index subjects to Bureau for dissemination to Secret Service.
+(10) Photographs Make reasonable efforts during investigation to obtain photo-graph of subject. Maintain cases on security index subjects in pending status until suitable photograph is obtained unless circumstances dictate otherwise, in which case advise Bureau. Once photograph has been obtained, be alert for more recent photographs. Forward copy of photographs of security index subjects to Bureau for dissemination to Secret Service.
 
 (11) Handwriting specimens If readily available, obtain handwriting specimens for possible future use and maintain in subject's file. Case is not to be kept pending merely to obtain such specimens.
 

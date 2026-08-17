@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6656.png
-
-Convert to Markdown*The President's Intelligence Checklist*, the predecessor of *The President's Daily Brief*, an all-source daily summary of intelligence information designed for the President and a small number of high level officials.
+*The President's Intelligence Checklist*, the predecessor of *The President's Daily Brief*, an all-source daily summary of intelligence information designed for the President and a small number of high level officials.
 
 *The Daily Brief of the Central Intelligence Bulletin*, a larger and more detailed all-source publication with a wider distribution.
 

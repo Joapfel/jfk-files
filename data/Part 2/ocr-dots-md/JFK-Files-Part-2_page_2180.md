@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2180.png
-
-Convert to MarkdownSECRET
+SECRET
 
 31 July 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15833.png
-
-Convert to Markdownwhich cause people to release their bowels, or lose their equilibrium,
+which cause people to release their bowels, or lose their equilibrium,
 adhesives which cause parts of the body to stick together which if
 moved cause large areas of flesh to be torn away. Foam, invisible
 gases,AXK odors detectible by dons, plastic confetti, traquilizers,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4668.png
-
-Convert to Markdownissuance of a subpoena duces tecum which should be directed
+issuance of a subpoena duces tecum which should be directed
 to Mr. CARL D. BROREIN, JR., operating vice president of
 the General Telephone Company of Florida, or his authorized
 representative.

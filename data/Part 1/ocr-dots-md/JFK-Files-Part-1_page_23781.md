@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23781.png
-
-Convert to Markdown1st June, Cont.
+1st June, Cont.
 
 17.10 hours: Mark SCHLEIFER calls from the Embassy to Yepe's flat, speaks to Yepe's wife, Galina, says he, "Maria and the children" will spend the night with the Yepes. His wife and children are at present in Pablo's flat (Note: Both flats are in Park West).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7913.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **OBI COMMENT:** The CHARLES PARKER mentioned above is believed to be the same individual as CHARLES LINCOLN PARKER, who resigned a commission in the U.S. Naval Reserve because of admitted pro-Russian sympathies. BOJKO's continual agitation, past association with Communists, and apparent association with PARKER, certainly places both individuals in a category which is, at least, highly questionable.
 

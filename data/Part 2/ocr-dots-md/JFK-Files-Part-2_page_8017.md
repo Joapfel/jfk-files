@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8017.png
-
-Convert to Markdownshortly after the indictments in the stock fraud case in question (and ten months before Kleindienst's testimony on the bribe). Those reports quoted "sources at the U.S. Attorney's office in New York" and indicated that after the meeting between Kleindienst and Fong's aide, "Kleindienst immediately contacted Justice's Criminal Division [then headed by Will Wilson] and ... an FBI agent was assigned to infiltrate the group of alleged conspirators".
+shortly after the indictments in the stock fraud case in question (and ten months before Kleindienst's testimony on the bribe). Those reports quoted "sources at the U.S. Attorney's office in New York" and indicated that after the meeting between Kleindienst and Fong's aide, "Kleindienst immediately contacted Justice's Criminal Division [then headed by Will Wilson] and ... an FBI agent was assigned to infiltrate the group of alleged conspirators".
 
 Do we now believe Kleindienst's story that he "didn't realize" he had been offered a bribe, or do we believe the U.S. Attorney's office in New York? Did Will Wilson and the Justice Department hold off a week while Kleindienst "made up his mind" that he had been offered a bribe, or was the decision whether or not to take it? And did Hoover and the FBI somehow interfere?
 

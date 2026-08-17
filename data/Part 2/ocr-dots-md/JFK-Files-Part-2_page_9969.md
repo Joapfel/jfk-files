@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9969.png
-
-Convert to MarkdownOffice of the Attorney General.
+Office of the Attorney General.
 Washington, D.C.
 
 December 5, 1947

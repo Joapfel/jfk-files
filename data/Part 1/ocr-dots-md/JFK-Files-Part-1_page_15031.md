@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15031.png
-
-Convert to Markdown10. Mr. Heegard stressed that each applicant is processed thoroughly to avoid sending an unqualified person to South America.
+10. Mr. Heegard stressed that each applicant is processed thoroughly to avoid sending an unqualified person to South America.
 
 11. Basic Spanish, according to Mr. Heegard, can be learned by an applicant over a period of three months - at least three hours of instruction per week. This should be done prior to departure from Germany.
 

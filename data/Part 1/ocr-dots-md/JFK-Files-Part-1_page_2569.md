@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2569.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INDEX
 

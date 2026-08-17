@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30035.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="7">SECTION 19. RESIDENCES FOR PAST 15 YEARS</th></tr><tr><th>FROM: 1935 TO: 1942</th><th>AFFAIRS, STATE AND NUMBER</th><th>CITY</th><th>STATE</th><th>COUNTRY</th><th rowspan="2">NOTE:</th><th>SEE NOTE 1 TO SECTION 19.</th></tr><tr><td></td><td></td><td>216 South Hiller Avenue Syracuse NY</td><td></td><td></td><td>SERVICE ON VACANT HOLIDAY, NOVEMBER 1-30</td></tr><tr><th>FROM:</th><th>TO:</th><th>ADDRESS STREET AND NUMBER</th><th>CITY</th><th>STATE</th><th>COUNTRY</th><th></th></tr></thead><tbody><tr><td>1942</td><td>1946</td><td>US Army (however spent 1 year in Syracuse)</td><td></td><td></td><td></td><td></td></tr><tr><td>FEB 1946</td><td>JULY 1946</td><td>Hitler Avenue Canefranco Calif.</td><td></td><td></td><td></td><td></td></tr><tr><td>JULY 1946</td><td>MARCH 1948</td><td>HIGHSIDE AND 235</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

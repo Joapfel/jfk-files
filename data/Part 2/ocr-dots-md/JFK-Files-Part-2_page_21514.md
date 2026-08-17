@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21514.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 group at the meeting, stated that Mr. Helms would henceforth be -- the words were, his man on Cuba. This was something that nobody in the room apparently had any inkling of, and particularly Mr. Helms, nor ~~Mr. Zogbey~~.
 

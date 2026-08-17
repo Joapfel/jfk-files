@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7858.png
-
-Convert to MarkdownA: Not to my knowledge.
+A: Not to my knowledge.
 
 Q: Was this the only monitoring being done at this time?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26347.png
-
-Convert to Markdown**INFORMATION REPORT - INFORMATION REPORT**
+**INFORMATION REPORT - INFORMATION REPORT**
 **CENTRAL INTELLIGENCE AGENCY**
 
 This material contains information affecting the National Defense of the United States within the meaning of the National Defense Security Act. Title 18 U.S.C. Secs. 701 and 702, the translation or modification of which is either forbidden or otherwise prohibited by law.

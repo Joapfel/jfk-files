@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10028.png
-
-Convert to Markdown75-59311-26
+75-59311-26
 
 LTT ARI HUGH D.
 HOT FOR ONE

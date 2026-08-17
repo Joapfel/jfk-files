@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24617.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>TOTAL COPIES</td></tr><tr><td>ROUTING AND/OR INITIALS - SEEN BY</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>TOTAL COPIES</td></tr><tr><td>ROUTING AND/OR INITIALS - SEEN BY</td></tr></table>
 
 <table><tbody><tr><td rowspan="5"><strong>PERSON/UNIT NOTIFIED</strong><br/><input type="checkbox" checked disabled/> ADVANCE COPY<br/><input type="checkbox" checked disabled/> ISSUED<br/><input type="checkbox" checked disabled/> SLOTTED<br/><br/><strong>BY:</strong> [illegible] AT: <u>[illegible]</u><br/><br/><strong>DISSEM BY:</strong> [illegible] PER <u>[illegible]</u><br/><strong>ACTION</strong> WH-8 <input type="checkbox" checked disabled/> RID COPY<br/><br/><strong>INFO FILE.VR</strong> SB-8, RIFAN, CI, c/c/ops, cfic-2, FI-2, DDP, AxdP</td><td><strong>SECRET (When Filled In)</strong> GROUP 2-<br/>FORWARD FROM APOLLO 1<br/>ORIGINAL AMT. OR REF TO FILE NO.<br/><br/><input type="text"> INDEX ☐ YES ☐ NO<br/><br/><input type="text"> CLASSIFY TO FILE NO.<br/><br/><input type="text"> REF TO FILE NO.<br/><br/><input type="text"> FILE RID ☐ RET TO BRANCH ☐ DESTROY ☐ SIG.</td><td><table border="1"><tbody><tr><td>6</td></tr><tr><td>7</td></tr><tr><td>8</td></tr><tr><td>9</td></tr><tr><td>10</td></tr></tbody></table></td></tr></tbody></table>
 

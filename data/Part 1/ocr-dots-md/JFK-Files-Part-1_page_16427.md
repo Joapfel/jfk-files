@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16427.png
-
-Convert to MarkdownIt is requested that CI/WA obtain permission for the visitors to enter the R & S Building for this training which is scheduled for the 19th of April.
+It is requested that CI/WA obtain permission for the visitors to enter the R & S Building for this training which is scheduled for the 19th of April.
 
 DESMOND FITZGERALD
 Chief

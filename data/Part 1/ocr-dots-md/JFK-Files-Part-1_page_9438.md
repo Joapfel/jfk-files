@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9438.png
-
-Convert to Markdown16. März 1950.
+16. März 1950.
 
 Bericht Nr. 13.
 

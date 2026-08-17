@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9173.png
-
-Convert to MarkdownDate of transcription 8/13/74
+Date of transcription 8/13/74
 
 WILLIAM JUNIOR STAFFORD, residing at 1103
 Claridge Lane, Lexington, Kentucky, and known to inter-

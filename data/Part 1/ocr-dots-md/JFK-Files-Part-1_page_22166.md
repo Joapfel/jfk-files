@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22166.png
-
-Convert to Markdown**NOSENKO:** It was just done at the order of the Chairman.
+**NOSENKO:** It was just done at the order of the Chairman.
 
 **Question:** And the Order of Lenin was the same?
 

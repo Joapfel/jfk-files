@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17707.png
-
-Convert to Markdown30. Frances H. Housewife.
+30. Frances H. Housewife.
 
 31. Olivia M. Harris: Retired woman, residing with daughter and known to have independent income from retirement from former job.
 

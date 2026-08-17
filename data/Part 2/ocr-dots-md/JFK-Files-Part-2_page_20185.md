@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20185.png
-
-Convert to MarkdownLetter to Philadelphia
+Letter to Philadelphia
 Re: Women's National Abortion Action
 Coalition (WONAAC)
 100-468406

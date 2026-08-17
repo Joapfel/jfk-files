@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27106.png
-
-Convert to Markdown2535 E. 120th Street
+2535 E. 120th Street
 Tampa, Florida 33607 P 76-1062
 707-867
 

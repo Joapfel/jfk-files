@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14084.png
-
-Convert to MarkdownEnsayo de disyunción
+Ensayo de disyunción
 
 14-00000
 

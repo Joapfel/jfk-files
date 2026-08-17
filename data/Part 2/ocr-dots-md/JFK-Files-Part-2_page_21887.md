@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21887.png
-
-Convert to Markdownto make his opposition to assassinating Lumumba a matter of record (O'Donnell), 9/11/75, pp. 44-45):
+to make his opposition to assassinating Lumumba a matter of record (O'Donnell), 9/11/75, pp. 44-45):
 
 [In the Agency, since you don't have documents, you have to be awfully canny and you have to get things on record, and I went into Mr. Helms' office, and I said, Dick, here is what Mr. Bissell proposed to me, and I told him that I would under no conditions do it, and Helms said you're absolutely right. (O'Donnell), 6/9/75, pp. 15-16).
 

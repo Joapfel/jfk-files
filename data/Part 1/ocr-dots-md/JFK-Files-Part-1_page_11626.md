@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11626.png
-
-Convert to MarkdownForm No. 35-6
+Form No. 35-6
 
 OUTGOING CLASSIFIED MESSAGE
 

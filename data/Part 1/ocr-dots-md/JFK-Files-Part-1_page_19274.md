@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19274.png
-
-Convert to MarkdownDear Mr. Moore:
+Dear Mr. Moore:
 
 As you bring to a close your active
 career of service to your country, I want

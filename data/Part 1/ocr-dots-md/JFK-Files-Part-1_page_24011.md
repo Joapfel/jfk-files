@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24011.png
-
-Convert to MarkdownR
+R
 I
 C
 O

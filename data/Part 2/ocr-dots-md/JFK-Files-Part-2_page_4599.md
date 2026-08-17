@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4599.png
-
-Convert to Markdown2. The BENDER-CARR group will direct Chief, FRD/Intelligence and Security Subcommittee, to immediately select seven officers for processing and training prior to assignment in the FRD security service. Later, thirty-two additional officers will be selected for processing and training.
+2. The BENDER-CARR group will direct Chief, FRD/Intelligence and Security Subcommittee, to immediately select seven officers for processing and training prior to assignment in the FRD security service. Later, thirty-two additional officers will be selected for processing and training.
 
 ### C. Staff Personnel
 

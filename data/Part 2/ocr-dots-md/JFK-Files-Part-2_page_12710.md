@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12710.png
-
-Convert to Markdown(B) During first contact, interviewing Agent will introduce himself as a Special Agent of FBI by use of credentials or badge and will open conversation by using an appropriate pretext or by reciting Bureau's responsibilities in security field and asking subject whether he can be of assistance to Government. If individual has been a member of a basic revolutionary organization and indicates he might cooperate, he may be questioned during initial contact about his own activities in order to further ascertain extent to which he will cooperate. This original interview is for sole purpose of allowing Agent to determine whether individual being interviewed might be cooperative.
+(B) During first contact, interviewing Agent will introduce himself as a Special Agent of FBI by use of credentials or badge and will open conversation by using an appropriate pretext or by reciting Bureau's responsibilities in security field and asking subject whether he can be of assistance to Government. If individual has been a member of a basic revolutionary organization and indicates he might cooperate, he may be questioned during initial contact about his own activities in order to further ascertain extent to which he will cooperate. This original interview is for sole purpose of allowing Agent to determine whether individual being interviewed might be cooperative.
 
 (e) Prior Bureau authority
 

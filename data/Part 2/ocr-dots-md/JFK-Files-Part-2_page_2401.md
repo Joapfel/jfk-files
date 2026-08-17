@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2401.png
-
-Convert to MarkdownSEC. 13. NAMES OF 5 PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES. NOT REFER- ENCES OR EMPLOYERS—(Give business addresses where possible)
+SEC. 13. NAMES OF 5 PERSONS WHO KNOW YOU SOCIALLY IN THE UNITED STATES. NOT REFER- ENCES OR EMPLOYERS—(Give business addresses where possible)
 
 <table><tbody><tr><td>1.</td><td>NAME</td><td>St. & No.</td><td>ADDRESS</td><td>City</td><td>State</td></tr><tr><td>2.</td><td>NAME</td><td>St. & No.</td><td>ADDRESS</td><td>City</td><td>State</td></tr><tr><td>3.</td><td>NAME</td><td>St. & No.</td><td>ADDRESS</td><td>City</td><td>State</td></tr><tr><td>4.</td><td>NAME</td><td>St. & No.</td><td>ADDRESS</td><td>City</td><td>State</td></tr><tr><td>5.</td><td>NAME</td><td>St. & No.</td><td>ADDRESS</td><td>City</td><td>State</td></tr></tbody></table>
 

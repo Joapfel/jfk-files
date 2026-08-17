@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26018.png
-
-Convert to MarkdownEisenhower administration. Now this wasn't
+Eisenhower administration. Now this wasn't
 true throughout the administration at all,
 but there was a considerable group of people
 who were in various executive slots just

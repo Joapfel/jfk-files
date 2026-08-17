@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14406.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## -2-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11784.png
-
-Convert to MarkdownSECURITY RESTRICTION
+SECURITY RESTRICTION
 
 JUN 15 1952
 

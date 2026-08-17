@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8398.png
-
-Convert to MarkdownSUBJECT: REQUIRING INFORMATION Gloria Pinto
+SUBJECT: REQUIRING INFORMATION Gloria Pinto
 DATE OF INFORMATION: December 21, 1968. 1100 hours
 PLACE ACQUIRED: French Club
 

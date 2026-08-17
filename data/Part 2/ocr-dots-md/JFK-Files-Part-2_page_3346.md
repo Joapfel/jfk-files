@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3346.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In order to credit Cuba and bring world opinion to the side of the U.S.
 

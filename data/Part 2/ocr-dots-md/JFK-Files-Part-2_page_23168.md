@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23168.png
-
-Convert to Markdownunrelated to what we were doing. He was also a participant in the raising of the initial ransom for the members of Brigade 2506.
+unrelated to what we were doing. He was also a participant in the raising of the initial ransom for the members of Brigade 2506.
 
 Senator Schweiker, here is an article -- rather than me read it, I'll give you a chance to read it. It is Claire Booth Luce. As you know, she is on the Foreign Intelligence Advisory Board, and has been for some time, and Bill Colby was her chief of station when she was ambassador to Italy. This story came to me not through the paper, frankly, but from Mrs. Luce personally, expressing her concern. It subsequently did appear in a paper and I did not release it. Mrs. Luce specifically released it to Betty Beale, and the reason it is relevant here is that from what I read here, the group she is referring to is probably the DRE group or some part of the DRE group in New Orleans, and while that is not too clear, she did associate Mr. William Pauley with it. But that is somewhat confused, because you said he wasn't involved in any other operation other than the one you mentioned.
 

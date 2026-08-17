@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21315.png
-
-Convert to MarkdownMM 105-2643
+MM 105-2643
 
 FD-302 reflecting identities of Cypress telephone numbers in Key West, Florida, was furnished by Mrs. POLLY ANDREW, District Manager's Clerk, Southern Bell Telephone and Telegraph Company, Coral Gables, Florida, who furnished same to SA LEMAN L. STAFFORD, JR.
 

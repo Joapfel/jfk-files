@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22235.png
-
-Convert to Markdown# B. Evaluation of Production
+# B. Evaluation of Production
 
 ## 1. Introduction
 

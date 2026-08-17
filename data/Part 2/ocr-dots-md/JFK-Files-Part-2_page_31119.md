@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31119.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 1 Feb. 1967 Despatch (poor copy) containing JMWAVE and Chief, WHD - Re: Cancellation of Provincial Operational Approval. Among those listed is Arnesto Napoleon Rodriguez Gonzales.
 

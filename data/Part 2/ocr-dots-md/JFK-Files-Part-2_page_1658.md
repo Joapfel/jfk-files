@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1658.png
-
-Convert to MarkdownCERTIFICATE OF ATTENDANCE
+CERTIFICATE OF ATTENDANCE
 
 APR 28 1952
 

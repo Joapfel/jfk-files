@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26017.png
-
-Convert to Markdown<table><tbody><tr><td>ORIG:</td><td>N. BERGER</td></tr><tr><td>UNIT:</td><td>WH/3/V</td></tr><tr><td>CAT:</td><td>1335</td></tr><tr><td>DATE:</td><td>11 FEBRUARY 1970</td></tr></tbody></table>
+<table><tbody><tr><td>ORIG:</td><td>N. BERGER</td></tr><tr><td>UNIT:</td><td>WH/3/V</td></tr><tr><td>CAT:</td><td>1335</td></tr><tr><td>DATE:</td><td>11 FEBRUARY 1970</td></tr></tbody></table>
 
 <table><tbody><tr><td colspan="2">SECRET</td></tr><tr><td>TO [ ] CARACAS WH/MIAMI</td><td>[ ] CITE DIRECTOR</td></tr><tr><td>CIFLUTE CIFENCE</td><td>009340</td></tr><tr><td>REF: DIRECTOR 3365 (NOT SENT WH/MIAMI)*<br>(FOR IMMEDIATE AMERICAN FISCAL CYCLE FREQUENCY)</td><td>.7</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3233.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 a flood of letters including, during freak radio propagation periods, requests for ball point pens from New Zealand.* 19/
 

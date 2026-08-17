@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33599.png
-
-Convert to MarkdownMarch 5, 1952
+March 5, 1952
 
 HORVAT, Pavle
 

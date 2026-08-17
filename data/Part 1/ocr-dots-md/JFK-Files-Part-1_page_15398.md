@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15398.png
-
-Convert to MarkdownSEC
+SEC
 
 MEMORANDUM FOR: Chief, Alien Affairs Staff/03
 SUBJECT: Request for Assistance with Cuban Nationals for Project WITHRUSH

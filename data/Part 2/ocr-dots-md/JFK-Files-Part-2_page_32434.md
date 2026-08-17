@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32434.png
-
-Convert to Markdownthe most current agreed positions will be made available
+the most current agreed positions will be made available
 to you in the event there is any significant change.) Also
 included at this tab are a number of significant reports
 indicating the probable orientation of Castro/Communist actions

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11772.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 Re: Proposed Transfer of Supervisory Responsibility for Certain Cases from General Investigative Division to Domestic Intelligence Division
 
 business, civic, etc.). Threats or false reports also constitute violations within the statute and the entire discussion within this memorandum includes threats or false reports under the use of the term bombing matters. Although the Department frequently resorts to other statutes for prosecutive considerations, this appears to have no significant bearing on the question of supervisory responsibility which is directed toward the full development of the investigation to establish identity of the perpetrators of the bombing violation and evidence to support prosecution.

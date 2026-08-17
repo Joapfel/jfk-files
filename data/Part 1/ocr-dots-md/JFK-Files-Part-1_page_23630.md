@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23630.png
-
-Convert to Markdown# SECRET
+# SECRET
 Security Information
 
 (1) HUMANOID-1 and 2: Mail intercepts by these two agents are deposited in an envelope and placed in a post office box. It is removed by HUMANOID who transmits it to the case officer, the material being returned to HUMANOID for replacing in the post office box after being photographed in the office of the Chief of Station.

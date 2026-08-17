@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26575.png
-
-Convert to Markdownb. This is an earnest of the desire of moderate Baathist leaders in Damascus to preserve workable relations with Iraq, partly as a counterbalance to Cairo and partly to preserve what remains of Baathist influence in Baghdad.
+b. This is an earnest of the desire of moderate Baathist leaders in Damascus to preserve workable relations with Iraq, partly as a counterbalance to Cairo and partly to preserve what remains of Baathist influence in Baghdad.
 
 c. Intercepts show at least some Syrian troops will remain in Iraq at the request of Iraqi officials.
 

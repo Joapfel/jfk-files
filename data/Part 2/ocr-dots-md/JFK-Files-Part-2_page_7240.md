@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7240.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>ADLER SEC DIBS EM BY</td><td>P&amp;H</td></tr><tr><td colspan="2">'EMBON/UNIT NOTIFIED</td></tr><tr><td>TOTAL COPIES</td><td>RU:</td></tr><tr><td colspan="2">SECRET</td></tr><tr><td>ADVANCE COPY ISSUED, SLOTTED</td><td>BY AT Z</td></tr><tr><td rowspan="3">ACTION UNIT<br/>ACTION #<br/><table><tr><td>I</td><td>N</td><td>F</td><td>O</td></tr></table></td><td>RF FILE . VR .</td><td>STAFF<br/>1<br/>2<br/>3</td><td>4<br/>5<br/>6</td></tr></table></td><td>REPRODUCTION BY OTHER THAN<br/>ISSUING OFFICE IS PROHIBITED</td></tr></table>
 

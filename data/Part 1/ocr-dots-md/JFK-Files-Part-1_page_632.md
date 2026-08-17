@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_632.png
-
-Convert to Markdown27 December 1962
+27 December 1962
 
 Subject: Current Address of Maurice Halperin
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_4416.png
-
-Convert to MarkdownThe Secretary General U. S. Government SELECT COORDINATING COMMITTEE TO STUDY GOVERN- MENTAL, OPERATIONAL AND FINANCIAL REQUIREMENTS FOR INTERNATIONAL ACTIVITIES (GEC)
+The Secretary General U. S. Government SELECT COORDINATING COMMITTEE TO STUDY GOVERN- MENTAL, OPERATIONAL AND FINANCIAL REQUIREMENTS FOR INTERNATIONAL ACTIVITIES (GEC)
 
 Ref. seen to a lot from SSC and 11/21/75, request- ing delivery of materials pertaining to the surveillance. Enclosed for our approval & forwarding to SSC is the original of memo which corresponds to 11/21 let. A copy of this memo is being furnished for our records.

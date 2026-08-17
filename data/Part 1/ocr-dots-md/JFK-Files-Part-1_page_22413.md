@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22413.png
-
-Convert to Markdown814.
+814.
 
 (iii) Sub-sourcing by
 

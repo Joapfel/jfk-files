@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10917.png
-
-Convert to Markdown22 April 1964
+22 April 1964
 
 MEMORANDUM FOR: CI/OA
 

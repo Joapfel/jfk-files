@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32978.png
-
-Convert to Markdown26 March 1975
+26 March 1975
 
 SUBJECT: Contact Report on Liquefied OIL. (D)
 

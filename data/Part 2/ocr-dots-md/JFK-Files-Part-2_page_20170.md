@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20170.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 EATON admitted there were some problems in the past with regard to friction within WONAAC about SWP and YSA influence. She stated, however, this matter, to her observation, never seemed a serious one, and is quite minimal today. With regard to the "walk out" of six national coordinators at the July, 1972 conference in NYC, she stated the walk out did not occur, in fact, because of the SWP/YSA influence question, but rather because those who walked out believed WONAAC should be a "referral agency", while those who stayed felt it should not. By referral agency, EATON stated she means an agency which would refer callers to a specific location or place where abortions could be obtained.
 

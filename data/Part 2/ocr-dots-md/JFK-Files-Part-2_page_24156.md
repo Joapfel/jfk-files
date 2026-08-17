@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24156.png
-
-Convert to Markdown- 45 -
+- 45 -
 
 LPBYZAS/3
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4162.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 other Dr. Manuel ARTIME Buesa and Miss Pepita Riera.
 

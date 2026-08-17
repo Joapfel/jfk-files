@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8715.png
-
-Convert to Markdown12.02.03 Es hombre algo sexual, blanducho, muy atento con las mujeres. Se inclina a retener la mano de una mujer más de lo necesario al hablarle y a menudo echa el brazo a mujeres que admira. A menudo usa lisonjas y frases de cortesía pero lo hace de manera agradable. A la mayoría de las mujeres les gustan sus atenciones.
+12.02.03 Es hombre algo sexual, blanducho, muy atento con las mujeres. Se inclina a retener la mano de una mujer más de lo necesario al hablarle y a menudo echa el brazo a mujeres que admira. A menudo usa lisonjas y frases de cortesía pero lo hace de manera agradable. A la mayoría de las mujeres les gustan sus atenciones.
 
 12.02.04 Es hombre sensual, pero en forma penosa e insegura. Es hombre blanducho que se esfuerzo por no ofender. Sin embargo, frecuentemente sigue con la mirada a una mujer atractiva cuando cree que radicó lo mira. También se inclina a tropezar con las mujeres o a tocarlas "accidentalmente" cuando tiene oportunidad.
 

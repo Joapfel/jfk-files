@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Wiley's 1969 Federal income tax return reflects a 21 day trip to Germany, Belgium, and Luxemburg and claims transportation was furnished by the U.S. Armed Forces. A memo of a trip to Germany 20 January to 8 February 1969 indicates Wiley was covering airlift operation Reforger I. This trip was apparently as an invitee of the U.S. military which supplied most of the travel needs. No travel voucher was submitted to CIA but overseas trip expenses of $502.26 are charged as expenses in the 1969 cover fund accounting offset against income. The itinerary shows: Brussels, Germany and Luxemburg.
 

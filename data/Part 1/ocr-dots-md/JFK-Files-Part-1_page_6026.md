@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6026.png
-
-Convert to MarkdownIt has two sub-delegations, one in Maracaibo, a northern city of Venezuela, under the direction of Roberto Frey; another, and Ricardo Nouriguez, and the other one in Baranque'simeto.
+It has two sub-delegations, one in Maracaibo, a northern city of Venezuela, under the direction of Roberto Frey; another, and Ricardo Nouriguez, and the other one in Baranque'simeto.
 
 At the central office of the D.R.S. delegation in Venezuela under the direction of Rafael Trejo, General delegate of the O.B.S. in Venezuela, Jose Miguel González Florentte, Lorenzo Martín, Joaquín Perez, and Luis Boza are actually working. In Caracas, the D.R.S. transmits a daily radio broadcast which lasts for 30 minutes. Also in Maracaibo the D.R.S. transmits a radio broadcast which holds great popularity. (It is interesting to point out as a proof for the advantagesous effects of this broadcast that a group of action men of the co-operative party tried to burn with Molotov bombs the radio station which transmit the broadcast).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11972.png
-
-Convert to MarkdownSecurity Informants
+Security Informants
 
 Special Records Unit maintains an up-to-date index of Security Informants and Potential Security Informants. It correlates personal and operating data (such as name, address, code, file and symbol number) concerning these informants, which it receives from the Division's investigative sections, and places such material on FD-348s, three by five cards that constitute the index. This index is maintained on discontinued as well as current informants.
 

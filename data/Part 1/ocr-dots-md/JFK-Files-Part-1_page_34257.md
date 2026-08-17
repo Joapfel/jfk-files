@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34257.png
-
-Convert to Markdowndirectamente hacia Viet Nam del Norte.
+directamente hacia Viet Nam del Norte.
 
 Según Cobas, esto no pudo hacorse debido a que, a última hora, la Embajada recibió el aviso de que el puerto norcoreano de Chinampó estaba bloqueado por el hielo. En vista de ello, se ordenó al "Aracelio" levar anclas rumbo a Shanghai para reco- gor allí otro cargamento de material de guerra y conducirlo al Viet Nam. Fue entonces que Cobas y sus compañeros decidieron abandonar el buque.
 

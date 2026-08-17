@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11739.png
-
-Convert to Markdown# PART II
+# PART II
 ## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 4. Each office must submit to the Bureau annually at least three suggestions for articles, identifying the suggested author, and briefly describing the nature of the suggested article. The article should not be prepared, submitted, or mentioned to the suggested author until the Bureau directs that it be obtained. Suggestions may cover any general or specific subject of law enforcement interest, including the following:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6310.png
-
-Convert to MarkdownOther issues discussed
+Other issues discussed
 
 Crypts other than LIs and AMs - there was a discussion re
 deleting digraph and letting rest of crypt; everyone seemed

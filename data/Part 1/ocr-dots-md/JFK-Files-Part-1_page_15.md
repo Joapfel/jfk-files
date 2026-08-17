@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15.png
-
-Convert to Markdown② Indicate that $S_0$ is an initial sum, and $S_n$ is a sequence. Using the definition of $S_{n+1}$, prove by mathematical induction that for all positive integers $n$, $S_n$ is equal to the sum of the first $n$ terms of $\{S_k\}$.
+② Indicate that $S_0$ is an initial sum, and $S_n$ is a sequence. Using the definition of $S_{n+1}$, prove by mathematical induction that for all positive integers $n$, $S_n$ is equal to the sum of the first $n$ terms of $\{S_k\}$.
 
 $$ \text{The sequence } \{S_n\} \text{ defined as } S_0 = 2 \text{ and } S_{n+1} = S_n + 2 \text{ for } n \ge 1 $$
 

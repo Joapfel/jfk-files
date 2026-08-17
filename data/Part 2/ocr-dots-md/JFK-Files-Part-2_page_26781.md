@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26781.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1964 to 1966?
 

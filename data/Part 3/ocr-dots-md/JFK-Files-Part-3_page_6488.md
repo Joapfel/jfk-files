@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6488.png
-
-Convert to MarkdownJuly 30, 1959
+July 30, 1959
 
 MANUAL OF INSTRUCTIONS
 REVISION NUMBER 196

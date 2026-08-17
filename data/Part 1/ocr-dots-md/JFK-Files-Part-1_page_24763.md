@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24763.png
-
-Convert to Markdown5. Seeking approval of Station Mexico City for the release of the total report seems to violate the concept of Headquarters control of operational information. Would it not be more appropriate to ask Station's opinions only in areas of doubt in the matter of source-sensitivity?
+5. Seeking approval of Station Mexico City for the release of the total report seems to violate the concept of Headquarters control of operational information. Would it not be more appropriate to ask Station's opinions only in areas of doubt in the matter of source-sensitivity?
 
 6. Although this dispatch was coordinated according to para 2 with BB Division and the Guatemalan Desk, the first inkling this Branch got of the paper is when the dispatch arrived on my desk.
 

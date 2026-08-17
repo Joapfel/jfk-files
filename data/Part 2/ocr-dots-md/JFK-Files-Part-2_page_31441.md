@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31441.png
-
-Convert to Markdownsupposed to register. He has been indicted already and is under possible sentence of 500 years in jail and $1,000,000 fine. HALL went on to say that he went to jail under the Smith Act and that for thirty years the Government has tried to prove that the CP has been advocating the violent overthrow of the Government and that all communists are agents of a foreign power and are espionage agents etc. but has failed to do so.
+supposed to register. He has been indicted already and is under possible sentence of 500 years in jail and $1,000,000 fine. HALL went on to say that he went to jail under the Smith Act and that for thirty years the Government has tried to prove that the CP has been advocating the violent overthrow of the Government and that all communists are agents of a foreign power and are espionage agents etc. but has failed to do so.
 
 According to HALL, the McCarran Act came into being during the McCarthy era when the Administration was being pressured to prosecute communists. The Attorney General said the Government couldn't prosecute them as they did not have the necessary evidence. Congress decided to get around the courts by legislative enactment. They appointed a political committee and presented a lot of illegal and unconstitutional evidence and came up with a finding that the communists are agents of a foreign power and spies and saboteurs.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1862.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
+<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td></tr><tr><td><table><tr><td>SECRET</td></tr></table></td></tr></table>
 
 ORIG:
 CIN:

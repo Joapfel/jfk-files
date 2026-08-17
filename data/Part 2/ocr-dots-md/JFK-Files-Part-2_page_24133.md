@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24133.png
-
-Convert to Markdownare not incorporated but are sole proprietorships; and Notionals, which are merely business names, are not formally constituted or registered which do business at the address of an answering service or witting attorney) totaled 326 as of October 31, 1975. There were 31 Devised Facilities, 67 Devised Facilities-Notionals, and 228 Notionals.
+are not incorporated but are sole proprietorships; and Notionals, which are merely business names, are not formally constituted or registered which do business at the address of an answering service or witting attorney) totaled 326 as of October 31, 1975. There were 31 Devised Facilities, 67 Devised Facilities-Notionals, and 228 Notionals.
 
 There follows a list of some of these proprietaries with brief descriptions of their functions. There are 97 in number. Following that list is a description of the major headquarters-controlled proprietarys provided as of September 24, 1975. In addition, there is included a listing of all proprietaries during the period 1952 through 1974 (total 399) with the highest net equity balance on agency records and the net worth balance as of December 31, 1974. The smallest net worth balance is $400 and the largest is $31,778,000.
 

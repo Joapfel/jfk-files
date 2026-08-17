@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32249.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The active pursuit of our objective will make it clear that the U. S. will not permit the maintenance of a communist base in the hemisphere. From the standpoint of military posture, the more active approach may be subjected to counteractions from the Sino-Soviet Bloc elsewhere. As we increase the pressures on Castro/Communist Cuba and the extent of our commitment to overthrow the regime, U. S. prestige becomes more deeply involved. The further we progress along this route, the more significant will be the loss of U. S. prestige if we alter or abandon it.
 

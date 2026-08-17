@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11656.png
-
-Convert to Markdown# DESECO PROGRAM
+# DESECO PROGRAM
 ## Bucfile 105-71688
 
 4-H

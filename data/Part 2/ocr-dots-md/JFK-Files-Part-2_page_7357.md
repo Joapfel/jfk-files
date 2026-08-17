@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7357.png
-
-Convert to Markdownof the technology of the technical collection programs. It would also
+of the technology of the technical collection programs. It would also
 be desirable if the Select Committees adopted the use of Compart-
 mented Control Systems to protect documents on these programs
 and cleared only those staff personnel with an absolute need-to-know.

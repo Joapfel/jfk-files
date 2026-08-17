@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19393.png
-
-Convert to Markdown20 S. 12th Street - Philadelphia, Pa. 19107 - Telephone: LO 3-4310
+20 S. 12th Street - Philadelphia, Pa. 19107 - Telephone: LO 3-4310
 
 Dear WSPER:
 

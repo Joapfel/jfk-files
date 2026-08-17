@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24589.png
-
-Convert to Markdown29 May 1965
+29 May 1965
 
 not with a group of PGT labor leaders and members of the FAPL. It was announced that a meeting will definitely be arranged with representatives of the Guatemalan Revolucionario 13 de Noviembre (SR-13) November, Revolutionary Movement), guerrilla organization headed by Mario Antonio Velaz Sosa (14).
 

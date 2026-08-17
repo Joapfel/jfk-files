@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30756.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Supplement to Staff Employee Personnel
 Action for Integration of Newton Scott Hiller

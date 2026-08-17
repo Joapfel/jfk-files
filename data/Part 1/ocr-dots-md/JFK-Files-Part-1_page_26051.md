@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26051.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. PLEASE REPLY IN TIME FOR SGSWIRL, SCHEDULED FOR 22 MAY.
 

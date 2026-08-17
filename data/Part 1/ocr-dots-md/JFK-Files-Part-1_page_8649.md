@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8649.png
-
-Convert to MarkdownPRODUCT SALES REPORT
+PRODUCT SALES REPORT
 
 1. Salesman Party for Tennis Group
 2. Supervisor John Francis

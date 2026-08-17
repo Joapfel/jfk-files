@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22873.png
-
-Convert to Markdown1 the last two or three days -- I saw a sabotage program which
+1 the last two or three days -- I saw a sabotage program which
 2 involved, I think, oil facilities, transportation facilities,
 3 and a couple of other categories -- exfiltration was a
 4 frequent problem. I don't recall that we worried so much

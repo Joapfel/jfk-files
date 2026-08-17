@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32428.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 1K OBSOLETE PREVIOUS EDITIONS.
 

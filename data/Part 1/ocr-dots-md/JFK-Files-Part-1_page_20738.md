@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20738.png
-
-Convert to MarkdownDavid A. Phillips
+David A. Phillips
 
 4 February 1971
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29145.png
-
-Convert to MarkdownNWW 88326 DocId:32245535 Page 191
+NWW 88326 DocId:32245535 Page 191
 
 <table>
     <caption>SCHEDULE OF DEPRECIATION / AMORTIZATION</caption>

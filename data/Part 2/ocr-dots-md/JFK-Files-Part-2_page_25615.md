@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25615.png
-
-Convert to Markdown5. The aforementioned investigation satisfied me that the facts set forth in Exhibit A are a truthful account of Mr. Rosselli's activities as described therein.
+5. The aforementioned investigation satisfied me that the facts set forth in Exhibit A are a truthful account of Mr. Rosselli's activities as described therein.
 
 Sworn to before me this 17th day of June, 1971.
 

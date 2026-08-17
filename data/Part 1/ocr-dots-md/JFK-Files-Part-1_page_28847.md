@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28847.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>Form D5F-34<br/>J-26-91</td>
         <td></td>

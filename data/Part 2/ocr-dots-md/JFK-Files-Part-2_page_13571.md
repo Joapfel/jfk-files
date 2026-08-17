@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13571.png
-
-Convert to MarkdownMr. J. B. Adams
+Mr. J. B. Adams
 
 4-25-75
 

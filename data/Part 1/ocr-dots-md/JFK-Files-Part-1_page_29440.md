@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29440.png
-
-Convert to MarkdownCLASSIFIED MESSAGE TOTAL COPIES
+CLASSIFIED MESSAGE TOTAL COPIES
 
 <table><thead><tr><td>INDEX ☐ YES ☐ NO</td><td></td><td>CLASSIFIED MESSAGE</td><td>TOTAL COPIES</td><td colspan="4"></td></tr></thead><tbody><tr><td>FILE RID ☐ RET. TO BRANCH ☐</td><td></td><td>PERSON/UNIT NOTIFIED</td><td></td><td colspan="4">REPRODUCTION PROHIBITED</td></tr><tr><td>DESTROY ☐ SIG.</td><td></td><td></td><td></td><td>1</td><td></td><td>9</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>2</td><td></td><td>0</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>3</td><td></td><td>7</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td>4</td><td></td><td>8</td><td></td></tr><tr><td>ACTION</td><td>☑ RID COPY</td><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED ☐ TUBED</td><td>UNIT TIME BY</td></tr><tr><td>INFO FILE</td><td>VR CLWHB C/SODD C/OPSER C/COSA</td><td colspan="3"></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19848.png
-
-Convert to MarkdownDate
+Date
 
 8 Apr 57 > CIA Staff Employee service
 8 Sep 63

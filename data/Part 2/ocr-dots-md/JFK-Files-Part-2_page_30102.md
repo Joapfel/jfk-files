@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30102.png
-
-Convert to Markdown1-336 (Rev. 4-28-78)
+1-336 (Rev. 4-28-78)
 
 FEDERAL BUREAU OF INVESTIGATION
 

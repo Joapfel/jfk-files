@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27404.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 <table><tr><td>1. DATE OF REQUEST</td></tr><tr><td>15 Nov 1967</td></tr></table>

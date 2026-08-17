@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3606.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STAFF
 

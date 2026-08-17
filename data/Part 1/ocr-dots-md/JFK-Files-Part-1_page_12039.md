@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12039.png
-
-Convert to MarkdownTCS-630 dtd 24 Aug 49
+TCS-630 dtd 24 Aug 49
 
 Ref: TCS-H-644
 

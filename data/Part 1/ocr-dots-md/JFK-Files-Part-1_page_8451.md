@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8451.png
-
-Convert to Markdowncall you?" Well, replied LOGINOV, why didn't they leave it that if he didn't hear from Subject, he would call Subject, and vice versa. Subject agreed.
+call you?" Well, replied LOGINOV, why didn't they leave it that if he didn't hear from Subject, he would call Subject, and vice versa. Subject agreed.
 
 7. Subject said he waited until Friday morning, 10 May, to hear from LOGINOV, and when LOGINOV didn't call, he called LOGINOV (confirmed by LIENVOY). LOGINOV, according to Subject, said he was afraid he was not going to be able to make it, after all, because the Mayor of Moscow was visiting Mexico and he would be tied up with the Mayor on Saturday. Subject said he suggested that perhaps they could make it for the following Saturday, then. LOGINOV replied that he thought he might be able to make it then, but, again, he couldn't say for sure just then. "But anyway," LOGINOV added, "we're going to be seeing each other more often because we've (i.e., the Soviet Embassy) taken a house on Calle Umbolt (in Cuernavaca) for the summer, and I'll be coming down to Cuernavaca every weekend." Subject expressed pleasure at this and said that he'd expect to hear from LOGINOV sometime soon then. LOGINOV assured Subject he would.
 

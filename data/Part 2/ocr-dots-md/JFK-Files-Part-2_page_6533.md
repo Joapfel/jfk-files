@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6533.png
-
-Convert to Markdown(2) Attract Cuban resources.
+(2) Attract Cuban resources.
 
 (a) Purchase the defection of personnel, aircraft, ships, boats and other valuable items.
 

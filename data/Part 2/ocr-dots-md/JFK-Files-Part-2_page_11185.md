@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11185.png
-
-Convert to MarkdownNWI 88321 DocID:32989529 Page 519
+NWI 88321 DocID:32989529 Page 519
 
 INDEX FOR SECTION 87D
 References are to page.

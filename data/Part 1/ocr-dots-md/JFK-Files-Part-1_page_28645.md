@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28645.png
-
-Convert to MarkdownSECRET
+SECRET
 # TRAINING EVALUATION
 
 1. The official to whom this report is entrusted is personally responsible for it. Although he may, within his discretion show it to other members of his staff, the report should never be shown to the student whom it concerns.

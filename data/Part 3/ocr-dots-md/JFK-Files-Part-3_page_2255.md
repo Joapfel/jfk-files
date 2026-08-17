@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2255.png
-
-Convert to MarkdownDecember 18, 1975
+December 18, 1975
 
 Dr. Martin Luther King in 1963 through 1968, and for the investigation of the Women's Liberation Movement for the years that that organization was under investigation, and the annual reports available on the investigations about which materials were supplied pursuant to John Elliff's request of October 28.
 

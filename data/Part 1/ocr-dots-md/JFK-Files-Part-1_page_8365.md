@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8365.png
-
-Convert to MarkdownSOURCE: LIEVIERACE
+SOURCE: LIEVIERACE
 DATE: Jueves 2 de Enero de 1969.
 PARTICIPANTS: 1,5,14.
 FILE:

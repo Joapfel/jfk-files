@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18627.png
-
-Convert to Markdown3791 (6-75)
+3791 (6-75)
 
 NW 88326 DocId:32989627 Page 225
 

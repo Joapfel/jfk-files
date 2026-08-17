@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23222.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 was sent to the Congo to assess the possibility for assassinating Lumumba rather than to mount some sort of kidnapping plan to draw Lumumba out from the U.N. guard and put him in the hands of Congolese authorities?
 

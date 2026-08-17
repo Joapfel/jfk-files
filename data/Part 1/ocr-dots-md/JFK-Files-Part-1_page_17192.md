@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17192.png
-
-Convert to Markdown3. Financial - After a detailed review of the then-existing LIEMPTY agent salary structure, selected agents (LIEMPTYS -6, -9, -10, and -11) were granted salary increases effective 1 January 1966. Formal notification and revised salaries for oral commitment were forwarded to Headquarters with FNOA-26,15%, dated 25 January 1966. There was no change in the salaries of the 8 remaining LIEMPTY agents.
+3. Financial - After a detailed review of the then-existing LIEMPTY agent salary structure, selected agents (LIEMPTYS -6, -9, -10, and -11) were granted salary increases effective 1 January 1966. Formal notification and revised salaries for oral commitment were forwarded to Headquarters with FNOA-26,15%, dated 25 January 1966. There was no change in the salaries of the 8 remaining LIEMPTY agents.
 
 C. Personnel
 

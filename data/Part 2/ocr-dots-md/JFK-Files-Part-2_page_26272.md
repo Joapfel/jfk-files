@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26272.png
-
-Convert to Markdown10. The ring takes great precautions to prevent tracing of the addressees. One of the important links is a woman whose Paris home has entrances on two different streets. She and her husband use the principal street address for their normal lives, but the back street address for the receipt of clandestine correspondence.
+10. The ring takes great precautions to prevent tracing of the addressees. One of the important links is a woman whose Paris home has entrances on two different streets. She and her husband use the principal street address for their normal lives, but the back street address for the receipt of clandestine correspondence.
 
 11. In this Cuban-sponsored subversive operation, routes of travel are planned to escape easy detection of the fact that a person has left his home, been trained, and has returned to his country. Most of the travel has been by way of Mexico and thence to Cuba, since it was possible to escape detection of the travel. The Cubans issued loose leaf inserts for the travelers' passports, rather than stamping a record of the travel in the document itself. The Mexican Government has recently begun measures to control this travel, but a large number have managed to enter and leave Cuba for Mexico without detection. Some of the travel to Cuba is by way of the Dutch and British West Indies.
 

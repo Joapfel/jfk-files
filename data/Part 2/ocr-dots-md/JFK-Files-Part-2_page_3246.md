@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3246.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 let the body in on what we definitely
 have in mind; also, that any further

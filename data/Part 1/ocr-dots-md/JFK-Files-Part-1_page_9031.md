@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9031.png
-
-Convert to MarkdownA. **Family objections to moving:**
+A. **Family objections to moving:**
 
 1. Health hazards - My wife's fears about hepatitis and other diseases (originally aroused by Mike's casual reference to same) were somewhat reinforced by MT and wife's pointed cautions about food and water.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7363.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
+RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
 
 "Q: Do you know of any effort by the Bureau to influence a political campaign?
 

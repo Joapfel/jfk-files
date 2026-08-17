@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7747.png
-
-Convert to MarkdownSergeyj Czernonoh
+Sergeyj Czernonoh
 1106 11th Street
 Sacramento, CA 95814
 

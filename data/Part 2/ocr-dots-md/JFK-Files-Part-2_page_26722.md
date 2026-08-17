@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26722.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 would call a great number of suspect infiltrees, but they did
 2 come up with a few promising ones and ones it turned over to the

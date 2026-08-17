@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23426.png
-
-Convert to MarkdownTRS-A-369
+TRS-A-369
 
 22 June 1949
 

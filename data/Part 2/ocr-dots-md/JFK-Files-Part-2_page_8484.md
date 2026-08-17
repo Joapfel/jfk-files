@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8484.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The following items were heretofore classified SECRET because they described sources and methods in identifying a support base located in the United States, but are now considered to have been placed in the public domain.
 

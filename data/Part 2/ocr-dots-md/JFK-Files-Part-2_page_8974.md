@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8974.png
-
-Convert to MarkdownLEE HARVEY OSWALD
+LEE HARVEY OSWALD
 
 Con motivo del asesinato del presidente de los Estados Unidos John F. Kennedy, se tuvo conocimiento que Lee Harvey Oswald, había estado en México anteriormente, por lo que se procedió a efectuar la investigación correspondiente.
 

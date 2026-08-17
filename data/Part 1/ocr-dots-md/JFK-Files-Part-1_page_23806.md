@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23806.png
-
-Convert to Markdown# Asian-African Journalists' Association
+# Asian-African Journalists' Association
 ## (Persianman Wartawan Asia - Afrika)
 
 Dear Colleague,

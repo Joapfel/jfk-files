@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21014.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MIAMI
 

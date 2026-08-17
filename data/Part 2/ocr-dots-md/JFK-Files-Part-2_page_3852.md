@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3852.png
-
-Convert to Markdown15 January 1963
+15 January 1963
 
 **SUBJECT:** BRADLEY, Edgar Eugene
 (see also BRADLEY, Leslie Norman)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19131.png
-
-Convert to Markdown# MEMORANDUM FOR: Mr. Doris D. Turcotte
+# MEMORANDUM FOR: Mr. Doris D. Turcotte
 
 THROUGH : Deputy Director for Plans
 THROUGH : Chief, N.M. Division

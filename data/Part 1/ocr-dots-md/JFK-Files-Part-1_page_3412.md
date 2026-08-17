@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3412.png
-
-Convert to MarkdownBÓSINCIAS
+BÓSINCIAS
 INTERNACIONAL
 
 25c.

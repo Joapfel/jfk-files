@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10760.png
-
-Convert to MarkdownPH 52-7165 SUB S
+PH 52-7165 SUB S
 
 and a Commonwealth of Massachusetts driver's license number
 017387913.

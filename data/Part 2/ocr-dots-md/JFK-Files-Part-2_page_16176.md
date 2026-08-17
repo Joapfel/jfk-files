@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16176.png
-
-Convert to MarkdownDate January 23, 1970
+Date January 23, 1970
 
 At the Cook County Courthouse, 26th and
 California Avenue, Room 452, known as the Special

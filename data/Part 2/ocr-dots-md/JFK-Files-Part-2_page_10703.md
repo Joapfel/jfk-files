@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10703.png
-
-Convert to MarkdownPH 52-7165 Sub 3
+PH 52-7165 Sub 3
 
 TABLE OF CONTENTS
 

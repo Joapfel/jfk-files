@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12289.png
-
-Convert to MarkdownSECRET
+SECRET
 
 be as long as the Sponsor deems necessary to accomplish the
 below stated mission. Furthermore, the Volunteer understands

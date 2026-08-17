@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9233.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Re: KMFUNNY.... and "STALIN" PHOTO-BOOK;
 

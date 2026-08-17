@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11615.png
-
-Convert to Markdown4-E
+4-E
 
 In other positive moves we have arranged for a friendly newspaperman, who writes for Spanish-language newspapers in New York City, to prepare feature articles on Cuban defectors who have settled happily in the United States. In conjunction with State Department, we received concurrence of Secretary General U Thant of the United Nations to bar two strong-arm-type Cuban intelligence officials from United States territory even though neither had ever been in the United States or performed any known acts of violence against United States property or citizens. Mr. U Thant pointed out that this was a landmark action, as the United States had never before presented a case which warranted entry denials in the history of the United Nations.
 

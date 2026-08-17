@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_474.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM</th></tr><tr><td>TOTAL COPIES:</td><td>3/</td></tr></thead><tbody><tr><td>□ FILE RID</td><td rowspan="4"><table><thead><tr><th colspan="2">ROUTING</th></tr><tr><th></th><th></th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table></td></tr><tr><td>□ INDEX</td></tr><tr><td>X NO INDEX</td></tr><tr><td>□ FILC IN CS FILE NO.</td></tr></tbody></table></p><p>C.G.: H. WEILER;gb<br/>C.AIT: WH/C/RR<br/>CAT: 3561<br/>DATE: 10 AUGUST 1966</p><table><tr><td>DIFSIM BY</td><td>3</td><td>PER</td><td>#</td></tr><tr><td colspan="4">FROM: DIRECTOR</td></tr><tr><td>CONF:</td><td>l0H/c 8</td><td>☐ RID COPY</td><td>INFG: VA, FILE . Pl, Fl, Int'l, w, WH 8</td></tr></table><table><tr><td>(CLASSIFICATION)</td><td>[RVR]</td><td>(ELITE)</td><td>(PICA)</td></tr><tr><td>[SECRET]</td><td></td><td></td><td></td></tr><tr><td></td><td>DATE AND TIME (EST)</td><td>(REFERENCE NUMBER)</td><td></td></tr></table><table><tr><td>CITE DIRECTOR</td><td>27103</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8890.png
-
-Convert to Markdown# Inflammatory Articles
+# Inflammatory Articles
 
 Many of the articles in The Black Panther are written by local Party members and concern regional incidents and issues. They are aimed at provoking national black sympathy and joint retaliation for magnified grievances against the authorities.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4585.png
-
-Convert to MarkdownTO: DIRECTOR, FBI (105-98176)
+TO: DIRECTOR, FBI (105-98176)
 
 DATE: 7/17/63
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8818.png
-
-Convert to MarkdownORIG: L. MESTRES/mvb
+ORIG: L. MESTRES/mvb
 UNIT: C/SB/X/WH
 EXT: 6412
 DATE: 7 MARCH 1969

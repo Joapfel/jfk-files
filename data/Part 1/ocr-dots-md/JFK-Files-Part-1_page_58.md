@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_58.png
-
-Convert to MarkdownHeadquarters Distribution for
+Headquarters Distribution for
 Book Dispatch No. 4726
 
 |  |  |  |

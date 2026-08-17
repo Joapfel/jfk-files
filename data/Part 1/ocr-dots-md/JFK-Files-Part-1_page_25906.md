@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25906.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">CAPTAIN TO ORDER BY ____________________ TOTAL COPY <br/> PERIODICALLY NOTIFIED <table><tr><td>3 - 9 - 77</td></tr></table></td><td>PAGE 27-82</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED: [SIGNATURE] <br/> ACTION (ID) <table><tr><td>I</td><td>RF</td><td>A. E.</td><td>N/M</td></tr></table></td></tr><tr><td>ACTION # <br/> INFO</td><td></td><td></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5274.png
-
-Convert to MarkdownT. Jeremy Gunn
+T. Jeremy Gunn
 
 1652 Wild Pine Way
 Reston, Virginia 20194

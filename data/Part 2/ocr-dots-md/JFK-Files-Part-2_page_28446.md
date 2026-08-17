@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28446.png
-
-Convert to MarkdownSeptember 20, 1977
+September 20, 1977
 
 Mr. John Farmer
 1001 Rockville Pike #1819

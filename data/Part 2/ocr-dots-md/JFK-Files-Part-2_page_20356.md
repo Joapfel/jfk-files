@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20356.png
-
-Convert to Markdown1. APPENDIX
+1. APPENDIX
 EMMA LAZARUS FEDERATION
 OF JEWISH WOMEN'S CLUBS
 

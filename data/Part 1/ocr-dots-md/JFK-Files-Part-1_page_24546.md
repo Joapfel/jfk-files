@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24546.png
-
-Convert to MarkdownATTACHMENT B
+ATTACHMENT B
 H/PLA-1011
 
 Chief, S B

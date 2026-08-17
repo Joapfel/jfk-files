@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21694.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 one source of funds that went into the total capital fund?
 

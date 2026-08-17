@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28910.png
-
-Convert to Markdown17 NOVEMBER 1965
+17 NOVEMBER 1965
 
 MEMORANDUM PERS: Contract Personnel Division,
 Office of personnel

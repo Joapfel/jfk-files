@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16860.png
-
-Convert to Markdown# National Stockholder Justice Committee
+# National Stockholder Justice Committee
 FOR THE
 
 NORTHWEST DISTRICT OF ILLINOIS, EASTERN DIVISION

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29379.png
-
-Convert to Markdown# B-1-C-2-1-
+# B-1-C-2-1-
 
 A. NON-NIGHTTIME DIVISION - THE TECHNICAL SCHOOL
 

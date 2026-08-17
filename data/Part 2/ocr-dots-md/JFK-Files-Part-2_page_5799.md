@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5799.png
-
-Convert to Markdown09/16/98
+09/16/98
 
 d. The Army's Investigative Records Repository file on Alfredo Mirabal Diaz.
 

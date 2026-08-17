@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4594.png
-
-Convert to MarkdownSEC.1.1 F
+SEC.1.1 F
 
 Chief of Station, JAGUAR
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14965.png
-
-Convert to MarkdownCIVIL RIGHTS MATTERS IN MISSISSIPPI
+CIVIL RIGHTS MATTERS IN MISSISSIPPI
 
 Two major civil rights cases are awaiting
 prosecutive action in Mississippi. One of these cases

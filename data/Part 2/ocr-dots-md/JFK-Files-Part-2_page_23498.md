@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23498.png
-
-Convert to Markdownthat he did not remember the meeting. Gray acknowledged, however, that
+that he did not remember the meeting. Gray acknowledged, however, that
 the phrase "direct positive action" in this context "could have included
 assassination." Gray said that the reaction by General CABELL that such
 action would be beyond CIA capabilities, was the "usual DCI reaction".

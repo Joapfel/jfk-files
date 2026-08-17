@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23149.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Chief, IS
 THRU: Chief, 10

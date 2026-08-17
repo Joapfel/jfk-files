@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15288.png
-
-Convert to Markdown5. Miscellaneous:
+5. Miscellaneous:
 
 Subject failed to give any information about a cousin of his who is residing in the U.S.A. Subject told the debriefer that this information was already passed to George.
 

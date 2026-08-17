@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7863.png
-
-Convert to MarkdownThe applicability of these exemptions has been explained
+The applicability of these exemptions has been explained
 to you in our earlier correspondence.
 
 | Documents | Exemptions |

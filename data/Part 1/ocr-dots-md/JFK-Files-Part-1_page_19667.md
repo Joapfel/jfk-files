@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19667.png
-
-Convert to MarkdownDMS: 21 JUNE 73
+DMS: 21 JUNE 73
 
 SECRET
 (When Filled In)

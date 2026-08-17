@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23684.png
-
-Convert to Markdownbecause in effect it was a public company of a country whose most business enterprises are owned by the government: But it's a company and it's business and it was a foreign company and the question was, and it related to —
+because in effect it was a public company of a country whose most business enterprises are owned by the government: But it's a company and it's business and it was a foreign company and the question was, and it related to —
 
 Mr. Kirbow. And this agent was apparently here in the United States?
 

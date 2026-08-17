@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13998.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (BA)
+RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (BA)
 
 Writer stated he was interested in obtaining such assistance. Accordingly during the morning of 5/12/75 Mr. Seymour Phillips contacted the writer.
 

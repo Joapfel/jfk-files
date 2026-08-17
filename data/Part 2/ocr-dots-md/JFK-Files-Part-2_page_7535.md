@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7535.png
-
-Convert to MarkdownPage 185: McDonald believes "Saul" was telling true story. CDH - I do too.
+Page 185: McDonald believes "Saul" was telling true story. CDH - I do too.
 
 Page 94: McDonald finds buck passing so pervasive that he cannot escape suspicion of a continued and officially backed cover-up.
 

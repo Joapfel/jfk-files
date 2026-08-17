@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23962.png
-
-Convert to Markdownand advised him to keep in mind the President's view, as expressed at the May 5 National Security Council Meeting, that the United States should not initiate the overthrow of Trujillo before knowing what government would succeed him. (Department to Dearborn, 5/17/61)
+and advised him to keep in mind the President's view, as expressed at the May 5 National Security Council Meeting, that the United States should not initiate the overthrow of Trujillo before knowing what government would succeed him. (Department to Dearborn, 5/17/61)
 
 Dearborn responded on May 21, 1961, pointing out that for over a year State Department representatives in the Dominican Republic had been nurturing the effort
 

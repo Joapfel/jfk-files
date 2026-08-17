@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21182.png
-
-Convert to Markdowninconceivable that NOSENKO just never was advised
+inconceivable that NOSENKO just never was advised
 of KOSOLAPOV's trip. There appears to be nothing
 sinister about his denial of knowledge of this trip.
 

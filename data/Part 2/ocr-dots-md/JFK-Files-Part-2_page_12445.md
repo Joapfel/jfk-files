@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12445.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 d. Administrative handling of documents, written reports, and oral information selected for passage
 

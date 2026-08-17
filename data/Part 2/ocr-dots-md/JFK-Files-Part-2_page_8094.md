@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8094.png
-
-Convert to MarkdownAPPROVED FOR RELEASE
+APPROVED FOR RELEASE
 Date March 1978
 
 TELEPOUCH

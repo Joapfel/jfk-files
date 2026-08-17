@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4586.png
-
-Convert to Markdown3. In dealing with the Miami Base, Simmons stuck strictly to the relationship between Headquarters and a foreign station. His command channel was, of course, via Chief of WH/4 to the Chief of Miami Base to Morales. He and Morales understood each other perfectly and there was no ether obstacle of any sort in their collaboration. There was no second-guessing or double case offering in CI matters.
+3. In dealing with the Miami Base, Simmons stuck strictly to the relationship between Headquarters and a foreign station. His command channel was, of course, via Chief of WH/4 to the Chief of Miami Base to Morales. He and Morales understood each other perfectly and there was no ether obstacle of any sort in their collaboration. There was no second-guessing or double case offering in CI matters.
 
 4. Simmons and his section ran a number of CI ops directly from Headquarters. He referred to the following:
 

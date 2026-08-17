@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6120.png
-
-Convert to Markdown2. Have you ever been investigated, arrested, charged or held by any Federal, State, or other law enforcement authority for violation of any Federal, State, county or municipal law, regulation or ordinance, other than a minor traffic offense? If so, provide details.
+2. Have you ever been investigated, arrested, charged or held by any Federal, State, or other law enforcement authority for violation of any Federal, State, county or municipal law, regulation or ordinance, other than a minor traffic offense? If so, provide details.
 
 No.
 

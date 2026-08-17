@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29813.png
-
-Convert to Markdown14-00000
+14-00000
 
 2. In connection with the investigation and evaluation of General Pershing's staff, I consider, so far as I am informed by the War Department, that the selection in favor of Mr. Pershing is well based upon the complete records of his past service. I have no reason to doubt his ability to perform the duties of his position; and I recommend him most heartily for confirmation of this recommendation. I move also to recommend Major Mains for a transfer to the staff. I do not feel authorized to express my views on these two matters at present, but will保留 them in mind until further directions are received from your own organization. If he is determined to make himself available for immediate service in the event of any emergency which may occur, or if it becomes necessary to call upon him for support in an emergency, I will be ready to assist him. I also recommend to your consideration the substitution of General Thomas for Major Mains, as I believe it will considerably improve the efficiency of the force under whose direction he is nowlette. Dick Harris.
 

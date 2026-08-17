@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2845.png
-
-Convert to MarkdownNEW 88608
+NEW 88608
 
 5:35PM NITEL 5-28-75 PAM
 TO ALL SACS

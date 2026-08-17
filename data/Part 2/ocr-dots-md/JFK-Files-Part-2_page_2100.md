@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2100.png
-
-Convert to MarkdownCentral Intelligence Agency
+Central Intelligence Agency
 2430 E Street, N. W.
 Washington, D. C.
 

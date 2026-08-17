@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13934.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">U.S. DEPARTMENT OF DEFENSE</td>

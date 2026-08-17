@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10825.png
-
-Convert to Markdownque más bien muestran la perversión de las sensaciones que caracterizan a los masquistas.
+que más bien muestran la perversión de las sensaciones que caracterizan a los masquistas.
 
 Sin la omnipresente CIA, que es el brazo despiado que impone la política de Washington contra la acción armada del pueblo cubano en el destierro; sin las actitudes de sabroscenes Pilatos que viven en la opulencia indiferentes a la tragedia de Cuba, estarían lloviendo bombas sobre la cabeza de Fidel Castro.
 

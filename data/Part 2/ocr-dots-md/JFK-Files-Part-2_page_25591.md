@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25591.png
-
-Convert to Markdownto O'Brien. Alternatively the objective was to discover if there was any information about the plot that might be damaging to the Democrats that O'Brien might possess from Maheu. And these concerns could have been a possible motivation for the break-in to the offices of the DNC and Larry O'Brien by four Cuban-Americans on June 17, 1972, especially since their directions were to photograph any documents relating to Cuban contributions or Cuban involvement in the 1972 Democratic campaign.
+to O'Brien. Alternatively the objective was to discover if there was any information about the plot that might be damaging to the Democrats that O'Brien might possess from Maheu. And these concerns could have been a possible motivation for the break-in to the offices of the DNC and Larry O'Brien by four Cuban-Americans on June 17, 1972, especially since their directions were to photograph any documents relating to Cuban contributions or Cuban involvement in the 1972 Democratic campaign.
 
 It is for these reasons that we wish to question John Rosselli about the nature and scope of his activities with Robert Maheu in the early 1960's.

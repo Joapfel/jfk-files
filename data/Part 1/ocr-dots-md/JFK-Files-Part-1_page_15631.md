@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15631.png
-
-Convert to MarkdownSubject:
+Subject:
 
 20CB:
 

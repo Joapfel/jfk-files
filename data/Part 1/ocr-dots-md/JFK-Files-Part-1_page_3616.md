@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3616.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 3019522 SEP 74 STAFF
 

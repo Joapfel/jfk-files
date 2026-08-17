@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3321.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 THE POLITICAL OPPOSITION

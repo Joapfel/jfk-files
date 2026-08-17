@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14314.png
-
-Convert to MarkdownSpecial NSC 5412/2 Group in order that the Board's responsibilities to the President may be fullfilled; Chairman Killian said that he would see to it that this was accomplished in another way.
+Special NSC 5412/2 Group in order that the Board's responsibilities to the President may be fullfilled; Chairman Killian said that he would see to it that this was accomplished in another way.
 
 Meeting of December 27-28, 1962
 

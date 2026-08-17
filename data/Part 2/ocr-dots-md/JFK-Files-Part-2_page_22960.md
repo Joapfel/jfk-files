@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22960.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 to some extent on the Soviet Union. This was in a period of time where the Eastern European satellites were expanding their presence in Latin America. In my duties in the Eastern European Division, I was responsible for getting this program going in Latin America, so I did have an extensive exposure to Latin America in the period '60 to '62, as I recall those dates.
 

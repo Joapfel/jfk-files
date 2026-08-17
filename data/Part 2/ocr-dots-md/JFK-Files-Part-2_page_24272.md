@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24272.png
-
-Convert to MarkdownVWCADENZA ( . 36 subsidy)
+VWCADENZA ( . 36 subsidy)
 MHBOUND ( . 432 subsidy)
 KMJAGUARO/JAGGERY 809
 QRMYSTIC/CYNIC ( $10 subsidy)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26153.png
-
-Convert to Markdownthe Pathet Lao and pushing on into the area.
+the Pathet Lao and pushing on into the area.
 I felt that more could be done with the
 armed forces of Laos themselves in making
 them more able to stand up for themselves

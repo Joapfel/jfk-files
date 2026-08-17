@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25146.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">PERSONS/ENTITIES:</td>
     <td>DATES:</td>

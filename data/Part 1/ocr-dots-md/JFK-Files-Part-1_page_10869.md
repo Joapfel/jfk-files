@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10869.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">PROJECT</td>
     <td>DATE OF INFORMATION</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15229.png
-
-Convert to Markdown29 September 1959
+29 September 1959
 
 **MEMORANDUM FOR:** Director of Security
 

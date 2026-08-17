@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35103.png
-
-Convert to Markdown**OTHERS: (Cont.)**
+**OTHERS: (Cont.)**
 
 | | |
 | :--- | ---: |

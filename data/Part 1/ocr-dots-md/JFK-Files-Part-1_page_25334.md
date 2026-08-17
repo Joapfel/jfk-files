@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25334.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the young priests undergo a thorough study of Marxist-Leninist doctrine. After graduation they are appointed to parishes where they exercise their subject preposition by preaching Communism to the faithful. At the same time, one of these young priests is first appointed to a local parish, his first step is to go to the localCommunist Party secretary and ask him what the Party mission in the area is and how the priest should be of assistance in carrying out these missions.
 

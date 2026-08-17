@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23185.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Will get the file and it says that this was an SW message from a guy in Mexico or something. I'm just reading a message and deductive analysis of what I know the case to have been at the time.
 

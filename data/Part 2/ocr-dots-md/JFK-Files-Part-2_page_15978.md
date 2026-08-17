@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15978.png
-
-Convert to MarkdownOn April 12, 1969, it was learned Chicago Chapter of SDS has furnished money to Chicago BPP leaders whenever BPP needs money.
+On April 12, 1969, it was learned Chicago Chapter of SDS has furnished money to Chicago BPP leaders whenever BPP needs money.
 
 4/15/69)
 

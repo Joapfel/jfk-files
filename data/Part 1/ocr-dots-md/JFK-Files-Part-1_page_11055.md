@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11055.png
-
-Convert to MarkdownComputer:
+Computer:
 
 Conyergo:
 

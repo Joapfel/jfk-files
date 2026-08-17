@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32405.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **5. VOLUNTARY ENTRIES**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20491.png
-
-Convert to MarkdownNOT RECORD
+NOT RECORD
 
 128 MAR 13 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12924.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 OCT 1976
 

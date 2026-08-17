@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32896.png
-
-Convert to MarkdownEMIUAVE 7157 IN 80859
+EMIUAVE 7157 IN 80859
 
 Requested authorization to release AP type pdrz with cover kit for ARRL HOST-1.
 

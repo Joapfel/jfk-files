@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24726.png
-
-Convert to Markdown4600
+4600
 
 a. Aeroe J.A.M., Prudhoe, Alaska. Registration No. 82664
 Born in January.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23074.png
-
-Convert to Markdown14-0000
+14-0000
 
 SUGGESTED: JUN 30, 1977
 

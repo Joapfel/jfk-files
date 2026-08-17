@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14132.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 THE WHITE HOUSE
 WASHINGTON

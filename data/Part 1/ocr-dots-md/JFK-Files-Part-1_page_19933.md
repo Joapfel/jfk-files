@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19933.png
-
-Convert to Markdown17 APR 1969
+17 APR 1969
 
 Mr. Guy Vitale
 1730 H Street, N. W.

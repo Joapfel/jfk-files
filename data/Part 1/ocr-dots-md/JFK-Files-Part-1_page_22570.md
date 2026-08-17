@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22570.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 them in the trunk of his automobile. It is probable that at least one of the caribines was taken to the scene of the assassination by de la Maza, but we have no evidence that it was actually used in the shooting. Ortiz, the SEM investigator, told the FBI that the assassins who were apprehended and interrogated spoke only of the firing of a sawed-off shotgun, revolvers, and pistols.
 

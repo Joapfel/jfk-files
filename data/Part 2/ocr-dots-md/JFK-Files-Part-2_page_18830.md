@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18830.png
-
-Convert to Markdown# Letter to Director
+# Letter to Director
 Central Intelligence Agency
 
 Subject was last married on December 27, 1952, to Josephine Clark Finter who was born in New York City and who resides at the above Fletcher Drive address.

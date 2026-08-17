@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12081.png
-
-Convert to Markdowndocument in pertinent informant file and not to be serialized. If a particular section of this form is not applicable, such should be noted thereon. If it later becomes applicable, the serial number can be noted at that time.
+document in pertinent informant file and not to be serialized. If a particular section of this form is not applicable, such should be noted thereon. If it later becomes applicable, the serial number can be noted at that time.
 
 ### [12.] Bully material submitted by informant
 

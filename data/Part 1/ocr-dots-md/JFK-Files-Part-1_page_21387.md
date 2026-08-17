@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21387.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 24 Jan. 1961 (Detroit)
 RE: Helen Mary Winter, nee Wagenknecht, et al.

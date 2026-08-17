@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17926.png
-
-Convert to MarkdownNR008 OC PLAIN
+NR008 OC PLAIN
 
 9:30PM MARCH 25, 1975
 

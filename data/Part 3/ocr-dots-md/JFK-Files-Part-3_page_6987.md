@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6987.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 ***
 
 COMMUNIST INFILTRATION OF THE

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23055.png
-
 .
 
 24. During the first year, students receive 225 Cuban pesos monthly. During the second year they receive 250 pesos monthly, and during the third year they receive 300 pesos monthly. In addition, the students receive a free lunch and supper daily.

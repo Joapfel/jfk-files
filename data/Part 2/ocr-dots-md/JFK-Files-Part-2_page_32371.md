@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32371.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 APR 1962
 

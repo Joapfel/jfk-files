@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13956.png
-
-Convert to MarkdownNY 105-31084
+NY 105-31084
 
 GELABERT MARTINEZ, JUSTO
 CESAR

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33955.png
-
-Convert to Markdown4. The radio installations will be operated in accordance with the provisions of the International Telecommunications Convention presently in force (Atlantic City 1947) and the Radio Regulations annexed to said convention and any conventions or Regulations, to which the Federal Republic is a party which may take their place.
+4. The radio installations will be operated in accordance with the provisions of the International Telecommunications Convention presently in force (Atlantic City 1947) and the Radio Regulations annexed to said convention and any conventions or Regulations, to which the Federal Republic is a party which may take their place.
 
 5. In the event of interference by NCFE radio installations with German radio services NCFE in consultation with the DBP will take necessary measures to eliminate the interference as rapidly as possible.
 

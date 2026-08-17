@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3123.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Mann would continue to raise questions concerning the feasibility of discontinuing the training in Guatemala, and in on-going meetings with Agency representatives including the DCI, the DDP, Chief, WH, as well as Chief, WH/4 and others, Mann continued to raise questions about the effect on Project JMATE should all the American trainers and Cuban trainees be pulled out of Guatemala immediately. Mann also questioned the exact timing for Project JMATE. As he raised such questions, the Assistant Secretary for Latin American Affairs was informed by CIA that they would much prefer that the training of the Cuban exiles take place in US bases, both for purposes of security and for efficiency. But they also pointed out that it had been the decision for the Special Group and the "highest levels" that such training should take place in third countries, rather than in the US. Mann persisted, however, suggesting that the question of maintaining the training base in
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23157.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 N#: 55510 PocId: 32423435
 

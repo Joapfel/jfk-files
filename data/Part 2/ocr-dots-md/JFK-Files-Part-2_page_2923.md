@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2923.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the Soviets would install offensive weapons in Cuba.
 

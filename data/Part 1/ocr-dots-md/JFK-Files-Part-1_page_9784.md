@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9784.png
-
-Convert to Markdown2.
+2.
 
 was able to note that the name "Oki Electric, Tokyo, Japan" was marked on the instrument. She also noted the word "Gall" but could not tell whether it was part of the manufacturer's name or a Mexican or U.S. subsidiary. She also noted that below the receiver were four switches (like the ordinary push light switches) unmarked orunnounced. When she explained to Rosita: "How do you dial on this phone", Rosita replied: "But it's not a phone, it's an intercom". LIING/4 told Rowton that she then commented: "But how come, the intercom is in the first office." Rosita then, according to L/4, stated: "But that's a special intercom." (L/4 explained that she was referring to the phone she had in her hand).
 

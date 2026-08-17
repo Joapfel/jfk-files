@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_15690.png
-
-Convert to MarkdownJOAN GRAY (continued):
+JOAN GRAY (continued):
 
 So all of you out there who say, well I'll support the EPP by supporting their programs, but I won't support the EPP's program of picking up guns, you might as well not support them at all because picking up guns is the primary objective, arming the people is the primary objective. The breakfast program is fine, the health clinic is fine, but you all use it has a way out. You set back in your house unarmed, then Hanrahan walks in there on you and shoots you down in your bed. It's not just Black Panthers that are getting killed, and don't think FRED HAMPTON was killed because he was a Panther, don't think BOBBY SEAL was gagged in court because he was a Panther. He was a black man. He was a black man and any person like him who understands the nature of these racist pigs that we're dealing with know that he's out to systematically wipe out all black people. He is systematically out here to wipe out all the black people. Next he'll wipe out the oppressed people. Then what will be left. We look at the JONES... We got a whole load of comedians here. I remember a speech Chairman FRED gave once before at a rally.

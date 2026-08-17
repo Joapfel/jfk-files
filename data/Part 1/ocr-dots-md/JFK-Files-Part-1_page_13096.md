@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13096.png
-
-Convert to Markdown(continued)
+(continued)
 
 SUBJECT: Lazzaro arrivo in Toscana Pcrce
 03/17 December 1957, Argentina, Plinar del Rio Prove

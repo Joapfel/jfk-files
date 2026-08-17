@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2720.png
-
-Convert to Markdown19;6
+19;6
 
 1. Soviet espionage where they can put one person in this country and they supported him with total resources of the Soviet Union, false identification, all the money he needs, communications networks, satellite assistance, and everything, and you're working with a paucity of information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6994.png
-
-Convert to Markdownstatus of that?
+status of that?
 
 MR. HOLLAND: Well, the Zapruder film, as the chairman is aware, the review board designated that as an assassination record about a month or so ago. We felt that that decision was determined by the Congress in the passage of the JFK Records Collection Act when it said that all records in the possession of the National Archives are assassination records and should be included in this collection.
 

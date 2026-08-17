@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6923.png
-
-Convert to MarkdownSUBJECT
+SUBJECT
 
 DISCONTINUE
 YES NO

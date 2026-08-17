@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9534.png
-
-Convert to Markdown(Mount Clipping in Some Order)
+(Mount Clipping in Some Order)
 
 # Boulder housewife sure she talked to Riha
 

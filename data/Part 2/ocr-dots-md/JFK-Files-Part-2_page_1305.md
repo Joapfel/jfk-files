@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1305.png
-
-Convert to Markdown- Joseph B. Smith
+- Joseph B. Smith
 Box 323 D, Route 2
 Gardners, Ia.
 

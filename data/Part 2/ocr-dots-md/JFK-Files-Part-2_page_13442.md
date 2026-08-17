@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13442.png
-
-Convert to MarkdownPresident Roosevelt specifically discussed this Executive Order and the nature of the "additional duties imposed upon the Department of Justice."
+President Roosevelt specifically discussed this Executive Order and the nature of the "additional duties imposed upon the Department of Justice."
 
 "And the fourth [Executive Order] relates to what you might say is a combination of neutrality and national defense. It provides for an addition to the personnel of certain investigating agencies of the Government to protect this country against—I suppose the easiest way of putting it is—some of the episodes, some of the things that happened over here in 1914 and 1915 and 1916 and the beginning of 1917, before we got into the war. There was sabotage; there was a great deal of propaganda by both belligerents, and a good many definite plans laid in this country by foreign governments to try to sway American public opinion. We do not have to specify. The older men who are here can remember some of the episodes of that time. It is to guard against that, and against the spread by any foreign nation of propaganda in this country which would tend to be subversive--I believe that is the word--of our form of Government." (1939 *Roosevelt Papers* 485-486)
 

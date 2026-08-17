@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14049.png
-
-Convert to Markdown1 - M. J. B. Adams
+1 - M. J. B. Adams
 
 1 - N. T. Jenkins
 

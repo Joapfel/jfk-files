@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2721.png
-
-Convert to MarkdownDear Mr. Kent,
+Dear Mr. Kent,
 
 In view of your contemplated cover assignment, you have been designated a Staff Agent. The purpose of this Supplement is to call your attention to existing policies which are particularly material to you while you are so designated and to set forth certain rights and obligations incident to your status as an appointed employee.
 

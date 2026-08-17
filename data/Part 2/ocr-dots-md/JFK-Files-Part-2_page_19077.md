@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19077.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 CONFIDENTIAL
 

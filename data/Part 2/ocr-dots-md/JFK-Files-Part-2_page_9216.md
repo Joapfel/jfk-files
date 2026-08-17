@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9216.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The BPP obtained busses and provided free trips between Detroit and Jackson on December 23, 1973.
 

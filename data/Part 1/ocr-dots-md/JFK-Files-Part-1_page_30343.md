@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30343.png
-
-Convert to MarkdownAIR WAR COLLEGE
+AIR WAR COLLEGE
 Air University
 United States Air Force
 

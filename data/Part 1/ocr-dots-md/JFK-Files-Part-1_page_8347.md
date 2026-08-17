@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8347.png
-
-Convert to Markdownof the things that she doubt like those Val--Mr. Jokyll and Mr. Hyde behavior. Most of these, he is a very likeable guy, and suddenly he just acts or do something provocative.
+of the things that she doubt like those Val--Mr. Jokyll and Mr. Hyde behavior. Most of these, he is a very likeable guy, and suddenly he just acts or do something provocative.
 
 Gloria is aware of intelligence activities of ... .
 

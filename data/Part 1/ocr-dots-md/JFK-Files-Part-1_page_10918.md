@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10918.png
-
-Convert to Markdown7 November 1963
+7 November 1963
 
 MEMORANDUM TO: CI/OA
 

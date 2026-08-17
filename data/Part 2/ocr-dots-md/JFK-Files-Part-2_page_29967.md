@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29967.png
-
-Convert to MarkdownDATE 11/03/78
+DATE 11/03/78
 
 U. S. HOUSE OF REPRESENTATIVES
 

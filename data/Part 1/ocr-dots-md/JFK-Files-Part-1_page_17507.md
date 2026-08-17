@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17507.png
-
-Convert to Markdowncontinue to provide in this area is vital and basic to the mounting of any operations against the Yugoslav target.
+continue to provide in this area is vital and basic to the mounting of any operations against the Yugoslav target.
 
 LIFEAT/Soviet/Double Agent: LIFEAT support has provided needed supporting information in backing Station double agent operations. In this area the success of the operation is obviously dependent upon the veracity of the agent. LIFEAT provides information which enables the interested case officer to determine the veracity of the agent involved. LIFEAT also provides a needed check upon the activities of the double agent.
 

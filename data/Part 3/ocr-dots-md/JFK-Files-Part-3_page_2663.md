@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2663.png
-
-Convert to Markdown1 past associations, attitudes and expressions of belief.
+1 past associations, attitudes and expressions of belief.
 
 2 I have often wondered whether we couldn't eliminate
 

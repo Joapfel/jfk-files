@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28060.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHICH FILLED IN)
 
 <table><thead><tr><th colspan="3">1. Emp. SERIAL NO.</th><th>2. NAME</th><th>3. ASSIGNED OPGAN</th><th>4. FUNDS</th><th>5. ALLOTMENT</th></tr></thead><tbody><tr><td colspan="3">912170</td><td>RANDALL FREDERICK</td><td>DDP/FE 36</td><td>UV</td><td></td></tr><tr><th rowspan="2">6.</th><th colspan="3">OLD SALARY RATE</th><th rowspan="2">LAST EFFECTIVE DATE<br/>NO.<br/>DA.<br/>TR.</th><th rowspan="2">7.</th><th colspan="3">NEW SALARY RATE</th><th rowspan="2">EFFECTIVE DATE<br/>NO.<br/>DA.<br/>TR.</th></tr><tr><th>SERVICE</th><th>SALARY</th><th>GRADE</th><th>SERVICE</th><th>SALARY</th><th>GRADE</th><th>SERVICE</th><th>SALARY</th></tr><tr><td>12</td><td>1</td><td>$ 7,570</td><td>08</td><td>14</td><td>55</td><td>12</td><td>2</td><td>$ 7,785</td><td>02</td><td>10</td><td>57</td></tr></tbody></table>

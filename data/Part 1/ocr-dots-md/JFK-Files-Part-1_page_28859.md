@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28859.png
-
-Convert to Markdown(PIM/cb)
+(PIM/cb)
 
 (Form LI-100)
 

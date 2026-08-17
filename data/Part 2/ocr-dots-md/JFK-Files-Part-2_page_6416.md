@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6416.png
-
-Convert to MarkdownMessrs. Aly and McBride
+Messrs. Aly and McBride
 
 June 9, 1997
 Page 2

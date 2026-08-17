@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3681.png
-
-Convert to Markdown4. Communist China - Afro-Asia
+4. Communist China - Afro-Asia
 
 a. More information on Chinese Premier Chou En-lai's Afro-Asian swing is beginning to leak out.
 

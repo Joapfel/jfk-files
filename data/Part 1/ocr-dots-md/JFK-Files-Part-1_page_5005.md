@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5005.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (related person)
 

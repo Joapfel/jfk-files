@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14736.png
-
-Convert to MarkdownWFO 100-New
+WFO 100-New
 
 Source is a white female, age 63, but very energetic and robust for her age. She is a widow who retired from the New York City school system after twenty years on the job. She is above average in educational attainment and speaks several foreign languages. She has traveled abroad on several occasions and has a remarkable ability to gain confidences and obtain information. She has outstanding characteristics, the mental facility, inclination and aptitude to enjoy success in her intelligence gathering assignments. She has been under FBI control for over two years during which time she has performed in an excellent manner.
 

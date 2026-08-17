@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_185.png
-
-Convert to Markdown-4-
+-4-
 
 15. Council on Race and Caste in World Affairs, Inc. - Manhattan, New York (48) 08
 

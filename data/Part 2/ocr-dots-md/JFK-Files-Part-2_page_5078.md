@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5078.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EXECUTIVE SECRETARIAT
 ROUTING SLIP

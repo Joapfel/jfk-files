@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7839.png
-
-Convert to MarkdownChief, WH Division
+Chief, WH Division
 
 Chief, SB Division
 

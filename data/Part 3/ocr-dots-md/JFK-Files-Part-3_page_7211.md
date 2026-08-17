@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7211.png
-
-Convert to Markdowninformation that would endanger its cryptologic functions. All
+information that would endanger its cryptologic functions. All
 intelligence elements operate within legal authority. All are
 given further direction by the National Security Council.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25115.png
-
-Convert to MarkdownRudolph Petrovich SHLYAPNIKOV: Soviet Youth Leader on UNESCO scholarship (suspect KGB) who visited Mexico during September 1964 and was in contact with Subject at this time. (81)
+Rudolph Petrovich SHLYAPNIKOV: Soviet Youth Leader on UNESCO scholarship (suspect KGB) who visited Mexico during September 1964 and was in contact with Subject at this time. (81)
 
 Leonid Vasilyevich NIKIFOROV: INTOURIST Representative in the Commercial Office and suspect KGB Officer. Subject used NIKIFOROV's car in January 1965, after he'd had an accident with his own car. (82)
 

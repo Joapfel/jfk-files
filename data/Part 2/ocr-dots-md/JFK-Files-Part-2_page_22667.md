@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22667.png
-
-Convert to MarkdownHW 50955 DocId:32423393 Page 74
+HW 50955 DocId:32423393 Page 74
 
 10/F, First Floor, S.E., Washington, D.C. 20003
 

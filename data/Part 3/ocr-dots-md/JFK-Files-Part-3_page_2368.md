@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2368.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 render Tanzania in return. Prior to their visit it was
 believed that hundreds of acres had been set aside in

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16486.png
-
-Convert to MarkdownFILS CABLES HRS; INFO J. GARS.
+FILS CABLES HRS; INFO J. GARS.
 
 CONFIDENTIAL
 

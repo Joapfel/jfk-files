@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_8413.png
-
-Convert to MarkdownLILYRIC (Y-2844) 24 Sept 68 - Two unidentified Mexicans entered the Soviet Embassy at 1025. They were seen talking to LOGINOV, and left at 1038.
+LILYRIC (Y-2844) 24 Sept 68 - Two unidentified Mexicans entered the Soviet Embassy at 1025. They were seen talking to LOGINOV, and left at 1038.

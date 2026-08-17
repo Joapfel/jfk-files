@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9977.png
-
-Convert to MarkdownInability of the United States available to him in a secure area or in areas under military investigative jurisdiction;
+Inability of the United States available to him in a secure area or in areas under military investigative jurisdiction;
 
 (b) In other areas the Department of State will utilize any investigative authority of the United States available in the country concerned. If no current investigative facilities are available in that country, the Investigative Facilities of the United States in a nearby country will be utilized by the Department of State.
 

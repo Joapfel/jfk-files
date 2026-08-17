@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12092.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Lorillard, Jr., John Lorillard
 

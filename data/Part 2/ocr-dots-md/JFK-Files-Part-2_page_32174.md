@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32174.png
-
-Convert to MarkdownZCZCRPQSSO
+ZCZCRPQSSO
 
 DAN: 296-010208
 INPUT CDSN = KDA807

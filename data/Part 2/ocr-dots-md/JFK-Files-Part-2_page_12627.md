@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12627.png
-
-Convert to Markdown(a) Complete description
+(a) Complete description
 (b) Notation that security index flash notice has been posted in Identification Division
 (c) Photograph, with date taken. It is to be most current or best likeness of subject.
 (d) Dangerous characteristics of subject, including notation if subject possesses firearms

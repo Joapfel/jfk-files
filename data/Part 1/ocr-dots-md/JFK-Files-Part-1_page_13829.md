@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13829.png
-
-Convert to MarkdownD. POLITICAL DATA
+D. POLITICAL DATA
 
 62. Party membership.
 

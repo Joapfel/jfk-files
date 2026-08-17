@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2993.png
-
-Convert to MarkdownSECRET
+SECRET
 
 collated material to support the taking of direct testimony. The source material for the chronology included personal documents, interviews, and official and private correspondence. Traces were based on CIA files and the Moscow and Minsk telephone directories. These preliminary name traces were also sent to the commission on the same day as the chron- ology. The final version of the name traces based on a review of the Oswald papers came to over 150 names; the results were furnished to the commission in late March 1964.
 

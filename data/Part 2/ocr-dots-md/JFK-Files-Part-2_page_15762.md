@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15762.png
-
-Convert to MarkdownHILLIARD:
+HILLIARD:
 
 been just shoved under the carpet and
 nobody would have known about it if not for

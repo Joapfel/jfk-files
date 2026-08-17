@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13557.png
-
-Convert to Markdown<table><tr><td>Assist the<br/>Dep. A.<br/>Dep A.<br/>Asst. li:<br/>Admin<br/>Corp Svc<br/>Ext. Affairs<br/>Files & Com.<br/>Gen. Inv.<br/>Ident.<br/>Inspection<br/>Inteli.<br/>Laboratory<br/>Plan. & Eval.<br/>Space. Inv.<br/>Training<br/>Legal Couns<br/>Telephone Rm<br/>Director Sec'y</td></tr></table>
+<table><tr><td>Assist the<br/>Dep. A.<br/>Dep A.<br/>Asst. li:<br/>Admin<br/>Corp Svc<br/>Ext. Affairs<br/>Files & Com.<br/>Gen. Inv.<br/>Ident.<br/>Inspection<br/>Inteli.<br/>Laboratory<br/>Plan. & Eval.<br/>Space. Inv.<br/>Training<br/>Legal Couns<br/>Telephone Rm<br/>Director Sec'y</td></tr></table>
 
 JUN 04 1975
 

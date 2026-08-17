@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6839.png
-
-Convert to MarkdownCONTINUED CONTROL
+CONTINUED CONTROL
 
 - 9 -
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5920.png
-
-Convert to MarkdownSECRET
+SECRET
 
 w Incoming cable #36017 from Mexico City dated 9 October 1963
 

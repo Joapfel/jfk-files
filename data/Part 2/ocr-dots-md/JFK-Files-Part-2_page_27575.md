@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27575.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Gene R. Johnson</td><td>1/3/77</td></tr><tr><td colspan="2">Employee Social Security Number</td></tr><tr><td>371 40 1135</td><td>Type of Action<br/>☐ Appointment<br/>☒ Salary Adjustment<br/>☐ Termination (At close of business on effective date)</td></tr><tr><td colspan="2">Employing Office or Committee</td></tr><tr><td colspan="2">Select Committee on Assassinations</td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Gene R. Johnson</td><td>1/3/77</td></tr><tr><td colspan="2">Employee Social Security Number</td></tr><tr><td>371 40 1135</td><td>Type of Action<br/>☐ Appointment<br/>☒ Salary Adjustment<br/>☐ Termination (At close of business on effective date)</td></tr><tr><td colspan="2">Employing Office or Committee</td></tr><tr><td colspan="2">Select Committee on Assassinations</td></tr></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

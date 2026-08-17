@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30460.png
-
-Convert to MarkdownAdministrative - Internal Use Only
+Administrative - Internal Use Only
 
 MEMORANDUM FOR: Chief, Plans Staff
 THROUGH : Deputy Director for Operations

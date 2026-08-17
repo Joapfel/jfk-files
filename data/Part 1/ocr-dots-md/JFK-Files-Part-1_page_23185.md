@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23185.png
-
-Convert to Markdown14-0000
+14-0000
 
 GROZDEA, Ion (Dr.) - (qv) 201-168880
 

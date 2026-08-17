@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19507.png
-
-Convert to MarkdownWill Rock the Boat!
+Will Rock the Boat!
 
 Vote
 

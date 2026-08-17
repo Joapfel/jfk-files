@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4829.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Will conduct same lead as above concerning
 telephone number 226-1203.

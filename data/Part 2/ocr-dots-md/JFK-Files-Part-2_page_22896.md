@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22896.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 14 noted from reading The Constitution that we were picturing Dr. King as a moral leader and something of a hero and then this agent went on to talk in great detail about Dr. King's personal life which he claimed he had learned from a confidential source, and our interest in interviewing this agent obviously relates to the circumstances surrounding that visit to a newspaperman, who directed him to do that, what the purpose of that visit was, whether there was any documentation -- Senator Baker. Who was the newspaper man?
 

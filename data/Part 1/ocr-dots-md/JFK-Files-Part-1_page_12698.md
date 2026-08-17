@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12698.png
-
-Convert to Markdown30 January 1975
+30 January 1975
 
 MEMORANDUM FOR: Alien Affairs Officer,
 OPS/LSN

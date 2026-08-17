@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13553.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Would that not be a function of the
 2. Counterintelligence Division?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11285.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>T<br>Mar 25 7 PM</td>

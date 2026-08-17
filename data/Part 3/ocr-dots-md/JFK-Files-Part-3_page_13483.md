@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13483.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 During the Eisenhower Administration did you ever hear any
 discussion of what was known as an Executive Action Capability

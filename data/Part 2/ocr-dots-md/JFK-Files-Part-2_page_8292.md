@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8292.png
-
-Convert to MarkdownGuidemost, January 22, 1965
+Guidemost, January 22, 1965
 
 Jean allen
 

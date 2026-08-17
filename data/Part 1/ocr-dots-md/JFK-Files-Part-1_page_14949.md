@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14949.png
-
-Convert to MarkdownENCLOSURE I.O. A TO C: PA
+ENCLOSURE I.O. A TO C: PA
 
 SECRET
 

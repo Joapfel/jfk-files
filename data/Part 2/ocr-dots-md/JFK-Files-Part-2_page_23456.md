@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23456.png
-
-Convert to Markdown12 January 1961
+12 January 1961
 
 MEMORANDUM FOR THE RECORD
 

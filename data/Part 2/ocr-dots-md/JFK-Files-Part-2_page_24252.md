@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24252.png
-
-Convert to MarkdownWe did not disregard that guidance because after very considerable use of this asset during the early '50's, there was a question of whether to continue it, and the matter was taken up in the National Security Counsel. And Allan Dulles, as Director, opposed that we continue the ownership and control of the assets of Air America, as it then was known including the subsidy as needed. And there was a subsidy at that time. It was about $1,200,000 per year.*
+We did not disregard that guidance because after very considerable use of this asset during the early '50's, there was a question of whether to continue it, and the matter was taken up in the National Security Counsel. And Allan Dulles, as Director, opposed that we continue the ownership and control of the assets of Air America, as it then was known including the subsidy as needed. And there was a subsidy at that time. It was about $1,200,000 per year.*
 
 This consideration by the National Security Counsel as to whether or not to continue to retain this asset and Mr. Dulles' recommenda- tion that it be retained occurred in 1956.
 

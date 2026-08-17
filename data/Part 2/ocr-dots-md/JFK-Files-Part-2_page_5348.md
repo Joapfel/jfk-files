@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5348.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: (AIUO) Possible Illegal Destruction of Records
 

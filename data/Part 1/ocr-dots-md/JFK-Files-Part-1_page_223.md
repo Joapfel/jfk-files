@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_223.png
-
-Convert to MarkdownSECRET
+SECRET
 
 information developed during the course of this investigation which indicated any association between Subject and his brother.
 

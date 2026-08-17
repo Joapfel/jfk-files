@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18103.png
-
-Convert to MarkdownColonel Joseph J. Cappucci
+Colonel Joseph J. Cappucci
 
 NOTE:
 

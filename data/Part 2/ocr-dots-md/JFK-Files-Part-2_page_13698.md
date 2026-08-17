@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13698.png
-
-Convert to MarkdownMay 19, 1975
+May 19, 1975
 
 20 Cozzolino Drive
 Millbrae, CA 94030

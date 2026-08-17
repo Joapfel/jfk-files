@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1440.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">UTING AND RECORD SHEET</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30823.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 DATE 30 June 1971
 PROT. 1-3'9

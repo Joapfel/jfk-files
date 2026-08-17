@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6914.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>000 ER/WSC</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31088.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Love Documents
 One sealed envelope - F-85 documents deleted

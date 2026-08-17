@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15979.png
-
-Convert to MarkdownOn December 18, 1968, members of Chicago Chapter BPP and members of BR met to discuss possibility of combining their organizations. No agreement was reached.
+On December 18, 1968, members of Chicago Chapter BPP and members of BR met to discuss possibility of combining their organizations. No agreement was reached.
 
 12/19/68)
 

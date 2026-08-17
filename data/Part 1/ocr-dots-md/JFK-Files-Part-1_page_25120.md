@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25120.png
-
 Station Manager and is now on his way up.)
 
 Adolfo BUCIO G.: Employee of Sabena at Mexico City Airport. BUCIO called Subject to invite him to a party at the home of Maria del Socorro VULLRATH. Subject often calls BUCIO to find out arrival times of planes. BUCIO was also a sigeroof the above Christmas card. (108) (109) (57) (110) (111)

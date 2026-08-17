@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12052.png
-
-Convert to Markdown# ADMINISTRATIVE MEMORANDUM
+# ADMINISTRATIVE MEMORANDUM
 ## COVERAGE OF KNOWN MEET AREAS - (COKMA) PROGRAM
 
 During the course of this inspection, a volume of material was reviewed, part of which were cases and investigations dealing with the above program in the New York Office. The program was instituted in July, 1970, by a team of Special Agents in the Jamaica-Queens area in an effort to observe clandestine activity there based on an analysis of previous activity in that area. SPIA letters dated 8/14/70 and 9/4/70 from New York reported the observation of numerous Soviet intelligence officers in the area during July and August, and three individuals were identified in contact with Soviet intelligence officers under suspicious circumstances.

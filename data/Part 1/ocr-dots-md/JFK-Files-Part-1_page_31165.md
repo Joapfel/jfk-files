@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_31165.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">PAY ROLL CHANGE DATA</th></tr><tr><th>BAS PAY<br>7. Previous normal</th><th>OVERTIME<br>MAY 20</th></tr><tr><td></td><td></td></tr></thead><tbody><tr><td>N. New normal<br>8. Pay this period<br>9. Pay this period<br>10. Items</td><td>3<br>Feb 6</td></tr><tr><td>H. Appropriation(s)</td><td>3<br>(Signature of Other Authority)<br>(Check applicable but in case of excess LWOP)<br>( ) In per clause at end of waiting period.<br>( ) In LWOP status at end of waiting period.</td></tr><tr><td>[ ] Periodic step increase</td><td>[x] Per adjustment</td></tr><tr><td>14. Effective date<br>30 Mar 82</td><td>13. Date last equivalent rate<br>27 MARS</td></tr><tr><td>15. Old salary rate<br>737.77</td><td>15. New salary rate<br>$09.00</td></tr><tr><td colspan="2">20. LWOP date (DML in appropriate space covering LWOP during following period)<br>Period(s):<br>30 No excess LWOP, Total excess LWOP...</td></tr><tr><td colspan="2">STANDARD FORM NO. 1126-1<br>Form prescribed by Comp. Geo., D. S.<br>FEB. 3, 1982, General Regulations No. 102<br>PAY ROLL CHANGE SLIP—PERSONNEL COPY<br>[U] U. S. GOVERNMENT PRINTING OFFICE</td></tr><tr><td colspan="2"></td></tr><tr><td colspan="2"></td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13580.png
-
-Convert to MarkdownEMIRAJADA CUBANA.- 14-42-37.
+EMIRAJADA CUBANA.- 14-42-37.
 
 5-Marzo-62.
 

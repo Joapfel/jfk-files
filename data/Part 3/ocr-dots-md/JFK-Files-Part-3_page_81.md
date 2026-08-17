@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_81.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## ROMANIA (Continued)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12118.png
-
-Convert to Markdownsuch activities, the Bureau will consider placing him in contact with a reliable publisher, but it must be made clear to the informant that the Bureau will not sponsor or endorse any book or publication which he elects to write.
+such activities, the Bureau will consider placing him in contact with a reliable publisher, but it must be made clear to the informant that the Bureau will not sponsor or endorse any book or publication which he elects to write.
 
 9. All payments to discontinued security informants and confidential sources must be made on a strict c.o.d. basis. Obtain Bureau authority before making any such payments. In requesting Bureau authority for payments of this type, submit complete details as to the information furnished by the discontinued informant or source in the past and what is to be expected of the informant or source in the future.
 

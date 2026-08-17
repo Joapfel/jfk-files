@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11987.png
-
-Convert to Markdown2. Positive Results Achieved Since Last Inspection.
+2. Positive Results Achieved Since Last Inspection.
 
 Investigations since the last Inspection have totaled 95. Many of these individuals were interviewed; however, it has been determined that none were allowed to enter Communist China. During the cultural revolution which ended during 1970, very few United States residents were allowed to enter Communist China including a number of United Nations employees who had previously made numerous trips to Communist China. There is every indication, however, that the Chicoms have taken on a "new look" internationally and are attempting to gain the friendship of the western world. This program has not reached its great potential due to the xenophobia which existed during the past three years. Communist China is expected to open an embassy at Ottawa, Canada, in 1/71 as result of Canadian recognition. This will make it far easier for United States residents to cross the border into Canada and either seek a travel permit to visit Communist China or make contact with Chicom intelligence representatives at the embassy in Ottawa.
 

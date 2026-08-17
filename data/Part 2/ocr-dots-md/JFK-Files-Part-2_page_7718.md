@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7718.png
-
-Convert to Markdown13-00000
+13-00000
 
 **1955-1959:**
 

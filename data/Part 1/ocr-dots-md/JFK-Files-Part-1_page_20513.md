@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20513.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NOTIFICATION OF ESTABLISHMENT<br/>OF OFFICIAL COVER BACKSTOP</td><td colspan="2">6 January 1967</td></tr><tr><td rowspan="3"><b>TO:</b><br/>(Check)</td><td>X CHIEF, PERSONNEL OPERATIONS DIVISION</td><td>ESTABLISHED FOR</td></tr><tr><td>X CHIEF, CONTRACT PERSONNEL DIVISION</td><td>HUNT, E. Howard</td></tr><tr><td>X CHIEF, OPERATING COMPONENT (For action) O/DDP</td><td></td></tr><tr><td>ATTN:</td><td colspan="2">FILE NO. 1038</td></tr><tr><td>REF:</td><td colspan="2">ID CARD NO.</td></tr><tr><td>OFFICIAL COVER BACKSTOP ESTABLISHED</td><td colspan="2">EMPLOYEE NO.</td></tr><tr><td colspan="3">Department of State</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33001.png
-
-Convert to Markdownthat FIBALDA understood the situation, and that I was sure it
+that FIBALDA understood the situation, and that I was sure it
 would all go well. AMCHALK-5 assured me that he has no inten-
 tion of letting himself get into a physically dangerous situation
 during the contact.

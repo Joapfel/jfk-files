@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9528.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 ✓ DE T-26 is
 DE 1423-R (PROB)

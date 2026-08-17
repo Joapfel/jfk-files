@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8725.png
-
-Convert to Markdown16.07 Su aspecto es Robusto y saludable
+16.07 Su aspecto es Robusto y saludable
 Esencialmente como la mayoría a su edad
 Enfermizo
 

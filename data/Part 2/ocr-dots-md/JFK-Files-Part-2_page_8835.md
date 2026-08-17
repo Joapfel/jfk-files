@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8835.png
-
-Convert to MarkdownIzda.
+Izda.
 
 14-00060
 

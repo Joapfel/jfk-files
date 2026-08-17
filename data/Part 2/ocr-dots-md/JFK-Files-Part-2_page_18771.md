@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18771.png
-
-Convert to MarkdownSAC, New York (134-3315)
+SAC, New York (134-3315)
 
 12/2/58
 

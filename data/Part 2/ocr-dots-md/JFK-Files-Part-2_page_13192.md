@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13192.png
-
-Convert to MarkdownIC STAFF VERIFICATION OF CLEARANCES
+IC STAFF VERIFICATION OF CLEARANCES
 
 Staff Members of the Senate Select Committee on Intelligence Activities who have received a security
 investigation by the Federal Bureau of Investigation within the past five years and are certified as

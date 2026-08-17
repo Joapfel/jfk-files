@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6458.png
-
-Convert to Markdown13-00000
+13-00000
 
 # COURSES OF ACTION RELATED TO CUBA (CASE II) (D)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16088.png
-
-Convert to Markdown4. Phase IV - Evaluation
+4. Phase IV - Evaluation
 
 The NCTTT Program will be subject to close and contin-
 uing evaluation by a MRDC Test and Evaluation Team organized

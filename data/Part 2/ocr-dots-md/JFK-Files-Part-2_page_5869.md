@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5869.png
-
-Convert to Markdown<u>Attachment VI</u>
+<u>Attachment VI</u>
 
 <u>Disposition of CIA/HSCA Sequestered Collection and other Assassination Records.</u>
 

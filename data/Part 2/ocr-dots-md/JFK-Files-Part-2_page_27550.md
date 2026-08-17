@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27550.png
-
-Convert to Markdown# RESUME
+# RESUME
 
 Nancy S. Jenkins
 7001 Leebrad Street

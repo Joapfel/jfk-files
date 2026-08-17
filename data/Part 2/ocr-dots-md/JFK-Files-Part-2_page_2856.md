@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2856.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>79-65%6</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29603.png
-
-Convert to Markdown<table><thead><tr><th>Field</th><th>Location</th></tr></thead><tbody><tr><td>COORO<br>Log</td><td>Medical</td></tr><tr><td>OTR<br>SFC<br>TSS<br>EP<br>FI</td><td>COD<br>E<br>A<br>R<br>H</td></tr><tr><td>CH<br>S<br>C<br>D<br>G<br>I</td><td>Other</td></tr></tbody></table>
+<table><thead><tr><th>Field</th><th>Location</th></tr></thead><tbody><tr><td>COORO<br>Log</td><td>Medical</td></tr><tr><td>OTR<br>SFC<br>TSS<br>EP<br>FI</td><td>COD<br>E<br>A<br>R<br>H</td></tr><tr><td>CH<br>S<br>C<br>D<br>G<br>I</td><td>Other</td></tr></tbody></table>
 
 SECRET
 

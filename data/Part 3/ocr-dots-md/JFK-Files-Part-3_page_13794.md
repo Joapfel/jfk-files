@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13794.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 February 6, 1963
 

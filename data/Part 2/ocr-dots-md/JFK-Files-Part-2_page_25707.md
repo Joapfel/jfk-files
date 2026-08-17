@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25707.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="3">NO INDEX<br/>Q-FILE IN CS FILE NO.</td>

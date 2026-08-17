@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17563.png
-
-Convert to Markdown intelligence Division
+intelligence Division
 
 <table><tr><td>INFORMATION CONTAINED<br/>THEREIN IS UNCLASSIFIED BY 9-25 citadel</td></tr><tr><td>DATE: 4/19/88</td></tr><tr><td>INFORMATIVE NOTE</td></tr><tr><td>Date: 4/25/75</td></tr></table>
 

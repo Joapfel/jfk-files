@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24475.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Bissell further stated that although he believed that Dulles
 "probably" talked with President Eisenhower:

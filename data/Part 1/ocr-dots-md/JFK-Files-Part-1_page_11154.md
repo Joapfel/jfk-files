@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11154.png
-
-Convert to MarkdownDos. 190.- 8 noviembre 66.
+Dos. 190.- 8 noviembre 66.
 
 níroz.- Jorrín que le llame al 144237.--- 251.-- 257.
 

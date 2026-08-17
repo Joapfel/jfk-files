@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13835.png
-
-Convert to Markdown117. Persons to whom access is restricted
+117. Persons to whom access is restricted
 
 118. Property to which access is restricted.
 

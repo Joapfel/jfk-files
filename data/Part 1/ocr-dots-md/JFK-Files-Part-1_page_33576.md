@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33576.png
-
-Convert to Markdown19-120.26
+19-120.26
 
 CC: Chief, Contact Division
 ATB: I Support

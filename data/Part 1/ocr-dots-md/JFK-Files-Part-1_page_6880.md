@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6880.png
-
-Convert to MarkdownBureau de Peritajes S. de R. H.
+Bureau de Peritajes S. de R. H.
 
 Balderas No. 31-209
 México 1, D. F.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3432.png
-
-Convert to MarkdownSECRET
+SECRET
 
 new working in Mexico City, had recruited three sub-agents before leaving Cuba but his channel of communications with them has been severed. Another station agent is in a good position in Cuba to obtain intelligence from foreign telephone communications. The station will attempt to re-establish contact with him through a legal traveler to Cuba. The station has a number of sources with access to Cuba in third country nationals who are debriefed each time they return to Mexico City from Cuba. Most of these is a Western European who was the source of some 15 disseminated intelligence reports last year. He travels to Cuba four or five times a year and is contested by a station case officer after each visit.
 

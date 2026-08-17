@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23870.png
-
-Convert to Markdown1
+1
 2
 
 Mr. Kirbow. He could go to the Industrial College or the War College.

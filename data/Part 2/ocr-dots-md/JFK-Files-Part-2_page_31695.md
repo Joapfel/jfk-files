@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31695.png
-
-Convert to Markdown2
+2
 SF 100-46832
 
 WEH:mcn

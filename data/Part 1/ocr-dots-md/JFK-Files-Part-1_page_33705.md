@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33705.png
-
-Convert to Markdownunification of the two groups on a 7 to 5 basis - the 7 consisting from Visoianu's Romanian National Party, no reference was made of the facts which had been one of the main bases of opposition at the split.
+unification of the two groups on a 7 to 5 basis - the 7 consisting from Visoianu's Romanian National Party, no reference was made of the facts which had been one of the main bases of opposition at the split.
 
 Mr. Auguste advised of a meeting between Mr. C. F. Jackson and General Badoua in which, among other things, the General complained that he was being excluded from Romanian discussions in BHT circles, and questioned the advisability of sending Voinieu to London along with Gafencu. Badoua claims that his Free Romanian lease is having great success. The General was informed that the invitation to go abroad to Visoianu and Gafencu had emanated from the European Government Conference itself, and that, in BHT communications with representatives of Romanian groups, there had never been any question of eliminating Badoua. The importance of unity among allies was pointed out to Badoua, and he was informed that something had to be done about the situation of the Romanian-institute.
 

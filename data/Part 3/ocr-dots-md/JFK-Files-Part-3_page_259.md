@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_259.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 On March 23, 1965, the Newark Office was authorized to send an anonymous letter to Joseph Caviello, Principal, North Bergen High School, North Bergen, New Jersey, outlining the communist background of Elizabeth Nagy, a Communist Party member and teacher at North Bergen High School.
 

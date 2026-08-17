@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4852.png
-
-Convert to MarkdownLABLE SEC. DISSEMIN BY: 22 PER: 446
+LABLE SEC. DISSEMIN BY: 22 PER: 446
 
 TOTAL COPIES: 78-2
 NUM BY: 2

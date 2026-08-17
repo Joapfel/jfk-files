@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28987.png
-
-Convert to MarkdownSchedule D (Form 1040) 1975
+Schedule D (Form 1040) 1975
 
 Part IV Capital Loss Limitation—Where Losses Are Shown on Both Lines 12(a) AND 13
 

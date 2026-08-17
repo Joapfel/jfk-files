@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6542.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DEPARTMENT OF STATE
 Washington, D.C. 20520

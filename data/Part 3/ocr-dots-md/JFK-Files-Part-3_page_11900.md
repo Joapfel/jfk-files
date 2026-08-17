@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11900.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 INTERNAL SECURITY SECTION
 
 4-E

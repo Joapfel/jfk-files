@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2296.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">STANDARD FORM 50 (8 PARTS)<br/>OCTOBER 1949<br/>PROPOSED FOR<br/>U. S. CIVIL SERVICE COMMISSION<br/>CHAPTER III, FEDERAL PERSONNEL MANUAL</td>
     <td colspan="3">CENTRAL INTELLIGENCE AGENCY</td>

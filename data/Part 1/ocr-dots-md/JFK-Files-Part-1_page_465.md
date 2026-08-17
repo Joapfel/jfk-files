@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_465.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>DOC REF/SECONDARY (2)</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22890.png
-
-Convert to Markdown41
+41
 
 # American Student in China
 

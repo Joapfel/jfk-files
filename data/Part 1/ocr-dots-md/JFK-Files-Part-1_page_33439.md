@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33439.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 <table><thead><tr><th colspan="6">SIGNAL CENTER USE ONLY</th></tr><tr><td>AGE</td><td>CNF</td><td>ACF</td><td>TAG</td><td>TPG</td><td>NFG</td></tr></thead><tbody><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="6">CLASSIFICATION</td></tr><tr><td colspan="6">SECRET</td></tr><tr><td colspan="6">MESSAGE HANDLING INDICATOR</td></tr><tr><td>STAFF</td><td colspan="5"></td></tr></tbody></table>
 

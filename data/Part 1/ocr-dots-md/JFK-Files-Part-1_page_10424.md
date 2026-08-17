@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10424.png
-
-Convert to Markdown2.
+2.
 
 to investigate LIRING/3's case and possibly influence
 the judge in his favor. She added that she was quite

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2658.png
-
-Convert to Markdownto your current policy is politically embarrassing to you and
+to your current policy is politically embarrassing to you and
 you want to get something on him..
 
 I mean, you know, the Director can hardly talk back that

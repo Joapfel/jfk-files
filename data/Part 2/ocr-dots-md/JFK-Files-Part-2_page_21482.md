@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21482.png
-
-Convert to MarkdownWFO 134-5437 Sub A
+WFO 134-5437 Sub A
 
 Source advised that REINER is the Head of Cosmos Tours, New York City, and described him as a very shrewd and foxy individual. He said he was known to VLADIMIR D. CHELNOKOV, who was Deputy Chief, Seventh Department (tourist), however, subject was not recruited by the Seventh Department and no effort was made to recruit him. Source described REINER as talkative and foxy and said he was suspected of being connected with American intelligence (FBI). Source stated REINER knew many important people, but he believed work on him was wasted. He recalled REINER's firm was the first to book a tour to Mongolia. He had negotiated with the Mongolian Republic for additional tours, but did not know whether he was successful.
 

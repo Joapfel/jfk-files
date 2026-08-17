@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32019.png
-
-Convert to Markdown# See Remarks
+# See Remarks
 
 ## ITEM #12) FOREIGN TRAVEL (Continued)
 

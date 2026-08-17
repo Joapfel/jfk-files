@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11608.png
-
-Convert to Markdown9. <u>Excess baggage:</u> Normal amount requested.
+9. <u>Excess baggage:</u> Normal amount requested.
 
 10. <u>Shipment or storage of effects:</u> Subject plans to ship effects to Havana, Cuba. Subject is not absolutely positive when he and family will go to Cuba; but he prefers to have effects in storage there rather than in U.S.
 

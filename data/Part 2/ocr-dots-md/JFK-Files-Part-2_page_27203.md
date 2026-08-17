@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27203.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 IV. OFFICE OF SECURITY
 

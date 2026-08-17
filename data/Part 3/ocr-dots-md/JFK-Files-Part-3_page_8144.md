@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8144.png
-
-Convert to Markdown2 - Mr. S. F. Phillips
+2 - Mr. S. F. Phillips
 
 May 14, 1975
 

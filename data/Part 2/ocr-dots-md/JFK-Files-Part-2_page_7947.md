@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7947.png
-
-Convert to Markdownpolygraph. Standard polygraphs were four variables: pulse, blood pressure and perspiration. Some measure additional physiological variables. The more variables measured, the reliable the polygraph.
+polygraph. Standard polygraphs were four variables: pulse, blood pressure and perspiration. Some measure additional physiological variables. The more variables measured, the reliable the polygraph.
 
 I and McQuiston discovered that the agencies composing the human voice not fixed; they shift very slightly from to fourteen times every second. But the speaker is under stress, this normal frequency modulation disappears. There remains are the pure component frequencies of the voice. And a strong indication that the speaker is lying.
 

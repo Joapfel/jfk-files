@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18271.png
-
-Convert to Markdown3 September 1963
+3 September 1963
 
 DEBRIEFING REPORT : Santiago SANCHEZ do la Torre - aka "Jose Antonio"
 

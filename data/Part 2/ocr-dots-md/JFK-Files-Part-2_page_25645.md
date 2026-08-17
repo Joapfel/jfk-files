@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25645.png
-
-Convert to MarkdownJim Braden's Arrest On November 22
+Jim Braden's Arrest On November 22
 
 Deputy C.L. Lewis was one of the first Dallas police officers on the scene at the Texas School Book Depository following the assassination.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19113.png
-
-Convert to MarkdownParti Communiste Francaise, 4, rue de St. Germain, 120, rue Infayette,
+Parti Communiste Francaise, 4, rue de St. Germain, 120, rue Infayette,
 
 Amisale des Anciens de la Faculte, 23, rue Montreal (15eme).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33906.png
-
-Convert to MarkdownCOPY
+COPY
 
 FRANK ALTSCHUL
 730 Fifth Avenue

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24652.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">C.O.#: BEN THOMPSON</td>
     <td rowspan="4" style="writing-mode: vertical-rl; text-orientation: mixed; transform: rotate(180deg); text-align:center; vertical-align:middle;">SECRET</td>

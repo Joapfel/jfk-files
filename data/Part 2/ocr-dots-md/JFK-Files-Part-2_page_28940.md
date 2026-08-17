@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28940.png
-
-Convert to MarkdownA PROMPT REPLY WILL EXPEDITE ACTION
+A PROMPT REPLY WILL EXPEDITE ACTION
 QUESTIONNAIRE
 
 1. Have you received the check described on the other side of this sheet? [ ] Yes [x] No

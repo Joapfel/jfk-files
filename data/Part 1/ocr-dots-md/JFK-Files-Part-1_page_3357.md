@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3357.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Report # DD-950, CE, 11 Jun 64 (cont.)
 

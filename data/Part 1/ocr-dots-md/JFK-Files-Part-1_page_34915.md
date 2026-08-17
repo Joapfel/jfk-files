@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34915.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>CGCI<br/>WH/COG/CICS<br/>DAT:<br/>DATE: 13 OCTOBER 1967</td>

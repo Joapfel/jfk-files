@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15384.png
-
-Convert to MarkdownSTANDARD FORM NO. 64
+STANDARD FORM NO. 64
 
 # Office Meridium • UNITED STATES GOVERNMENT
 

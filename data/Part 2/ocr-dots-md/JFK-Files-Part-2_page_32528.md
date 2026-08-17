@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32528.png
-
-Convert to Markdownurged the government of Chile to refuse visas to Cuban delegates to a preparatory meeting planning for the II Latin American Youth Congress scheduled for August in the Chilean capital.
+urged the government of Chile to refuse visas to Cuban delegates to a preparatory meeting planning for the II Latin American Youth Congress scheduled for August in the Chilean capital.
 
 Inability of Cuban delegates to obtain Chilean visas for this meeting is one of the contributing factors to the Cuban sponsors announcing during August that the meeting had been postponed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30297.png
-
-Convert to MarkdownI N T R O D U C T I O N
+I N T R O D U C T I O N
 
 1. psychiatrists that he was mentally unstable.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10563.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DCI/IC 75-2663</td>
    </tr>

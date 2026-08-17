@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34707.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="3">1</td>
     <td colspan="2">CONTINUATION OF DISPATCH INDEXING INFORMATION</td>

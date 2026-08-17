@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12523.png
-
-Convert to Markdownregarding ex-members of subversive groups: background, type of information possessed, time period covered, availability for interview and for testimony.
+regarding ex-members of subversive groups: background, type of information possessed, time period covered, availability for interview and for testimony.
 
 n. Channeling information to case files
 

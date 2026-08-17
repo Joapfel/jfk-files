@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2885.png
-
-Convert to Markdown1 that he be willing to, for example, go through oversight with
+1 that he be willing to, for example, go through oversight with
 2 no reticence, and that I think that he should be chosen very
 3 carefully.
 4

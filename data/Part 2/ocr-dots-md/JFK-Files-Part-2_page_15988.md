@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15988.png
-
-Convert to MarkdownOn March 28, 1969, five Chicago BPP members were arrested at Chicago and charged with unlawful use of weapons.
+On March 28, 1969, five Chicago BPP members were arrested at Chicago and charged with unlawful use of weapons.
 
 On April 2, 1969, four Chicago BPP members were arrested at Robbins, Illinois (Chicago suburb) on charges of unlawful use of weapons and conspiracy to commit murder.
 

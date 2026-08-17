@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1669.png
-
-Convert to MarkdownMEMORANDUM TO: Personnel Division
+MEMORANDUM TO: Personnel Division
 Central Intelligence Agency
 2430 "E" Street, N. W.
 Washington, 25, D. C.

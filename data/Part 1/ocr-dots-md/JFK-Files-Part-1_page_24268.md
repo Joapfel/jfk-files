@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24268.png
-
-Convert to MarkdownSECRET/MIDDAY
+SECRET/MIDDAY
 
 ATLANTA
 

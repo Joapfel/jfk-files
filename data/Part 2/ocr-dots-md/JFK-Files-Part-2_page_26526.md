@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26526.png
-
-Convert to MarkdownSECRET
+SECRET
 
 But when fundamental issues are at stake we have usually found him understanding and willing to be helpful--controlling travel of Castro agents, non-recognition of Red China, offering help on Panama.
 

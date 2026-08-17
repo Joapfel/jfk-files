@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24806.png
-
-Convert to Markdown4. Two unsuccessful kidnap attempts were made, one on October 19, the other on October 20. Following these attempts, and with knowledge of their failure, the CIA passed three submachine guns and ammunition to Chilean officers who still planned to kidnap General Schneider.
+4. Two unsuccessful kidnap attempts were made, one on October 19, the other on October 20. Following these attempts, and with knowledge of their failure, the CIA passed three submachine guns and ammunition to Chilean officers who still planned to kidnap General Schneider.
 
 5. In a third kidnap attempt on October 22, apparently conducted by Chileans other than those to whom weapons had been supplied, General Schneider was shot and subsequently died. The guns used in the abortive kidnapping of General Schneider were, in all probability, not those supplied by the CIA to the conspirators. The Chilean military court which investigated the Schneider killing determined that Schneider had been murdered by handguns, although one machine gun was at the scene of the killing.*
 

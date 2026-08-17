@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_971.png
-
-Convert to MarkdownHSCA Chron, page 4
+HSCA Chron, page 4
 
 5 JAN
 Barteanu Memo to OK re King + Ray

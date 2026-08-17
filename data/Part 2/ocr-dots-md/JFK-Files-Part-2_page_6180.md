@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6180.png
-
-Convert to Markdown- target dates:
+- target dates:
 Completion of final review of 63 boxes by January 31, 1998.
 
 - time line:

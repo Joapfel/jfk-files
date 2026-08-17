@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25732.png
-
-Convert to Markdown principally Santos Tratixante of Tampa, Fla., whose one-time Havana gambling enterprises fell hostage in 1959 to the Cuban revolution—in plots against Castro had been a closely held secret within the top echelons of the CIA and FBI until recently.
+principally Santos Tratixante of Tampa, Fla., whose one-time Havana gambling enterprises fell hostage in 1959 to the Cuban revolution—in plots against Castro had been a closely held secret within the top echelons of the CIA and FBI until recently.
 
 The tangled chronology of suppression and eventual disclosure, although detailed in the June report, has received little public attention. Rossell’s murder adds significance to those events.
 

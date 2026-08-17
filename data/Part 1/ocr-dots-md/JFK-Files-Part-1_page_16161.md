@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16161.png
-
-Convert to Markdown# DEA Was Offered Explosive Devices
+# DEA Was Offered Explosive Devices
 
 By Lawrence Meyer
 Washington Post Staff Writer

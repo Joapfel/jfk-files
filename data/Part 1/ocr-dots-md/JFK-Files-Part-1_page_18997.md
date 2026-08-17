@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18997.png
-
-Convert to MarkdownJUNE 8, 1974
+JUNE 8, 1974
 
 # The Hitler Boom
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30545.png
-
-Convert to MarkdownSECRET
+SECRET
 
 invasion in Santer��ala.
 In October 1961 he took a

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15205.png
-
-Convert to MarkdownSAC, WFO (105-34566)
+SAC, WFO (105-34566)
 
 July 29, 1960
 

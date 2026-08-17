@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9422.png
-
-Convert to MarkdownDepartment of the Treasury
+Department of the Treasury
 
 to Mr. John Clarke, Associate
 Deputy to the DCI for the Office of Special

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7258.png
-
-Convert to Markdownit developed no information which would require scrutiny. The Senate Subcommittee on Constitutional Rights (Ervin Committee), after submitting voluminous questionnaires to the Department of Justice beginning in August, 1973 regarding the activities of the former Internal Security Division, was given complete information and access to all documents relating to the IEC and, to date, has reported no finding of impropriety or illegality.
+it developed no information which would require scrutiny. The Senate Subcommittee on Constitutional Rights (Ervin Committee), after submitting voluminous questionnaires to the Department of Justice beginning in August, 1973 regarding the activities of the former Internal Security Division, was given complete information and access to all documents relating to the IEC and, to date, has reported no finding of impropriety or illegality.
 
 The Watergate Special Prosecution Force has been given complete access to the documents and records of the Committee and it has conducted interviews of former Committee representatives and staff with no report to the Attorney General of any improper conduct. Moreover, the IEC will continue to be a target of inquiry by the recently formed Select Committee to Study Governmental Operations With Respect to Intelligence Activities (Church Committee).
 

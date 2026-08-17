@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21758.png
-
-Convert to MarkdownDate:10/04/93
+Date:10/04/93
 
 Page:1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15873.png
-
-Convert to MarkdownSECRET 121709Z
+SECRET 121709Z
 
 C
 O

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19068.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 REINHARDT, KURT FRANK. Germany: 2000 years. Rev. ed. New York, F. Ungar Pub. Co., 1961. 2v. DD89.R36 1961 DLC; DD89.R36 1961 CIA.
 

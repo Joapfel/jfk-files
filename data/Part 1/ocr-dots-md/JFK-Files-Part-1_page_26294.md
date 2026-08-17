@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26294.png
-
-Convert to MarkdownSUBJECT
+SUBJECT
 
 The newspaper, EL MEXICANO, published at San Luis, Sonora on November 10, 1965, carries an article entitled, "The Lot Owners Union How Does Not Show Signs of Activity." The story indicates that the Mexican Supreme Court had ruled that the expropriation of the land was legal. (Reference is made tolegales, Arizona Intelligence Report of August 5, 1965.) (UCCIASSIFIED)
 

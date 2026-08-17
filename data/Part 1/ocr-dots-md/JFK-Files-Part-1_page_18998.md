@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18998.png
-
-Convert to Markdown14-00000
+14-00000
 
 same kinds of plates are visible in many other parts of Federal Germany.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18817.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Transmit the following in</td>
     <td colspan="2">(Type in plain text or code)</td>

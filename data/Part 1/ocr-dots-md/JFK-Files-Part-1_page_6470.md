@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6470.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABINET, the World Union, and the Lutheran World Federation. Without exception, these agencies have strong and reputable American affiliates which are accredited and recognised by the Advisory Committee on Voluntary Foreign Aid. In the course of WU, the American affiliate is the National Council of the Churches of Christ, whose welfare organisation is the Church World Service; it is accredited by the Advisory Committee on Voluntary Foreign Aid and is a member in good standing of the American Council of Voluntary Agencies for Foreign Service, Incorporated. The specific requirements for qualification are not now available; however, it is believed that to be qualified for accreditation by the Advisory Committee, an agency must be supported by voluntary subscriptions, and humanitarian in character. It is believed that agencies wholly political are not eligible.
 

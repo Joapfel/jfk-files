@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22273.png
-
-Convert to Markdownwartime, drunkenness, venereal disease, still-valid marriage
+wartime, drunkenness, venereal disease, still-valid marriage
 to a State criminal's daughter, rejection for MGB employ-
 ment, and a bad academic record including failure of a
 course in Marxism-Leninism just at this time.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30880.png
-
-Convert to MarkdownChief, retirement affairs division
+Chief, retirement affairs division
 
 Retirement application and related information - Jeremy K. Benham
 

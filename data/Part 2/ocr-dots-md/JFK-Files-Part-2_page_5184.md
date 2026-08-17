@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5184.png
-
-Convert to MarkdownSUBJECT: Foreign Government Information
+SUBJECT: Foreign Government Information
 
 Australia
 

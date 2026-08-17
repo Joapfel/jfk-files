@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8655.png
-
-Convert to MarkdownWe will not hesitate to kill
+We will not hesitate to kill
 or die for our freedom.
 
 THE BLACK PANTHER

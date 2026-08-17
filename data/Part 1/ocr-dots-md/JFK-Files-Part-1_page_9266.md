@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9266.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5 Oct. '50
 

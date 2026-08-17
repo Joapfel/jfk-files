@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33595.png
-
-Convert to MarkdownNATIONAL INFORMATION BUREAU, Inc.
+NATIONAL INFORMATION BUREAU, Inc.
 
 IMPORTANT
 

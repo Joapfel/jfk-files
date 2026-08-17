@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22533.png
-
-Convert to MarkdownOTHER ACTIVITY, 1965-1974
+OTHER ACTIVITY, 1965-1974
 
 There are handwritten notes of conversations with Wiley dated 7, 14, 18, 19 and 24 May 1965. The gist is that Wiley was apparently planning a trip to the mid west and then later to Algiers in North Africa. During the 19 May 1965 conversation between Morse Allen and Wiley, "Allen talked to Charles re Miss M's (Mendoza's) comments that Charles had not complied with instructions re vouchers. He (Wiley) claimed misunderstanding and that he could not accurately furnish desired info on vouchers she presently held. Allen told Charles to use his memory and any notes he had and to fill in desired info per the written instructions given him by Miss M. (Ethel Mendoza). He said he would do so. Allen then told him to explicit follow written instructions from Miss M. (Ethel Mendoza) or vouchers could not be accepted....Charles was also reminded of reports due which he should get out prior to leaving on his speaking tour. He agreed." Apparently, the trip was to start on 23 May lasting until 1 June 1965 and the Young Americans for Freedom were picking up all expenses. Wiley was going to Cleveland, Milwaukee, Chicago and Minneapolis.
 

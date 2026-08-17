@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30295.png
-
-Convert to Markdownin one order.
+in one order.
 
 But more, farther investigation, the true investigation --
 this is called checkup -- will be studied and they will start

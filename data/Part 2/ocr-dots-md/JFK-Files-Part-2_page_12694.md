@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12694.png
-
-Convert to Markdowndisloyalty or subversiveness. Office receiving such notification must ascertain promptly basis for denial and obtain all pertinent data contained in file of agency responsible for such action. Forward data to Bureau and include in next report submitted. Where no investigation has been conducted by Bureau, open security investigation if information warrants.
+disloyalty or subversiveness. Office receiving such notification must ascertain promptly basis for denial and obtain all pertinent data contained in file of agency responsible for such action. Forward data to Bureau and include in next report submitted. Where no investigation has been conducted by Bureau, open security investigation if information warrants.
 
 b. Inclusion in security index
 

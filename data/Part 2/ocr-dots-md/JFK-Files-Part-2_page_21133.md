@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21133.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 he had turned the 1st Section files over to VALERIY BUDYLDIN who had worked for a short period but was later fired from KGB and the files were then transferred to VICTOR RASSADIN (u) It appears that NOSENKO's failure to recall details of this incident could be due to his hospitalization at the time it occurred. (w)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19399.png
-
-Convert to Markdown16 July 1946
+16 July 1946
 
 William G. Tharp, Chief of Personnel
 VIA James b. Opsata, Chief, Personnel Division

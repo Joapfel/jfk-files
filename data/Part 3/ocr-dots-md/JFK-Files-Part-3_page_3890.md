@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3890.png
-
-Convert to MarkdownAPR 15 1968
+APR 15 1968
 
 EX-115
 REC-9

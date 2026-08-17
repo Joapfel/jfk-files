@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2505.png
-
-Convert to MarkdownBenedict, James P. Filing Unit
+Benedict, James P. Filing Unit
 Booch, James D. Exhibits Section
 Brady, Lawrence W. Filing Unit
 Dalton, Terry A. Exhibits Section

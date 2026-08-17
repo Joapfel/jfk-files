@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12567.png
-
-Convert to Markdown(c) Education
+(c) Education
 (d) Marital status
 (e) Military service record (domestic or foreign, including type of discharge, citations, etc.)
 (f) Identification record

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12306.png
-
-Convert to Markdown**Security Informant**
+**Security Informant**
 
 Individual actively engaged in obtaining and furnishing current information on security or intelligence matters exclusively for Bureau and whose identity must be protected. Such person should be a member or attend meetings of a subversive organization, such as the Communist Party; or be in such a position relative to a subversive organization, or espionage activities or intelligence activities in the U. S. in behalf of foreign principal, that he is able to obtain and does provide current information of value; or furnish pertinent foreign intelligence data of value on a regular basis.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4423.png
-
-Convert to MarkdownMiami 9 de Enero de 1966
+Miami 9 de Enero de 1966
 
 P.O. Box 8697
 Baltimore 40 M.d.

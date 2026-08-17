@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7140.png
-
-Convert to Markdown5 February 1975
+5 February 1975
 
 The Honorable Nelson A. Rockefeller
 Chairman, Commission on CIA Activities

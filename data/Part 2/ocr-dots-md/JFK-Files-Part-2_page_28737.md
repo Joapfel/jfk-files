@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28737.png
-
-Convert to Markdown2. New York State District Attorney's Association
+2. New York State District Attorney's Association
 June 1976 - Eye-witness Identification + Line-up
 Procedures.
 

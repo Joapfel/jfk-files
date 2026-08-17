@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10063.png
-
-Convert to MarkdownNRØ13 LS CODE
+NRØ13 LS CODE
 
 9:45 PM NITEL MARCH 25, 1975 HSH
 

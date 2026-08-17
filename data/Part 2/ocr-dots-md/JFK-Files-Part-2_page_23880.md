@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23880.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 does this do to the American that is over there, all of them? I don't think that is right.
 

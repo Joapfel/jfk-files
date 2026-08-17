@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1729.png
-
-Convert to Markdown15 November 1956 and on 19 September 1958 he received another covert security clearance to permit his use as a Leaven Cut-Out in the procurement of domestic safeshares.
+15 November 1956 and on 19 September 1958 he received another covert security clearance to permit his use as a Leaven Cut-Out in the procurement of domestic safeshares.
 
 World Confederation of Organizations of the Teaching Professions
 ***

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4563.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 In addition, records airport parking, Miami Airport, indicate that TRAFFICANTE's automobile was not on the parking lot during the period of 5/27/66 to 6/4/66, which would suggest from past experience that TRAFFICANTE was actually present in the Miami, Florida area from 5/27/66 to 6/4/66. Likewise, records indicate that TRAFFICANTE's automobile was on the parking lot from 6/4/66 until 6/10/66 which would suggest that TRAFFICANTE was not in Miami. Possibility therefore exists that MARCELLO'S visit mentioned in referenced airtel would have been to TRAFFICANTE's Miami residence instead of his Tampa residence.
 

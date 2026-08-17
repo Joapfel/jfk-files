@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8314.png
-
-Convert to Markdownhe knew nothing about VENDEL, except, that his wife gave a birth to a child during his absence and he added that if VENDEL had returned he would have heard about it.
+he knew nothing about VENDEL, except, that his wife gave a birth to a child during his absence and he added that if VENDEL had returned he would have heard about it.
 
 6. Speaking about Larel he recalled the fact that Carola HIRSH, an Ecuadorian girl of 22 approx. returned to Mexico and she will be taking an intensive course of Russian from L-1. He stated that he spoke to KARTASUK about this girl: she was here and worked with the Olympic committee as an interpreter; after the Olympics she went to Ecuador and now she returned here; she came with her mother who found her an apartment in Rio Elba where they had a worming up party on Friday May 9; her father is a well to do physician in Quito, Ecuador; she has no permit to work in Mexico which means that her father will pay the expenses of her stay here; in view of his nervous crisis he did not keep in touch with her, but he believes that her mother had returned to Quito by now: LOGINOV knows her from some of the parties Ll and his friends were giving during the Olympics or briefly after them.
 

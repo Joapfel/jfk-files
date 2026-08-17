@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4435.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the New York City, to assist this Bureau
 in its future investigation of [insert intelligence activities.]

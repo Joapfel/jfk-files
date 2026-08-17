@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27136.png
-
-Convert to Markdowndeception lack ready or frequent access
+deception lack ready or frequent access
 to the policy level. They attempt to
 frame deception plans in ignorance of
 new policies, and they can obtain top-

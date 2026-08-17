@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23557.png
-
-Convert to MarkdownI was
+I was
 
 Jus 30, 1961
 

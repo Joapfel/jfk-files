@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4858.png
-
-Convert to Markdown13-00000
+13-00000
 
 MHFNO: 98-2262774
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8556.png
-
-Convert to MarkdownSECRET
+SECRET
 
 E.O. 11652, exemption category 5B(2).
 

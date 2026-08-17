@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3206.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ER/0/AC - 64 - 202
 22 October 1964

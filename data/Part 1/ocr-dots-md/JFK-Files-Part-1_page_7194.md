@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7194.png
-
-Convert to MarkdownEntrada.- 1140 hrs.- NP por LOGUINOV. KARZHIN dice que
+Entrada.- 1140 hrs.- NP por LOGUINOV. KARZHIN dice que
 espere un momento. Después HP JOSE LUIS ALVAREZ GAYOU saluda a
 su amigo LOGUINOV. Este pregunta si se divertió y si deshonró
 bien. JOSE LUIS dice que si y que ya despues le platicará y que

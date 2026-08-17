@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22793.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tr><td rowspan="2">CLASSIFICATION<br/>SECRET</td><td colspan="3">PROCESSING</td></tr><tr><td>PC/POIDS</td><td>ACTION</td><td>ACCOM.PUSHED</td></tr><tr><td>TO</td><td>Chief, WMD</td><td colspan="2"></td></tr><tr><td>INFO</td><td></td><td colspan="2">NO INCREASING REQUIRED</td></tr><tr><td>FROM</td><td>Chief of Station, JENAVE</td><td colspan="2">ONLY QUALIFIED<br/>HEADQUARTERS DEPT<br/>CAN JUDGE INDEXING</td></tr><tr><td>SUBJECT</td><td colspan="3">JENAVE/ADMIN - Transportation and Temporary Storage of HHE</td></tr><tr><td colspan="4">ACTION REQUIRED REFERENCES</td></tr><tr><td colspan="4">Action Required: As stated</td></tr><tr><td colspan="4">Reference: HR 22-11c(1)</td></tr></table>
 

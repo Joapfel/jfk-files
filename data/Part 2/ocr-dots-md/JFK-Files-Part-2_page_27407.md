@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27407.png
-
-Convert to Markdown44. Memo dated 19 December 1969 to "Chiefs, All Field Offices" from "Director, Domestic Contact Service (OSS)" (3 pages).
+44. Memo dated 19 December 1969 to "Chiefs, All Field Offices" from "Director, Domestic Contact Service (OSS)" (3 pages).
 
 (Items 42-44 are contained in a file labeled "DCS Briefing Papers")
 

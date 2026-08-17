@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23988.png
-
-Convert to Markdown((Probably got them by Black magic in Haiti))
+((Probably got them by Black magic in Haiti))
 
 A messy situation. On the other hand, every once in a while Duvalier makes overtures. He's not beyond anything.
 

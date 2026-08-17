@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17724.png
-
-Convert to Markdown# FBI FUNCTIONAL ORG
+# FBI FUNCTIONAL ORG
 
 <table>
    <thead>

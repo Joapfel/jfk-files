@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9397.png
-
-Convert to MarkdownCONGRESS FOR CULTURAL FREEDOM
+CONGRESS FOR CULTURAL FREEDOM
 
 Statement
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4946.png
-
-Convert to MarkdownInelligence Information Service
+Inelligence Information Service
 WARNING: NOTICE
 
 SECRET

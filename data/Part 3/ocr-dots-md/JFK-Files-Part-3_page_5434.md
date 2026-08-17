@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5434.png
-
-Convert to Markdown**QUESTION:**
+**QUESTION:**
 
 Mr. Kelley, earlier you spoke of the advantages and limitations of hindsight. After having examined the records of the break-ins and other surreptitious activity, you observed that you thought it was well intentioned, I believe, in most cases. Did you also observe that there was any gross misuse of authority in the process of that?
 

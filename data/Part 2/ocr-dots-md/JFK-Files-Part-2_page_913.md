@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_913.png
-
-Convert to MarkdownThe following is an explanation of the first four of a series of evaluation charts, based on
+The following is an explanation of the first four of a series of evaluation charts, based on
 
 Rating 1. The student failed to actively fulfill requirements, and his group of the material is too indigent to be functional.
 

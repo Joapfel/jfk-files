@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14735.png
-
-Convert to MarkdownWFO 100-New
+WFO 100-New
 
 Source stated that the Soviet occupation has split the peace movement, and WSP in particular, that it might be better to postpone the invitation temporarily.
 

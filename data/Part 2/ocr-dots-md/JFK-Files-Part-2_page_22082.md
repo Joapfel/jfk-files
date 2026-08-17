@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22082.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>WAINWRIGHT<br/>TEPEDINO<br/>FITZGERALD<br/>AMLASH</td><td>November 14,1963</td><td>Castro</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>WAINWRIGHT<br/>TEPEDINO<br/>FITZGERALD<br/>AMLASH</td><td>November 14,1963</td><td>Castro</td></tr></tbody></table>
 
 OCCURRENCE:
 

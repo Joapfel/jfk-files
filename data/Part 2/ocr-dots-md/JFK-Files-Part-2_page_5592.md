@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5592.png
-
-Convert to Markdown13-00000
+13-00000
 
 20/20 (ABC), August 27, 1993
 

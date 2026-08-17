@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_782.png
-
-Convert to MarkdownSECRET
+SECRET
 
 15/05
 him on this date.

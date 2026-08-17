@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9870.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 77 March 1967
 00-120-13

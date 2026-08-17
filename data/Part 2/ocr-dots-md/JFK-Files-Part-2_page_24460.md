@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24460.png
-
-Convert to Markdownwhich were tossed back and forth, we agreed that it was not necessary or advisable to brief him at that time.
+which were tossed back and forth, we agreed that it was not necessary or advisable to brief him at that time.
 
 I then said, as I recall, to Mr. Helms, if you decide in the future that he should be briefed, I would like to know about it in advance to which, to my best recollection, he agreed. (Harvey, 6/25/75, p. 66)
 

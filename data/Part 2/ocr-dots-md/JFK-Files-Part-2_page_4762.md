@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4762.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: I don't mind, like Hersh, you're against using human spys? Fine, stay that way all the way through.
 

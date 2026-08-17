@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28081.png
-
-Convert to MarkdownNARRATIVE COMMENTS - cont'd
+NARRATIVE COMMENTS - cont'd
 
 Mr. Randall has expressed to me his concern about what may be viewed as a drop in his rating from my predecessor's "O" to my "S." I have assured him, and assure the reader, that this change signals no diminution in his performance or effectiveness, but rather a personal inclination to use "Outstanding" very rarely. The narrative comments above should clearly attest to that fact that I view Mr. Randall's performance as very strong, bordering on Outstanding. The Agency and the DO have been fortunate to have a man of this caliber in charge of PIAG.
 

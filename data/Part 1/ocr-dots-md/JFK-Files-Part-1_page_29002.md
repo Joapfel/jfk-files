@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29002.png
-
-Convert to MarkdownSECRET
+SECRET
 
 overseas shall include transportation as indicated above and storage of such household effects as are not moved, provided that the total amount of household effects moved plus the total amount of household effects stored shall not exceed the total weight allowance prescribed (by the Joint Travel Regulations) for a major in the U. S. Army. All travel transportation and per diem provided for under this paragraph must be properly authorized, and expenses incurred hereunder are subject to payment and accounting in compliance with the organization's regulations and, where applicable, the Joint Travel Regulations.
 

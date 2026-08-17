@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21531.png
-
-Convert to Markdown1. Phone (Area 202) 544-6000
+1. Phone (Area 202) 544-6000
 
 26, 1961 and is about the subject of Executive Action?
 

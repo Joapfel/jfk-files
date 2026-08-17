@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2764.png
-
-Convert to MarkdownRouting Slip
+Routing Slip
 0-7 (Rev. 7-11-75)
 
 (Copies to Offices Checked)

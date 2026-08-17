@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3497.png
-
-Convert to Markdown2
+2
 
 Mike GEIDEL (A) complete schedule for first operation, e.g. ETA, course of ship, ETA, etc.
 

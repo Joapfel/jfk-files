@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17015.png
-
-Convert to MarkdownUNited states DEpartMent oF justiCee
+UNited states DEpartMent oF justiCee
 
 fEDERAl BUREAU oF INVESTIGATIoN
 

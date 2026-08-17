@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16907.png
-
-Convert to Markdown## III. Welponality
+## III. Welponality
 
 ### A. Krieger's Age of
 

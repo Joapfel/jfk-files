@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25294.png
-
-Convert to MarkdownCUBAN EXTREMISTS
+CUBAN EXTREMISTS
 
 [continued from preceding page]
 

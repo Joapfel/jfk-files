@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30883.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      ROUTING AND/OR INITIALS: SEA BY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23550.png
-
-Convert to Markdown3. U.-S. POLICY TOWARD CUBA (Continued)
+3. U.-S. POLICY TOWARD CUBA (Continued)
 
 c. Agreed that the United States should not impose a naval blockade or attempt an air war against Cuba; it was noted that neither course had the support of the Department of Defense or the Joint Chiefs of Staff.
 

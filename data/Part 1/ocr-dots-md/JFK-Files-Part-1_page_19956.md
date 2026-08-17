@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19956.png
-
-Convert to MarkdownP.JH: 29 DEC 65
+P.JH: 29 DEC 65
 
 SECRET
 (When Filled In)

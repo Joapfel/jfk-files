@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13995.png
-
-Convert to Markdownhave three functions (1) investigation (2) recommendation and
+have three functions (1) investigation (2) recommendation and
 (3) follow-up.
 
 Mr. Clifford noted that Dr. Killian served as Chairman of the Board until April 1963; that he resigned at that time because of reverses in his health; and thereupon Mr. Clifford was moved up from member to Chairman.

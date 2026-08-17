@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21593.png
-
-Convert to Markdown# INTERVIEW AND MEETING SUMMARY
+# INTERVIEW AND MEETING SUMMARY
 
 possible assignment, the newsman would contact the FBI to ask what was going on, this would go to Hoover, who would raise hell with the CIA director. But Beedle Smith was tough. Communi-cation between the FBI and CIA was almost non-existent by 1952.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12351.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG.</td>
     <td>R. WEATHERWAX</td>

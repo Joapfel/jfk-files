@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12681.png
-
-Convert to Markdown### G. SECURITY INDEX
+### G. SECURITY INDEX
 
 1. Purpose and general policy
 

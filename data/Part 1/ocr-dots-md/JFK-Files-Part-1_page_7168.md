@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7168.png
-
-Convert to Markdown15 February 1963
+15 February 1963
 
 A713
 

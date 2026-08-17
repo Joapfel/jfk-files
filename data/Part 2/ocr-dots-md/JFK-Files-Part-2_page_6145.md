@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6145.png
-
-Convert to Markdown[hereinafter Effectiveness of Public Law 102-526]. The presumption was always to be in favor of opening a document rather than postponing it, thus making postponement the exception rather than the rule under the law. The Congress could only guess at the scope of materials to be opened.
+[hereinafter Effectiveness of Public Law 102-526]. The presumption was always to be in favor of opening a document rather than postponing it, thus making postponement the exception rather than the rule under the law. The Congress could only guess at the scope of materials to be opened.
 
 n97. 44 U.S.C. 2107(7) (j).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4791.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No.
 92-1870
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12626.png
-
-Convert to Markdown(5) Examples of organizational affiliation or nationalistic tendency
+(5) Examples of organizational affiliation or nationalistic tendency
 
 | American Socialist Clubs | ASC |
 | :--- | :--- |

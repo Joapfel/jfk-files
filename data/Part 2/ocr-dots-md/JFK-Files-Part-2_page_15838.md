@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15838.png
-
-Convert to Markdownhome have been called noolls and thurs all theives. Thus, when they heard what the naters called the Panthers they wanted to know what these "hoodlums" were up to, carrying guns. Thus, the Panther messaue was spread in the black community almost because of the impress distortions.
+home have been called noolls and thurs all theives. Thus, when they heard what the naters called the Panthers they wanted to know what these "hoodlums" were up to, carrying guns. Thus, the Panther messaue was spread in the black community almost because of the impress distortions.
 
 As to press accounts calling the Panthers miliant and anti-white, these were false charnes. The documents below indicate that the Panthers are not a racist oranization and will form coalitions with white crouns who are willing to support the Panther platform and who will work to end racism.
 

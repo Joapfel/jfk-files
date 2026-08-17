@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2420.png
-
-Convert to Markdownand domestic revolutionaries; that we take all possible
+and domestic revolutionaries; that we take all possible
 additional investigative steps to safeguard the security
 of this Nation in a time of multiplying and expanding
 crises. This has become mandatory because of increasing

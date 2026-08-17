@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21245.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 KGB as reported by [SHAMROCK(S)]() during early 1967. NOSENKO'S information relating to "ZHARI's" connection with India suggested that he was identical with SMITH who was stationed in India from 1955 to 1959 as a code clerk and communications technician. He transferred to Vienna, Austria, in late 1959 but resigned from State Department in December, 1959. SMITH'S whereabouts was unknown from May or early June, 1960, until October, 1967, when the Soviets publicized his defection and reported he was in the USSR.
 

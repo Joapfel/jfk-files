@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30775.png
-
-Convert to MarkdownNOTE: Posada claims to have been the chief instructor for JURE camps for three months in an unspecified year prior to 1965.
+NOTE: Posada claims to have been the chief instructor for JURE camps for three months in an unspecified year prior to 1965.
 
 Additional info:
 

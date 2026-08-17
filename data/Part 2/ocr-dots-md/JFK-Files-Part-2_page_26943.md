@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26943.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Then as soon as they could, of course, they would move them
 to the areas where they wanted to resettle them, where the

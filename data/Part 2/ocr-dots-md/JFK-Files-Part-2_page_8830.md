@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8830.png
-
-Convert to MarkdownFORM 1302A
+FORM 1302A
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE: 8X5 25 AUG 62</td></tr><tr><td>FILE:</td></tr></table>
 

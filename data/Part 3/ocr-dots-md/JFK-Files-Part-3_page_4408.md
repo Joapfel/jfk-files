@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4408.png
-
-Convert to Markdown**Memorandum for the Attorney General**
+**Memorandum for the Attorney General**
 
 It is anticipated that other individuals who are extremely active in the New Left movement will also use these telephones. The identities of other individuals who may be in contact with the principal activists listed above are unknown at this time.
 

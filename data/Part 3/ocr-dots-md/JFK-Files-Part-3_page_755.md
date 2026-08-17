@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_755.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="2">ROUTING AND TRANSMITTAL SLIP</td>

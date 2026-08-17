@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4306.png
-
-Convert to Markdown5 September 1963
+5 September 1963
 
 MEMORANDUM FOR RECORD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20362.png
-
-Convert to MarkdownDEMONSTRATION PROTESTING
+DEMONSTRATION PROTESTING
 UNITED STATES POLICY IN VIETNAM, ETC.
 
 The article identified the following Kansas City area women as participating in the march in Washington on January 15, 1968:

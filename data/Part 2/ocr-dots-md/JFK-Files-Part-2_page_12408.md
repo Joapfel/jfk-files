@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12408.png
-
-Convert to Markdown(4) Number of statements submitted
+(4) Number of statements submitted
 Combine total number of oral and written statements submitted and show only total number.
 
 (5) Stability and reliability

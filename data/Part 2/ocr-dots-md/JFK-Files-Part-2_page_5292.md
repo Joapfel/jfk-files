@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5292.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CSI/HRG/MAQ (3 Feb 97) (BKH-6Feb97)
 

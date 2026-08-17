@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6706.png
-
-Convert to MarkdownMemorandum to Mr. W. C. Sullivan
+Memorandum to Mr. W. C. Sullivan
 
 RE: [SAM SURVEY] 65-65884
 

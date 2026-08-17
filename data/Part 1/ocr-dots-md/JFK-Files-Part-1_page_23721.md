@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23721.png
-
-Convert to MarkdownDIAZ, PEDRO
+DIAZ, PEDRO
 
 SEX M DOB ?
 

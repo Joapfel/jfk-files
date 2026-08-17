@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34359.png
-
-Convert to Markdown16 Jun 85 in 92094
+16 Jun 85 in 92094
 
 SECRET 162345Z
 DIR CITE WAVE 3048 (ING HURST ACTING)

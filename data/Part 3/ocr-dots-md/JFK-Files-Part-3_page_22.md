@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_22.png
-
-Convert to MarkdownThe system for supplying current intelligence to JMX
+The system for supplying current intelligence to JMX
 
 Johnson
 President/was now working better than ~~as~~ previously. Under John-Johnson's

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11498.png
-
-Convert to Markdown5 May, 1969
+5 May, 1969
 
 CONTACT REPORT.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13306.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10
 THE WEAPONS WERE AS FOLLOW -

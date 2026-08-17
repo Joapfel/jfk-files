@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15363.png
-
-Convert to MarkdownBlighthouse required approximately twenty-five hours of 9-30 flight instruction per day prior to field deployment. Fеврииесоd very marginally as Chief Pilot Banks and continually requested transfer to multi-engine class due to apprehension about himself physically and mentally incapable of tactical flights.
+Blighthouse required approximately twenty-five hours of 9-30 flight instruction per day prior to field deployment. Fеврииесоd very marginally as Chief Pilot Banks and continually requested transfer to multi-engine class due to apprehension about himself physically and mentally incapable of tactical flights.
 
 It is my opinion that he should not be considered for any future tactical operations and would not be acceptable for reënteract in Cengine operations.
 

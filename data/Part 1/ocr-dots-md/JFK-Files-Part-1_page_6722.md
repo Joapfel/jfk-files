@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6722.png
-
-Convert to Markdown1. Du Bautet write to Ron
+1. Du Bautet write to Ron
 Tell him to meet the letter
 
 2. a Friend of Dr. Bautet will allow me to live with his addition as an accompanying sister.

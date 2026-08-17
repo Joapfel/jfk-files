@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15617.png
-
-Convert to Markdown1. WIROGUE/1 had been dispatched in accordance to the plan outlined in reference A. It is assumed that contact had been made. As if often the case, a number of questions have undoubtedly arisen in R round or have been raised by WIROGUE/1. In anticipation we will attempt to answer the more obvious ones.
+1. WIROGUE/1 had been dispatched in accordance to the plan outlined in reference A. It is assumed that contact had been made. As if often the case, a number of questions have undoubtedly arisen in R round or have been raised by WIROGUE/1. In anticipation we will attempt to answer the more obvious ones.
 
 2. At the onset we are forwarding under separate cover the FPO for WIROGUE/1. This will furnish a fair outline of subjects previous background and KUBARK affiliation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13489.png
-
-Convert to MarkdownSECRET
+SECRET
 -3-
 
 06 José DIAZ (Another labor leader, known to be anti-Castro.)

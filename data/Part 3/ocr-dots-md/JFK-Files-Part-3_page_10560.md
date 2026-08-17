@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10560.png
-
-Convert to MarkdownNR 004 SF CODE
+NR 004 SF CODE
 
 12:28 PM URGENT 3/26/75 MCC
 

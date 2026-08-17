@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16575.png
-
-Convert to MarkdownDEC 11 1969
+DEC 11 1969
 
 Director
 Federal Bureau of Investigation

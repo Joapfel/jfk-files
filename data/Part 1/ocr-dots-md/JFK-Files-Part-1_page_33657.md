@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33657.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 
 In reply refer to W-1851
 

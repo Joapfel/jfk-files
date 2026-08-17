@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10820.png
-
-Convert to Markdownforth above under the caption, "The History of Foreign Intelligence
+forth above under the caption, "The History of Foreign Intelligence
 Collection in the United States - Prior to World War II,"
 President Roosevelt conducted certain conferences following
 which he issued instructions with regard to investigations of

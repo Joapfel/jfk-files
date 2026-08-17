@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1211.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CLASSIFICATION &amp; DETAILED CONTROL</td>
     <td></td>

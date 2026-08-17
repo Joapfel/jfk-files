@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22700.png
-
-Convert to MarkdownCLASSIFIED MESSAGE 6
+CLASSIFIED MESSAGE 6
 
 295 ERB/SW/RFL/ DATE : 02 JULY 1958
 

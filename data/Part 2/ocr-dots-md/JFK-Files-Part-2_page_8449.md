@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8449.png
-
-Convert to MarkdownSUBJECT: Review of Deletions from Marchetti Book for Declassification -
+SUBJECT: Review of Deletions from Marchetti Book for Declassification -
 Request for Documents.
 
 1. In order to review the deletions from the Marchetti book, The Cult of Intelligence, Mr. Halpern must determine if any official of the U.S. Government placed any of the classified material in the public domain in open testimony before a Congressional Committee. The following material or information is required:

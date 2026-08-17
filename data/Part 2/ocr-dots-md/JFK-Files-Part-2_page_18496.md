@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18496.png
-
-Convert to MarkdownWith respect to the requirement that the Attorney General must be satisfied that the subject of the surveillance is "assisting a foreign power or foreign-based political group", the following questions are asked:
+With respect to the requirement that the Attorney General must be satisfied that the subject of the surveillance is "assisting a foreign power or foreign-based political group", the following questions are asked:
 
 a. What has been the total number of subjects under surveillance and installations for telephone and microphone surveillance requested and approved under the standard "assisting a foreign power" and under the standard "assisting a foreign-based political group" for each year from 1966 until the present?
 

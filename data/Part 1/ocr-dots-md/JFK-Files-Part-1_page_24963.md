@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24963.png
-
-Convert to MarkdownNote:
+Note:
 
 **Reminder: do you Oliver this or does Harwood Long it?**
 

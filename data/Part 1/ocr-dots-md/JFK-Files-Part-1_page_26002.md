@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26002.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">Fancy Decals 1956: Diversified June 1956 from Retacon - El Liceo and the rest.</td>

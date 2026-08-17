@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28153.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>9. INDICATE THE APPROXIMATE NUMBER OF MONTHS THE RATED EMPLOYEE HAS BEEN UNDER YOUR SUPERVISION.</td></tr><tr><td>70</td></tr><tr><td>4. COMMENTS CONCERNING POTENTIAL.</td></tr><tr><td>Subject is a most conscientious, dependable and competent officer. His outstanding characteristics are patience and tenacity, which he possesses in abundance and necessary in the makeup of a successful operations officer.</td></tr><tr><td>MAIL ROOM</td></tr></table>
 

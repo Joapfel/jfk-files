@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11843.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 ASSISTANT DIRECTOR C. D. BRENNAN: I have thoroughly studied the Inspector's comments regarding adequacy of personnel, both Agent and clerical, and have the following observations to make:
 

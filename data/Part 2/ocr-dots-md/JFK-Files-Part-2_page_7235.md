@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7235.png
-
-Convert to Markdown<table><tr><td>REVIEW STAFF</td></tr><tr><td>75-3149</td></tr></table>
+<table><tr><td>REVIEW STAFF</td></tr><tr><td>75-3149</td></tr></table>
 
 FRANK CHURCH, IDAHO, CHAIRMAN
 JOHN G. TOWER, TEXAS, VICE CHAIRMAN

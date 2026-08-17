@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25805.png
-
-Convert to MarkdownUPI 9N
+UPI 9N
 BULLETIN
 
 1ST LEAD SHOOTING

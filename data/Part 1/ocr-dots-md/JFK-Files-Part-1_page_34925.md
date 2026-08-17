@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34925.png
-
-Convert to MarkdownP.O. Box 701
+P.O. Box 701
 Miami, Florida 33101
 
 Dear Mr. Friedman:

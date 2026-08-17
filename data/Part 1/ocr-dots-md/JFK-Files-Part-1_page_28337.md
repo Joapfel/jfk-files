@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28337.png
-
-Convert to Markdown<table><thead><tr><th>Department</th><th>Residence</th></tr></thead><tbody><tr><td>J-Headquarters</td><td>S</td></tr><tr><td>2 - Files</td><td>C</td></tr></tbody></table>
+<table><thead><tr><th>Department</th><th>Residence</th></tr></thead><tbody><tr><td>J-Headquarters</td><td>S</td></tr><tr><td>2 - Files</td><td>C</td></tr></tbody></table>
 
 17 April 1961
 

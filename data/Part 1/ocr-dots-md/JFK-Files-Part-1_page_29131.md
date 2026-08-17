@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29131.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>NAME OF EMPLOYEE (as provided only if SA)</td>
     <td>DATE (from Item 3-1)</td>

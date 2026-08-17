@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19620.png
-
-Convert to Markdown**Distribution:**
+**Distribution:**
 
 * 0 - Return to Director of Personnel
 

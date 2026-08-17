@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21140.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 with a representative of the Belgian airlines and
 was trying to marry a foreigner to go abroad.

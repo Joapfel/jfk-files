@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11948.png
-
-Convert to Markdown[ [6.] Past records of contacts with potential informants so that the cases will not become delinquent.
+[ [6.] Past records of contacts with potential informants so that the cases will not become delinquent.
 
 [7.] During contacts with potential informants, if it develops individual does not have the necessary capabilities discontinue efforts.
 

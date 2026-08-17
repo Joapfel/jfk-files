@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23865.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The best likely assignment to fulfill these requirements is that of a journalist, preferably operating from Europe, capable of credible travel in Europe, Africa and even Asia, with some associations which will preserve his bona fides with target Afro-Asian groups. Assuming the development of adequate cover, he could then spend an initial period this spring and summer in Algeria to cover the Second Bandung Conference (29 June) and the World Youth Festival (28 July). (Other international conferences, including followup AAPS meetings to the Ghana Congress in May, an Afro-Asian Journalists Conference or further PAJU meetings cannot be anticipated as targets at present either because of indefinite planning or because of unsuitable location. There is little doubt, however, that additional meetings will take place in Algiers and Africa bringing together interesting target personalities from Africa and Asia whom Gibson might attempt to report on.) In addition to his contribution in coverage of these meetings he might also attempt to develop his access and contact among the official Algerian community at least with the value of developing biographical and operational support data.
 

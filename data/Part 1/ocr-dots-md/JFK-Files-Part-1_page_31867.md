@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31867.png
-
-Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+# CENTRAL INTELLIGENCE AGENCY
 WASHINGTON 25, D. C.
 
 Applicant Information

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30677.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [ Montgomery was later replaced by Paul Garbler, who became the first officially designated Chief of Station in Moscow. Other CIA officers in Moscow circa 1962 included (Rodney Carlson), Bill Horvály, and possibly John D. Hemenway].
 

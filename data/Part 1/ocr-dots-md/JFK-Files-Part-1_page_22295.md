@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22295.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 During the early 1965 interrogations, NOSENKO volunteered: "If you had been clever you could have made me work inside the USSR; you could have contacted me through FRIPPEL..." NOSENKO was asked in October 1966 whether he had expected or hoped CIA would attempt to establish contact with him inside the USSR through FRIPPEL. He strongly denied this.
 

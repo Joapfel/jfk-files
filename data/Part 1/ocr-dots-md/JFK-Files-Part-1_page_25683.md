@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25683.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REPRODUCTION BY OTHER THAN THE SOURCE IS PROHIBITED. ©1973, 1974 GPO
 <table><tr><td>SECRET</td></tr></table>

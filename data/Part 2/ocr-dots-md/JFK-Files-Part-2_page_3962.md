@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3962.png
-
-Convert to Markdown12 June 1968
+12 June 1968
 
 MEMORANDUM FOR: Chief, LEOB/SRS
 SUBJECT: NAGELL, Richard Case - #264170

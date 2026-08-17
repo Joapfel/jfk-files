@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31003.png
-
-Convert to MarkdownS-B-C-A-B-T
+S-B-C-A-B-T
 
 4. This agreement is effective as of 25 December 1987 and shall continue thereafter for an indefinite period unless sooner terminated as set forth in your previous contract. If this agreement becomes effective during an overseas assignment, nothing contained herein shall be construed as extending that assignment beyond its originally contemplated duration or invalidating your entitlement to return travel expenses (if applicable) upon completion of that assignment.
 

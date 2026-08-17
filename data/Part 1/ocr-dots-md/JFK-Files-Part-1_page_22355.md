@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22355.png
-
-Convert to Markdown762.
+762.
 
 —The validity of the information he has provided. To get such information he would have to be a KGB staff officer, must have worked in both the American and Tourist Departments as he says he did, and must have been a fairly senior officer with broad responsibilities (in view of the number of Tourist Department operations revealed by name in his 1964 notes). To name a few other examples from among hundreds possible:
 

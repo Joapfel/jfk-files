@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13990.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 4. In addition to the "category II" items, there are a number of additional subjects largely geographic in nature for which the DCI feels CIA should assume responsibility for preparing comprehensive papers. In view of the apparent adversary relationship between the Senate Select Committee Staff and the agencies under investigation, it may be that preparation of papers dealing comprehensively with specific subjects will deflect some of this cross-agency probing and result in a positive solution to problems before they arise.
 

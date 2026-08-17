@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15558.png
-
-Convert to MarkdownBULL
+BULL
 ILLINOIS CHAPTER
 BLACK PANTHER PARTY
 

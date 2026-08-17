@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5826.png
-
-Convert to Markdown1. Charlie Murphy, DC- KeyBLE
+1. Charlie Murphy, DC- KeyBLE
    y lip had cell from BCD Fls.
    Louler Custer contacted DCB mom.
    said the words written response

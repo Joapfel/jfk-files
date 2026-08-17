@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25515.png
-
-Convert to Markdown-15-
+-15-
 
 protection for you and your kid, and if you don't go ahead and tell them the name of these here people how you gonna do it?
 

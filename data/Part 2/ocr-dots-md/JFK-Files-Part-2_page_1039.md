@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1039.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Joseph B. Smith
 VIA : Director of Training

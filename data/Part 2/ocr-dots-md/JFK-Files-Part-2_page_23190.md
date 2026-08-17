@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23190.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Tired in to say the CIA.
 

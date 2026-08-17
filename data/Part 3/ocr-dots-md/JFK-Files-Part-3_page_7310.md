@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7310.png
-
-Convert to MarkdownJanuary 29, 1975
+January 29, 1975
 
 SENATE SELECT COMMITTEE
 TO CONDUCT AN INVESTIGATION AND STUDY OF

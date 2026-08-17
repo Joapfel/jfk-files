@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30180.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td> Mitchell </td>
     <td> Allen </td>

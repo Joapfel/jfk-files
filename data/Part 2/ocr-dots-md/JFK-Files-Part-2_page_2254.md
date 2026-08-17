@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2254.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 March 1947
 

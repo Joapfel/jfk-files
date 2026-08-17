@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5440.png
-
-Convert to Markdownindicates that several other persons, low ranking military personnel,
+indicates that several other persons, low ranking military personnel,
 militia men and civilians were also executed on similar charges, without
 fanfare. It is also the general consensus of opinion that the "purge"
 will continue at a rate that no one can yet determine.

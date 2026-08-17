@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10383.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5NOV93 E:27533
 

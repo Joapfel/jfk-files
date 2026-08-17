@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18734.png
-
-Convert to MarkdownNY.134-3315
+NY.134-3315
 
 **1. All Necessary Action Taken All Information Furnished**
 

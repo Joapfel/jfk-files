@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33605.png
-
-Convert to MarkdownAmerican Consul to,
+American Consul to,
 Vienna, Austria
 
 February 7, 1952

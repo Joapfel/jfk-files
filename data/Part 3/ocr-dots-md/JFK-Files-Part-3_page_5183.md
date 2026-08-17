@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5183.png
-
-Convert to Markdown<table><thead><tr><td>CIs</td><td>PCI's</td></tr></thead><tbody><tr><td>Desk 1</td><td></td></tr><tr><td>3</td><td>2</td></tr><tr><td>Desks 2-5</td><td>14</td></tr><tr><td>6-7</td><td>17</td></tr><tr><td>8-11</td><td>27</td></tr><tr><td>12-15</td><td></td></tr><tr><td>16-19</td><td></td></tr><tr><td>20-23</td><td>3</td></tr><tr><td>24-27</td><td></td></tr><tr><td>28-31</td><td>30</td></tr></tbody></table>
+<table><thead><tr><td>CIs</td><td>PCI's</td></tr></thead><tbody><tr><td>Desk 1</td><td></td></tr><tr><td>3</td><td>2</td></tr><tr><td>Desks 2-5</td><td>14</td></tr><tr><td>6-7</td><td>17</td></tr><tr><td>8-11</td><td>27</td></tr><tr><td>12-15</td><td></td></tr><tr><td>16-19</td><td></td></tr><tr><td>20-23</td><td>3</td></tr><tr><td>24-27</td><td></td></tr><tr><td>28-31</td><td>30</td></tr></tbody></table>
 
 The classifications handled by the above listed desks are set forth in question three above.
 

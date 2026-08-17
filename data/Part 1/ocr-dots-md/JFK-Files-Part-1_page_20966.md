@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20966.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. **Employee** of the United States Government paid from Government funds. Therefore, if in the future you are employed by the United States Government in a status covered by the Civil Service Retirement Act, periods of service under this contract will be available as creditable service for retirement purposes in conformance with Civil Service Regulations.
 

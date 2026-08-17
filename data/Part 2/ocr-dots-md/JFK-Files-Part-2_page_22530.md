@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22530.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a few days. These reports are to be detailed and to cover contacts and information gained. He was not to make reports of any kind to any person or U.S. government agency except CIA and then through agreed-upon channels only.
 

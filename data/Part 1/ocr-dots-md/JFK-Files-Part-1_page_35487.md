@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35487.png
-
-Convert to MarkdownRADIO NEW YORK WORLDWIDE
+RADIO NEW YORK WORLDWIDE
 
 Worldwide Communications Center Four West 50th Street, New York 10, N.Y.
 PL 2-3122

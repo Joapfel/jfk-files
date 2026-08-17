@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23679.png
-
-Convert to MarkdownSECRET
+SECRET
 
 T/N: Rolando CUBELA Secades
 

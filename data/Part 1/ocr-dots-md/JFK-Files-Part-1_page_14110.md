@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14110.png
-
-Convert to Markdown14-69000
+14-69000
 
 <table><tr><td colspan="2">S-O-0-P-7-P-7</td></tr><tr><td>DATE</td><td>27 October 1987</td></tr><tr><td>CASE NUMBER OF DISSEMINATION</td><td>3B</td></tr><tr><td>TO</td><td>Johns 2, 3</td></tr><tr><td>CONFIDENTIAL</td><td>NO INDEX</td></tr><tr><td>INFO.</td><td>FAX NO. C/F 12</td></tr><tr><td>SECRET</td><td>(Ref No.) 48243 (Date) [signature] DIRECTOR</td></tr></table>
 

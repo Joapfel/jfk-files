@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25446.png
-
-Convert to MarkdownBook V, p. 81 According to Secretary of State Rusk in his testimony before the Warren Commission, 6/10/64, he stated there was "very considerable concern" in Cuba immediately following the assassination as to whether Cuba would be held responsible for the assassination and what effect the assassination might have on Cuba's position and security.
+Book V, p. 81 According to Secretary of State Rusk in his testimony before the Warren Commission, 6/10/64, he stated there was "very considerable concern" in Cuba immediately following the assassination as to whether Cuba would be held responsible for the assassination and what effect the assassination might have on Cuba's position and security.

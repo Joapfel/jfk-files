@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30426.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION LAST EMPLOYER
 EMPLOYER OF OWN BUSINESS ADDRESS

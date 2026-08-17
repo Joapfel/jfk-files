@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31382.png
-
-Convert to Markdown11 December 1952
+11 December 1952
 
 MEMORANDUM FOR: CHIEF, POLITICAL AND PSYCHOLOGICAL WARFARE
 

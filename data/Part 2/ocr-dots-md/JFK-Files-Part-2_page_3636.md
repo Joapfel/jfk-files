@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3636.png
-
-Convert to Markdownpoint to a change in the disposition or strength of Communist forces. Other enemy nets are normal.
+point to a change in the disposition or strength of Communist forces. Other enemy nets are normal.
 
 e. There are also unconfirmed reports of North Vietnamese troop reinforcements in the Plaine des Jarres.
 (INTERCEPTS)

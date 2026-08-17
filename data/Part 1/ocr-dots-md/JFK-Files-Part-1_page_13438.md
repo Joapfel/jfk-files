@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13438.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td colspan="2">Gus A.B. Outright<br/>UNIT VV/2/P<br/>EST 51,210<br/>DATE 11 October 1966</td></tr><tr><td>(3) FILE .<br/>(3) INDEX<br/>(1) NO INDEX<br/>(3) FILE IN C5 FILE NO.</td><td>S-F-C-R-P-T</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24451.png
-
-Convert to MarkdownThe testimony indicates that the meeting between Dulles, Bissell, Edwards, and Cabell occurred sometime "in the autumn" of 1960, probably around September. The minutes of a meeting of the Special Group, the high-level governmental body for considering covert action, on November 3, 1960, reflect the following remarks:
+The testimony indicates that the meeting between Dulles, Bissell, Edwards, and Cabell occurred sometime "in the autumn" of 1960, probably around September. The minutes of a meeting of the Special Group, the high-level governmental body for considering covert action, on November 3, 1960, reflect the following remarks:
 
 "Finally, Mr. Merchant asked whether any real planning had been done for taking direct positive action against Fidel, Raul and Che Guevara. He said that without these three the Cuban Government would be leaderless and probably brainless. He conceded that it would be necessary to act against all three simultaneously. General Cabell pointed out that action of this kind is uncertain of results and highly dangerous in conception and execution, because the instruments must be Cubans. He felt that, particularly because of the necessity of simultaneous action, it would have to be concluded that Mr. Merchant's suggestion is beyond our capabilities." (11/3/60 Special Group Minutes, P. 3).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27157.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 The ATP program for filing was simply that when a name was reported to CI staff, it was mechanically processed by personnel who exercised no judgment in recording the name. The names of both the Soviet and the American people involved in the contact would be recorded. As a result of this process, the ATP file index was able to develop a great deal of information on Soviet contacts with Americans. If, as a result of information obtained, CI staff had reason to believe that a particular person had been recruited by the Soviets, that information would be forwarded to the Office of Security for the Agency, if any Agency officer were involved, or to FBI, if an American outside the Agency was involved.
 

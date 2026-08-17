@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33960.png
-
-Convert to Markdown4.
+4.
 
 (a) that property of NCFE brought into Germany prior
 to the termination of the Occupation statute be recognized as

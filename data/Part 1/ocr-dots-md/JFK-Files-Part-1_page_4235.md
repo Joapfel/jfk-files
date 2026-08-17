@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4235.png
-
-Convert to Markdown14-0000000
+14-0000000
 
 <table><tr><td>RELOCATION FORM<br>TOTAL COPIES</td></tr><tr><td>☐ INDEX<br>☐ NO. INDEX<br>☑ FILE IN C5 FILE NO.</td></tr><tr><td colspan="2"> </td></tr><tr><td>☐ INDEX: ☐ NO. INDEX: ☑ FILE IN C5 FILE NO.</td></tr></table>
 

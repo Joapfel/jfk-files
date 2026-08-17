@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33271.png
-
-Convert to MarkdownOUTGOING
+OUTGOING
 
 MESSAGE HANDLING INDICATOR
 

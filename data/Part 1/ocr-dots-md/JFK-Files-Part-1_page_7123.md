@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7123.png
-
-Convert to Markdownthat the U.S. was a waring nation while the Soviet Union
+that the U.S. was a waring nation while the Soviet Union
 sought only peace and that the United States would change
 to something similar to the Soviet system in the near future.
 

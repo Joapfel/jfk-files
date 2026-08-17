@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5268.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 SUBJECT: Request for JFK Assassination Records Review Board for Courtesy Visit with DCI
 

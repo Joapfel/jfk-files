@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10064.png
-
-Convert to MarkdownInternal Revenue Service
+Internal Revenue Service
 Washington, DC 20224
 
 Date: APR 20 1971

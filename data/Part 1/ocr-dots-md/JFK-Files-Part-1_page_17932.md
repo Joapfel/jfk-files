@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17932.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 (SPECIFY AIR OR SEA FOUCH)
 
 DISPATCH NO HMM-A-7752

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26369.png
-
-Convert to MarkdownSECRET/NO FOREIGN DISSEM
+SECRET/NO FOREIGN DISSEM
 
 <table><thead><tr><th colspan="2">DISTRIBUTION</th></tr></thead></table>
 

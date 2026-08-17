@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21626.png
-
-Convert to MarkdownB. NOSENKO did not enter the KGB in the manner or at the time claimed. (Previous conclusion)
+B. NOSENKO did not enter the KGB in the manner or at the time claimed. (Previous conclusion)
 
 The above is conclusion "B" in the previous summary in regard to NOSENKO. The conclusion in this summary is that NOSENKO entered the then Second Chief Directorate, MVD, in mid-March 1953 and that his entry was not only facilitated by but due to the influence of General Bogdan Zakharovich KOBULOV.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32215.png
-
-Convert to Markdownd. prohibit any cargo sponsored by any department or agency of the United States from being shipped on vessels owned or controlled by persons who own or control vessels engaged in the trade between Cuba and the Soviet bloc.
+d. prohibit any cargo sponsored by any department or agency of the United States from being shipped on vessels owned or controlled by persons who own or control vessels engaged in the trade between Cuba and the Soviet bloc.
 
 4. At the termination of the U. S. Chiefs of Mission Conference in El Salvador on January 28-30 Assistant Secretary Martin will visit the Presidents of Chile, Mexico and Brazil to convey to them the importance President Kennedy attaches to maintaining hemispheric solidarity by supporting the following resolutions:
 

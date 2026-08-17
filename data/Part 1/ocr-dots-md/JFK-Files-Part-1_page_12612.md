@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12612.png
-
-Convert to MarkdownATTACHMENT TO: HICA - 15734
+ATTACHMENT TO: HICA - 15734
 
 SECRET:
 

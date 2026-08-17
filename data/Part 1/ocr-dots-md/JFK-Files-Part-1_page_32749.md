@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32749.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>DATE</th></tr></thead><tbody><tr><td>26 April 1968</td><td>dt</td></tr><tr><td>C NO.</td><td>201-307337</td></tr><tr><td>SUBJECT:</td><td>AMSTALK/1</td></tr><tr><td colspan="2">IN ORDER THAT FURTHER CONSIDERATION MAY BE GIVEN YOUR REQUEST FOR APPROVAL IN THIS CASE. IT IS REQUESTED THAT YOU FURNISH THIS OFFICE THE INFORMATION CHECKED BELOW, OR REVIEW INFORMATION AS INDICATED.</td></tr><tr><td>PRO J</td><td>REVIEW OF STAFF/D DOSSIER</td></tr><tr><td>PRO II</td><td>REVIEW OF STAFF/D COLLATERAL INFORMATION</td></tr><tr><td>XX FIELD TRACES</td><td>REVIEW OF SECURITY OFF. REPORT AT CI/OA</td></tr><tr><td>XX RI TRACES</td><td>REVIEW OF SEC. OFF. CONCURRENCE MEMO AT CI/OA</td></tr><tr><td>XX OPERATIONAL AND DIVISION TRACES</td><td>REVIEW OF FBI REPORT AT CI/OA</td></tr><tr><td>XX RESULTS OF TECHNICAL INTERROGATION</td><td>REVIEW OF ATTACHED REFERENCE</td></tr><tr><td>XX GREEN LIST</td><td>OTHERS (See Reference)</td></tr><tr><td>NOTICE:</td><td>FIRST</td><td>SECOND</td><td>THIRD AND FINAL</td></tr><tr><td colspan="4">REMARKS:</td></tr><tr><td colspan="4">Plus FBI thru JMWAVE.</td></tr></tbody></table>
 

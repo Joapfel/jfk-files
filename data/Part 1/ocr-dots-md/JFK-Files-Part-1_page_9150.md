@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9150.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="2">July 13, '98</td>

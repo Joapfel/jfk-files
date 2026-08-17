@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2704.png
-
-Convert to Markdown11
+11
 12
 13
 14

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26657.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td>SECRET</td><td colspan="2"></td></tr><tr><th colspan="2">ROUTING</th><th rowspan="4" style="vertical-align: top; text-align: center;">WCH1</th></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></thead><tbody><tr><td>FILE ID</td><td colspan="2">SET TO BRANCH X</td></tr><tr><td>DESTROY</td><td colspan="2">BIO</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><td>SECRET</td><td colspan="2"></td></tr><tr><th colspan="2">ROUTING</th><th rowspan="4" style="vertical-align: top; text-align: center;">WCH1</th></tr><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></thead><tbody><tr><td>FILE ID</td><td colspan="2">SET TO BRANCH X</td></tr><tr><td>DESTROY</td><td colspan="2">BIO</td></tr></tbody></table>
 
 C0089
 

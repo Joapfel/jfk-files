@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13950.png
-
-Convert to Markdown(5) The handling and analysis of intelligence information (received in massive amounts) as the basis for (a) the preparation of appraisals of current intelligence indicators, and early warning data for timely consideration by the President and other officials, and (b) the formulation of longer-range national intelligence estimates for use in the policy-making process.
+(5) The handling and analysis of intelligence information (received in massive amounts) as the basis for (a) the preparation of appraisals of current intelligence indicators, and early warning data for timely consideration by the President and other officials, and (b) the formulation of longer-range national intelligence estimates for use in the policy-making process.
 
 (6) The U. S. clandestine espionage effort for the collection of vitally-needed intelligence concerning the plans, actions and capabilities of the Sino-Soviet bloc in areas significantly affecting our national defense and security.
 

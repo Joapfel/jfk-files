@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17778.png
-
-Convert to Markdown...2.-
+...2.-
 
 54- Entrega.- RECURSO.- IF ANGEL por YADIRA, MARINA dice que salió la suegra y esposa de FRANK TAPIA. ANGELE que está bien. OLINO ( es el esposo de YADIRA y se llaan ANGEL DEL XIMES y trabaja en el servicio do turismo del Hotel Emperador).- 60-
 

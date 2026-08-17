@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21383.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUPPLEMENTAL CORRELATION SUMMARY
 (See Correlation Summaries dated 11/29/61 and 7/5/63, filed as

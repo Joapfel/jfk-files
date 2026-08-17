@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5992.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JFK Declaration of FREDRICK C. WICKHAM, JR.
 

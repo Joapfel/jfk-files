@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_651.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td>FILE A: D</td></tr><tr><td>INDEX</td></tr><tr><td>NO INDEX</td></tr><tr><td>FILE IN CC FILE NO.</td></tr></table>

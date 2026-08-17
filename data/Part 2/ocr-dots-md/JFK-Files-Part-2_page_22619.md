@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22619.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Senator Mathias. Let me follow this Suez question a little more closely.
 

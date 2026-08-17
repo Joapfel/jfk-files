@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16989.png
-
-Convert to Markdown12/3/69
+12/3/69
 
 # CYNTHIA HOWELL, PANELA HANNAH
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1933.png
-
-Convert to Markdownthe project negotiations, Gold expressed concern about who he learned was
+the project negotiations, Gold expressed concern about who he learned was
 
 Gold asked Maheu to put a bug in room to determine the extent of with. The technician involved in the assignment was discovered in the process, arrested, and taken to the sheriff's office for questioning. He called Maheu in the presence of sheriff's personnel and informed him that he had been detained. Subsequently, the Department of Justice announced its intention to prosecute Maheu along with the technician.
 

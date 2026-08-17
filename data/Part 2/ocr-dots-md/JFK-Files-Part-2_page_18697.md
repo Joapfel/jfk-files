@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18697.png
-
-Convert to MarkdownB. The following materials pertaining to Yeoman Charles E. Radford:
+B. The following materials pertaining to Yeoman Charles E. Radford:
 
 1. All materials, including memorializations of oral communications, pertaining to the authorization, initiation, conduct, and termination of technical surveillances of Yeoman Charles E. Radford from December 1971 to June 1972.
 

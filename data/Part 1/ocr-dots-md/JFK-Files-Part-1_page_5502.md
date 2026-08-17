@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5502.png
-
-Convert to Markdown14. Engineer Charles Levesque, a member of the Haitian Revolutionary Planning Agency and a close friend of Charles', is expected in New York on or about 20 May of this week to discuss port development projects of Port-au-Prince with the J. S. White Engineering Corporation, of Broad Street. The real purpose of his visit, however, is to contact US friends and Haitian exiles in an effort to gain support for Charles.
+14. Engineer Charles Levesque, a member of the Haitian Revolutionary Planning Agency and a close friend of Charles', is expected in New York on or about 20 May of this week to discuss port development projects of Port-au-Prince with the J. S. White Engineering Corporation, of Broad Street. The real purpose of his visit, however, is to contact US friends and Haitian exiles in an effort to gain support for Charles.
 
 15. Dugan and Brown talked on the phone 12 May 67. The banker stated that he is "tied down" in Port-au-Prince until the end of May, at which time he may make another business trip to the US.
 

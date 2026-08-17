@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12588.png
-
-Convert to Markdown(10) Photograph
+(10) Photograph
 
 Make reasonable efforts during investigation to obtain photo-
 graph of subject. Maintain case on [ADEX] subject in pending

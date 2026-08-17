@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16193.png
-
-Convert to Markdownthe U.S. would not overlook any violations by Pedraza or his followers of the neutrality laws. Flores said that the Agency had some interest in the possibility of his (WER BELL's) working for us as an intelligence gatherer under terms to be negotiated after we obtained a security clearance on him. Flores pointed out that the Agency was not attempting to limit his actions in connection with the Dominican Republic, nor was it assuming any responsibility for those matters he carried out in his own behalf. Flores dictated a Secrecy Agreement to him and had him sign it.
+the U.S. would not overlook any violations by Pedraza or his followers of the neutrality laws. Flores said that the Agency had some interest in the possibility of his (WER BELL's) working for us as an intelligence gatherer under terms to be negotiated after we obtained a security clearance on him. Flores pointed out that the Agency was not attempting to limit his actions in connection with the Dominican Republic, nor was it assuming any responsibility for those matters he carried out in his own behalf. Flores dictated a Secrecy Agreement to him and had him sign it.
 
 d. A 9 July 1959 Memorandum for the Record signed by T. J. Flores reported that Subject called him on 9 July 1959 from New York. WER BELL gave Flores further information on Loos, fnu, the representative of a Colonel Frei, fnu, of the Swiss army who had 1,000 men available for duty as soldiers.
 

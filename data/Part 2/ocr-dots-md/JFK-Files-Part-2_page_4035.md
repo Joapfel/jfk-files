@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4035.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 the fact that he had fired the two shots into the ceiling proved he had not been trying to hit anyone. He stated that he was certain that "all of my problems have been solved for a long time, and now I won't have to go to Cuba." This statement was not further explained. When requested to explain this statement, NAGELL refused, stating "I can see this is going to be a frame, which is to be expected in our capitalistic system."
 

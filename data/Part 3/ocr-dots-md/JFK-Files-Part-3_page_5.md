@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5.png
-
-Convert to Markdownhe had a firm hold of his administration and when certain
+he had a firm hold of his administration and when certain
 
 foreign situations forced themselves upon his attention that President
 

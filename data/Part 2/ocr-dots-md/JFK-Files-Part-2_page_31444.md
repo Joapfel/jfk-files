@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31444.png
-
-Convert to Markdown# CITIZENS COMMITTEE TO PRESERVE AMERICAN FREEDOMS
+# CITIZENS COMMITTEE TO PRESERVE AMERICAN FREEDOMS
 
 A source advised on May 4, 1960, that the Citizens Committee to Preserve American Freedoms (CCPAF) was organized in Los Angeles, California, in January, 1952, for the announced purpose of supporting a number of individuals from the medical and legal professions who had been subpoenaed to appear before the House Committee on Un-American Activities.
 

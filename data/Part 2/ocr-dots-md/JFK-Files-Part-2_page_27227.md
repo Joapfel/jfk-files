@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27227.png
-
-Convert to MarkdownB-G-G (II-J)
+B-G-G (II-J)
 
 A - Ltr from Knoche to Belin - 24 Feb 75 w/attachment (SECRET)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5132.png
-
-Convert to MarkdownSEC 1992
+SEC 1992
 
 <table><tr><td colspan="3">REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="3">STAFF</td></tr><tr><th>ACTION UNIT</th><th>RF.</th><th>FILE VR.</th><th>1</th><th>4</th></tr><tr><th>ACTION</th><th>INFO.</th><th></th><th>2</th><th>5</th></tr><tr><th></th><th></th><th></th><th>3</th><th>6</th></tr></table>
 

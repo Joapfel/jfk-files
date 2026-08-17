@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23819.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 tomorrow to review the cover paper from which this summary is
 2 drawn. I know Eric has some problems with the cover paper, both

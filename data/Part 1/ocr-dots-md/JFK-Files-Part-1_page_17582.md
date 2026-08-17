@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17582.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, FI
 

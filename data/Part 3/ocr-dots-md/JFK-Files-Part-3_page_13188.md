@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13188.png
-
-Convert to MarkdownMM 92-1047
+MM 92-1047
 
 Alfies Sundries on several occasions late at night while he was in the store. He said ROSENTHAL attempted to disguise his voice although it was apparent to him that it was ROSENTHAL. ROSENTHAL on these occasions stated that he was desirous of obtaining certain baseball scores and was told by MICKEY ZION to call this number for results. MART politely told ROSENTHAL that he did not have the results desired but possibly he could call back in several hours for the information. It was MART's opinion that these calls were aimed at attempts to establish a working relationship between ZION and himself by ROSENTHAL.
 

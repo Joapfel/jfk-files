@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13298.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 Did CIA personnel play any role in building up, disseminating,
 then denigrating a report that Oswald had received money to kill

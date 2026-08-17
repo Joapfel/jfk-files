@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12738.png
-
-Convert to Markdown(j) In connection with periodic reports in security index cases, there are instances in which evidence of extensive activity in subversive organizations will be developed. In these cases it is permissible to report such information in narrative-type statements without indicating exact dates of activity; however, period of time involved must be shown, as well as inclusive dates of informant reports.
+(j) In connection with periodic reports in security index cases, there are instances in which evidence of extensive activity in subversive organizations will be developed. In these cases it is permissible to report such information in narrative-type statements without indicating exact dates of activity; however, period of time involved must be shown, as well as inclusive dates of informant reports.
 
 This type reporting is not to be utilized in Smith Act of 1940 cases or Internal Security Act of 1950 cases. Narrative statements must be statements of facts and not conclusions and information from each source must be reported in separate narrative statements.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18850.png
-
-Convert to MarkdownS-L-C-I-S-T
+S-L-C-I-S-T
 
 Combined Personnel Action
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2159.png
-
-Convert to Markdown12 May 1965
+12 May 1965
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

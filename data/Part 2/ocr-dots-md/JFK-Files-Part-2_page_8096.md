@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8096.png
-
-Convert to MarkdownTELEPOUCH PAGE THREE
+TELEPOUCH PAGE THREE
 
 VIA TELEPOUCH
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34499.png
-
-Convert to MarkdownUNDERTAKING REGARDING OBLIGATIONS AND SECRECY
+UNDERTAKING REGARDING OBLIGATIONS AND SECRECY
 
 In consideration of arrangements being made by the CENTRAL
 INTELLIGENCE AGENCY for my future employment and welfare, I freely

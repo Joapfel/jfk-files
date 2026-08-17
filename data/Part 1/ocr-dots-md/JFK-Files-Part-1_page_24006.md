@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24006.png
-
-Convert to Markdown12. Methods and channels by which VERGES has contact with the Chinese Communists or any others who currently provide him with backing.
+12. Methods and channels by which VERGES has contact with the Chinese Communists or any others who currently provide him with backing.
 
 13. With whom does VERGES associate most closely in Paris?
 

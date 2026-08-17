@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14847.png
-
-Convert to MarkdownSR/DOB/59/
+SR/DOB/59/
 
 12 March 1959
 

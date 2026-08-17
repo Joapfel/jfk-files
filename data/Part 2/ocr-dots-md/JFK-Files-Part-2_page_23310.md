@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23310.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 and if they told him everything they were planning to do. But
 2 it's a long jump between saying you're going out and kill

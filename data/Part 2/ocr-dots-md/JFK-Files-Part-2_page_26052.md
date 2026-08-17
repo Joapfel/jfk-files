@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26052.png
-
-Convert to Markdowntype of fiber grown or this type of crop or
+type of fiber grown or this type of crop or
 something, and the land will produce it up
 there, and so they should do that. So he
 was only circumventing the law for the

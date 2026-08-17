@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4684.png
-
-Convert to MarkdownNY 65-23745
+NY 65-23745
 
 entitled "MURRAY L. HUMPHREYS aka; ANTI-RACKETEERING".
 

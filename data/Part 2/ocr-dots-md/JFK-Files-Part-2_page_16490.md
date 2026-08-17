@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16490.png
-
-Convert to MarkdownBlacks and colored people in America, confined within the caste system, are discriminated against as a whole group of people. It is not a question of individual freedom, as it is for the children of the upper classes. We haven't reached the point of trying to free ourselves individually because we're dominated and oppressed as a group of people.
+Blacks and colored people in America, confined within the caste system, are discriminated against as a whole group of people. It is not a question of individual freedom, as it is for the children of the upper classes. We haven't reached the point of trying to free ourselves individually because we're dominated and oppressed as a group of people.
 
 Part of the people of this country which is a great part, part of the youth themselves. But they're not doing this as a group of people. Because as a group they're already free to an extent. Their problem is not a group problem really, because they can easily integrate into the structure. Potentially they're mobile enough to do this. They're the educated ones, the "future of the country," and so forth. They can easily gain a certain amount of power over the society by integrating into the rulership circle.
 

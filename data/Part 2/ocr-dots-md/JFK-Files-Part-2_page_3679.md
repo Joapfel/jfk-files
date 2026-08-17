@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3679.png
-
-Convert to Markdownof National Liberation (FALN) will
+of National Liberation (FALN) will
 probably increase their efforts to
 disrupt the constitutional succession,
 which would be the first in Venezuela's

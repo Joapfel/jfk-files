@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6072.png
-
-Convert to MarkdownContributor to Judges of the United States, 2nd ed. (Washington, D.C.: U.S. Government Printing Office, 1984). Over 1,000 biographical entries. (not included)
+Contributor to Judges of the United States, 2nd ed. (Washington, D.C.: U.S. Government Printing Office, 1984). Over 1,000 biographical entries. (not included)
 
 Contributor to The Encyclopedia of Southern History, ed. by David C. Roller and John Twyman (Baton Rouge: Louisiana State University Press, 1979). Two essays. (not included)
 

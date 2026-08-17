@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11765.png
-
-Convert to MarkdownSeptember 4, 1968
+September 4, 1968
 
 Mr. Tolson:
 

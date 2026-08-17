@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6860.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : The Director
 

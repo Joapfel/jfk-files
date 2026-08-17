@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5397.png
-
-Convert to Markdown13-00000
+13-00000
 
 1 November 1993
 

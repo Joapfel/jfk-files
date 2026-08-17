@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6520.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CITE BCC/NEW YORK 21E18
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20589.png
-
-Convert to MarkdownWOMEN'S NATIONAL ABORTION
+WOMEN'S NATIONAL ABORTION
 ACTION COALITION (WONAAC)
 
 On November 28, 1971, and November 29, 1971,

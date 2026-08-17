@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33939.png
-
-Convert to Markdown3. Miller hopes that no decision has been made to put Admiral Kirk and his Committee for the liberation of the Russian People under Crusade for Freedom cover. He thinks this would be a great mistake because it would further stretch the already too thin cover of the Crusade and no further safe say if it has to be done, so cannot agree that the Crusade effort should be lessened according to the agreement with the State Department.
+3. Miller hopes that no decision has been made to put Admiral Kirk and his Committee for the liberation of the Russian People under Crusade for Freedom cover. He thinks this would be a great mistake because it would further stretch the already too thin cover of the Crusade and no further safe say if it has to be done, so cannot agree that the Crusade effort should be lessened according to the agreement with the State Department.
 
 ## Action
 

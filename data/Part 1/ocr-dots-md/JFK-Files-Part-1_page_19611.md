@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19611.png
-
-Convert to MarkdownTHE
+THE
 President of the United States of America
 
 Expresses the sincere appreciation of his fellow-citizens for the loyal service rendered by

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6318.png
-
-Convert to MarkdownSource: [Santiago Esquerra Fernández A1289162]()
+Source: [Santiago Esquerra Fernández A1289162]()
 
 Country Cuba
 

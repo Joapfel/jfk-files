@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28526.png
-
-Convert to MarkdownRZR: 20 MAY 65
+RZR: 20 MAY 65
 
 SECRET
 (When Filled In)

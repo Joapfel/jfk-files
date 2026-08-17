@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1614.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><td colspan="4">REQUEST FOR PERSONNEL ACTION</td></tr></thead><tbody><tr><td>1. SERIAL NUMBER<br/>010032</td><td colspan="3">2 NAME (Last, First-Middle)<br/>WOODS, JAMES S. ✓</td></tr><tr><td colspan="4"><strong>3 NATURE OF PERSONNEL ACTION</strong></td></tr><tr><td>PROMOTION<br/><img src="data:image/png;base64,iVBORw0KGgoAAAANSUhEUgAAABAAAAAQCAYAAAAf8/9hAAAAAXNSR0IArs4c6QAAAARnQU1BAACxjwv8YQUAAAAJcEhZcwAADsMAAA7DAcdvqGQAAADDSURBVDhPYxgFo2AUjIJRBCgYGAEoP//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8Pz//P8P

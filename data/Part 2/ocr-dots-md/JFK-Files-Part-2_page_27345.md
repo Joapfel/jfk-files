@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27345.png
-
-Convert to MarkdownB - Memo from Knoche to Olsen - 16 May 75
+B - Memo from Knoche to Olsen - 16 May 75
 
 C - Memo for Belin from Olsen - 20 Mar 75 CONFIDENTIAL
 

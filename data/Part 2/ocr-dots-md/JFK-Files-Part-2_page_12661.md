@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12661.png
-
-Convert to Markdownd. Political organizations
+d. Political organizations
 
 (1) Obtain Bureau approval to institute investigation.
 

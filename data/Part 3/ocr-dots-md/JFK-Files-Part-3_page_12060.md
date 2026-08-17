@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12060.png
-
-Convert to MarkdownPERSONNEL INTERVIEWED
+PERSONNEL INTERVIEWED
 
 6-A-4
 

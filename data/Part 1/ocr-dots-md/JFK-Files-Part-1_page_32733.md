@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32733.png
-
-Convert to MarkdownSECURITY APPROVAL
+SECURITY APPROVAL
 
 To : Personnel Officer
 From : Chief of Inspection and Security

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2479.png
-
-Convert to MarkdownSECRET
+SECRET
 
 letter mailing. NOSENKO consistently relates, and has furnished drawings which substantiate, that visits of ABIDIAN to a commission shop, a next-door art shop, and a local post office in the area were known to and considered suspicious by the KGB. The entrance to the art shop, according to NOSENKO, was so situated as to be an ideal place for picking up or placing a deaddrop, and a mobile surveillance was placed on the art shop for a period of time following the visit of ABIDIAN. Official records confirm the visits of ABIDIAN at the time and to the buildings described by NOSENKO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7050.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: The JFK Declassification Experience
 

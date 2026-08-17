@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24276.png
-
-Convert to Markdownbudget year ahead. For any other Federal agency, the notion of establishing a new publicly owned enterprise without advance notice to the Appropriations and substantive committees of Congress would be proscribed.
+budget year ahead. For any other Federal agency, the notion of establishing a new publicly owned enterprise without advance notice to the Appropriations and substantive committees of Congress would be proscribed.
 
 For the small-scale proprietaries, those which require small subsidies to get underway, CIA is able to launch them without supplemental financing -- i.e., within its regular budget -- and, therefore, these remain completely invisible in the Agency budget submission.
 

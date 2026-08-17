@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27031.png
-
-Convert to MarkdownATL-39-74
+ATL-39-74
 20 February 1974
 
 5. In the meantime, the R. G. Murphy kidnapping came up to occupy his time until 26 February when he called to say he had some confidential information of definite interest to CIA. When told we could not go into his office the following day due to a lack of transportation, he said he would come to our office. We reluctantly agreed. Late the morning of 27 February he came to our office and presented us with the information in Enclosure No. 1 (rough draft--the tape will be saved in case it is needed at a later date).

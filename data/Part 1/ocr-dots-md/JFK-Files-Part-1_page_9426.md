@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9426.png
-
-Convert to Markdown7 June 1950
+7 June 1950
 
 MEYORANDUM TO: Kenneth H. Hazbley
 SUBJECT: Letter of Instructions

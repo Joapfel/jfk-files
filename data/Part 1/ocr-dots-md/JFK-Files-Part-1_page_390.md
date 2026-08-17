@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_390.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 14 April 1978
 

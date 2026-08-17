@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6178.png
-
-Convert to Markdown14-00000
+14-00000
 
 City, Office of Collection & Dissemination ... 8 September 1953
 

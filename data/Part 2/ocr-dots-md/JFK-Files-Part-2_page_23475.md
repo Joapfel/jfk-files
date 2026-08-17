@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23475.png
-
-Convert to Markdownd. The CIA site on Saipan. This would be very secure but would require a large amount of airlift.
+d. The CIA site on Saipan. This would be very secure but would require a large amount of airlift.
 
 e. Fort Randolph, in the Panama Canal Zone. At this location the trainees could be kept secure but would almost certainly know where they were.
 

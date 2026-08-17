@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29547.png
-
-Convert to Markdown5. OPERATIONAL EXPENDITURES
+5. OPERATIONAL EXPENDITURES
 
 a. Present contract authorizes operational expenses as specifically approved.
 

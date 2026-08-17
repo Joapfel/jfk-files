@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32480.png
-
-Convert to MarkdownOFFICIAL USE ONLY
+OFFICIAL USE ONLY
 
 The company executives attributed the pro-communist sentiment as revealed, mainly to the economic difficulties experienced by low-income families as a result of the rampant inflation. They said their labor relations were good, that while their pay scales were not as high as those in some other industries, some popular fringe benefits were provided, and that to the best of their knowledge there had been no communist agitators at work among their employees.
 

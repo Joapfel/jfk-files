@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4163.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 1964
 

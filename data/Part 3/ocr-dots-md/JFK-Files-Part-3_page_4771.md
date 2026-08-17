@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4771.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On October 7, 1968, Miss JO PRESSLEY, Atlanta, Georgia, Police Department (APD) Identification Division, and Mr. JOHN TALLENT, station captain's office, APD, advised records of their department were negative for a RONALD GELET or a R. J. HAYES.
 

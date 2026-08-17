@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20766.png
-
-Convert to MarkdownOFFICERS
+OFFICERS
 
 Jane Van Deusen in July, 1972, was identified as the coordinator of MWAAC. There are no other officers since this is not an organization, as such, which would have as a staff a group of officers, elected or appointed.
 

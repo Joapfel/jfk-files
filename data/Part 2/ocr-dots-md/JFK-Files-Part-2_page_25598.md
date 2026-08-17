@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25598.png
-
-Convert to MarkdownGioe. In 1944, Sacco and the Chicago defendants were convicted
+Gioe. In 1944, Sacco and the Chicago defendants were convicted
 and all were sentenced to ten years in prison.
 
 In 1947, Sacco and all his co-defendants were paroled

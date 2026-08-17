@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_22536.png
-
 to William Bundy and Steve Tyler, a free lance writer who in 1957 had attended the World Youth Festival in Moscow.
 
 In early 1966, Wiley prepared reports concerning Vladimir G. and Emma Treml; Dr. and Mrs. Ivan D. London, Robin Moore; and Peter Korn. An additional report concerning Treml was prepared in February 1966.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33061.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES:</th></tr></thead><tbody><tr><td>ENNIS/BROWN:bjs</td><td rowspan="3">SECRET</td></tr><tr><td>UNIT: WH/COG/OPS</td></tr><tr><td>EAT: 4163-1325</td></tr><tr><td>DATE: 11 FEBRUARY 1970</td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21914.png
-
-Convert to MarkdownDATE June 1962
+DATE June 1962
 
 1964
 

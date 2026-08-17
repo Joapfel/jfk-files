@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5196.png
-
-Convert to Markdown6. Tabulate by months since last inspection the number of origin cases opened in classifications 92, 143, 144, 162, 165, 166, 168, 172, and 179.
+6. Tabulate by months since last inspection the number of origin cases opened in classifications 92, 143, 144, 162, 165, 166, 168, 172, and 179.
 
 7. Set forth accomplishments including convictions since last inspection as a result of Criminal Intelligence and Inter-State Gambling Programs in your territory. Separately set forth cases pending prosecuting action.
 

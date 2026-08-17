@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7896.png
-
-Convert to MarkdownJAMES H. LESAR
+JAMES H. LESAR
 ATTORNEY AT LAW
 
 1231 FOURTH STREET, S. W.

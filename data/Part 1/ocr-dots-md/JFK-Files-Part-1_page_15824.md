@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15824.png
-
-Convert to Markdown6.
+6.
 
 dans 3 jours. Cela lui passait brancoup.
 Man en sortant, elle n'a trouvé aucune

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24799.png
-
-Convert to Markdown-2-
+-2-
 
 productive now due to the sudden reluctance of Antonio Menendez and
 Jose Luis Siqueiros to introduce TICHBORN to their contacts. Stan

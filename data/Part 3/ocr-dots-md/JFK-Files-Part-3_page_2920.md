@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2920.png
-
-Convert to Markdown2507
+2507
 
 Mr. Kelley. I feel confident we can get it. I do not have it now, but if you would like to have the annual cost for the investigation of Federal appointees —
 

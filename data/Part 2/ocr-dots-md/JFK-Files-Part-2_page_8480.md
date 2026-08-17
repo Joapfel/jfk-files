@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Item 338, page 508, Chile
 Declassified. Appendix A (Covert Action in Chile

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10844.png
-
-Convert to MarkdownThe following FBI record, NUMBER 49 200 G, is furnished FOR OFFICIAL USE ONLY.
+The following FBI record, NUMBER 49 200 G, is furnished FOR OFFICIAL USE ONLY.
 
 <table><thead><tr><td>CONTRACTOR OF POLICE OFFICERS</td><td>NAMES AND NUMBERS</td><td>ARRIVED ON RECEIVED</td><td>CHARGE</td><td>DISPOSITION</td></tr></thead><tbody><tr><td rowspan="3">PD Phila Pa</td><td>Dale Cunningham #404493</td><td>3-24-67</td><td>intox chauffeur</td><td rowspan="3"></td></tr><tr><td>Dale Cunningham #404493</td><td>5-29-67</td><td>resist arrest DC</td></tr><tr><td>Dale Cunningham #404493</td><td>2-8-69</td><td>Operate on Rev License</td></tr></tbody></table>
 

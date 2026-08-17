@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4357.png
-
-Convert to MarkdownCoqta Rica.
+Coqta Rica.
 
 In regard to an earlier report which allegedly originated
 with Freydue Borges from Luciano Nieves concerning the

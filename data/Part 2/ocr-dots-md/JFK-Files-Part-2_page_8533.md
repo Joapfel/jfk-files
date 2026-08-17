@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8533.png
-
-Convert to MarkdownATTACHMENT B (2)
+ATTACHMENT B (2)
 
 Item No. 49
 

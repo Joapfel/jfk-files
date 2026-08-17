@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22902.png
-
-Convert to Markdown117
+117
 
 20
 

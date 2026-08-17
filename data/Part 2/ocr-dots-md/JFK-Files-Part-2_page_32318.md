@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32318.png
-
-Convert to Markdown**f. A US Air Force counterinsurgency team of five officers and eight enlisted men, based in the Canal Zone, provided training for Ecuadorian Air Force personnel in Ecuador.**
+**f. A US Air Force counterinsurgency team of five officers and eight enlisted men, based in the Canal Zone, provided training for Ecuadorian Air Force personnel in Ecuador.**
 
 **g. At the request of USCINGSO, and with the enthusiastic support of the Venezuelan Government, a small boat program has been initiated to provide security for the Lake Maracaibo region. Arrangements have been made through the US Navy under Military Credit Sales agreement for the manufacture of six (6) 25-foot and four (4) 31-foot inboard-outboard, fiberglass hull boats by Bertram Boat Company, Miami, for delivery in December 1963 or early January 1964. A SEAL-trained Mobile Training Team (MTT) of one officer and five enlisted men will be provided by the Navy and will report to the equipment supplier in time to become fully acquainted with the boats by 15 December. The MTT will accompany the boats to Venezuela and will remain up to two months in country to provide necessary familiarization training.**
 

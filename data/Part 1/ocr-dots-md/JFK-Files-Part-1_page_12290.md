@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12290.png
-
-Convert to MarkdownSECRET
+SECRET
 
 performance of duty in the Congo, the benefits specified below
 will be paid if the individual has **at least** one dependent.

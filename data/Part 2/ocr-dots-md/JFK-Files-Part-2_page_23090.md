@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23090.png
-
-Convert to MarkdownEntre sus planes figuraba también el fracaso atentado al Dr. Carlos Rafael Rodríguez llevado a efecto el 13 de setiembre de 1961 cuando dicho dirigente regresaba de Matanzas hacia La Habana. Con ese fin, un grupo de contrarrevolucionarios pertenecientes a las organizaciones antes mencionadas, establecieron contactos con representantes del "Movimiento de Recuperación Revolucionaria" (MRR). Al frente de los mismo se hallaba -- Juan José Martore Silva.
+Entre sus planes figuraba también el fracaso atentado al Dr. Carlos Rafael Rodríguez llevado a efecto el 13 de setiembre de 1961 cuando dicho dirigente regresaba de Matanzas hacia La Habana. Con ese fin, un grupo de contrarrevolucionarios pertenecientes a las organizaciones antes mencionadas, establecieron contactos con representantes del "Movimiento de Recuperación Revolucionaria" (MRR). Al frente de los mismo se hallaba -- Juan José Martore Silva.
 
 Estos elementos mantenían estrechos vínculos con un agente de la CIA, así como con un jefe de bandidos en la provincia de Matanzas. Al resultar detenidos se les ocupó el material bélico que poseían.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29807.png
-
-Convert to MarkdownHEADQUARTERS
+HEADQUARTERS
 DEPARTMENT C.O.
 APO 742
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24520.png
-
-Convert to MarkdownLima 2, 5, 1969
+Lima 2, 5, 1969
 
 Karen,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18676.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # FITNESS REPORT - Calvin W. Hicks (Continued)
 

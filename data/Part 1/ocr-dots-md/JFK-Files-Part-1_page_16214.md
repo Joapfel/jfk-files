@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16214.png
-
-Convert to Markdown**PROFESSIONAL EXPERIENCE**
+**PROFESSIONAL EXPERIENCE**
 
 December 1956-June 1963
 

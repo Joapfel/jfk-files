@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17475.png
-
-Convert to Markdown8/15/69
+8/15/69
 
 PLAINTEXT
 

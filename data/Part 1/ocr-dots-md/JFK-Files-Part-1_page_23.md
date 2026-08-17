@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23.png
-
-Convert to Markdown13-00000
+13-00000
 
 | CASE | MARRIAGE DATE | EXIT VISA APPLICATION | ARRIVED IN WEST |
 |---|---|---|---|

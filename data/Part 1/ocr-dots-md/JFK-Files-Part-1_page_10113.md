@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10113.png
-
-Convert to Markdown7018
+7018
 
 Dos. :13.- 2h abril 67.-
 

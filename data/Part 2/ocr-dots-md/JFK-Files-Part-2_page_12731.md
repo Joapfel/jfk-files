@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12731.png
-
-Convert to Markdown(e) General
+(e) General
 
 I. Tabbing of cards
 The alphabetical security index cards on those individuals designated as "Pro-Cuban" should be tabbed with a metal tab.

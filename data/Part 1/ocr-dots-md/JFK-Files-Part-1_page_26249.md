@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26249.png
-
-Convert to MarkdownGALAN. No restringir que eso sea también imposible; que sélo el Director puede hacerlo. Inmediatamente el Guardia output並將arme con su debo.
+GALAN. No restringir que eso sea también imposible; que sélo el Director puede hacerlo. Inmediatamente el Guardia output並將arme con su debo.
 
 INGE DE MARCHE.
 

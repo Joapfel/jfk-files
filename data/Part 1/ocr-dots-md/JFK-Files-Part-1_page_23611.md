@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23611.png
-
-Convert to MarkdownSECURITY INFORMATION
+SECURITY INFORMATION
 
 HRSA-60
 

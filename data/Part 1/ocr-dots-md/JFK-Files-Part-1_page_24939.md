@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24939.png
-
-Convert to Markdown# Herbert ITKIN
+# Herbert ITKIN
 
 **Date and Place of Birth:** 19 Nov. 1926, Queens (also given as Jamaica, L.I., New York).
 

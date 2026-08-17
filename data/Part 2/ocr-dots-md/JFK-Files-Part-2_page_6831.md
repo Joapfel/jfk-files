@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6831.png
-
-Convert to MarkdownTheoharis -- Appendix C
+Theoharis -- Appendix C
 
 March 16, 1953
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19207.png
-
-Convert to Markdown# DEMONSTRATION PROTESTING
+# DEMONSTRATION PROTESTING
 ## U.S. POLICY IN VIETNAM
 
 The SMC called for a massive demonstration against the war in Vietnam held in New York and San Francisco in April, 1967.

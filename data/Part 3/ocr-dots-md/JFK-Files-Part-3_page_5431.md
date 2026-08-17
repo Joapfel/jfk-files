@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5431.png
-
-Convert to Markdown**QUESTION:** When you were an Agent did you engage in any break-ins or were you aware of any break-ins?
+**QUESTION:** When you were an Agent did you engage in any break-ins or were you aware of any break-ins?
 
 **ANSWER:** Insofar as the matter which you are now discussing, I think that we can give substantially the same answer to this. This is a matter which is being investigated by the Department and is being investigated by the various committees, particularly the Select Committee of Congress and, I'm not saying that Clarence Kelley engaged in such activites, or did not engage in these activities. I'm merely saying that these have been presented for review and they will, thereafter, be discussed at some length and any publicity that might be given them will be that which will be given by those more knowledgeable than I.
 

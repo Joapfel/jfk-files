@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6258.png
-
-Convert to Markdownfacsimile
+facsimile
 TRANSMITTAL
 
 to: John Pereira

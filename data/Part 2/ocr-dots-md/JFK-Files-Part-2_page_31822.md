@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31822.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="2">NACC Use Only</th>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7207.png
-
-Convert to Markdown13-00000
+13-00000
 
 SIGNAL CENTER USE:
 

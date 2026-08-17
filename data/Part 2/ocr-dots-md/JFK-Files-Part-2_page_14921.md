@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14921.png
-
-Convert to MarkdownMay 26, 1960
+May 26, 1960
 
 STATUS OF JOHN GEORGE LEDES, ET AL.
 FRAUD AGAINST THE GOVERNMENT -

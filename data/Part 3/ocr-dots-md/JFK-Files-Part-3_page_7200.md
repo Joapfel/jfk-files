@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7200.png
-
-Convert to Markdownb. Details of specific covert communications systems, including secret writing, special agent equipment, etc.
+b. Details of specific covert communications systems, including secret writing, special agent equipment, etc.
 
 c. Specific identification of foreign technical collection installations involving high political sensitivity in the host country.
 

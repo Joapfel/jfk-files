@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2626.png
-
-Convert to Markdown2470
+2470
 
 NSDPRC
 Phone (Area 202)544-6000

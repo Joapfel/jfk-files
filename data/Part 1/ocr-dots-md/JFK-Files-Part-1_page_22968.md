@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22968.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SEEMERADUM FOR: Chief, VI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25470.png
-
-Convert to Markdown-21-
+-21-
 
 FS: Would you knock on the door or something?
 

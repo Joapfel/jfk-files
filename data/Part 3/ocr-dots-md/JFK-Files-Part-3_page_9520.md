@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9520.png
-
-Convert to MarkdownITEM I.
+ITEM I.
 
 Q: What about JUNAN Bond's campaign? Any input to influence stat?
 

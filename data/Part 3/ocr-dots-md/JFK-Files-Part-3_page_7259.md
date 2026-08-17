@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7259.png
-
-Convert to MarkdownForm DJ-150
+Form DJ-150
 (Ed. 4-26-65)
 
 UNITED STATES GOVERNMENT

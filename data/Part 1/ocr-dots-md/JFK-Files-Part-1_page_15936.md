@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15936.png
-
-Convert to Markdown<table><tr><td>020/22 MAR '63</td></tr><tr><td>DATE : 1 FEB 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION: EE 6</td></tr><tr><td>INFO : CI, C1/OPS., FI, COC, TSD 5, AF 4, S/C 2</td></tr><tr><td>ADDED: AF 3 (ACTION)</td></tr></table>
+<table><tr><td>020/22 MAR '63</td></tr><tr><td>DATE : 1 FEB 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : FRANKFURT</td></tr><tr><td>ACTION: EE 6</td></tr><tr><td>INFO : CI, C1/OPS., FI, COC, TSD 5, AF 4, S/C 2</td></tr><tr><td>ADDED: AF 3 (ACTION)</td></tr></table>
 
 CLASSIFIED MESSAGE
 

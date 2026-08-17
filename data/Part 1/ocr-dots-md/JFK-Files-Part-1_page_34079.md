@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34079.png
-
-Convert to Markdown# CUBAN TRADING
+# CUBAN TRADING
 
 18th Nov. 1966
 

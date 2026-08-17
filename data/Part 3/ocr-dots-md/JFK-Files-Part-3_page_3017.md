@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3017.png
-
-Convert to Markdown1955
+1955
 
 major abuses of Congress and get over this hurdle, I think
 we're still going to have to recognize that heads of agencies

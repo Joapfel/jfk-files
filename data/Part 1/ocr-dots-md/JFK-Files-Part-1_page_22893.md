@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22893.png
-
-Convert to Markdown# MOORE-MCCORMACK LINES, INCORPORATED
+# MOORE-MCCORMACK LINES, INCORPORATED
 
 American Republics Line - American Scantic Line - Robin Line
 

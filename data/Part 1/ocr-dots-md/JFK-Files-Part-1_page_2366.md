@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2366.png
-
-Convert to MarkdownNOSENKO has furnished information in regard to a number of
+NOSENKO has furnished information in regard to a number of
 recruitments by the KGB of non-Bloc nationals who were known by
 Western Intelligence to be pro-Communist or even connected with
 Communist organizations. The identification as a recruited KGB

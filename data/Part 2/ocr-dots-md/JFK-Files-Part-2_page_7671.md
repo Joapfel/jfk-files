@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7671.png
-
-Convert to MarkdownWe wanted to know whether he had been recruited by the Soviet government as an intelligence agent, which is a frequent and constant practice. There is not a year goes by that individuals and groups of individuals, sometimes on these cultural exchanges, go through Russia and recruits are enlisted by the Russian intelligence, usually through blackmail. The individual is threatened that if he doesn't come back to this country and work for them they will expose the fact that he is a homosexual or a degenerate or has been indiscrete.
+We wanted to know whether he had been recruited by the Soviet government as an intelligence agent, which is a frequent and constant practice. There is not a year goes by that individuals and groups of individuals, sometimes on these cultural exchanges, go through Russia and recruits are enlisted by the Russian intelligence, usually through blackmail. The individual is threatened that if he doesn't come back to this country and work for them they will expose the fact that he is a homosexual or a degenerate or has been indiscrete.
 
 Pictures are usually taken of individuals who become implicated in that sort of thing, so the individual is really desperate. Such blackmail has occurred year after year for some time.
 

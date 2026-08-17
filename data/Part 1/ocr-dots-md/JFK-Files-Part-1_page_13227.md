@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13227.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 CARACAS 8748 S E C R E T
 

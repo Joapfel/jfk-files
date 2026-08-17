@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34266.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>INDEX: ☐ YES ☐ NO</td><td>19-120-26</td></tr><tr><td colspan="2">CLASSIFIED MESSAGE TOTAL COPIES</td></tr><tr><td>N-REF TO FILE NO.</td><td></td></tr><tr><td>FILE RIOD ☐ RET. TO BRANCH ☐</td><td rowspan="3"></td></tr><tr><td>DESTROY ☐ SIG. Searle</td></tr><tr><td>FROM</td></tr><tr><td>ACTION</td><td>JMWAVE</td></tr><tr><td>WH/C 8</td><td></td></tr><tr><td>FILE, UR, WH8, CAZ, CALPROP, CILC2, NE6</td><td></td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLIPPED ☐ TUBED</td><td>REPRODUCTION PROHIBITED</td></tr><tr><td>UNIT</td><td>TIME</td><td>DT</td></tr></table>
 

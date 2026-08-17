@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4266.png
-
-Convert to Markdown4 April 1963
+4 April 1963
 
 MEMORANDUM FOR RECORD
 

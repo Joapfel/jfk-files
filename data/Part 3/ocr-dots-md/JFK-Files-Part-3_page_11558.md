@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11558.png
-
-Convert to Markdown(8) The White House and the Attorney General's Office are closely following this matter and all other leak cases, and in this respect the Attorney General's Office has sent numerous communications requesting certain leads be covered by the FBI. These requests must be analyzed by DID and the appropriate communications answered, which is a time-consuming administrative procedure.
+(8) The White House and the Attorney General's Office are closely following this matter and all other leak cases, and in this respect the Attorney General's Office has sent numerous communications requesting certain leads be covered by the FBI. These requests must be analyzed by DID and the appropriate communications answered, which is a time-consuming administrative procedure.
 
 In regard to the last situation noted above, you are aware that the Department is reviewing for lead purposes the daily teletypes we furnish them. Thereafter, they send us a communication requesting us to conduct these leads. This must be stopped. Such a procedure is unproductive and time consuming, resulting in additional unnecessary communications to the Department. You are instructed to immediately advise the Department that the purpose of the daily teletypes is to make them cognizant of the developments in this case and that the FBI fully intends to pursue all other logical investigation based on these communications.
 

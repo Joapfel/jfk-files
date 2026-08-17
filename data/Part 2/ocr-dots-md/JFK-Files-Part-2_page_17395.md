@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17395.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 356-7236
 356-3612

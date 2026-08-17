@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30828.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 11110576
 

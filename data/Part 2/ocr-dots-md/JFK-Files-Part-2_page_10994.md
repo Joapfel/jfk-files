@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10994.png
-
-Convert to Markdown# PART II
+# PART II
 ## SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 3. Auxiliary offices are to advise the office of origin by letter of the results obtained through a circular letter. Office of origin should summarize the results in its next report.

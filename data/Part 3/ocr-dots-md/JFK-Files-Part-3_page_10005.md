@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10005.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 
 FM 21 9 53 PM '75

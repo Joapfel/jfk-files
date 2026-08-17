@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4798.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: Do you feel the Congress is more involved in the last 10 years?
 

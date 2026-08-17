@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35449.png
-
-Convert to MarkdownFROM: DIRECTOR
+FROM: DIRECTOR
 
 DATE: 1-7-69
 

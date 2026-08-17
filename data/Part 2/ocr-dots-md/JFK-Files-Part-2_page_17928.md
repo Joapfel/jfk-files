@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17928.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPED UNIT
 
 MAR 25 10:37PM '75

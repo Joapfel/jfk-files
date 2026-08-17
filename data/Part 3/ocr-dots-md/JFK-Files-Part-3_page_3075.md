@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3075.png
-
-Convert to MarkdownNR 009 WA CODE
+NR 009 WA CODE
 
 3:30PM NITEL 8-26-75 LXS
 

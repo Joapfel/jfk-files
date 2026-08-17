@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30712.png
-
-Convert to MarkdownBetsy Palmer
+Betsy Palmer
 
 Review of Manuel Ray Files
 Volume v of xviii

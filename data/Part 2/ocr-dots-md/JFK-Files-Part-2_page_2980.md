@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2980.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Cuban airwaves and smuggle or airdrop transistor radios into Cuba to expand the audience. Inside the Agency FitzGerald politely rejected the congressional advice but pointed out that WH Division already was planning the University of the Air,* which would broadcast college-level courses to divide the loyalty of Cuban students.
 

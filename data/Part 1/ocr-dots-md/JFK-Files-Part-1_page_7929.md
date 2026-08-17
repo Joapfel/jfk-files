@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7929.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 
 DISP NO - UFGA-29877
 FILE NO - NONE

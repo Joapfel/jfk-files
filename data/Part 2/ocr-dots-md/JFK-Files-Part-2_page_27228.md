@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27228.png
-
-Convert to MarkdownX - Revised Attachment to Colby Letter, CIA, 2/10/75
+X - Revised Attachment to Colby Letter, CIA, 2/10/75
 
 Y - Memo for the File - Subj: Meeting with Mr. Knoche and Mr. Warner - Feb 6, 1975 (s/Ronald Greene)
 

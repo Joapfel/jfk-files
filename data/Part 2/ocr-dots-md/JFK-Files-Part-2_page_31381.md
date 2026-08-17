@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31381.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 HOME OF RECORD: c/o Llewellyn Co., 7th at Montgomery, Fort Worth, TX
 RACE/SEX: Caucasian/Male

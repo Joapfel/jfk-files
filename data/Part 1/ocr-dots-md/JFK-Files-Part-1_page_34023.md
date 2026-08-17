@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34023.png
-
-Convert to Markdown"UNIDAD" MONTHLY, ISSUE No. 36, APRIL, 1967.
+"UNIDAD" MONTHLY, ISSUE No. 36, APRIL, 1967.
 
 **FRONT PAGE:**
 

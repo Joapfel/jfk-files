@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13246.png
-
-Convert to MarkdownA: I believe it was the early part or spring of 1965.
+A: I believe it was the early part or spring of 1965.
 
 Q: How long had the investigation been going on before you got the case?
 

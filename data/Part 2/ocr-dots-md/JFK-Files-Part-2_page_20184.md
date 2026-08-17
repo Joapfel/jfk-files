@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20184.png
-
-Convert to Markdown1 - Mr. R. L. Shackelford (FS)
+1 - Mr. R. L. Shackelford (FS)
 
 1 - Mr. G. J. Lex
 

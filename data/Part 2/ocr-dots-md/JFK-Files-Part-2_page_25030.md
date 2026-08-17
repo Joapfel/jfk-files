@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25030.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Baron. And this document refers to the election of Joseph Ileo to the Presidency of the Senate of the Congo, and recounts a report by General Cabell that the US assisted Ileo financially and "may have secured some influence with this potentially useful individual."
 

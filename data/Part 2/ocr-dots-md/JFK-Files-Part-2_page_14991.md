@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14991.png
-
-Convert to Markdown# DEMONSTRATIONS PROTESTING UNITED STATES INTERVENTION IN VIETNAM
+# DEMONSTRATIONS PROTESTING UNITED STATES INTERVENTION IN VIETNAM
 
 Since United States aircraft attacked selected targets in North Vietnam following torpedo-boat assaults against destroyers in the Gulf/Tonkin in early August, 1964, there have been in the United States almost daily demonstrations to protest United States intervention in Vietnam. Many of these demonstrations have reached major proportions.
 

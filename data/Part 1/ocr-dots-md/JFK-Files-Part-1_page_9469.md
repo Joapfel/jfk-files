@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9469.png
-
-Convert to Markdown13 March 1950
+13 March 1950
 
 Report on Distribution of Der Monat through an Exemplary Outlet
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9605.png
-
-Convert to Markdown3. We want an end to the robbery by the CAPITALIST of our Black Community.
+3. We want an end to the robbery by the CAPITALIST of our Black Community.
 
 We believe that this racist government has robbed us and now we are demanding the overdue debt of forty acres and two mules. Forty acres and two mules was promised 100 years ago as restitution for slave labor and mass murder of black people. We will accept the payment in currency which will be distributed to our many communities. The Germans are now aiding the Jews in Israel for the genocide of the Jewish people. The Germans murdered six million Jews. The American racist has taken part in the slaughter of over fifty million black people; therefore, we feel that this is a modest demand that we make.
 

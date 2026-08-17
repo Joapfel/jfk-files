@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4653.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SH: I hadn't told him. I must have never told him the name. He's got a note to that effect; a footnote on that same page where he talks about this operation in the book. If you've got the book around I'll show you. In terms of assassination plots, first of all they're few and far between. In terms of getting involved in one of these things. Being in the business we were in, with the old rules and regulations that we had - and we didn't have to worry about a Senate Intelligence Committee and a House Intelligence Committee - we did lots of things just by feel, by gosh and by golly. As Larry Houston told me when the Church committee started to expose lots of things, Larry said, "Sam, I told you. You should have talked to me about a lot of these things. We wouldn't be here today." I said, "Yeah, Larry, and you know why we didn't talk to you in those days? Because you would have stopped a lot of us from doing things." He says, "Very right." That's the way life was, and I'm sure that there are other officers.... I'm just one of many who were involved in different parts of the world, doing a whole variety of things, with almost no way to pin down somebody saying, "I authorized X, Y, or Z." That goes even for State intelligence collection, because some of the intelligence collection was done by some screwball ideas.
 

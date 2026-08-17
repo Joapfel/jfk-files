@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27160.png
-
-Convert to MarkdownSECRET - SENSITIVE
+SECRET - SENSITIVE
 
 the United States. (Recall that Oswald had had connections with Russia). This was an operation which the CIA did not particularly want to undertake. Nonetheless the Agency did trace the names which the Bureau and Secret Service provided in this regard. The number of these names was perhaps 2,000 including crackpots who may have as an off hand comment, suggested that they intended to defect to, for example, Russia. The CIA attempted to turn the program over to the Secret Service for the Bureau, but would not take it. The CIA ultimately stopped the project and cleared all the files out. This would have been approximately three years ago. Stein noted that although the files had been eliminated, it was possible that some of the names provided to the Agency had made it into the Central Agency files, and would not have been eliminated therefrom.
 

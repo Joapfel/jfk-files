@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1372.png
-
-Convert to MarkdownOFFICE OF PERSONNEL
+OFFICE OF PERSONNEL
 
 May 26, 1973 By Request
 

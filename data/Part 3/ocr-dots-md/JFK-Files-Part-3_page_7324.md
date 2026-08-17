@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7324.png
-
-Convert to Markdown<table><thead><tr><th>Date:</th></tr></thead><tbody><tr><td>2-14-75</td></tr></tbody></table>
+<table><thead><tr><th>Date:</th></tr></thead><tbody><tr><td>2-14-75</td></tr></tbody></table>
 
 EX-116
 

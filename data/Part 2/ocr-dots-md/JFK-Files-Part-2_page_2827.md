@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2827.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 28 JUN 1978
 

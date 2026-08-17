@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25556.png
-
-Convert to MarkdownCopy for Senator Baker
+Copy for Senator Baker
 
 United States Senate
 Office of the Majority Leader

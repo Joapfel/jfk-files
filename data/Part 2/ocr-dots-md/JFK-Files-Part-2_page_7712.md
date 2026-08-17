@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7712.png
-
-Convert to Markdown6. Over the whole period the penetration and recruitment efforts have been fairly stably distributed by service as follows:
+6. Over the whole period the penetration and recruitment efforts have been fairly stably distributed by service as follows:
 
 Soviet - 58% of the cases
 Bloc - 37%

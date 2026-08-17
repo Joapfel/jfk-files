@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5221.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT OF JUSTICE
+UNITED STATES DEPARTMENT OF JUSTICE
 Immigration and Naturalization Service
 
 Miami, Florida

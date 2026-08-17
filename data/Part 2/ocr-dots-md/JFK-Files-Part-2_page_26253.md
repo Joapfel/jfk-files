@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26253.png
-
-Convert to MarkdownMEMORANDUM FOR: MR. CUNDY
+MEMORANDUM FOR: MR. CUNDY
 
 Per your request,
 

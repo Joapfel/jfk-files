@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_475.png
-
-Convert to Markdown4.68 JUIU
+4.68 JUIU
 
 SECRET 092240Z CITE MEXICO CITY 8189
 

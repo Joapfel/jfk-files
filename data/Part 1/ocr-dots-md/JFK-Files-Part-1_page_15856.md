@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15856.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE: 12/5<br/>22 DEC 60</td><td>SECRET</td></tr><tr><td>TO: DIRECTOR</td><td rowspan="3"></td></tr><tr><td>FROM: LEOPOLDVILLE</td></tr><tr><td>ACTION: C/AF 3</td></tr><tr><td>INFO: COP, C/PG, C/C1, C/F1 2, S/C 2</td><td></td></tr><tr><td></td><td>RECELLED DEC 22-43</td></tr></tbody></table>
 

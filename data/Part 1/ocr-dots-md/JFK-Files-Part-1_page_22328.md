@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22328.png
-
-Convert to Markdownplace in the summer of 1962, a fact he recalled distinctly because he wore no overcoat. It was only when confronted with official U.S. records that NOSENKO agreed in early 1965 that the approach was in January and recalled that it was made immediately after NOSENKO returned to the Tourist Department.*
+place in the summer of 1962, a fact he recalled distinctly because he wore no overcoat. It was only when confronted with official U.S. records that NOSENKO agreed in early 1965 that the approach was in January and recalled that it was made immediately after NOSENKO returned to the Tourist Department.*
 
 NOSENKO said that when JOHNSON first arrived in Moscow there was consideration of recruiting him, but that there was a decision against this as he was of little intelligence value. Then JOHNSON mailed insulting letters which were picked up through postal intercept. About the same time there were indications of homosexuality. Then the operation was mounted against him. This implies a very tight time schedule. JOHNSON arrived in Moscow on 31 December 1961; NOSENKO said he reported for duty as Section Chief on 3 January 1962; JOHNSON reported his first contact with NOSENKO's homosexual agent VOLKOV the evening of 4 January; and the approach by NOSENKO was on 5 January.
 

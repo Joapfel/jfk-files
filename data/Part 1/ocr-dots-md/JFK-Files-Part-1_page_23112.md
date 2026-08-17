@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23112.png
-
-Convert to MarkdownDr. F. C. Redlich
+Dr. F. C. Redlich
 
 program are part of the course, the best are merely an expansion of one class. This way, it fits both the students and the physicians.
 

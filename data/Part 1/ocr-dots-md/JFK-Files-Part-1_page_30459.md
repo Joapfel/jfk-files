@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30459.png
-
-Convert to Markdown# ADMINISTRATIVE
+# ADMINISTRATIVE
 ## INTERNAL USE ONLY
 
 MEMORANDUM FOR : Director of Personnel

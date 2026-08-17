@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34039.png
-
-Convert to MarkdownCHART NO.2
+CHART NO.2
 CUBAN FOREIGN TRADE
 1959-1966
 

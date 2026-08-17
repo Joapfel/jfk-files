@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15964.png
-
-Convert to MarkdownHarvey, Illinois, branch of BPP
+Harvey, Illinois, branch of BPP
 
 JAMES VEAL, Acting Captain of Defense
 

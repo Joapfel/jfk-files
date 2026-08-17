@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19390.png
-
-Convert to Markdown22 January 1947
+22 January 1947
 
 (Date)
 

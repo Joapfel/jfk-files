@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8529.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (U) b. There is no comprehensive readily available record of precisely what information has been declassified and released in accordance with the Freedom of Information Act and the Privacy Act; there are separate collections with a limited capability to retrieve some such information;
 

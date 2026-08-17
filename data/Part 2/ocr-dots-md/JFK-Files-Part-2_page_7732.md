@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7732.png
-
-Convert to Markdown13-00000
+13-00000
 
 **1955-1959:** One of 170 students at the KGB Higher School of Juridical Studies, the KGB conducted a series of four year internal security-counterintelligence courses. In 1949, the Institute. He presented and successfully defended his thesis on the subject of SK activities among Soviet delegations and tourist groups traveling abroad. He received his diploma in August 1959. During his school tour, Subject also spent several weeks in on-the-job training as a student. Assigned to the KGB's Second (Internal Counterintelligence) Chief Directorate, with access to operational files, he collected information on foreign diplomatic personnel in Moscow who were KGB targets.
 

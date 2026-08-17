@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22568.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 has to a considerable extent interfered with their
 propaganda at these festivals. Because of this,

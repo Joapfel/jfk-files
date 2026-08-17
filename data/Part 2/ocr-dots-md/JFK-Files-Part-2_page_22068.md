@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22068.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>(Same instruction as card 1.)</td><td>Apr 17 '61</td><td>CARD 2 of 3</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>(Same instruction as card 1.)</td><td>Apr 17 '61</td><td>CARD 2 of 3</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

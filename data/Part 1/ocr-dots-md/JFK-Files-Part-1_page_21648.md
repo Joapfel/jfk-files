@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21648.png
-
-Convert to MarkdownSECRET
+SECRET
 
 was not considered a worthwhile target and in others the information
 was just maintained for possible use at a later date if the individual

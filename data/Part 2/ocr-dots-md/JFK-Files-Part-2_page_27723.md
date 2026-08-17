@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27723.png
-
-Convert to MarkdownPAYROLL FORM
+PAYROLL FORM
 
 (Please Use Typewriter
 or Ballpoint Pen)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27281.png
-
-Convert to MarkdownA - Memo from Knoche to Belin - 24 Feb 75
+A - Memo from Knoche to Belin - 24 Feb 75
 
 B - Influencing Human Behavior CONFIDENTIAL
 

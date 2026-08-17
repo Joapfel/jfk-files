@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_9140.png
-
 to ANP member JOHN PATLER, the ANP printer.
 
 ### 2. Previous Employments

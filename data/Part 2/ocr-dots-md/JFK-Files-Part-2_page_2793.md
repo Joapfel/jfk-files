@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2793.png
-
-Convert to MarkdownSECTION C - Narrative Comments (continued)
+SECTION C - Narrative Comments (continued)
 
 and he is consistent and reliable in his performance. His writing is entirely coherent and always in good form, although occasionally a little too clever and glib for my tastes. He has an excellent understanding of personal and operational security and cover.
 

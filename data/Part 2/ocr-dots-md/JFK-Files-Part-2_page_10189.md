@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10189.png
-
-Convert to MarkdownJUL 1975
+JUL 1975
 
 <table>
    <thead>

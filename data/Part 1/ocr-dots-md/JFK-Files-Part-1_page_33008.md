@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33008.png
-
-Convert to Markdown15 August 1972
+15 August 1972
 
 MEMORANDUM FOR: Chief, CH/COS
 

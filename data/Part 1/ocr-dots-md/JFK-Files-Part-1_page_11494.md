@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11494.png
-
-Convert to Markdown3.
+3.
 
 PBRUKEN capital and that he himself ("Rómulo") was in more or less regular
 touch with the mother of "El Chino", (whom LIRING/3 understood to be Yon

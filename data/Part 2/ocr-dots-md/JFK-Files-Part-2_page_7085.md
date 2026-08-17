@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7085.png
-
-Convert to MarkdownFriday, October 29, 1999
+Friday, October 29, 1999
 
 **Foreign Government Information Contained in JFK Collection**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6102.png
-
-Convert to MarkdownAugust 23, 1976
+August 23, 1976
 
 Information Review Committee
 c/o Gene F. Wilson

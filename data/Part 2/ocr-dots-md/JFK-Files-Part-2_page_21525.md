@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21525.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
  coordination of any such efforts, approval and assessment of the security risk, and also in the direct procurement through operational means abroad, but not in this country.
 

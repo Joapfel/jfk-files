@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9206.png
-
-Convert to MarkdownREC-102
+REC-102
 
 July 14, 1975
 

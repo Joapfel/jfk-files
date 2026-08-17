@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17794.png
-
-Convert to Markdown...c...
+...c...
 
 597- Entrada sin contestación.- fuma.- y salida sin contestación.- y ocurrendo.- 635-
 

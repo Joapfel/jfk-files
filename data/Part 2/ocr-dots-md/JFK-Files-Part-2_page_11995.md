@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11995.png
-
-Convert to Markdowndocument in the pertinent informant file and is not to be serialized.
+document in the pertinent informant file and is not to be serialized.
 If a particular section of this form is not applicable, such should be
 noted thereon. If it later becomes applicable, the serial number can be
 noted at that time.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2862.png
-
-Convert to MarkdownWARD & PAUL
+WARD & PAUL
 
 1 the Honorable Clarence M. Kelley, the Director of the Federal
 2 Bureau of Investigation.

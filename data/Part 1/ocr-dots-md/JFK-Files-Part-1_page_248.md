@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_248.png
-
-Convert to Markdown14-00000
+14-00000
 
 (C) TERENCE S. CRABANIC
 DOA: 02 DEC 60

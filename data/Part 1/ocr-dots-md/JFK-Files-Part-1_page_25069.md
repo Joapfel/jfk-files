@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25069.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td style="vertical-align: top;"><table><tbody><tr><td>DISPATCH</td></tr><tr><td>TO<br/>Chief, BB Division</td></tr><tr><td>FROM<br/>Chief, WH Division</td></tr><tr><td>SUBJECT REDTOP<br/>Alexandr Mikbaylovich BROVAKH (201-185114)</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td></tr><tr><td>Reference: HSS-6229, 19 December 1968</td></tr></tbody></table></td><td style="vertical-align: top;"><div><b>CLASSIFICATION</b><br/>SECRET</div><div><b>PROCESSING ACTION</b><br/><table><tbody><tr><td>MARKED FOR INDEXING</td></tr><tr><td>NO INDEXING REQUIRED</td></tr><tr><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>MICROFILM</td></tr></tbody></table></div></td></tr></table>
 

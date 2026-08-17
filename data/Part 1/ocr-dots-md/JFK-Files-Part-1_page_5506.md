@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5506.png
-
-Convert to MarkdownCase 47,540 (Reopened) New Developments in Plans of Haitian Banker, Clemard Joseph Charles to Overthrow the Dvalier Government
+Case 47,540 (Reopened) New Developments in Plans of Haitian Banker, Clemard Joseph Charles to Overthrow the Dvalier Government
 
 NY-419-67
 

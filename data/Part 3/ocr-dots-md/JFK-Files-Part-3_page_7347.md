@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7347.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DCI/IC-75-0608
 6 June 1975

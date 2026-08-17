@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26925.png
-
-Convert to MarkdownFJKS-0422/79
+FJKS-0422/79
 
 MEMORANDUM FOR: Maurice A. Western
 Chief, VPL Group

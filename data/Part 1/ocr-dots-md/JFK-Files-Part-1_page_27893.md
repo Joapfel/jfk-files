@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27893.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLER IS)
 
 <table><thead><tr><th colspan="10">APPLICANT CODING DATA</th></tr></thead><tbody><tr><td>1. ID - &lt;•2&gt;</td><td>2. APPL. NO.</td><td>3. NAME<br/>G-DIGITS MUST CONTAIN 20 DIGITS</td><td>4. DATE OF BIRTH</td><td>5. DATE CODED<br/>(SEE COLUMN G)</td><td>6. NAME<br/>3-LETTERS</td><td>7. EMPLOYEE NO.</td><td>8. DATE SUBMITTED</td><td>9. MO</td><td>10. DA</td><td>11. YR</td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td>&#9650;</td><td>&#9650;</td><td>&#9650;</td></tr></tbody></table>

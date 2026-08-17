@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34090.png
-
-Convert to MarkdownBULGARIA REJECTS CUBAN SUGAR SHIPMENT
+BULGARIA REJECTS CUBAN SUGAR SHIPMENT
 
 Last month the Economic Research Bureau (ERB) reported the establishment of a Soviet-Cuban quality control organization to undertake steps to maintain the quality of Cuban sugar. This organization, which incidentally has been patterned along the administrative guidelines and regulations of the Soviet Union, has been made necessary by the increasing difficulties the Soviet refineries are having with Cuban raws. The phenomenon of declining quality of Cuban sugar is further pointed up by Bulgaria's rejection of the first Cuban sugar shipment to that country from the 1966 harvest. This rejection, which occured last August, was due to the high moisture content of the Cuban sugar. The source of this information is the Cuban Institute for Sugar Research.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4753.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLASSIFIED
 BY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18447.png
-
-Convert to Markdown13 FEB 1968
+13 FEB 1968
 
 Mr. William King Harvey
 28 West Irving Street

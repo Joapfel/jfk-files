@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10539.png
-
-Convert to MarkdownS-E-C-2-E-T NO FOREIGN DISSESS
+S-E-C-2-E-T NO FOREIGN DISSESS
 
 -2-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11901.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="6">SECTION XIII - BROTHERS AND SISTERS</th>

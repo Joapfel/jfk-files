@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32743.png
-
-Convert to Markdown"(4) When fully developed, the operational tactical aircraft will markedly improve the capability of the Tactical Air Command in carrying out its assigned missions, especially in limited war.
+"(4) When fully developed, the operational tactical aircraft will markedly improve the capability of the Tactical Air Command in carrying out its assigned missions, especially in limited war.
 
 "(5) Similarly, the Navy version, when fully developed, and when configured with the new long range air-to-air missile, will markedly improve existing fleet air defense capability."
 

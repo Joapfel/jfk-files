@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_14837.png
-
 .
 
 Of course, as previously reported, IRS has established a failure to file criminal violation on Goldfine for the years 1955, 1956, and 1957. However, since this is a misdemeanor, Justice had waited until the tax fraud investigation was developed in order to go ahead with its prosecution. The one weakness in the tax fraud case is proving knowledge and culpability directly to Goldfine. IRS feels that he will argue that his tax affairs were handled by a competent tax firm and he had every right to feel that his tax affairs were being handled within the law.

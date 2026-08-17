@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16561.png
-
-Convert to Markdownc/o: L. Laser,nlh
+c/o: L. Laser,nlh
 dc: DC/MH/1
 et: 7375/9354
 dt: 23 June 1971

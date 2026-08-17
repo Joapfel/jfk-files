@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34504.png
-
-Convert to Markdownsecrecy may, subject to criminal prosecution under the erosion laws, as amended, and other applicable laws and regulations. Your relationship with the CENTRAL INTELLIGENCE AGENCY and this contract must be kept secret and you may not discuss any aspect of this relationship and contract with any person other than the Authorized Government Representative or such other person as he may specifically approve.
+secrecy may, subject to criminal prosecution under the erosion laws, as amended, and other applicable laws and regulations. Your relationship with the CENTRAL INTELLIGENCE AGENCY and this contract must be kept secret and you may not discuss any aspect of this relationship and contract with any person other than the Authorized Government Representative or such other person as he may specifically approve.
 
 9. UNAUTHORIZED COMMITMENTS. No promises or commitments pertaining to rights, privileges, or benefits other than those expressly stipulated in writing in this agreement or any amendment thereto shall be binding on the CENTRAL INTELLIGENCE AGENCY.
 

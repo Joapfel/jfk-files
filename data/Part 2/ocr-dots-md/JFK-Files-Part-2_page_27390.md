@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27390.png
-
-Convert to MarkdownINDEX
+INDEX
 
 1. Meeting with Richard Ober, Robert W. Kiley and Jarvis Leonard discussing cooperation of student unrest and to establish a point of contact between the Justice Department and CIA, dtd 21 May 69
 

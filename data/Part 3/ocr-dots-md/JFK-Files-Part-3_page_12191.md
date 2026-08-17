@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12191.png
-
-Convert to MarkdownLet us Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation of the PICKRICKplantant!
+Let us Maddox and my handling of the Civil Rights Act of 1964? Case involving Maddox and his operation of the PICKRICKplantant!
 
 **ITEM II**
 

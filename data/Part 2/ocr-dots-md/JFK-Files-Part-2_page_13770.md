@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13770.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 FRANK CHURCH, IDAHO, CHAIRMAN
 JOHN G. TOWER, TEXAS, VICE CHAIRMAN

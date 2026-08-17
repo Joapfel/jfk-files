@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10502.png
-
-Convert to MarkdownCOUNTRY Colombia / Venezuela / Paraguay
+COUNTRY Colombia / Venezuela / Paraguay
 
 NO. PAGES 2
 

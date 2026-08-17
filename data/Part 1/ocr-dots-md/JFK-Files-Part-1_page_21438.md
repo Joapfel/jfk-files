@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21438.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 11 May 1961 (Wash.)
 

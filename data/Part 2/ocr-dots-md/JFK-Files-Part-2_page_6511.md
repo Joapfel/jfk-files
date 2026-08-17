@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6511.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 First, with respect to preventing the export of Communist subversion by or through Cuba, there is a summary of what we are doing now, and what we can do in the future.
 

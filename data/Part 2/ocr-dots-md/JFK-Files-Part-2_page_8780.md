@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8780.png
-
-Convert to Markdownfield about assassination attempt of Lazaro PENA by (sic) on? Fidel?" /COMMENT: Message #46 from A-1 was dated 13 Sept 63. Next message in file is #56 dated 27 Dec 63. File has a gap of 10 messages which are unaccounted for. Message #58 dated 27 Dec 63 mentions interruption of contact. A-1 did not specify how long he was without contact. It may be that contact was indeed non-existent from 13 Sept to 27 Dec but the numbering system should have picked up and continued from the last number.
+field about assassination attempt of Lazaro PENA by (sic) on? Fidel?" /COMMENT: Message #46 from A-1 was dated 13 Sept 63. Next message in file is #56 dated 27 Dec 63. File has a gap of 10 messages which are unaccounted for. Message #58 dated 27 Dec 63 mentions interruption of contact. A-1 did not specify how long he was without contact. It may be that contact was indeed non-existent from 13 Sept to 27 Dec but the numbering system should have picked up and continued from the last number.
 
 PLSLSTEEL-1 Project 68-6-147
 

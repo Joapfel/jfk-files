@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8516.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. The following items, all of which relate to matters of concern to Africa Division, also remain classified:
 

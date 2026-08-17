@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17500.png
-
-Convert to MarkdownBethel Mission Baptist Cemetery, Haynesville, La. HAMPTON
+Bethel Mission Baptist Cemetery, Haynesville, La. HAMPTON
 was placed in a metal half couch casket which in turn was
 placed inside a pine box. The body was buried with no other
 protection in sandy soil on the side of a hill with good

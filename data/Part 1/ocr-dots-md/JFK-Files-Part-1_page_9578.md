@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9578.png
-
-Convert to Markdown# NFL-002-76
+# NFL-002-76
 ## PAGE 2
 
 two SKIERALD people in Miami wanted to meet with IDEN A. IDEN A agreed to a meeting, and IDEN F introduced IDEN I and IDEN E. IDEN-A knew IDEN I, but was aware of IDEN-E only by reputation, which was unseavory. IDEN E claimed to be a SKIERALD employee, as did IDEN I. IDEN A, of course, knew otherwise, but said nothing. In March 1974, IDEN A got a call from IDEN J of the IDEN K, Miami. He was an ex-SKIERALD officer, and he said IDEN G wished to speak with IDEN A in Miami on an urgent basis.

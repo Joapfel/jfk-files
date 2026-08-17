@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12738.png
-
-Convert to MarkdownCABLE SFC DISSENT BY 32 PER
+CABLE SFC DISSENT BY 32 PER
 
 TOTAL COPY ER 25-1 REV.
 

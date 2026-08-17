@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15326.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 
 WASHINGTON
 

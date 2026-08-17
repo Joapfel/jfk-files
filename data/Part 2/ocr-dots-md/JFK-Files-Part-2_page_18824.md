@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18824.png
-
-Convert to MarkdownDEC 13 1956
+DEC 13 1956
 
 NAME CHECK
 

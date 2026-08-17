@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9348.png
-
-Convert to Markdown# BATTLE
+# BATTLE
 
 NAME: ROBERT EARL SMITH
 WEIGHT: 160 lbs.

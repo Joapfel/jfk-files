@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14183.png
-
-Convert to Markdown128. 9/28/62 - At the Board's 9/28/62 meeting the DCI indicated he did not believe that offensive, strategic missiles had been installed in Cuba, but he considered this a possibility at some future time, but only after Cuba's defensive capability was such as to deny Cuban airspace to U.S. reconnaissance aircraft. The DCI reported that "our intelligence collection on Cuba has improved since the first of the year" and that "CIA now has 45 third-country agents (meaning dip-lomats) reporting throughout Cuba."
+128. 9/28/62 - At the Board's 9/28/62 meeting the DCI indicated he did not believe that offensive, strategic missiles had been installed in Cuba, but he considered this a possibility at some future time, but only after Cuba's defensive capability was such as to deny Cuban airspace to U.S. reconnaissance aircraft. The DCI reported that "our intelligence collection on Cuba has improved since the first of the year" and that "CIA now has 45 third-country agents (meaning dip-lomats) reporting throughout Cuba."
 
 129. September 1962 - "Offensive missiles identified: Western Cuba: Two launch sites consisting of 8 field-type launchers and 16 1020-nm MRBMs (SS-4). . . these missiles are probably those re-ported moving into this area during September." (Source: Joint Evaluation Report of 10/18/62, prepared by GMAIC/JAEIC/NPIC)
 

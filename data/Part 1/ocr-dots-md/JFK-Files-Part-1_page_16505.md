@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16505.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="8">ORIGINATING MESSAGE</td>

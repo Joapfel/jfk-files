@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13856.png
-
-Convert to Markdown231.- Entrada a las 11:32hs.- HF Morales con Rogelio Rodriguez. Rogelio le dice que no ha llegado nada todavía, que lo llame mañana a la una de la tarde.-- 258.-
+231.- Entrada a las 11:32hs.- HF Morales con Rogelio Rodriguez. Rogelio le dice que no ha llegado nada todavía, que lo llame mañana a la una de la tarde.-- 258.-
 
 162.- Entrada a las 17:40hs.- HF Mijares -de Emigración- por Rogelio.- Jorrín que no está.- Mijares: que se trata sobre unos puros que le ofreció.- Quo está por la noche en el aeropuerto en el 22-34-14.--- 192.-
 

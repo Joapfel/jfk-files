@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22628.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 He was a more valuable agent. If he had not been uncovered he would have been today Chief of British Intelligence.
 

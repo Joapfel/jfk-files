@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_810.png
-
-Convert to Markdown# Carlene Po te Resume
+# Carlene Po te Resume
 
 - Page Three -
 

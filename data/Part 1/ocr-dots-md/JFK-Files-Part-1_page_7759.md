@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7759.png
-
-Convert to Markdown13.02.04 In the area in which she lives, does she appear to be: very satisfied ____ normally satisfied X very dissatisfied ____
+13.02.04 In the area in which she lives, does she appear to be: very satisfied ____ normally satisfied X very dissatisfied ____
 
 13.03 Have you been to their home? Yes __ No X
 If Yes, how often?

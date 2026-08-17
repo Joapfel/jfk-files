@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27420.png
-
-Convert to MarkdownA. E2 IMPDET CL BY 013511 SECRET
+A. E2 IMPDET CL BY 013511 SECRET
 
 B. DDO NOTICE No. 1-1166 - 5 July 73 from Colby SECRET
 

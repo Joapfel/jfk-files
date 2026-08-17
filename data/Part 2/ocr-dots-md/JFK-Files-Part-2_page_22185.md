@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22185.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MCCONE<br/>HELMS<br/>BUNDY<br/>✓ R. KENNEDY</td><td>HOOVER<br/>Mar 2, 1964</td><td>Special Group<br/>Mongoose</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MCCONE<br/>HELMS<br/>BUNDY<br/>✓ R. KENNEDY</td><td>HOOVER<br/>Mar 2, 1964</td><td>Special Group<br/>Mongoose</td></tr></tbody></table>
 
 **OCCURRENCE:** Helms states that agency officers have reported plans of Cuban exiles to assassinate selected Cuban government leaders. Agency officers told Cubans that U.S. would not condone the planned actions. Plans included: Cuban exile approach to March 2, 1964 by businessman to discuss a plan which was "still in the embryonic state to assassinate Fidel Castro." Businessman has underworld connections with Cosa Nostra. Latter-group-has-offered-to-assassinate Castro for $150,000. Proposes to use 5 men.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13569.png
-
-Convert to MarkdownLe. J. R. Adams
+Le. J. R. Adams
 
 4-0-76
 

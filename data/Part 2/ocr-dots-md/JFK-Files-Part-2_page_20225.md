@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20225.png
-
-Convert to MarkdownWFO 100-54927.
+WFO 100-54927.
 
 Minneapolis Abortion Action Coalition
 100 University Ave., S.E., Minneapolis, Minn. 55814

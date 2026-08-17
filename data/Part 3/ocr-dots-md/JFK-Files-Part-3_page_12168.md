@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12168.png
-
-Convert to Markdownsuch review in the Committee's office. Any expense thereof
+such review in the Committee's office. Any expense thereof
 to be borne by the witness. He explained it was not his
 perogative to amend the Committee's rules and regulations.
 

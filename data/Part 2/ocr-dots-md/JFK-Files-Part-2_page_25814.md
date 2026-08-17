@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25814.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Maximum security + within Hubert only (e.g., hourglass does firework now-here?).
 

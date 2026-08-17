@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24257.png
-
-Convert to MarkdownNotes on QRPHONE by Harvey B. DAITCHMAN
+Notes on QRPHONE by Harvey B. DAITCHMAN
 
 1. **Revolutionary Image:** Discussed briefly how it is obtained. Pointed out there is a pattern to it which is discernable among revolutionaries. It is usually issue oriented in the beginning, the war being one of the key issues, and it gradually evolves into a desire to engage in practical activities which usually expressed best on a continuing basis through work in an organization. Also connected with this process is the gradual development of a different "outlook." It is usually a mixture of idealism and Marxism-Leninism-socialism-Mao Tse-tung thought. Usually unstructured but developing.
 

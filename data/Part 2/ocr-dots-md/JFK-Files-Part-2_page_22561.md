@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22561.png
-
-Convert to MarkdownSECRET
+SECRET
 
 has a high capacity in this area. This lecture tour, details of which will be set out below, is considered of key importance to the basic problem.
 

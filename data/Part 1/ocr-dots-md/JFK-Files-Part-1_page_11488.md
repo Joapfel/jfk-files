@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11488.png
-
-Convert to Markdown8 April,1969
+8 April,1969
 
 CONTACT REPORT
 

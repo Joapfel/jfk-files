@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20531.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="7">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>1. SERIAL NUMBER</td><td>2. NAME (LAST, FIRST, MIDDLE)</td><td colspan="3"></td><td>4. EFFECTIVE DATE</td><td>5. CATEGORY OF EMPLOYMENT</td></tr><tr><td>013812</td><td>HUNT E HOWARD</td><td colspan="3"></td><td>MO 903 10<br/>04 | 30 | 70</td><td>REQUEAR</td></tr><tr><td colspan="6"><b>NATURE OF PERSONNEL ACTION</b></td><td rowspan="2">7. Financial Analysis No Chargeable P.L. BS-643<br/>SEC. 233</td></tr><tr><td colspan="6"><b>RETIREMENT VOLUNTARY UNDER CIA<br/>RETIREMENT AND DISABILITY SYSTEM</b></td></tr><tr><td rowspan="2">6. FUNDS</td><td></td><td>V TO V</td><td></td><td>V TO CF</td><td rowspan="2">6236 1184 6000</td><td rowspan="2">F.L. 8S-643<br/>SEC. 233</td></tr><tr><td>X</td><td>CF TO V</td><td></td><td>CF TO CF</td></tr><tr><td colspan="6"><b>ORGANIZATIONAL DESIGNATIONS</b></td></tr><tr><td colspan="6"><b>DOP/EUR<br/>OPERATIONS STAFF</b></td></tr><tr><td colspan="6"><b>POSITION TITLE</b></td></tr><tr><td colspan="6"><b>CPS OFFICER</b></td></tr><tr><td colspan="3"><b>CLASSIFICATION SCHEDULE (GS, LB etc.)</b></td><td colspan="3"><b>15 OCCUPATIONAL SERIES</b></td></tr><tr><td></td><td colspan="3">CPS OFFICER</td><td colspan="3"><b>16 GRADE AND STEP</b></td></tr><tr><td colspan="3"><b>CLASSIFICATIONS</b></td><td colspan="3"><b>SALARY OR RATE</b></td></tr><tr><td colspan="3"><b>13. REMARKS</b></td><td colspan="3"><b>22226</b></td></tr></tbody></table>

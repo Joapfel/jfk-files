@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26254.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BRIEFING PAPER ON THE DOMINICAN REPUBLIC
 

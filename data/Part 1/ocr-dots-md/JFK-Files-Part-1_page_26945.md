@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26945.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 22 January 1976
 

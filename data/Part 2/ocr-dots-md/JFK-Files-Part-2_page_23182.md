@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23182.png
-
-Convert to Markdown1. don't even want to speculate on it.
+1. don't even want to speculate on it.
 
 2. Mr. Johnston, Did you have sources in Alpha 657?
 

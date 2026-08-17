@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30947.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 041610Z JUNE 69 CITE MEXICO CITY 0486
 

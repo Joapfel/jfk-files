@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26757.png
-
-Convert to MarkdownReel 72-KICO-31
+Reel 72-KICO-31
 
 6 May 1965
 

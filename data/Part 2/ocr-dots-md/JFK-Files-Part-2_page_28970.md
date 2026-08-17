@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28970.png
-
-Convert to MarkdownForm 4798 (1976)
+Form 4798 (1976)
 
 # Part IV Capital Gains and Losses
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1728.png
-
-Convert to Markdownfrom Chief, Central Cover Group concerning the threat of exposure of Agency operations and concludes that the BROWN Foundation of Houston, Texas was one of the most vulnerable to exposure because public records reflect direct tie from Agency funding instruments identified by Congressman PATMAN in 1964 to legitimate foundations and Agency projects they have sponsored.
+from Chief, Central Cover Group concerning the threat of exposure of Agency operations and concludes that the BROWN Foundation of Houston, Texas was one of the most vulnerable to exposure because public records reflect direct tie from Agency funding instruments identified by Congressman PATMAN in 1964 to legitimate foundations and Agency projects they have sponsored.
 
 VERNON FUND - #69000-573
 

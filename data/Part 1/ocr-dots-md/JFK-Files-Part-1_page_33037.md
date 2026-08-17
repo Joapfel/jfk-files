@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33037.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Section I: Marital Status -->
         <tr>

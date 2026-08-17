@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30572.png
-
-Convert to Markdown10 August 1947
+10 August 1947
 
 Dear Bob,
 

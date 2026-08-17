@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9840.png
-
-Convert to Markdown<html><body><table><tr><td>CONTINUATION OF DISPATCH</td><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NUMBER</td></tr><tr><td></td><td>SECRET</td><td>BENA-34491</td></tr></table></body></html>
+<html><body><table><tr><td>CONTINUATION OF DISPATCH</td><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NUMBER</td></tr><tr><td></td><td>SECRET</td><td>BENA-34491</td></tr></table></body></html>
 
 apartment using keys provided by ROWTON. The wall plate was removed, the AC lines to the SPT-2A clipped off close to the plug, the SPT-2A easily removed, the wall plate refastened, and the target apartment vacated. Total time about two minutes. CORNBURY and CIMOCCH left the area immediately. There were no security problems noted at any time.
 

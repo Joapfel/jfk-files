@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11949.png
-
-Convert to Markdown11 March 1974
+11 March 1974
 
 MEMORANDUM FOR: Domestic Collection Division
 ATTENTION: Mr. Shaun P. Ryan

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7657.png
-
-Convert to MarkdownMr. DULLES. Do you have some more?
+Mr. DULLES. Do you have some more?
 
 Mr. McCLOY. I think I have got all the questions I wanted to ask.
 

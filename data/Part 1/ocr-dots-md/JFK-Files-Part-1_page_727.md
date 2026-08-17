@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_727.png
-
-Convert to Markdown# General Comments.
+# General Comments.
 
 1. I have not talked with any Ford Foundation people and many TCI people. As impressed by their quality. They are working hard and are doing it in a self-effacing manner. I have not heard one criticism of them from anybody. There are a few ends, of course I have not yet met them. They're here to help India carry out her projects and her ideas" no one put it. And they seem to do a good not only democratically but with a very real warmth and sympathy -- yet they stay quietly in the background and take none of the credit. But I feel more strongly each week I am here that the work is solid and is havingmendably good effect in relieving tension and hostility between the two countries. The results of the actual work are apparent now and hope has recently increased among Indians; also their own self-confidence. When confidence increases, sensitiveness decreases, of course.
 

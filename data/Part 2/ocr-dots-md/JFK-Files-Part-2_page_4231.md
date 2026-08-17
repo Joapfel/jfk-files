@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4231.png
-
-Convert to Markdown2 September 1964
+2 September 1964
 
 MEMORANDUM FOR: General Carter
 

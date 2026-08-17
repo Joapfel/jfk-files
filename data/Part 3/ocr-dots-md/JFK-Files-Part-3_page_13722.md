@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13722.png
-
-Convert to Markdown765010917, WARD & PAUL
+765010917, WARD & PAUL
 
 410 First Street, S.E., Washington, D.C. 20003
 

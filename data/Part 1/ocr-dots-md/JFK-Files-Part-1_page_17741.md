@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17741.png
-
-Convert to MarkdownEMBARRAZA DOMINICANA.- 28-77-85.
+EMBARRAZA DOMINICANA.- 28-77-85.
 
 3 mayo 66.
 

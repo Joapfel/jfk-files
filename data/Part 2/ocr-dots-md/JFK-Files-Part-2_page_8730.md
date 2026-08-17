@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8730.png
-
-Convert to MarkdownParty, the Soviet Ambassador in Cuba, a few members
+Party, the Soviet Ambassador in Cuba, a few members
 of the Minister's Council and some other 2,000 persons
 connected with the Communist Party or Cuban Government.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15864.png
-
-Convert to Markdownalso known as JEWEL COOK, born June 8, 1948, and
+also known as JEWEL COOK, born June 8, 1948, and
 JELDEAN ELDRIDGE, also known as STEPHANIE FISHER,
 born December 23, 1947. These individuals were
 being deported because they had used false identi-

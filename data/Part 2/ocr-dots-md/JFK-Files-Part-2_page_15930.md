@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_15930.png
-
-Convert to MarkdownOn May 14, 1969, this matter was discussed with Assistant United States Attorney RICHARD SCHULTZ, Northern District of Illinois, Chicago, at which time he noted that no apparent prosecuting violation exists under Title 18, Section 231 (a) (1), based on a review of this matter and on information available at this time. He stated that in the best interests of the government, this matter does not merit further investigation at this time.
+On May 14, 1969, this matter was discussed with Assistant United States Attorney RICHARD SCHULTZ, Northern District of Illinois, Chicago, at which time he noted that no apparent prosecuting violation exists under Title 18, Section 231 (a) (1), based on a review of this matter and on information available at this time. He stated that in the best interests of the government, this matter does not merit further investigation at this time.

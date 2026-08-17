@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21381.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DIRECTOR, FBI (105-186336)
 

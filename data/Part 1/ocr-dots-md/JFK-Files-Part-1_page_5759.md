@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5759.png
-
-Convert to Markdown14-0000
+14-0000
 
 I. 7 Sep 72 P E O ' S R E P U B L I C O F C H A M B A
 NATIONAL AFFAIRS

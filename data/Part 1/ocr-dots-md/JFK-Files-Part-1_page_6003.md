@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6003.png
-
-Convert to Markdownmedio necesario, el tresijo sería mucho más efic�o.
+medio necesario, el tresijo sería mucho más efic�o.
 
 No comprendo avui la llimira con el hino,
 sue les kens visto, como apenilos días Le Verdices.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13371.png
-
-Convert to MarkdownOLSEN: All right, we are beginning belt No. 7. Frank, did you state to Andrew St. George that if you had to do any killing that you would use your bare hands and a piece of wire.
+OLSEN: All right, we are beginning belt No. 7. Frank, did you state to Andrew St. George that if you had to do any killing that you would use your bare hands and a piece of wire.
 
 STURGIS: That's hogwash. I never stated that. I may have stated in talking with Andrew about my activities in the Marine Corps and Edson's Raiders, which was the first raider battallion, that part of my training was for instance sneaking up on victims using the stiletto which we were equipped with to operate behind enemy lines, to go ashore in rubber boats, and so forth. I did receive that training to how to kill people with. Piano wire with this stiletto, sniper, telescopes, etc. -- that training I did receive in the South Pacific.
 

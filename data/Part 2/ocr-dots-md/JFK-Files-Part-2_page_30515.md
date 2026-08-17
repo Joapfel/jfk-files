@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30515.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① Regular inputs checking work
 ② Ionesperla opened & Red & Copy P.K.

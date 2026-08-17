@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22455.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DOHR 70-1-1
 CHAPTER III, ANNEX B

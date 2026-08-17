@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13586.png
-
-Convert to Markdown14-00000
+14-00000
 
 Palabra 18 de Febrero 1962
 "Ano de la Eliminacion"

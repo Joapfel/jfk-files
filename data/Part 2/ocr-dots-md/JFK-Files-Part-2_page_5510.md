@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5510.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Foreign Government Information
 Australia

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23587.png
-
-Convert to Markdown6. The principal members of the Special Group felt, after some discussion, that the CIA variant should be developed further for consideration at next Thursday's meeting of the Special Group. Mr. McCone was asked to stress economic sabotage, and to emphasize measures to foment a Castro-oldline Communist split. It was emphasized that any actions under this plan must be so designed as to avoid major attribution to the U.S.
+6. The principal members of the Special Group felt, after some discussion, that the CIA variant should be developed further for consideration at next Thursday's meeting of the Special Group. Mr. McCone was asked to stress economic sabotage, and to emphasize measures to foment a Castro-oldline Communist split. It was emphasized that any actions under this plan must be so designed as to avoid major attribution to the U.S.
 
 7. General Lemnitzer told the Group that the Navy does not wish Guantanamo used as a base for operational activities, as suggested by CIA. He said that the other Chiefs have not yet given an opinion on this but he thought that they would agree with the Navy, as he himself does. The view is that this base is too important to the U.S. and too vulnerable to Cuban pressure to take the chance of provoking Cuban reaction. The State representatives agreed with this view.
 

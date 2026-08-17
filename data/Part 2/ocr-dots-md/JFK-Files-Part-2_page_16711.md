@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16711.png
-
-Convert to MarkdownThe following bullets and bullet fragments found by Laboratory representatives at the scene are caliber .30 carbine:
+The following bullets and bullet fragments found by Laboratory representatives at the scene are caliber .30 carbine:
 
 Specimen Q11 - From behind hole Number 6 in the south wall of the front bedroom.
 

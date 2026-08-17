@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29282.png
-
-Convert to MarkdownINS File Reviews...page 10
+INS File Reviews...page 10
 
 I. Luis Eusebio Balbueka-Calzadillo File #A12 854 523
 

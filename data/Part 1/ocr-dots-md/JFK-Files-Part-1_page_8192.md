@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8192.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE: 123 MAR 03</td>
     <td>CLASSIFIED MESSAGE</td>

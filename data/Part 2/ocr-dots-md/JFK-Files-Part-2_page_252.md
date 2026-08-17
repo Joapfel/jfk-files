@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_252.png
-
-Convert to MarkdownIN 42076 PAGE 2
+IN 42076 PAGE 2
 
 CLASSIFIED MESSAGE
 

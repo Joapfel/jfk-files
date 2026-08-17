@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12473.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">ORIG<br/>LIT.<br/>DATE</td>
     <td colspan="3">ERIC ISENSTEAD</td>

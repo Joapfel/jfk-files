@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25567.png
-
-Convert to MarkdownSECRET
+SECRET
 
 undoubtedly wish to reward his long years of loyal service with a generous termination payment. He has earned it, and only termination for cause per paragraph 10 (b) of his contract would prevent him from receiving it.
 

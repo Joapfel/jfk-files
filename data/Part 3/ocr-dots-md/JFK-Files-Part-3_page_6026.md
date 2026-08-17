@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6026.png
-
-Convert to MarkdownMemo to Mr. Belmont from A. Rosen
+Memo to Mr. Belmont from A. Rosen
 Re: Hunter Pitts O'Dell
 
 By way of background, Marshall indicated that the basis for his request stems from the necessity of having to talk with Rev. Martin Luther King with reference to O'Dell. He stated that an inquiry has been received from King about O'Dell and apparently the Department wants to be able to adequately handle this inquiry.

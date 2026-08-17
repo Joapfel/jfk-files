@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14522.png
-
-Convert to MarkdownSECRET
+SECRET
 
 cc - Boardman
 - Belmont

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15878.png
-
-Convert to MarkdownO'Neal, William Mc Kinley
+O'Neal, William Mc Kinley
 
 Arrested: 11/30/68
 Charge: Unlawful Use of Weapons

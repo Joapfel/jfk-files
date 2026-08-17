@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16549.png
-
-Convert to Markdown1. A Certificate of Proficiency issued at Fort Campbell, Kentucky, identifying HOLT as a Heating Equipment Operator.
+1. A Certificate of Proficiency issued at Fort Campbell, Kentucky, identifying HOLT as a Heating Equipment Operator.
 
 2. Auto insurance identification card issued by Parliment Insurance Company, Chicago, Illinois, telephone LO 1-6460.
 

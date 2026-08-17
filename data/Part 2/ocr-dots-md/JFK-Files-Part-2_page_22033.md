@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22033.png
-
-Convert to MarkdownNO OBLIGATION
+NO OBLIGATION
 NATIONAL SECURITY COUNCIL
 
 2/23/94

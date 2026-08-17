@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24837.png
-
-Convert to MarkdownU.S. policy. (Santiago 469, October 5; Santiago 473, October 6)
+U.S. policy. (Santiago 469, October 5; Santiago 473, October 6)
 
 Three days later the Chief of Station told General Huerta, Commander of the Carabineros that "the U.S. Government favors a military solution and is willing to support it in any manner short of outright military intervention." (Task Force Log, 9 October) General Huerta informed the COS that there was no chance of a coup by the Chilean Army high command. (Task Force Log, 10 October)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10765.png
-
-Convert to MarkdownMemo for Mr. Tolson
+Memo for Mr. Tolson
 
 Re: Personnel Transfers to Effect Proposed
 Reassignment of Supervisory Responsibilities

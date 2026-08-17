@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23518.png
-
-Convert to Markdown<table><thead><tr><th></th><th>ROUTING</th></tr></thead><tbody><tr><td>1</td><td></td></tr><tr><td>2</td><td></td></tr><tr><td>3</td><td></td></tr><tr><td>4</td><td></td></tr><tr><td>5</td><td></td></tr><tr><td>6</td><td></td></tr><tr><td>7</td><td></td></tr><tr><td>8</td><td></td></tr></tbody></table>
+<table><thead><tr><th></th><th>ROUTING</th></tr></thead><tbody><tr><td>1</td><td></td></tr><tr><td>2</td><td></td></tr><tr><td>3</td><td></td></tr><tr><td>4</td><td></td></tr><tr><td>5</td><td></td></tr><tr><td>6</td><td></td></tr><tr><td>7</td><td></td></tr><tr><td>8</td><td></td></tr></tbody></table>
 
 <table><tr><td>FORM NO. 35-83<br/>NOV 17 1971</td><td>CLASSIFIED MESSAGE<br/>CENTRAL INTELLIGENCE AGENCY</td><td></td></tr><tr><td colspan="2">SECURITY INFORMATION</td><td>IN 31520</td></tr><tr><td>28 AUG 52</td><td></td><td></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6228.png
-
-Convert to MarkdownMAR 31 '97 12:09PM
+MAR 31 '97 12:09PM
 
 a. The 5 March 1967 issue of _Il Messaggero_ links SHAW with the World Trade Center. Others linked to the center were traced, with results reported in this memorandum. No relationship to the Garrison investigation appears here. A report on "Fermidex", a Swiss corporation with principal offices in Rome, is also in the file because the World Trade Center and Fermidex are associated. Again, there is no information here which relates significantly to the case. Garrison is trying to build in New Orleans.
 

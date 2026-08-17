@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32778.png
-
-Convert to MarkdownMr. Bundy said that he had no worries about any such sabotage which could clearly be made to appear as the result of local Cuban disaffection or of local Cubans avoiding external activities such as
+Mr. Bundy said that he had no worries about any such sabotage which could clearly be made to appear as the result of local Cuban disaffection or of local Cubans avoiding external activities such as
 
 but that we must
 

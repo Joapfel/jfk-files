@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1730.png
-
-Convert to Markdownthe friendship of peoples of the Near and Middle East toward the United States and to combat Communism. It was incorporated as a voluntary, non-profit membership corporation under the laws of New York State. Dorothy THOMPSON, columnist, was selected as Chairman. In early 1967 AFME received a good deal of newspaper publicity concerning its Agency affiliation including articles in the Soviet press, TASS and USR INTERNATIONAL AFFAIRS. Syria was the only country in which AFME is active that rejected the question of the organization's continue & existence in the light of allegations of Agency financial support; although, there were ramblings in Iraq.
+the friendship of peoples of the Near and Middle East toward the United States and to combat Communism. It was incorporated as a voluntary, non-profit membership corporation under the laws of New York State. Dorothy THOMPSON, columnist, was selected as Chairman. In early 1967 AFME received a good deal of newspaper publicity concerning its Agency affiliation including articles in the Soviet press, TASS and USR INTERNATIONAL AFFAIRS. Syria was the only country in which AFME is active that rejected the question of the organization's continue & existence in the light of allegations of Agency financial support; although, there were ramblings in Iraq.
 
 ### San Jacinto Fund
 

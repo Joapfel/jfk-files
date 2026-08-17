@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23821.png
-
-Convert to Markdown1. TOP SECRET
+1. TOP SECRET
 
 2. has brought some thousands of letters from the constituency of
 certain southern Senators who shall remain unnamed or near-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16364.png
-
-Convert to Markdown5. WE WANT EDUCATION FOR OUR PEOPLE THAT EXPOSES THE TRUE NATURE OF THIS DECADENT AMERICAN SOCIETY. WE WANT EDUCATION THAT TEACHES US OUR TRUE HISTORY AND OUR ROLE IN THIS PRESENT DAY SOCIETY.
+5. WE WANT EDUCATION FOR OUR PEOPLE THAT EXPOSES THE TRUE NATURE OF THIS DECADENT AMERICAN SOCIETY. WE WANT EDUCATION THAT TEACHES US OUR TRUE HISTORY AND OUR ROLE IN THIS PRESENT DAY SOCIETY.
 
 We believe in an educational system that will give to our people a knowledge of self. If a man does not have knowledge of himself and his position in society and the world, then he has little chance to relate to anything else.
 

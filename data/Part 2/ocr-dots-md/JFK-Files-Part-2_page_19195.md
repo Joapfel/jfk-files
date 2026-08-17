@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19195.png
-
-Convert to MarkdownWFO 100-47173
+WFO 100-47173
 
 contained in the LHM has been telephonically furnished to Secret Service, U.S. Capitol Police and other local law enforcement agencies. WFO has alerted all sources to be alert for information concerning the above demonstration.
 

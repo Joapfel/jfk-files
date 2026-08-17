@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32696.png
-
-Convert to MarkdownMarch 27, 1963
+March 27, 1963
 
 # MEMORANDUM FOR THE GENERAL COUNSEL OF THE DEPARTMENT OF DEFENSE
 

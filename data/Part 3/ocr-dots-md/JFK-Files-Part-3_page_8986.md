@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8986.png
-
-Convert to Markdown(2) When the Committee contacts a witness, it will explain
+(2) When the Committee contacts a witness, it will explain
 the security and other arrangements between the Committee and
 the agency, as well as these ground rules. If the witness wishes
 to consult with the agency prior to his appearance, the Committee

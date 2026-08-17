@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1464.png
-
-Convert to MarkdownSECRET
+SECRET
 
 University as students for the current academic year. He has handled them well and has done his best to maintain their morale in spite of the fact that there were only a few specific targets on whom they could systematically work.
 

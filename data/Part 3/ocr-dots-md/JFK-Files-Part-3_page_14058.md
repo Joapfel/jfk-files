@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14058.png
-
-Convert to Markdownscattered out over the island of Cuba and the greatest concentrations are the
+scattered out over the island of Cuba and the greatest concentrations are the
 2,500 to 4,000 Soviet personnel in the 4 major Soviet armored camps. In answer
 to Dr. Langer's question as to what the 2,500 to 4,000 personnel are doing, Mr.
 Clark stated that their main mission was probably the furnishing of training

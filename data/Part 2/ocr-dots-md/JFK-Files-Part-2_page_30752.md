@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30752.png
-
-Convert to Markdown11.111.453
+11.111.453
 
 ③ Volume II. August 1976 - October 1976
 Third Agency Detention - 10 Sealed enveloper, State & FBI No. notes.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25717.png
-
-Convert to MarkdownThis much can be verified.
+This much can be verified.
 
 1. President Kennedy was dispirited with the after the Bay of Pigs, that he swore in, would like "to split up" In a thousand places. He called it to the world, ordered a thousand of the men by a green General. Maxwell said President's ready, his better, up calling the new CIA.
 

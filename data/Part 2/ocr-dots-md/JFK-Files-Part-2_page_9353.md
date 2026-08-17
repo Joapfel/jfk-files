@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9353.png
-
-Convert to MarkdownTHE RULES ARE:
+THE RULES ARE:
 
 19. Only office personnel assigned to respective offices each day should be there. All others are to sell papers and do Political work out in the community, including Captains, section Leaders, etc.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15320.png
-
-Convert to Markdown3. David's father needed money for his inventions. David gave him 100,000 D. through a third person, his father not knowing from whom the money came. This was before David's "journey to Brazil."
+3. David's father needed money for his inventions. David gave him 100,000 D. through a third person, his father not knowing from whom the money came. This was before David's "journey to Brazil."
 
 4. David had plenty of money, mostly earned by selling coffee on black market. Once he has bought in Berlin for ten kg coffee a car, an Opel.
 

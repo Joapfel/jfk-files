@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28733.png
-
-Convert to MarkdownDispositions:
+Dispositions:
 
 Alphonse Indelicato for the crime of perjury in the first degree.
 

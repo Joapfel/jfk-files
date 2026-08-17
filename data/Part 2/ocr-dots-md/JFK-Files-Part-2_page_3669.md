@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3669.png
-
-Convert to Markdown6. Cambodia
+6. Cambodia
 
 a. Sihanouk has signed an accord setting up regular air service between Cambodia and Communist China. A similar agreement with Hanoi is in the works.
 

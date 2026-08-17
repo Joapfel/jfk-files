@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29780.png
-
-Convert to Markdown# MEXICO CITY -- CIA
+# MEXICO CITY -- CIA
 
 A review of notes taken from interviews with David Phillips indicates that there are several areas which our witness may be questioned about.
 

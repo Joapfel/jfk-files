@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23109.png
-
-Convert to MarkdownDr. P. C. Redlich
+Dr. P. C. Redlich
 
 The Social Psychology Department is not a laboratory on social sciences; it is not a Sociology Department, and if you will, it is not ruled by a Psycholegised concept of Sociology.
 

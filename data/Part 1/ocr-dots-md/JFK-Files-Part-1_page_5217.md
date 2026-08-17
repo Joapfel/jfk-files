@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5217.png
-
-Convert to MarkdownXXXXX ZEA
+XXXXX ZEA
 
 SECRET TOG 061788Z
 PRITY VA CITE NYOR 9918

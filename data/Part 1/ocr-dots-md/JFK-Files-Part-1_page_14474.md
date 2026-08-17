@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14474.png
-
-Convert to MarkdownA. RUIZ had been exiled in the US since Cuba - in the 1950s. (He was in his mid 20s at the time).
+A. RUIZ had been exiled in the US since Cuba - in the 1950s. (He was in his mid 20s at the time).
 
 B. He had information that RUIZ had worked for SWIRO in his store as aklitchag in the 1950s and that they had establi shed a close personal friendship apart from the normal business relationship.
 

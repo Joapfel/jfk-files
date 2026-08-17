@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26025.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 082235Z JAN 70 CITE CARACAS 4249
 

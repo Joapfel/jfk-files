@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27328.png
-
-Convert to MarkdownAA - Memo for CIA Member - 24 Feb 72
+AA - Memo for CIA Member - 24 Feb 72
 
 CONFIDENTIAL
 

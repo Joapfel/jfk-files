@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31354.png
-
-Convert to MarkdownAddress any reply to: P.O. Box 926, Atlanta, Ga. 30301
+Address any reply to: P.O. Box 926, Atlanta, Ga. 30301
 US Treasurer Department
 
 (Regional Commissioner)

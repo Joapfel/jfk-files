@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13958.png
-
-Convert to Markdown9. Copies of a memorandum which set forth the action items resulting from the Policy Steering Group session of last week were provided to the Ad Hoc members for their information.
+9. Copies of a memorandum which set forth the action items resulting from the Policy Steering Group session of last week were provided to the Ad Hoc members for their information.
 
 10. Mr. Elder reported that the House Committee has indicated to CIA its intent to concentrate on specific issues, but as of now are not adequately organized to be specific in their requests. The one extant request forwarded to the CIA was posing some problems because of the lack of cleared personnel, approved storage facilities, and determinations on the ultimate disposition of records. The Chairman noted that concurrent with this meeting, a meeting of Community legal representatives was taking place with the purpose of commenting on the House Select Committee's proposed security regulations which have not yet been adopted.
 

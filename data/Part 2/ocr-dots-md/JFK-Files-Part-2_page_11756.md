@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11756.png
-
-Convert to Markdown# PART II
+# PART II
 
 6C - D
 

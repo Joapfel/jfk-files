@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35.png
-
-Convert to Markdown13-00000
+13-00000
 
 Jewinor warriored on alamih urdeing an earl in
 nepitish.

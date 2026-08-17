@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9600.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 that arrangements had been made for the group he contacted at Las Vegas to join the SAO. He further advised that arrangements had been made to get insignia patches from CY ANDERSON for the berets that SAO members would be given to wear.
 

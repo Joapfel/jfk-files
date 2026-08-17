@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9280.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1 - MIG, Detroit (MR)
 

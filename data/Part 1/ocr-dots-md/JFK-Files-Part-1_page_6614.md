@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6614.png
-
-Convert to Markdownold farmer who was imprisoned a year before because he had not been able to meet his quota. He was speechless with fright and despair. When he was finally convinced that he was a free man, he broke down and wept, overcome with joy. I had to carry him away."
+old farmer who was imprisoned a year before because he had not been able to meet his quota. He was speechless with fright and despair. When he was finally convinced that he was a free man, he broke down and wept, overcome with joy. I had to carry him away."
 
 ## Prisoners Are Freed...
 

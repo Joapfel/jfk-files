@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_824.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION</td><td>DIPATON SUMMARY AND NUMBER</td></tr><tr><td></td><td>SECRET</td><td>U. S. A. - 12894</td></tr></table>
 

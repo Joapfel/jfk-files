@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24138.png
-
-Convert to Markdown# Single Entities
+# Single Entities
 
 ## 17. TOMOSAIC
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32573.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 (3) What techniques are available to meet this require-

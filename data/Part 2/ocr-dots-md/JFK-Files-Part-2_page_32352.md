@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32352.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Control of Travel to and from Cuba
 Central Intelligence Agency

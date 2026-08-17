@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6950.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-A-L
+C-O-N-F-I-D-E-N-T-I-A-L
 When Filled In
 
 5-763 1975

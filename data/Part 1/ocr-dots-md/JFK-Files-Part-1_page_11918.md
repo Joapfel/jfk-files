@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11918.png
-
-Convert to MarkdownLITIGATION
+LITIGATION
 
 FOR CIA OFFICIALS ONLY
 

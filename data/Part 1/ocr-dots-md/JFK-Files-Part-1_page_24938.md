@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24938.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>RM NO.<br/>AUG 54 101</td></tr></table>
 

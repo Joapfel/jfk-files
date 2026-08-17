@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7690.png
-
-Convert to Markdown5. (Llc.) Jacobo *CHENCINSKY, director of the Instituto de Interpretaciones Traductores, located at Tiber 113.*
+5. (Llc.) Jacobo *CHENCINSKY, director of the Instituto de Interpretaciones Traductores, located at Tiber 113.*
 
 Subject's pr contact with CHENCINSKY has presumably been connected with Subject's taking English at the Instituto. On 24 Mar 1966 CHENCINSKY tried unsuccessfully to reach Subject. On 4 Jul 1966 CHENCINSKY told Subject that Janet (LNU, apparently Subject's teacher) had been unable to fix her working papers and had had to leave Mexico and asked if Subject's classes could be postponed. Subject agreed and said he would like to talk to CHENCINSKY. (1).
 

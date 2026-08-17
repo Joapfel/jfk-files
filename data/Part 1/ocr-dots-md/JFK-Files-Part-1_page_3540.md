@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3540.png
-
-Convert to Markdownindependence of the American Hemisphere, for the survival of Chris-
+independence of the American Hemisphere, for the survival of Chris-
 tian principles in America, for the Western world. . . the rest of
 the Western World." A-1 maintains that the situation today is much
 the way Lenin would have hoped for. Britain and France have recog-

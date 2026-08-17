@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29527.png
-
-Convert to Markdown12 May 1961
+12 May 1961
 
 REORDER FROM: Chief, Western Hemisphere Division
 

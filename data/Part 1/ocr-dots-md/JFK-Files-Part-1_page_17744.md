@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17744.png
-
-Convert to Markdown17-
+17-
 
 Salida ocupada.- 27h-
 

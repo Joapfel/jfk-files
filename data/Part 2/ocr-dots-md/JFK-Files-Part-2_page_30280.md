@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30280.png
-
-Convert to Markdownwhich told -- Number 8 -- what date he came to the Soviet Union.
+which told -- Number 8 -- what date he came to the Soviet Union.
 
 Is that still there?
 

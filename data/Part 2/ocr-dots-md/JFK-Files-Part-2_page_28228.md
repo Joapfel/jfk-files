@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28228.png
-
-Convert to MarkdownNW 88326
+NW 88326
 DocId:32243285 Page 5
 
 Wage and Tax Statement 1977

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13926.png
-
-Convert to Markdownto the crossroads of NSA activity against Soviet SIGINT. Also Dr. Baker said that the DCI's comments on CIA's WALNUT data system were exaggerated, for in fact the project has proved to be a useless disaster to say the least, and it is certainly not a "leading edge" to automation as the DCI had claimed. Dr. Baker and Mr. Coyne had recently received word on the inadequacy of the WALNUT system from Mr. Griffith of IBM, privately.
+to the crossroads of NSA activity against Soviet SIGINT. Also Dr. Baker said that the DCI's comments on CIA's WALNUT data system were exaggerated, for in fact the project has proved to be a useless disaster to say the least, and it is certainly not a "leading edge" to automation as the DCI had claimed. Dr. Baker and Mr. Coyne had recently received word on the inadequacy of the WALNUT system from Mr. Griffith of IBM, privately.
 
 Chairman Clifford agreed with Mr. Coyne's suggestion that at the next Board meeting the DCI be asked to report on the status of coordinated effort in the intelligence community with a view to achieving a data processing capability in the intelligence field.
 

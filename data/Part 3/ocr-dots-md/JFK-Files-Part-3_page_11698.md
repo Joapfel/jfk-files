@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11698.png
-
-Convert to MarkdownBOCOV
+BOCOV
 
 Bocov is a code word which concerns a highly
 sensitive intelligence operation of this Bureau which was in

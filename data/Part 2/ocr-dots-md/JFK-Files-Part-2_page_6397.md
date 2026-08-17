@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6397.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 25 July 1997
 

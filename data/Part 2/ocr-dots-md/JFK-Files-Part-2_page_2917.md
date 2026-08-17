@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2917.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 covert activity which, because of its impact, could, if exposed,
 reflect on the official position of the United States. Thus, a

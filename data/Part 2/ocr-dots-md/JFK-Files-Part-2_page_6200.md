@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6200.png
-
-Convert to Markdown# Information Management Goals
+# Information Management Goals
 
 An effective and efficient information management
 ensures that records are available:

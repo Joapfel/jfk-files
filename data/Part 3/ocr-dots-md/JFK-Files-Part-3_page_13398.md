@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13398.png
-
-Convert to MarkdownORIGINAL
+ORIGINAL
 
 Vol. 17
 

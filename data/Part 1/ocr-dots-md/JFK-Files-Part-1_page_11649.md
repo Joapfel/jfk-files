@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11649.png
-
-Convert to MarkdownTo be continued
+To be continued
 
 Future: It is desired to retain this apartment as long as
 required in order to provide a safe meeting place

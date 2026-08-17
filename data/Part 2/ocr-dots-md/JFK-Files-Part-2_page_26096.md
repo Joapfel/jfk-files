@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26096.png
-
-Convert to Markdownthat it was an NSC [National Security Council] meeting, but it was comparable to that with the personnel that were attending. There were several Secretaries: Defense, State, and his National Security people were there.
+that it was an NSC [National Security Council] meeting, but it was comparable to that with the personnel that were attending. There were several Secretaries: Defense, State, and his National Security people were there.
 
 O'Brien: Could a President be made for this meeting with McNamara and Roswell Scott?
 

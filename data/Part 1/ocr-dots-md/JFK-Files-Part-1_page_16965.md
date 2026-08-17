@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16965.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td></tr></table>
 
 b) Prior to GENERAL'S departure, he was seen by the undersigned, Mr. D. R. Stockton, in regular, operational action on May 23d. After that date, Mr. Stockton was sent on to Mexico and served there as a photo-lab/photography supervisor until September 19th, when he was again sent back to Mexico and sent to his former post as a house keeper and with the LIMERICK operator twice weekly. All acting times and sites were rotated regularly during the period under review, and no basic departures (other than noted above) were made from the standard modes of operation of the LIEMTTY project.
 

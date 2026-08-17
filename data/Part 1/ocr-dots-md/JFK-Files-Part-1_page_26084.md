@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26084.png
-
-Convert to Markdown14-00000
+14-00000
 
 CEN C. W. COX
 UNIV WV/3/V

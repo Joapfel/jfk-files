@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23645.png
-
-Convert to MarkdownI say while the responsibility for directing tactical military operations resides with whoever it is, the DCI still shall have the review.
+I say while the responsibility for directing tactical military operations resides with whoever it is, the DCI still shall have the review.
 
 Mr. Davis. Well, review is, I think, the right word because he's going to try to look at the whole.
 

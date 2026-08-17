@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9438.png
-
-Convert to MarkdownIf you put one in the chamber that means 14 shots available. If you're up against someone with a 6 shot revolver, they will have to reload 2 times and you've still got two shots left. You can also purchase a 21 shot magazine. That's a lot of fire power for a handgun.
+If you put one in the chamber that means 14 shots available. If you're up against someone with a 6 shot revolver, they will have to reload 2 times and you've still got two shots left. You can also purchase a 21 shot magazine. That's a lot of fire power for a handgun.
 
 Even if you have the finest self-d Determination weapons they are no better than clubs if you don't know how to use them. By the token if you practice, it is possible to get enough to kill elephants with a .2 However with enough practice with the right mentioned weapons and being armed ideologically with the invincible thought of the Black Panther Party, it is possible like the Panthers who were attacked in Los Angeles in December to be a match for one hundred
 

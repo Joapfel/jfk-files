@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25910.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: FRITZ AND BILL
 FROM: MIKE EPSTEIN

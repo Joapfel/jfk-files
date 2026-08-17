@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18357.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>Executive Registry</td></tr><tr><td>C-10337</td></tr></table>
 

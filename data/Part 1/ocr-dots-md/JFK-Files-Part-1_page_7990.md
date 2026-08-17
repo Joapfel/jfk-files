@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7990.png
-
-Convert to MarkdownCONFIDENTIAL.
+CONFIDENTIAL.
 
 COUNTRY REPORT NO. 178-154
 SUBJECT Nielson Daniel RIVAS Y Caneo DATE OF REPORT 20 August 1957

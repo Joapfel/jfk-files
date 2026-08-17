@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5683.png
-
-Convert to MarkdownC-O-F-I-D-E-T-1-4-2
+C-O-F-I-D-E-T-1-4-2
 (Versu Page 1)
 
 F-14-12-37

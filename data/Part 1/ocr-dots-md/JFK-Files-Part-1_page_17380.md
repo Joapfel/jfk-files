@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17380.png
-
-Convert to Markdown<table><tr><td>DATE</td><td>: 00: JO<br/>29 SEP 62</td></tr><tr><td>TO</td><td>:</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>:</td><td>MEXICO CITY</td></tr><tr><td>ACTION:</td><td>:</td><td>C/WH 5</td></tr><tr><td>INFO</td><td>:</td><td>ADDP, C/C1, C/CCG 2, C/F1 2, C/WE 2, C/FE 6, S/C 2</td></tr></table>
+<table><tr><td>DATE</td><td>: 00: JO<br/>29 SEP 62</td></tr><tr><td>TO</td><td>:</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>:</td><td>MEXICO CITY</td></tr><tr><td>ACTION:</td><td>:</td><td>C/WH 5</td></tr><tr><td>INFO</td><td>:</td><td>ADDP, C/C1, C/CCG 2, C/F1 2, C/WE 2, C/FE 6, S/C 2</td></tr></table>
 
 CLASSIFIED MESSAGE
 

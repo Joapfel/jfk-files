@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20032.png
-
-Convert to MarkdownSECTION C
+SECTION C
 
 NULLIATIVE COMMENTS
 

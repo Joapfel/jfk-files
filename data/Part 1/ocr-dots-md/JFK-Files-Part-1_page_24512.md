@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24512.png
-
-Convert to MarkdownPág. 8 — VII EPOCA
+Pág. 8 — VII EPOCA
 
 DARLING POPULAR PARA TODOS EL PERU
 

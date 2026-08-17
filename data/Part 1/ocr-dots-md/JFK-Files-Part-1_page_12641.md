@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12641.png
-
-Convert to Markdown<table><thead><tr><td colspan="4">7-71 Mfg. To/75</td></tr><tr><td>CABLE SEC DIGITERN BY: 35 PER LAPPH</td><td>TOTAL COPY: 9P.2</td><td>RUN BY:</td><td></td></tr><tr><td>PERSON UNIT NOTIFIED</td><td colspan="3">SECRET</td></tr><tr><td colspan="4">ADVANCE COPY ISSUED SLOTTED BY AT 2</td></tr><tr><th>ACTION UNIT<br/>C/LAIS</th><th>IN<br/>F<br/>O</th><th>FILE VR closing, D/SECUR, cl/STUD</th><th>STAFF PRECEDENCE</th></tr></thead><tbody><tr><td></td><td></td><td>/LAP may f/c 10/12/76 000, loading c/drive 2.</td><td>1 A</td></tr><tr><td></td><td></td><td>/LAP may f/c 10/EG 2 closing c/s3</td><td>2 S</td></tr><tr><td></td><td></td><td></td><td>3 G</td></tr></tbody></table>
+<table><thead><tr><td colspan="4">7-71 Mfg. To/75</td></tr><tr><td>CABLE SEC DIGITERN BY: 35 PER LAPPH</td><td>TOTAL COPY: 9P.2</td><td>RUN BY:</td><td></td></tr><tr><td>PERSON UNIT NOTIFIED</td><td colspan="3">SECRET</td></tr><tr><td colspan="4">ADVANCE COPY ISSUED SLOTTED BY AT 2</td></tr><tr><th>ACTION UNIT<br/>C/LAIS</th><th>IN<br/>F<br/>O</th><th>FILE VR closing, D/SECUR, cl/STUD</th><th>STAFF PRECEDENCE</th></tr></thead><tbody><tr><td></td><td></td><td>/LAP may f/c 10/12/76 000, loading c/drive 2.</td><td>1 A</td></tr><tr><td></td><td></td><td>/LAP may f/c 10/EG 2 closing c/s3</td><td>2 S</td></tr><tr><td></td><td></td><td></td><td>3 G</td></tr></tbody></table>
 
 T 719245
 

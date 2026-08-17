@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13489.png
-
-Convert to Markdown1 Goodpasture, and I am able to say to you that neither of us,
+1 Goodpasture, and I am able to say to you that neither of us,
 2 now back to assassination, remembers anything coming to the
 3 White House, and I cannot believe that anything could get to
 4 the President without going through one of us.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17539.png
-
-Convert to Markdown12 June 1961
+12 June 1961
 
 PROJECT LIFMAT
 PROJECT OUTLINE, PART I

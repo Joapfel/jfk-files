@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31395.png
-
-Convert to MarkdownReviewed By AFOSI
+Reviewed By AFOSI
 For Public Disclosure
 In Accordance With
 

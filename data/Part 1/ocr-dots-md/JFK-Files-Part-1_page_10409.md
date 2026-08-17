@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10409.png
-
-Convert to MarkdownSECRET
+SECRET
 
 VIA AIR MAIL
 BLANCA PENA

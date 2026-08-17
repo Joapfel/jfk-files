@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6444.png
-
-Convert to Markdown13-00000
+13-00000
 
 THE JOINT CHIEFS OF STAFF
 WASHINGTON 83, D.C.

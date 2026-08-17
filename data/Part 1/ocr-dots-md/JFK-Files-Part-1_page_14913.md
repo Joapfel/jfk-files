@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14913.png
-
-Convert to Markdown<table><thead><tr><th>TO</th><th>Chief, SR<br>EE: WE; Paris; CCS, Germany</th></tr></thead><tbody><tr><td>FROM</td><td>Chief of Base, Frankfurt</td></tr><tr><td>PURCHASE</td><td>REDWOOD/REDSON/ARACRE<br>Subject of ALFA-22041</td></tr><tr><td>ACTION REQUIRED</td><td>Please give us instructions on what is to be done with this contact-henceforth.</td></tr><tr><td>REFERRAL</td><td>DIR 44873, 10 October 1958</td></tr></tbody></table>
+<table><thead><tr><th>TO</th><th>Chief, SR<br>EE: WE; Paris; CCS, Germany</th></tr></thead><tbody><tr><td>FROM</td><td>Chief of Base, Frankfurt</td></tr><tr><td>PURCHASE</td><td>REDWOOD/REDSON/ARACRE<br>Subject of ALFA-22041</td></tr><tr><td>ACTION REQUIRED</td><td>Please give us instructions on what is to be done with this contact-henceforth.</td></tr><tr><td>REFERRAL</td><td>DIR 44873, 10 October 1958</td></tr></tbody></table>
 
 1. Approval to contact and assess Subject was given in reference which also approved our proposal that Peter K. Winship accompany Newens and the undersigned on this job in order that he would be able to carry to Headquarters his personal impressions of Subject.
 

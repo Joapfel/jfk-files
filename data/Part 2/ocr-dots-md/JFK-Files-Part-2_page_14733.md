@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14733.png
-
-Convert to Markdown# S C REQUEST
+# S C REQUEST
 
 ## PART II
 

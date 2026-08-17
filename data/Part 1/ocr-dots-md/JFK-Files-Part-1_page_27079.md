@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27079.png
-
-Convert to Markdownsigned statement setting forth the information disclosed during the pre-test interrogation, and this information is given in substance above.
+signed statement setting forth the information disclosed during the pre-test interrogation, and this information is given in substance above.
 
 OGI Headquarter's files contain a letter dated 14 June 1963, which is a report of the Record of Action of the Military Personnel Security Committee in the case of SUBJECT. The body of this letter is given in the following two paragraphs:
 

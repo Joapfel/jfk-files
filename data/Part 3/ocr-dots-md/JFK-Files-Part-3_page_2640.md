@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2640.png
-
-Convert to Markdown2484
+2484
 
 1 staff, to your knowledge?
 

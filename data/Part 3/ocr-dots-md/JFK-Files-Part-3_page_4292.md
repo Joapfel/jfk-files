@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4292.png
-
-Convert to MarkdownSECRET
+SECRET
 
 UNION STATES DEPARTMENT OF JUSTICE
 

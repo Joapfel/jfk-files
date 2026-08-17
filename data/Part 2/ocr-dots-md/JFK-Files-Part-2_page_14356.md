@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14356.png
-
-Convert to MarkdownBU 157-1681
+BU 157-1681
 
 Section 1202(a)(1), USC and Title 18, Section 922(a)(6) and Section 924(a), USC (State Firearms Control Assistance Act). Bond recommended by AUSA, Pittsburgh was $35,000 cash or surety.
 

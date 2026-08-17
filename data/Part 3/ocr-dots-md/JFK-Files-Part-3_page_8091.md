@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8091.png
-
-Convert to Markdowne. "An organization chart of the Internal Security Division before its 1970 reorganization, after its 1970 reorganization, and after its 1973 merger with the Criminal Division.
+e. "An organization chart of the Internal Security Division before its 1970 reorganization, after its 1970 reorganization, and after its 1973 merger with the Criminal Division.
 
 f. "A copy of the analysis of grand juries convened and prosecutions commenced by the Special Litigation Section which we understand was furnished to the Senate Subcommittee on Constitutional Amendments on May 8, 1974."
 

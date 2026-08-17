@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26009.png
-
-Convert to Markdownstructure considerably for the lowest class
+structure considerably for the lowest class
 in Bolivia, and with the armed forces doing
 it. This, again, was the very first visit.
 

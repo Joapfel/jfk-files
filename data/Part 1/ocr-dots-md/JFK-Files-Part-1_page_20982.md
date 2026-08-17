@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20982.png
-
-Convert to Markdown14-0000
+14-0000
 
 CONF: IP/DP-11 INFO: FILE, RF, (13/P)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11211.png
-
-Convert to Markdown(1) Handwriting specimens
+(1) Handwriting specimens
 
 I. If, during the investigation of security matter cases, it is disclosed that samples of the subject's handwriting are readily available, obtain specimens for possible future use and maintain in the file in the field.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34900.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">MINISTERIO DE JUSTICIA<br>REGISTRO DEL ESTADO CIVIL</td>
         <td colspan="3">CERTIFICACION DEL ESTADO CIVIL<br>SOLICITUD NO. 03534.-Legalizada.-</td>

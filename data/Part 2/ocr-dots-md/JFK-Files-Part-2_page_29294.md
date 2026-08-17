@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29294.png
-
-Convert to Markdown# FACT SHEET ON APRIL 12 REQUESTS CONCERNING LEE HARVEY OSWALD
+# FACT SHEET ON APRIL 12 REQUESTS CONCERNING LEE HARVEY OSWALD
 
 The following information has been provided by the Naval
 Investigative Service and responds to those portions of the April 12,

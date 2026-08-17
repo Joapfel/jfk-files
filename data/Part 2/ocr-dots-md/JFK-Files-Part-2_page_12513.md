@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12513.png
-
-Convert to Markdown6. Accuracy of characterizations
+6. Accuracy of characterizations
 Assure that statements relating to characterizations of an individual or organization, or relating to affiliations with or membership in any organization, are founded on firm bases. Identify sources for such characterizations or statements of affiliation or membership if such characterizations, affiliations or memberships are not commonly and publicly known.
 
 7. Investigations and contacts with individuals connected with institutions of learning

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_829.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Issued To)
 
 <table><thead><tr><th colspan="13">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td>JFC:7 JULY 59</td><td colspan="2"></td><td colspan="4"></td><td colspan="4"></td><td colspan="3"></td><td colspan="3"></td></tr><tr><th>1. Serial No.</th><th>2. Name (Last-Firm-Middle)</th><th>3. Date Of Birth</th><th>4. Vär. Přel.</th><th>5. Sex</th><th>6. CS: EOD</th><th></th><th></th><th></th><th></th><th></th><th></th><th></th><th></th><th></th><th></th></tr></thead><tbody><tr><td>517978</td><td>FOX JEROME</td><td>Mo. 10 Da. 09 Yr. 28</td><td>Nona-0<br>5 Pr.1<br>10 Pr.2</td><td>Code 1</td><td>M 1</td><td>Mo. 06 Da. 15 Yr. 55</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th>7. SCD</th><th>8. CSC Kotmt.</th><th>9. CSC Or Other Legal Authority</th><td>10. Apm. Allivav.</td><td>11. FEGLI</td><td>12. LCD</td><td>13. 3rd Inf./CO</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><th>Mo. 04</th><th>Da. 16</th><th>Yr. 58</th><th>Yes-1 No.-2</th><th>Code 1</th><th>Mo. 06</th><th>Da. 15</th><th>Yr. 55</th><th>Yes-1 No.-2</th><th>Code 2</th><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

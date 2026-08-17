@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4028.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 II
 ANALYSIS OF THE MARKET

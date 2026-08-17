@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7179.png
-
-Convert to MarkdownState or Federal statute by any intelligence agency or by any person by or on behalf of any intelligence agency of the Federal Government including but not limited to surreptitious entries, surveillance, wiretaps, or eavesdropping, illegal opening of the United States mail, or the monitoring of the United States mail.
+State or Federal statute by any intelligence agency or by any person by or on behalf of any intelligence agency of the Federal Government including but not limited to surreptitious entries, surveillance, wiretaps, or eavesdropping, illegal opening of the United States mail, or the monitoring of the United States mail.
 
 (11) The need for improved, strengthened, or consolidated oversight of United States intelligence activities by the Congress.
 

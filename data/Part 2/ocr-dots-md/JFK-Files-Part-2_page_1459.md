@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1459.png
-
-Convert to Markdown5. Mr. Wheeler is effective in dealing with other elements of the Agency; he writes exceptionally well, has many useful ideas, and is most cooperative. His vast first-hand knowledge of operational problems permits realistic appraisal of operating plans and proposals. In summary, Mr. Wheeler has made a definite contribution during his eight months in this Office; and we expect this contribution to continue in importance.
+5. Mr. Wheeler is effective in dealing with other elements of the Agency; he writes exceptionally well, has many useful ideas, and is most cooperative. His vast first-hand knowledge of operational problems permits realistic appraisal of operating plans and proposals. In summary, Mr. Wheeler has made a definite contribution during his eight months in this Office; and we expect this contribution to continue in importance.
 
 6. I rate Mr. Wheeler's overall performance during the period as **Strong**.
 

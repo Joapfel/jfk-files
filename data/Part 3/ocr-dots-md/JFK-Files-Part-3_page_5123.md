@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5123.png
-
-Convert to Markdown**STATUTES**
+**STATUTES**
 
 Title 18, USC, §§ 953, 2383-2385, 2387-2390, (formerly §§ 4-11, 13, Title 18, and §§ 33-35, 37, Title 50, USC), effective 9-1-48. Violations occurring prior to 9-1-48 should be considered under former code sections.
 [ Sections 2384 and 2385 were amended 7-24-56 to increase maximum penalties (Public Law 766).

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11651.png
-
-Convert to MarkdownTCS-A-1235 continued
+TCS-A-1235 continued
 KAPOK
 
 Use continued

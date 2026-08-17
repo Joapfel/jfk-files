@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3609.png
-
-Convert to Markdown1. North Vietnam - South Vietnam
+1. North Vietnam - South Vietnam
 
 a. North Vietnamese leaders are pressing their campaign for neutralization of South Vietnam.
 

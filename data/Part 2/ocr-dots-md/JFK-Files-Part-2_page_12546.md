@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12546.png
-
-Convert to MarkdownFD-165 should be submitted every two years as long as subject remains on ADEX and no fingerprint record has been located. These submissions should be timed to coincide with biennial review of case.
+FD-165 should be submitted every two years as long as subject remains on ADEX and no fingerprint record has been located. These submissions should be timed to coincide with biennial review of case.
 
 4. Format of ADEX card
 

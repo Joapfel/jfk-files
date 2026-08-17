@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8289.png
-
-Convert to Markdown13-00000
+13-00000
 
 Anti-Communist International
 U.S.A. OFFICE: 2188 BROADWAY • NEW YORK

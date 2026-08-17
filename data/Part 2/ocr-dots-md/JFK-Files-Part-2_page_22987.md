@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22987.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 you going to get across the guard force that is around a
 2 refinery One of the questions you have, cf course, is if you

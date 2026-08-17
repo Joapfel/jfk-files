@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2913.png
-
-Convert to Markdown13-00000
+13-00000
 
 government privy to all the studies of the Bay of Pigs operation,
 including the Taylor report, Robert Kennedy's personal report, the

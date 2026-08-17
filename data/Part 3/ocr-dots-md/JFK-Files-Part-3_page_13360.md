@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13360.png
-
-Convert to MarkdownSTURGIS: Yes, sir. They were very hostile to him because he took away their livelihood.
+STURGIS: Yes, sir. They were very hostile to him because he took away their livelihood.
 
 OLSEN: And they then supported the anti-Castro movement in south Florida and they strongly supported the attempt to overthrow Castro that was involved in the Bay of Pigs operation?
 

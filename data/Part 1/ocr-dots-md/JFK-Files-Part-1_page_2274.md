@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2274.png
-
-Convert to MarkdownWhit Moore Bishop
+Whit Moore Bishop
 056446
 
 DOB : 24 September 1915

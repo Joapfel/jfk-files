@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27614.png
-
-Convert to MarkdownGPO : 1972 O - 453-449
+GPO : 1972 O - 453-449
 
 Nw 88326
 DocId:32239461 Page 37

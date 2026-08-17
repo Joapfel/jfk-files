@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23939.png
-
-Convert to Markdowncable advising that the pistols were being pouched is the very cable which was sent in response to a request by the dissidents for machine guns to be used in an assassination effort which had been previously described to Headquarters. As with the carbines discussed below, it appears that little, if any, concern was expressed within the Agency over passing these weapons to would-be assassins.
+cable advising that the pistols were being pouched is the very cable which was sent in response to a request by the dissidents for machine guns to be used in an assassination effort which had been previously described to Headquarters. As with the carbines discussed below, it appears that little, if any, concern was expressed within the Agency over passing these weapons to would-be assassins.
 
 3. Passing of the Carbines
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12531.png
-
-Convert to Markdown4. Definitions
+4. Definitions
 
 The term "subversive activities" as used in this section denotes activities which are aimed at overthrowing, destroying or undermining the Government of the United States or any of its political subdivisions by the illegal means prohibited by statutes enumerated in A. 1. above. The term "subversive organization" or "subversive movement" denotes a group or movement which is known to engage in or advocate subversive activities, as defined above.
 

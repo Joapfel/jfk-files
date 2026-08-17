@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23435.png
-
-Convert to MarkdownJuly 8, 1975
+July 8, 1975
 
 GORDON GRAY
 

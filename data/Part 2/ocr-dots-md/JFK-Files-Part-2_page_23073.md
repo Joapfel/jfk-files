@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23073.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Mr. Halley. I went through this before you came in and explained to Mr. Baron that the subject of assassination was constantly being discussed in the Cuban community and was a part of the fabric of the times.
 

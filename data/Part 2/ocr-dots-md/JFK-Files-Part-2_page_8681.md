@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8681.png
-
-Convert to MarkdownDBA 45327 dated 12 July 1963 (FBI)
+DBA 45327 dated 12 July 1963 (FBI)
 
 Manolo AGUILAR, 829 S.W. 9th Avenue, Miami, leader of the Frente Revolucionario Anticomunista (FRAC) (Anti-Communist Revolutionary Front) obtained some 100 Beretta 7.65 caliber pistols with silencers which his organization planned to eventually use in Cuba to assassinate various Cuban leaders. AGUILAR allegedly obtained these pistols from an unidentified American who had connections with the Mafia.
 

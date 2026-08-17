@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_485.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 MAIN-INDEX-SEARCH RESPONSE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10741.png
-
-Convert to Markdown9. Metal button with inscription "Free all Political Prisoners."
+9. Metal button with inscription "Free all Political Prisoners."
 
 10. Key ring containing six keys.
 

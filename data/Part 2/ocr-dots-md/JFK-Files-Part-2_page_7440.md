@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7440.png
-
-Convert to MarkdownSECRET
+SECRET
 
 70-1-1
 CSHB 43-1-

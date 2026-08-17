@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24531.png
-
-Convert to MarkdownIn a Memorandum to McCone on April 10, 1962, Harvey recognized that the Special Group Augmented control process required advance approval of "major operations going beyond the collection of intelligence." But Harvey stated that these "tight controls" were unduly "stultifying:
+In a Memorandum to McCone on April 10, 1962, Harvey recognized that the Special Group Augmented control process required advance approval of "major operations going beyond the collection of intelligence." But Harvey stated that these "tight controls" were unduly "stultifying:
 
 "To permit requisite flexibility and professionalism for a maximum operational effort against Cuba, the right controls exercised by the Special Group and the present time-consuming coordination and briefing procedures should, if at all possible, be made less restrictive and less stultifying." (Memo, April 10, 1962, Harvey to McCone, p.4) *
 

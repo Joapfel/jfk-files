@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18687.png
-
-Convert to Markdown21 MAY 1975
+21 MAY 1975
 
 Mr. Calvin W. Hicks
 10207 Forest Avenue

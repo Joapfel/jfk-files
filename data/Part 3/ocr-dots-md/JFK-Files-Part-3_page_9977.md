@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9977.png
-
-Convert to Markdown5) Provide protection against the unauthorized disclosure of intelligence sources and methods by:
+5) Provide protection against the unauthorized disclosure of intelligence sources and methods by:
 
 - providing for the protection of intelligence sources and methods on a statutory basis independent of Executive Order 11652;
 

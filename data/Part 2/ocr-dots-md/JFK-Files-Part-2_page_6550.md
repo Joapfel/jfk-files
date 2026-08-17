@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6550.png
-
-Convert to Markdownof 3 or 4 friends, without establishing external rebel affiliation, to
+of 3 or 4 friends, without establishing external rebel affiliation, to
 paint L'64, etc., on walls or to commit isolated acts of sabotage. The
 purpose would be to establish rebel connotation and to generate leadership.
 This would lead to the establishment of rudimentary cellular training

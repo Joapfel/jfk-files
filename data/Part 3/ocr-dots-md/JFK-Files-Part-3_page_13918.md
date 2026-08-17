@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13918.png
-
-Convert to Markdownground units as such because they were removed along with the missiles and IL-28's in February. Cubans now control and operate all the MIG aircraft although the Cubans continue to receive training from Soviet pilots. Also the Cubans control the helicopters and use them effectively in counterinsurgency activity. Cruise missile sites and the KOMAR boats are operated by Cubans.
+ground units as such because they were removed along with the missiles and IL-28's in February. Cubans now control and operate all the MIG aircraft although the Cubans continue to receive training from Soviet pilots. Also the Cubans control the helicopters and use them effectively in counterinsurgency activity. Cruise missile sites and the KOMAR boats are operated by Cubans.
 
 In air defense there are some 2,300 to 3,000 Soviet military technicians, but these personnel are not likely to be the kind to bear arms against an insurrection in Cuba, Mr. Clark stated. It was on July 12 that Cubans began to receive Soviet training in SAM site operations, and the training will extend over 10 months. Therefore in April 1964, Cubans will be prepared to take over the SAM sites and related communications. Some 300 Soviet personnel are estimated to be engaged in training Cubans in the operation of 12 patrol boats. Some 800 Soviets are assigned to cruise missile activities. And Soviet ground forces number between 2,000 and 4,000, Mr. Clark stated.
 

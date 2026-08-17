@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2056.png
-
-Convert to Markdown104-10132-10092
+104-10132-10092
 
 UNITED STATES GOVERNMENT
 Memorandum

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12876.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee, etc.
 
 Mr. Hills was reluctant to seek a modification of the language indicating that he had an understanding with Mr. Schwarz that the authority would be limited to the senior counsel and to members of the Committee. I told Mr. Hills I would request that the language be modified in writing so that the authority would be conferred on specific representatives of the Committee to avoid having staff authority which I thought would be abused. Mr. Hills finally agreed that the language would be modified so that the authority would be available only to both Committee senior counsel and/or a combination of senior counsel and a Committee member. Further, the language would be modified to require that the determination that an agency would not be given prior notice of a pending witness interview would be recorded in writing for the Committee's records.

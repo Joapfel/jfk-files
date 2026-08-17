@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_88.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Restricted to Listing of those possibly related to work of
 Section)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22001.png
-
-Convert to Markdown16. On October 6, 1961, Mr. Parrott told the Special Group that there was in preparation "a contingency plan in connection with the possible removal of Castro from the Cuban scene." (We should obtain this plan as it may relate to an assassination plot.) (Source: Special Group Minutes October 6, 1961, 02783)
+16. On October 6, 1961, Mr. Parrott told the Special Group that there was in preparation "a contingency plan in connection with the possible removal of Castro from the Cuban scene." (We should obtain this plan as it may relate to an assassination plot.) (Source: Special Group Minutes October 6, 1961, 02783)
 
 17. On December 8, 1961, Gen. Lansdale presented "the outline of a program designed to overthrow the Castro government." (Source: Special Group Minutes December 8, 1961, 02795)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27658.png
-
-Convert to MarkdownRESUME
+RESUME
 
 JOSEPH KIEL
 3 Chesham Court

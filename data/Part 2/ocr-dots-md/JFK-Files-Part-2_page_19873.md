@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19873.png
-
-Convert to MarkdownPAGE TWO
+PAGE TWO
 
 NEW YORK (100-171481)
 

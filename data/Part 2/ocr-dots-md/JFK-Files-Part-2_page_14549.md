@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14549.png
-
-Convert to Markdown# Office Memorandum • UNITED STATES GOVERNMENT
+# Office Memorandum • UNITED STATES GOVERNMENT
 
 **TO :** Mr. A. H. Belmont
 **DATE :** June 2, 1958

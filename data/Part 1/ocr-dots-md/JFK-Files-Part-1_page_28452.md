@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28452.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 <table><tr><td colspan="3">NAME OF EMPLOYEE (Last, First, Middle)</td><td colspan="2">NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr><tr><td>Billy Jean, Jr.</td><td>Jean</td><td>Davis, MJ</td><td colspan="2"></td><td>6-9-77</td></tr></table>

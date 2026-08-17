@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27358.png
-
-Convert to MarkdownU - M/R - from Belin, Subj: Interview with General Maxwell Taylor ; undated
+U - M/R - from Belin, Subj: Interview with General Maxwell Taylor ; undated
 
 V - M/R from Gray - Subj: Conversation with Will Wilson - 11 June 75 w/attachment.
 

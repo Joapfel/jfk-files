@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14013.png
-
-Convert to MarkdownNovember 22, 1963
+November 22, 1963
 
 | ITEM | TIME | SUBJECT | SECRET |
 | :--- | :--- | :--- | :--- |

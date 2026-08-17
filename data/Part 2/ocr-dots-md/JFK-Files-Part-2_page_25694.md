@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25694.png
-
-Convert to MarkdownRE: (XN-69048)
+RE: (XN-69048)
 
 1. THIS INSTRUCTION HAS BEEN COORDINATED WITH AND
 

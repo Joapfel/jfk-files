@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_934.png
-
-Convert to Markdown<table><tr><td>IMPORTANT.—The filing of this form will completely cancel any Designation of Beneficiary under the Federal Employees Group Life Insurance Program you may have previously filed. Be sure to name in this form all persons you wish to designate as beneficiaries of any insurance payable under that program at your death.</td></tr></table>
+<table><tr><td>IMPORTANT.—The filing of this form will completely cancel any Designation of Beneficiary under the Federal Employees Group Life Insurance Program you may have previously filed. Be sure to name in this form all persons you wish to designate as beneficiaries of any insurance payable under that program at your death.</td></tr></table>
 
 EXAMPLES OF DESIGNATIONS
 

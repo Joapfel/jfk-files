@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6749.png
-
-Convert to Markdown2. CIA or other agencies that originate documents should conduct initial review of material to determine whether it can be released. Material withheld from public release could then be made available to Review Board.
+2. CIA or other agencies that originate documents should conduct initial review of material to determine whether it can be released. Material withheld from public release could then be made available to Review Board.
 
 3. Agencies that originate information should be allowed to review it for release even if that information is contained in a document prepared by another agency or Congress. Suggest interagency working group to handle coordination issues likely to arise with disclosure of third agency documents.
 

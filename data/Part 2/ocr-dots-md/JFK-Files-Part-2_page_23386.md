@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23386.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. been my say-so. I do not know what the policy levels of my Agency, who in turn would have been reflected in the policy
 2. levels of the government, would have done if it had come to the point where somebody said, we can do it, do you want us to do it.

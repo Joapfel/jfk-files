@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6956.png
-
-Convert to Markdownupon the American public, who may be coming to realize that there may be closure in sight (in our lifetimes) with regard to the JFK assassination."
+upon the American public, who may be coming to realize that there may be closure in sight (in our lifetimes) with regard to the JFK assassination."
 
 These words capture why the Review Board was created by the Congress and why we hope that the Review Board will have the additional year to complete our task.
 

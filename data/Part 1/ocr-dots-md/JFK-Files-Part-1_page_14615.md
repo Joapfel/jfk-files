@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14615.png
-
-Convert to Markdown<table><tr><td>100000</td></tr></table>
+<table><tr><td>100000</td></tr></table>
 
 <table><tbody><tr><td>DIRECTORATE OF DISSEMINATION</td></tr></tbody></table>
 

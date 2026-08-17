@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14387.png
-
-Convert to MarkdownReport No.352(continued)
+Report No.352(continued)
 
 that the Minister doesn't want to receive him or listen to
 him when he goes there. Horacio says that the worst of it

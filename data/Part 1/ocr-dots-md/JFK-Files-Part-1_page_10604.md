@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10604.png
-
-Convert to MarkdownSECRET 050059Z
+SECRET 050059Z
 
 DIR CITE WAVE 9086
 

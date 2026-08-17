@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23497.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>DATE : 29 JUNE 54</td>

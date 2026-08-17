@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9010.png
-
-Convert to Markdownpuesto, ratifica y firma al margen papa constancia.
+puesto, ratifica y firma al margen papa constancia.
 
 Se cierra y autoriza lo actuado, Damos fe.
 

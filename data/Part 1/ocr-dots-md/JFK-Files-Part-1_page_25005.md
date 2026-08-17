@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25005.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tbody><tr><td>PERSON MUST NOTIFIE</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED</td></tr><tr><td>NAT AT RZ</td></tr><tr><td>ASSESS BY 28 PER .</td></tr><tr><td>ACTION UNIT SB8</td></tr><tr><td>FILE VR (plan. whs, cl. cyols, cfica, Fl)</td></tr><tr><td>ACTION NO 115</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22074.png
-
-Convert to Markdown233.
+233.
 
 turned over to his successor, GRYAZNOV, about 28-29 December
 1961, just before he transferred to the Tourist Department.)

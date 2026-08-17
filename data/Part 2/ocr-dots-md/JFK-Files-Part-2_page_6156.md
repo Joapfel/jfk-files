@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6156.png
-
-Convert to Markdown56 Md. L. Rev. 1, *25
+56 Md. L. Rev. 1, *25
 
 Footnotes-
 

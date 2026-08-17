@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34562.png
-
-Convert to MarkdownFILES :
+FILES :
 
 Office of Security files on NOSILSKO are maintained in the following locations:
 

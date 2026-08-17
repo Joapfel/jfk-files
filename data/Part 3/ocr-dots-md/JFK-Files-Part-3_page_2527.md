@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2527.png
-
-Convert to MarkdownJUL 16 1975
+JUL 16 1975
 
 TO: Harold R. Tyler, Jr.
 Deputy Attorney General

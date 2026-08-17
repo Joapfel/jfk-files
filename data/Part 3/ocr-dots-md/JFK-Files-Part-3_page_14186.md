@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14186.png
-
-Convert to Markdown136. 10/2-3/62 - The Final Communique of the Informal Meeting of Ministers of Foreign Affairs of the American Republics held in Washington, 10/2-3/62 stated in part that "The Soviet Union's intervention in Cuba threatens the unity of the Americas and its democratic institutions" and it called for "the adoption of special measures, both individual and collective". The communique observed that "it is desirable
+136. 10/2-3/62 - The Final Communique of the Informal Meeting of Ministers of Foreign Affairs of the American Republics held in Washington, 10/2-3/62 stated in part that "The Soviet Union's intervention in Cuba threatens the unity of the Americas and its democratic institutions" and it called for "the adoption of special measures, both individual and collective". The communique observed that "it is desirable
 
 (CONTINUED ON PAGE 39)
 

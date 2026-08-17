@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10087.png
-
-Convert to MarkdownAssistant Attorney General
+Assistant Attorney General
 Civil Division
 
 Director, FBI

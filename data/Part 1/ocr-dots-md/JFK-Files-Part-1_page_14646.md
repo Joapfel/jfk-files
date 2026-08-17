@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14646.png
-
-Convert to MarkdownReport No. 2060
+Report No. 2060
 
 31 October 1969
 

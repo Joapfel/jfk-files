@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7178.png
-
-Convert to MarkdownValentin S. LOGUINOV
+Valentin S. LOGUINOV
 Third Secretary at the Soviet Embassy
 
 Born in 1927

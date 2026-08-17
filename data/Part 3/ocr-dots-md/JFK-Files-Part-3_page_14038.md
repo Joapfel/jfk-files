@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14038.png
-
-Convert to Markdown- 75 -
+- 75 -
 
 Turning to the Board-suggested item regarding the status of current efforts to mount clandestine collection and covert operations against Cuba, the DCI referred to the close attention being given to these matters. He told the Board that since March of this year Mr. Fitzgerald of CIA has been heading up the Agency's headquarters element directly concerned with clandestine activities against Cuba. Agents have been placed in Cuba for CIA by Argentina, France, Spain, Holland, Denmark, Norway and Britain. A total of 104 new agents of all types are in operation, 41 of them in Cuba where three "black", illegal teams are working. As yet there have been no penetrations of the Castro regime or military installations. CIA gets reports from these agents and liaison observers but the Agency has "no agents sitting on the Cuban General Staff".
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31375.png
-
-Convert to MarkdownChief, Cover Division, Plans/FI
+Chief, Cover Division, Plans/FI
 
 19 December 1952
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4771.png
-
-Convert to MarkdownSECRET
+SECRET
 
 who were on the four committees that were, or theoretically,
 doing oversight. And it wasn't there. No appreciation at

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2711.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## Security Information
 

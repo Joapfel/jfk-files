@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34321.png
-
-Convert to Markdownwhich firm withdrew 11,691-ton tanker, VALINY, and the other vessels it owns and/or operates.
+which firm withdrew 11,691-ton tanker, VALINY, and the other vessels it owns and/or operates.
 
 3. - "Tsavliris" privateers exposed.- TSAVLIRIS shipping firm, operating out of Logdon and Piracous, under the names of "Tsavliris Shipping", "Tsavliris Hellas Mari---time", "Pancristo Shipping", "Waterloo Shipping", and "Trafalgar Shipping" is very active in business with the Castro-Communist regime.
 

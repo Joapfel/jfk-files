@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12449.png
-
-Convert to Markdown"SECRET - NO FOREIGN DISSEMINATION"
+"SECRET - NO FOREIGN DISSEMINATION"
 
 31. Corrective action on false information
 

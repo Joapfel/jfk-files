@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25596.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 John Rosselli is actually Filippo Sacco, born July 4, 1905, in Italy of parents Vincenzo and Maria Sacco. Vincenzo Sacco came to the United States after the birth of Filippo, his oldest child, and in 1911, Mrs. Sacco and Filippo joined Vincenzo in the United States where they resided as aliens in East Boston.
 

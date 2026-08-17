@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9053.png
-
-Convert to Markdownd. Transportation allowance of $50 per month,
+d. Transportation allowance of $50 per month,
 
 e. Optional expenses
 

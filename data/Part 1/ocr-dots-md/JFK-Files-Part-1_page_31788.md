@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31788.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Joseph S. Piccolo
 

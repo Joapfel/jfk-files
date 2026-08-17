@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27209.png
-
-Convert to MarkdownDate: 1 December 1960
+Date: 1 December 1960
 
 TO : Chief, Inspection & Security
 

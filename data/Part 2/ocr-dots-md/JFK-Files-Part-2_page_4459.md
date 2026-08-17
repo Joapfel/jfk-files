@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4459.png
-
-Convert to MarkdownTo illustrate the results of this operational data, we have recently been preparing the recruitment in place or defection of one of the principal officers of the Cuban Foreign Service in Europe. We have been able to develop the proposals through an already defected diplomat and the effectiveness of his approach and a reading on the diplomats reactions can be provided to us independently by three other agents in close contact with him as well as through a technical surveillance operation.
+To illustrate the results of this operational data, we have recently been preparing the recruitment in place or defection of one of the principal officers of the Cuban Foreign Service in Europe. We have been able to develop the proposals through an already defected diplomat and the effectiveness of his approach and a reading on the diplomats reactions can be provided to us independently by three other agents in close contact with him as well as through a technical surveillance operation.
 
 ## G. Liaison
 

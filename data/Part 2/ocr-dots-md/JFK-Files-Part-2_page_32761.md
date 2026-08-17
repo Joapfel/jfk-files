@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32761.png
-
-Convert to Markdownlies at the heart of the entire TFX endeavor. My instructions on this point
+lies at the heart of the entire TFX endeavor. My instructions on this point
 were clear and consistent.
 
 Another aspect of the Fourth Evaluation Report struck me as I reviewed

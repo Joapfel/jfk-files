@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13973.png
-
-Convert to Markdownand highly-sophisticated communications equip-
+and highly-sophisticated communications equip-
 ment in Cuba; (2) planning be made for substitute
 intelligence techniques in the event that our
 aerial reconnaissance of Cuba is denied us by

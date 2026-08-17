@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11658.png
-
-Convert to MarkdownEAST-WEST EXCHANGE PROGRAM
+EAST-WEST EXCHANGE PROGRAM
 
 Bufile: 105-42300
 

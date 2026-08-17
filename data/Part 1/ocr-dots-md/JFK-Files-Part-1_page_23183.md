@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23183.png
-
-Convert to Markdown<table><tr><td>C-0-X-7-I-D-E-N-T-I-A-Y</td></tr></table>
+<table><tr><td>C-0-X-7-I-D-E-N-T-I-A-Y</td></tr></table>
 
 Psychiatrists Conducting Research with Animals
 

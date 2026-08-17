@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30174.png
-
-Convert to Markdown6-19-28-
+6-19-28-
 
 H.Y. H.Y.
 

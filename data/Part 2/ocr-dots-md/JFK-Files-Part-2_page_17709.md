@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17709.png
-
-Convert to Markdownmasking devices. A central switch installed ahead of the telephone instruments will disconnect all telephones simultaneously, should the need arise. The telephone system is maintained by the local telephone company.
+masking devices. A central switch installed ahead of the telephone instruments will disconnect all telephones simultaneously, should the need arise. The telephone system is maintained by the local telephone company.
 
 ## K. Security Briefings
 

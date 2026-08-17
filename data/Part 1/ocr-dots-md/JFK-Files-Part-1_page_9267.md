@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9267.png
-
-Convert to Markdown6 Oct. 1950
+6 Oct. 1950
 
 Re PHOTO: of a panel of distinguished literary figures, artists, musicians, etc., who have been banned in USA, are crystals, and/or because disillusioned with the "Soviet experiment".
 

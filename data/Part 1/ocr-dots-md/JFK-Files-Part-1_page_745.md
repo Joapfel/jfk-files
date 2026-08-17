@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_745.png
-
-Convert to Markdownand the open letter are submitted as Separate Cover Attachment "C" to this dispatch. Costs of the printing and distribution were charged to LILISP-X.
+and the open letter are submitted as Separate Cover Attachment "C" to this dispatch. Costs of the printing and distribution were charged to LILISP-X.
 
 c. Via Identity-4 (LINLUCK) passed guidance material to Mexico's top female poet, Margarita MICHELENA, concerning YEVTUSHENKO. MICHELENA published a series of professional criticisms of YEVTUSHENKO as a poor poet and opportunist in the Mexican press. In April, immediately following YEVTUSHENKO's departure, a condensation of the MICHELENA critiques of YEVTUSHENKO were published in the leftist political illustrated magazine "IMPACTO" by LILISP-E.
 

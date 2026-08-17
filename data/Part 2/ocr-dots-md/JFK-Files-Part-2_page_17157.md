@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17157.png
-
-Convert to MarkdownNMC
+NMC
 BPP
 
 On November 3, 1969, stated that Hampton related that he had talked with Charles Garry, BPP lawyer in San Francisco, California, on November 2, 1969, who related that on November 3, 1969, a petition would be filed in the Federal Court, Chicago, on behalf of Bobby Seale in an attempt to have him unbound, ungagged and let him represent himself until such time as Garry is able to appear himself. Hampton also indicated that Garry related that he was been and continues to advise William Kuntsler, lawyer for defendants in current anti-riot law trial, of what steps to take in this regard. Hampton further indicated that Garry implied that he would not appear on Seale's behalf until the case is under appeal regardless of how fast he recovers from his operation.

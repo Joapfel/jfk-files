@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17516.png
-
-Convert to MarkdownBEVERINA (LNU), member, Chicago Chapter, Illinois BPP, who is described as 19 years old, 5'5", 170 pounds, light skin and is the girlfriend of WILLIE CALVIN;
+BEVERINA (LNU), member, Chicago Chapter, Illinois BPP, who is described as 19 years old, 5'5", 170 pounds, light skin and is the girlfriend of WILLIE CALVIN;
 
 BARBARA ANN SANKBY, Lieutenant of Finance, Chicago Chapter, Illinois BPP, who is described as born on 2/7/49, 5'4", 188 pounds, black hair, brown eyes, Illinois Driver's License number S520-0614-9638, Social Security Number 330-42-2652.
 

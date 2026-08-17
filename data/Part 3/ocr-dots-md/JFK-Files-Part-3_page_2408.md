@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2408.png
-
-Convert to MarkdownA group of 34 SDS members travelled to Cuba by way of Mexico in late August, 1968. Part of this group met with a representative of the National Liberation Front who stated that the New Left in the United States should conduct more and more demonstrations against the war in Vietnam.
+A group of 34 SDS members travelled to Cuba by way of Mexico in late August, 1968. Part of this group met with a representative of the National Liberation Front who stated that the New Left in the United States should conduct more and more demonstrations against the war in Vietnam.
 
 In November, 1968, four women representing the Women Strike for Peace travelled to the Soviet Union at the invitation of the Soviet Women's Committee. En route, they met with Madame Phan Thi Binh, head of the National Liberation Front of South Vietnam delegation to the Paris Peace Conference in Paris, France. In the Soviet Union, the delegation was hosted by various women in influential positions throughout the Soviet Union: A representative of the group planned to return via Prague, Czechoslovakia, and made contacts there.
 

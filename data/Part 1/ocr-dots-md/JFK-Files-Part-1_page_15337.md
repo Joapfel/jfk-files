@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15337.png
-
-Convert to Markdownin his own, a better, perhaps less straining, easier way.
+in his own, a better, perhaps less straining, easier way.
 In his eyes this does not need to be unhonest, because the
 boss knows that he is a crook, a honest, but clever one.
 

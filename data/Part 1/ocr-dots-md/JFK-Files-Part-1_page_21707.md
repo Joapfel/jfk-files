@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21707.png
-
-Convert to Markdownarrive in Moscow until November 1961, only a month before NOSENKO left the First Section for the Seventh Department.
+arrive in Moscow until November 1961, only a month before NOSENKO left the First Section for the Seventh Department.
 
 (b) The previous summary stated that according to NOSENKO the KGB did not suspect that Eugene MAHONEY was a CIA officer, yet he was a CIA officer. It was also stated that MAHONEY reported the presence of intensive KGB surveillance while in Moscow from October 1960 to September 1961. The "intensive KGB surveillance" is based on statements of MAHONEY and may possibly be more of his personal concern over surveillance rather than what was actually happening.
 

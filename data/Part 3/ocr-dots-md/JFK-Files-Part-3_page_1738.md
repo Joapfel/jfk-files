@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1738.png
-
-Convert to MarkdownRE: JAMES EARL RAY; Dr. MARTIN LUTHER KING, JR. - VICTIM
+RE: JAMES EARL RAY; Dr. MARTIN LUTHER KING, JR. - VICTIM
 
 This group was concerned with how the subject Ray had known how to obtain false documents following his arrival in Canada. Mr. Hester pointed out that a "Top Ten" criminal had been arrested in Canada and had been returned to the Missouri State Penitentiary and had served time there with James Earl Ray prior to Ray's escape. Mr. Hester indicated it was his belief that this "Top Ten" fugitive had been responsible for instructing Ray on how to proceed in obtaining false documents in Canada.
 

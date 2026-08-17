@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7530.png
-
-Convert to MarkdownPg. 69 - McDonald began his search of "Saul" in 1970. It began, he said, with a call from an unidentified woman who arranged a meeting in London and told him she believed the Russians had a germ warfare installation in Vozrozdenya, in the Aral Sea. McDonald obtained CIA approval to make contact.
+Pg. 69 - McDonald began his search of "Saul" in 1970. It began, he said, with a call from an unidentified woman who arranged a meeting in London and told him she believed the Russians had a germ warfare installation in Vozrozdenya, in the Aral Sea. McDonald obtained CIA approval to make contact.
 
 Note MOSKALEV's scientific background and travel. He was in the U.K. in 68, 70, 71 and 72. Background is biophysics. MOSKALEV'S (GRU) contact BUBNOV/"specialized in chemical warfare".
 

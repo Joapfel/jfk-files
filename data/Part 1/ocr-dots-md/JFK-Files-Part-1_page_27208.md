@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27208.png
-
-Convert to MarkdownOFFICE MEMORANDUM
+OFFICE MEMORANDUM
 
 TO: Chief, IRS Staff.
 

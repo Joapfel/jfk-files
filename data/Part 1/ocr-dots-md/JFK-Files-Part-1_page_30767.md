@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30767.png
-
-Convert to MarkdownData on all permanent Duty Overseas Staff 1
+Data on all permanent Duty Overseas Staff 1
 
 From __________ to __________ Station __________ Comments
 

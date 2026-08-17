@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27226.png
-
-Convert to MarkdownB - G-G (II-I)
+B - G-G (II-I)
 
 A - Ltr from Gray to Knoche - 28 Mar 75 SECRET
 

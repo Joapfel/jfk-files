@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26425.png
-
-Convert to Markdown<table><tr><td>ORIG</td><td colspan="2">2. COPY</td></tr><tr><td>UNIT</td><td colspan="2">WH/3/EURO FILE</td></tr><tr><td>EXT</td><td colspan="2">5940 201-</td></tr><tr><td>DATE</td><td colspan="2">16 Jan 1964 336474</td></tr></table>
+<table><tr><td>ORIG</td><td colspan="2">2. COPY</td></tr><tr><td>UNIT</td><td colspan="2">WH/3/EURO FILE</td></tr><tr><td>EXT</td><td colspan="2">5940 201-</td></tr><tr><td>DATE</td><td colspan="2">16 Jan 1964 336474</td></tr></table>
 
 CLASSIFIED MESSAGE
 

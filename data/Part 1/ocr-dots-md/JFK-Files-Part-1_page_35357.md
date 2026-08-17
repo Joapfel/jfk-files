@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35357.png
-
-Convert to MarkdownG U E S T B O D I E
+G U E S T B O D I E
 
 APRIL "I"-P""
 

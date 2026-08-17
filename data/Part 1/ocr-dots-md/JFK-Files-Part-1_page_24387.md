@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24387.png
-
-Convert to Markdowndegree feasible - given his cover and the unwitting informant-type nature of his relationship with his many contacts. QRPHONE/1 makes every effort to overcome this limitation and in this regard a plentiful supply of background information greatly facilitates his elicitation of added details from his informants. However, this limitation is one which will always be with us in the case of QRPHONE/1 and it is one which can sometimes be particularly frustrating. During the past quarter QRPHONE/1 has been the source of 11 intelligence reports prepared by LCPIPIT/Reports.
+degree feasible - given his cover and the unwitting informant-type nature of his relationship with his many contacts. QRPHONE/1 makes every effort to overcome this limitation and in this regard a plentiful supply of background information greatly facilitates his elicitation of added details from his informants. However, this limitation is one which will always be with us in the case of QRPHONE/1 and it is one which can sometimes be particularly frustrating. During the past quarter QRPHONE/1 has been the source of 11 intelligence reports prepared by LCPIPIT/Reports.
 
 5. SPECIFIC REQUIREMENTS LEVIED UPON AGENT FOR ENSUING PERIOD: QRPHONE/1 will make a trip to Italy in late September and early October in order to survey the situation within the Italian new left/radical sector. This trip is one which has been requested by Rome Station. (The trip will have been completed by the time this report is received by headquarters.)
 

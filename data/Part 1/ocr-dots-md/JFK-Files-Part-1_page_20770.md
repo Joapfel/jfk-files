@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20770.png
-
-Convert to MarkdownMr. Phillips is a notably good supervisor, especially with younger officers, for whom he is an object of admiration and emulation. Mr. Phillips is a fast-moving, energetic person and he has some of the faults that often go with this virtue: he is impatient with details and "paper" with the consequence that if someone else does not do it for him, his work is sometimes marred by inaccuracies and imprecisions.
+Mr. Phillips is a notably good supervisor, especially with younger officers, for whom he is an object of admiration and emulation. Mr. Phillips is a fast-moving, energetic person and he has some of the faults that often go with this virtue: he is impatient with details and "paper" with the consequence that if someone else does not do it for him, his work is sometimes marred by inaccuracies and imprecisions.
 
 Without going into it, it should be noted that Mr. Phillips has had a very trying year personally and it is a proof of his strength of character that he has not only come through it but has hardly broken his stride in carrying out a demanding job, or being any less than his usual cheerful and charming self.
 

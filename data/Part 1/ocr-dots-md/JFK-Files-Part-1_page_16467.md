@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16467.png
-
-Convert to MarkdownSECRET
+SECRET
 
 31 JAN 69 IN84063
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_5620.png
-
 s, records clerks and secretaries bring the overall station personnel total to around fifty.
 
 ## Liaison Operations

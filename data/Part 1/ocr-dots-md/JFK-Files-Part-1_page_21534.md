@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21534.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. IS THE CLAIMED KGB CAREER OF NOSENKO PLAUSIBLE?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11942.png
-
-Convert to Markdown4-E
+4-E
 
 In the Israeli field we have continued to furnish information from our sensitive coverage under a program of dissemination which has been assigned the security designation of "SCOPE." "SCOPE" information is furnished only to select individuals at the White House and to a previously cleared chain of command within agencies of the intelligence community. These data relate to attempts by officials of the Israeli Government to obtain favorable reaction within United States Government circles for Israeli Government support including economic and military assistance. The personalities involved in these dealings have included prominent members of the United States Congress as well as individuals within the executive arm of our Government. Favorable comment has been forthcoming from Dr. Kissinger at the White House, from the Secretary of State and from other dignitaries within the intelligence community who have been privy to this "SCOPE" information relative to its timeliness and value to them in formulating policy decisions within our Government.
 

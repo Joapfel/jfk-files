@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8695.png
-
-Convert to Markdown9.02.13 El tipo de persona queRegulamente cu e comprobar la cuenta, no impq cua va a pagq. No se ocupa do la cuenta si otro va a pagar
+9.02.13 El tipo de persona queRegulamente cu e comprobar la cuenta, no impq cua va a pagq. No se ocupa do la cuenta si otro va a pagar
 
 9.02.14 Cualdo el paga, comprueba la cuenta Discretamente ✓ May cuidadosamente (y sin discrulo)
 

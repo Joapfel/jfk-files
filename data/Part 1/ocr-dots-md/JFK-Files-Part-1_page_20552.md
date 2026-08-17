@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20552.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REVIEWING OFFICER'S COMMENTS:
 

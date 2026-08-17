@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_505.png
-
-Convert to MarkdownORIG: JLong; PG; JAH; jah
+ORIG: JLong; PG; JAH; jah
 UNIT: CI/SO
 EXT: 9015
 DATE: 1 FEB 73

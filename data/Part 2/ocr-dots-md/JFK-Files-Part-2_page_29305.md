@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29305.png
-
-Convert to Markdown<table>
+<table>
   <caption>INFORMATION REPORT<br>(APPROVED FORM 140) (1976, 1980)</caption>
   <tbody>
     <tr>

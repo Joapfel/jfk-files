@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29827.png
-
-Convert to MarkdownD - not until late, he wouldn't get in until 11 or 12, never early
+D - not until late, he wouldn't get in until 11 or 12, never early
 
 M - and he usually left at a decent hour?
 

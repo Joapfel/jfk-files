@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7140.png
-
-Convert to Markdowncan be made by Diddle himself, calling only from a pay telephone, never
+can be made by Diddle himself, calling only from a pay telephone, never
 from his house or office,
 
 In regard to GE affairs, Diddle made two comments which he suggested

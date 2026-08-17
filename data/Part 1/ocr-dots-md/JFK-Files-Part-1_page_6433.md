@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6433.png
-
-Convert to Markdownhas mailed copies of the booklet to prominent public figures throughout host Boston, asking then Identity 5 and CADONA. About one week after Identity 5 received his copy, Charles telephoned his requesting comment concerning the publication and revitalizing his former requests for U.S. support of Identity 1. (A copy of Bourkeau's booklet was given John H. Quintance by CADONA. This copy is forwarded under separate cover as Attachment "C")
+has mailed copies of the booklet to prominent public figures throughout host Boston, asking then Identity 5 and CADONA. About one week after Identity 5 received his copy, Charles telephoned his requesting comment concerning the publication and revitalizing his former requests for U.S. support of Identity 1. (A copy of Bourkeau's booklet was given John H. Quintance by CADONA. This copy is forwarded under separate cover as Attachment "C")
 
 13. It was reported in Reference B that Identity 5 felt that a major portion of Identity 1's financial support stemmed from Identity 10 sources, however, he now feels that what little support Identity 1 is receiving comes from CADONA for the reasons outlined in paragraph 11 above. Identity 5 was aware that Identity 1 had received welfare items from Identity 4 for further distribution among the families of persons who had been arrested for taking part in the 17 June demonstrations. To his knowledge, however, no funds, as such, were ever given Identity 1 from this source.
 

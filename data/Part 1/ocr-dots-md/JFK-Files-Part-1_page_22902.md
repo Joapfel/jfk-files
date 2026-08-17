@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22902.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 and Guatemala for the purpose of business
 RENEWED; At Havana, Cuba on 2 separate occasions:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18350.png
-
-Convert to MarkdownStandard Form No. 3
+Standard Form No. 3
 August 1948
 U.S. CIVIL SERVICE COMMISSION
 

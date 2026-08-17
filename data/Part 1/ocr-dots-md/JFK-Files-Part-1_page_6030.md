@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6030.png
-
-Convert to Markdownon the Cuban problem.
+on the Cuban problem.
 
 2.- Send two delegates to Recife for the next visit of President Kennedy to Brazil.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17951.png
-
-Convert to Markdown<html><body><table><tr><td>SECRET</td></tr></table></body></html>
+<html><body><table><tr><td>SECRET</td></tr></table></body></html>
 
 <table><thead><tr><th>CONTINUATION OF DISPATCH</th><th>CLASSIFICATION NO.</th></tr></thead><tbody><tr><td>and on occasion has caused some minor problems. It is believed that these problems are temporary and will be eliminated when WILSTED has time to by-pass this cut off switch.<br>The new Annex VI (see reference A) was placed in full operation on 23 October and presently provides coverage of four target lines.<br><br><u>F. COVERAGE</u><br>During the month of October 1962, LIFECAT covered a total of 25 target lines. Coverage by target was as follows:<br><ol><li>Soviet Bulletin Office</li><li>Svyatoslav F. KUZNETSOV</li><li>Aleksandr G. SIDOROV</li><li>and 5. Polish Embassy (two lines)</li><li>6, 7, 8, 9, and 10. Yugoslav Embassy (five lines)</li><li>11, 12, and 13 BEKNAVE/BECHICK operation</li><li>Juan Jose AREVALO Bermejo</li><li>Peter WATKINS</li><li>AMSTET-1</li><li>and 18. AMSTRUT operation</li><li>Psychiatrist attending AMSTRUT-2</li><li>Carlos ILLESCAS</li><li>Suspected PCM safehouse</li><li>LIVESTOCK-2</li><li>Albert (Margaret) MALTZ</li><li>Charles SMOLIKOFF (aka SMALL)</li><li>Noah SEBORER</li></ol></td><td></td></tr></tbody></table>
 

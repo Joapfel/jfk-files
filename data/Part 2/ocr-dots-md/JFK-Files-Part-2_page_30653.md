@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30653.png
-
-Convert to MarkdownSUBORDINATES
+SUBORDINATES
 BALABAN
 
 RICHARD [WINK]?

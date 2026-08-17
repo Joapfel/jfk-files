@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25282.png
-
-Convert to Markdown# Our Havana Triple Spy Helped & Hurt Castro
+# Our Havana Triple Spy Helped & Hurt Castro
 
 By PAUL MESKIL
 

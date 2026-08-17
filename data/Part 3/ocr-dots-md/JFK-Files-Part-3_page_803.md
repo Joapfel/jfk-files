@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_803.png
-
-Convert to Markdown1 - Mr. J. A. Mintz
+1 - Mr. J. A. Mintz
 1 - Mr. W. R. Wannall
 1 - Mr. J. G. Deegan
 1 - Mr. D. Ryan

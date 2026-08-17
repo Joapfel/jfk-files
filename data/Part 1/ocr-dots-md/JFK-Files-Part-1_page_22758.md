@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HKH-A-3314, Page 2
 17 January 1957

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16724.png
-
-Convert to Markdownrespectively, reveal three paints which are similar in physical characteristics and composition and indicate that the door and hinge were painted at least three times as a unit.
+respectively, reveal three paints which are similar in physical characteristics and composition and indicate that the door and hinge were painted at least three times as a unit.
 
 An examination of the door facing both inside and outside the bathroom (specimens K47, K48, K49, K52, K53, K54) shows that there are at least three paint layers present on some of the parts (top horizontal pieces) which individually match various globules or droplets of paint on the door.
 

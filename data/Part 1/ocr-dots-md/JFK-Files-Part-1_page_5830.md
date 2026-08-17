@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5830.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">S. CRESZ:al.</td>
     <td rowspan="4">

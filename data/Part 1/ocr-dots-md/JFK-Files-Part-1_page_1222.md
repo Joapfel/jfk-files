@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1222.png
-
-Convert to MarkdownORIG : STEPHEN I. MUNGER/AVH
+ORIG : STEPHEN I. MUNGER/AVH
 UNIT : DC/WB/4/X
 EXT : 5559
 DATE : 30 SEPT 1963

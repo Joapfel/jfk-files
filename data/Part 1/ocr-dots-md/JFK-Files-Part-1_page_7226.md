@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7226.png
-
-Convert to Markdown14-00000
+14-00000
 
 3 Mzo.66
 SALVADOR PAZ nuevamente informa a LOGUINOV que de Acompuloo el bargo que llegó necepita para gastos 10,000 dolares, para combustible, gastos do puerto y provisienes. LOGUINOV informa que los dará hasta el lunes, cuando regrese el Consorcio VISTO de Veracruz donde está atendiendo el bargo "Thulomaléo".

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24528.png
-
-Convert to Markdownwere proposed as ranging from $5,000 for an "informer" to $100,000 for
+were proposed as ranging from $5,000 for an "informer" to $100,000 for
 "government officials." A reward of "2¢" was listed for Castro nim-
 self. (Id., p. 3). Lansdale testified that price was designed "to deni-
 grate ... Castro in the eyes of the Cuban population." (Lansdale, Tr. 26).

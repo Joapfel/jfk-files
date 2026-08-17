@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6477.png
-
-Convert to Markdown31 January 1964
+31 January 1964
 
 MEMORANDUM FOR THE COMMANDER IN CHIEF, ATLANTIC
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33622.png
-
-Convert to Markdownoutmoded and old-fashioned reactionary political ideologies*,
+outmoded and old-fashioned reactionary political ideologies*,
 and asking Mr. Land to advise him as to how this situation could
 be brought to the attention of President Truem in order to
 have him do something about it. As a result of that letter,

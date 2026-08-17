@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34163.png
-
-Convert to Markdowndad de producción azucarera que Cuba tenía hace quince años.
+dad de producción azucarera que Cuba tenía hace quince años.
 
 El segundo punto, que en cierto sentido debe atenerse al primero, es am--
 

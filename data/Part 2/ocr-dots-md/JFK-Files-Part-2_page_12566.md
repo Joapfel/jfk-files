@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12566.png
-
-Convert to Markdown6. Character
+6. Character
 
 a. The designation "Security Matter" (SM where appropriate) is to be set out in all instances. Use organizational affiliation where organiza- tion with which subject is affiliated is under current or continuing investigation or where a Bureau-approved thumbnail sketch exists.
 Examples: Security Matter - C (Communist)

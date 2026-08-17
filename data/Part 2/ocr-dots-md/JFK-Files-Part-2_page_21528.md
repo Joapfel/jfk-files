@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21528.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Eyes Only basis, and the first part of this was the necessary documentation for the authority which was later signed off on by Dick Helms as Deputy Director.
 2.

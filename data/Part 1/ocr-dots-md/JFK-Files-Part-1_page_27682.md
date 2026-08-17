@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27682.png
-
-Convert to Markdown30 JUL 1964
+30 JUL 1964
 
 MEMORANDUM FOR: Secretary, CSCS Panel (Section B)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6639.png
-
-Convert to MarkdownDecember 10, 1997
+December 10, 1997
 
 Barry,
 

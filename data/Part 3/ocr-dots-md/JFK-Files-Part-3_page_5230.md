@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5230.png
-
-Convert to MarkdownThere were four instances wherein you were instructed during the last inspection to complete the pink sheet and although 14 months have passed since last inspection these pink sheets have not been completed. While failure to complete the pink sheet when instructed does not necessarily indicate an Agent's enthusiasm in working this program, it does not show the desired attitude. These four instances are as follows:
+There were four instances wherein you were instructed during the last inspection to complete the pink sheet and although 14 months have passed since last inspection these pink sheets have not been completed. While failure to complete the pink sheet when instructed does not necessarily indicate an Agent's enthusiasm in working this program, it does not show the desired attitude. These four instances are as follows:
 
 137-4768
 137-5015

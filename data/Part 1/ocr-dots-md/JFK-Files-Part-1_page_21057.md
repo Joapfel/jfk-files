@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21057.png
-
-Convert to Markdown10 MAR '69
+10 MAR '69
 
 SECRET
 (When Filled In)

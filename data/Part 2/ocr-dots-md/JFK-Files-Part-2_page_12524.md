@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12524.png
-
-Convert to MarkdownIf it is determined subject of FBI investigation is member of armed services, discontinue immediately, advise FBIHQ, and disseminate pertinent information locally to appropriate intelligence agency. If it is determined subject has close relatives in armed forces, promptly advise appropriate military intelligence service, and furnish pertinent information, including reports, on subject involved. Evaluation of such association lies entirely within province of military intelligence service.
+If it is determined subject of FBI investigation is member of armed services, discontinue immediately, advise FBIHQ, and disseminate pertinent information locally to appropriate intelligence agency. If it is determined subject has close relatives in armed forces, promptly advise appropriate military intelligence service, and furnish pertinent information, including reports, on subject involved. Evaluation of such association lies entirely within province of military intelligence service.
 
 In all instances, advise FBIHQ concerning any possible subversive contacts or derogatory information developed concerning military personnel, including local dissemination made. Enclose four copies of LHM or report setting out pertinent data.
 

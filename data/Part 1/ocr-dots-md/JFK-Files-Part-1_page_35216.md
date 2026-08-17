@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35216.png
-
-Convert to MarkdownDEMOCRATIC REVOLUTIONARY FRONT
+DEMOCRATIC REVOLUTIONARY FRONT
 
 Personnel
 

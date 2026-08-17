@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13545.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Date: July 2, 1962
 

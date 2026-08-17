@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35275.png
-
-Convert to Markdown# TRANSLATION
+# TRANSLATION
 
 Miami, 6 October 1960
 

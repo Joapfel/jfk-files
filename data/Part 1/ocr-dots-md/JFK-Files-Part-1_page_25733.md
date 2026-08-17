@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25733.png
-
-Convert to Markdown<table><thead><tr><th></th><th>DATE TYPED</th><th>DATE DISPATCHED</th></tr></thead><tbody><tr><td>11 January 1962</td><td>17 JAN 1962</td></tr></tbody></table>
+<table><thead><tr><th></th><th>DATE TYPED</th><th>DATE DISPATCHED</th></tr></thead><tbody><tr><td>11 January 1962</td><td>17 JAN 1962</td></tr></tbody></table>
 
 <table><tr><td colspan="3">Attachments:<br/>Per paragraph 1<br/><br/>Distribution:<br/>2 - Mexico City, w/attts.</td></tr><tr><td>CROSS REFERENCE TO</td><td colspan="2"></td></tr><tr><td>CLASSIFICATION</td><td>SECRET</td><td></td></tr><tr><td colspan="2">OFFICE</td><td>ORIGINATING</td><td rowspan="2">EXT<br/>3163</td></tr><tr><td>D/M/3/Mexico</td><td>D. Winter</td><td>Mard C/Mart</td></tr><tr><td colspan="4">COORDINATING</td></tr><tr><td></td><td>OFFICE SYMBOL</td><td>DATE</td><td>OFFICER'S NAME</td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td colspan="4">RELEASING</td></tr><tr><td>OFFICE SYMBOL</td><td>DATE</td><td>OFFICER'S SIGNATURE</td><td rowspan="2">J.C. KING</td></tr><tr><td>C/AID</td><td>1 2 JAN 1962</td><td></td></tr></table>
 

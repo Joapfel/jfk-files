@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21246.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 for this agent was PAVEL FEDEROVICH PANKRATOV who introduced
 the agent to NOSENKO because NOSENKO was considering the

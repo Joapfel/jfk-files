@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10291.png
-
-Convert to MarkdownPROXIMAMENTE
+PROXIMAMENTE
 
 TEATRO MUSICAL
 DE LA HABANA

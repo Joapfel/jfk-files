@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_473.png
-
-Convert to MarkdownDeloren, e surpresa del departamento de Visana, con -bred, --- quien explica que hacia aprobación ut. 3 día la notorita -- Lourdes Gonzáles solicits a su familia in viva, que ohne Padre estan graves y como Lourdes en religión quiera saber si - puede hacer algo por ella, ya que él no se va al viernes, ya no podrá viajar, pero la opinión del Consulado es que viajo- lo está pronto posible. Doloresque está en transito, pero lo volvería a didir alcompaño.- 870,-
+Deloren, e surpresa del departamento de Visana, con -bred, --- quien explica que hacia aprobación ut. 3 día la notorita -- Lourdes Gonzáles solicits a su familia in viva, que ohne Padre estan graves y como Lourdes en religión quiera saber si - puede hacer algo por ella, ya que él no se va al viernes, ya no podrá viajar, pero la opinión del Consulado es que viajo- lo está pronto posible. Doloresque está en transito, pero lo volvería a didir alcompaño.- 870,-
 
 870.
 

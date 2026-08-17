@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13276.png
-
-Convert to MarkdownDecember 6, 1963
+December 6, 1963
 
 Memorandum for Mr. James Angleton
 Subject Letter from Mr. (Jose Colon)

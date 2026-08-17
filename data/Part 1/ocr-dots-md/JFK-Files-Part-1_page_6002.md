@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6002.png
-
-Convert to Markdown14-00000
+14-00000
 
 Quedarán hermanos. Espero por mí llamada de aquę no sabría todo cuanta de lo necesario que estemos, economicamente hablando. La semana antecipará artíne en las Villas, repaú que la bandera del D.R.E., ordena ya en Territorio Libre de Cuba. Una guerilla pequeño, pero bien abatecida, nos repreciará en la sota Norte de Las Villas. Y los alzados de Metenguez a los que hemos visto llegar varias cosas, de poderles hacer llégase una ayuda más efectiva, no dudarán en poner a las filas del D.R.E.
 

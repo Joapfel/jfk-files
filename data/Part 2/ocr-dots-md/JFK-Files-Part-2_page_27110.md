@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27110.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on fungal agents generally compatible with such an approach was underway at Fort Detrick shortly before this scheme was hatched and the agent was prepared at Agency direction in a form suitable for application to clothing, pillow cases, and so on. Tuberculosis germs with which the breathing apparatus of the suit were to be contaminated were available at Fort Detrick though not included in Agency stocks. Finally, the general presence of BW agents or toxins in all of these plans suggests the strong influence of work carried on at Fort Detrick.
 

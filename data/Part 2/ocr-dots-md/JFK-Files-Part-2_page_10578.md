@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10578.png
-
-Convert to Markdownphraseology in a letter defaming a Congressman could assist the FBI in linking the writer of that letter to a subsequent extortion note or written bomb threat that does not involve any member of Congress.)
+phraseology in a letter defaming a Congressman could assist the FBI in linking the writer of that letter to a subsequent extortion note or written bomb threat that does not involve any member of Congress.)
 
 (4) The information frequently provides valuable insight into the character, stability, and reliability of the person who has furnished it to the FBI. Thereby, it is of value and assistance to the FBI in future contacts with, contacts by, or inquiries regarding, this individual.
 

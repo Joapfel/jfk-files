@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9972.png
-
-Convert to Markdown3.
+3.
 
 the Cubans. In the course of conversation "Valentin" mentioned that Doctor Mercedes Pereira, who L/3 had met in Havana, was currently in Mexico. "Valentín" stated that it was a very critical time for FAR and that everyone hoped that something would be resolved in Havana with regard to concrete aid from the Cubans. He indicated that in the past both the Cubans and the Soviets had done more talking than producing in both material and hard cash. In speaking of the most immediate needs, "Valentín" stated that FAR needed a doctor urgently to train the revolutionaries in first aid, and he asked L/3 whether he could recommend a doctor that might be willing to visit FAR headquarters for about ten days for this purpose. L/3 told Rowton that he promised to look into the matter soonest, adding that he had in mind his friend Raúl Moreno Ronchoe, who was a medical student and probably qualified to give first aid instruction.
 

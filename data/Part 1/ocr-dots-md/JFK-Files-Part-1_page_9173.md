@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9173.png
-
-Convert to MarkdownTwo Consular officers (to be concerned with Nigerian problems alone.)
+Two Consular officers (to be concerned with Nigerian problems alone.)
 
 **Accra** - One Consul (to be concerned with Gold Coast problems, Accra being the military center of B.M.A. and of importance principally for the shipment of dxwits, mahogany and maniocse).
 

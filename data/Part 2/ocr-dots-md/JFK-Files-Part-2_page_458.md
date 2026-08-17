@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_458.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>HP04-2993</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br/>HP04-2993</td></tr></table>
 
 attempted, apparently with success to exercise all MAXIMUM slang and acrostic from his own speech, and LIRING-1 never acquired whether BAKER is: over been to PARISN or has any connection withSETTLES PARRIS. He sounds genuinely interested in a BAKER mail on Myosuры archeology and astrobiology and by the end of the call used sampling BAKER on the back. While young and pathos somewhat sombre, LIRED-1 appears to be a tough dater -- quick witted and thoroughly convinced that he stands for what is right. The overall impression is one of at variance with what had been expected from APPEAL-1 and, to some extent, ALCOHOL-1 reports. LIRING-1 is no "wild" and while he may have easily learned to learn in the Intelligence trade he appears to be quite capable of learning it given sufficient time. From the opposition viewpoint he should be an effective agent developer.
 

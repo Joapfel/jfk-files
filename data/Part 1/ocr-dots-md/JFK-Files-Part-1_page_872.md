@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_872.png
-
-Convert to Markdown"Jacques DUCLOS made a special report emphasizing that this was one of the most important tasks: to be carried out by the Communists within the C.I.O.
+"Jacques DUCLOS made a special report emphasizing that this was one of the most important tasks: to be carried out by the Communists within the C.I.O.
 
 "Besides the above, the question of Greece and Turkey was discussed, notably the question of boycotting of war materials sent to those countries."
 

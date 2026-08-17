@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4880.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">OSCH AVILA IN SANTIAGO.</td>
    </tr>

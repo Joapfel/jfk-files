@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9642.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 This report is classified confidential to protect the identity of NK T-1, NK T-2 and NK T-3, whose unauthorized disclosure could reasonably be expected to cause damage to national security.
 

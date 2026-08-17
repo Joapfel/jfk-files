@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31734.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 
 - III 6 -
 

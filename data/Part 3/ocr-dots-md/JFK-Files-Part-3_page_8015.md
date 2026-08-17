@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8015.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 UNITED STATES ATTORNEY'S
 CONFERENCE - 1950

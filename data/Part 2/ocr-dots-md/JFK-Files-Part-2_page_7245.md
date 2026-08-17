@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7245.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td colspan="2">BLK SEC DISSEMIN BY</td><td>P&R</td></tr><tr><td colspan="2">(H/SON/UNIT NOTIFIED)</td><td>SECRET</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED, SLOTTED BY AT Z</td></tr><tr><th rowspan="4">ACTION UNIT</th><th rowspan="4"></th><th rowspan="3">RF. FILE VR</th><th colspan="2">STAFF</th></tr><tr><th>1</th><th>4</th></tr><tr><th>2</th><th>5</th></tr><tr><th>3</th><th>6</th></tr><tr><th>INFO</th><th></th><th></th><th></th><th></th></tr></table>
 

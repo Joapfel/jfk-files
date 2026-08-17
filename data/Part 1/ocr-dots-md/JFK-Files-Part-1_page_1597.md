@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1597.png
-
-Convert to MarkdownS.D. of Fla.
+S.D. of Fla.
 
 US vs Hemming
 

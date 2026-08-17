@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9476.png
-
-Convert to MarkdownMay Program for the Congress:
+May Program for the Congress:
 
 1. Printing of 4-page program, with special 4-page French and English translated supplement.
 

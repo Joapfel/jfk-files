@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2213.png
-
-Convert to Markdown6. Samuel WISE, "Counsel in the American Embassy in Moscow" who is referred to above, may well be Samuel Griffin WISE Jr., #74574, SD & SSD, who apparently was once a contract employee on AACTIVE.
+6. Samuel WISE, "Counsel in the American Embassy in Moscow" who is referred to above, may well be Samuel Griffin WISE Jr., #74574, SD & SSD, who apparently was once a contract employee on AACTIVE.
 
 The State Department reviewed WISE's file on 2 June 1954; and as of September 1962 a Samuel G. WISE was Second Secretary of the American Embassy in Moscow. At that time WISE advised in a cable to the State Department
 

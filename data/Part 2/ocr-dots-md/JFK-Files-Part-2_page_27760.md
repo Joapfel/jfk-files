@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27760.png
-
-Convert to MarkdownJune 27, 1977
+June 27, 1977
 
 Mrs. Terry W. Lazin
 The Plaza Apartments

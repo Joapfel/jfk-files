@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6970.png
-
-Convert to MarkdownSOLEMN DECLARATION
+SOLEMN DECLARATION
 
 I, ________, an officer of ________, SMABOVE
 

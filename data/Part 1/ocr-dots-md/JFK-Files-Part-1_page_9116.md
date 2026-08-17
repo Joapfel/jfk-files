@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9116.png
-
-Convert to MarkdownBanco Central de laREPÚBLICA de SPAIN. It is the "big five". It is also one of the largest commercial and industrial banks in the country. Several of them deal with a variety of businesses of these banks, including, among others, banks and insurance companies on the premises of the largest companies in Spain.
+Banco Central de laREPÚBLICA de SPAIN. It is the "big five". It is also one of the largest commercial and industrial banks in the country. Several of them deal with a variety of businesses of these banks, including, among others, banks and insurance companies on the premises of the largest companies in Spain.
 
 Banco Central de laREPÚBLICA
 

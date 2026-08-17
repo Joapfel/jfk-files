@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5242.png
-
-Convert to Markdown4.- Creation of new private banks for the development of handlooms and industry;
+4.- Creation of new private banks for the development of handlooms and industry;
 
 5.- Reorganization of the Supreme Court of Accounts upon such basis as shall guarantee its most complete autonomy;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2244.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # MEMORANDUM FOR THE SECRETARY OF STATE
 

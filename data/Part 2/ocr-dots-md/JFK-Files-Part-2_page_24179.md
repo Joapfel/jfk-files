@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24179.png
-
-Convert to MarkdownTAB B
+TAB B
 
 ENTITIES SOLD
 

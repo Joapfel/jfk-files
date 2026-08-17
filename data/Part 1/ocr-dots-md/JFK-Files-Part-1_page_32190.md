@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32190.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 <table><tr><td>NAME OF EMPLOYEE (Last, First, Middle)</td><td>NEW AND RELATIONSHIP OF DEPENDENT*</td><td>CLAIM NUMBER</td></tr><tr><td>FLORES, Daniel</td><td>self</td><td>79 0606</td></tr></table>
 

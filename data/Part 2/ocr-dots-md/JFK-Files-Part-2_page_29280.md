@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29280.png
-
-Convert to MarkdownINS File Reviews...page 8
+INS File Reviews...page 8
 
 G. Pedro Digno Fox-Zamora
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14936.png
-
-Convert to MarkdownAn attendant problem has arisen in certain
+An attendant problem has arisen in certain
 inquiries in which the Department has made unreasonable
 requests for such reviews on extremely short notice. One of
 these involved a request for the results of the review later

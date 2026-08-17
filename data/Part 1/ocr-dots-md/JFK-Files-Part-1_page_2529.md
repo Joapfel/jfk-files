@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2529.png
-
-Convert to Markdownrelative or relatives in Leningrad. Although BRAUNS, when interviewed by the FBI, mentioned a number of items of which the KGB was aware concern-ing his background and occupation from his visa application, there is no specific reference in these interviews indicating his statement of purpose in visiting the USSR.
+relative or relatives in Leningrad. Although BRAUNS, when interviewed by the FBI, mentioned a number of items of which the KGB was aware concern-ing his background and occupation from his visa application, there is no specific reference in these interviews indicating his statement of purpose in visiting the USSR.
 
 Pages 282 - 286 of the previous summary reviews remarks by NOSENKO on the Boris BELITSKIY case and states that his claimed role in the case was not plausible. There are several specific points made in the summary which imply that NOSENKO was lying about his knowledge of the case. There is adequate reason to believe that NOSENKO exaggerated his own 1962 role in that NOSENKO now states he was to give assistance to Vladimir Lvovich ARTEMOV in the handling of BELITSKIY in Geneva in 1962 and not to supervise ARTEMOV.
 

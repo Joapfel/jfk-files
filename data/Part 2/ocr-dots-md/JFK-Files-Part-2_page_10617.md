@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10617.png
-
-Convert to MarkdownDCI/IC-75-0126
+DCI/IC-75-0126
 
 23 July 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9733.png
-
-Convert to MarkdownRESEARCH CONDUCTED AT FRANKLIN D. ROOSEVELT LIBRARY, HYDE PARK, NY ON 3/10-12/75
+RESEARCH CONDUCTED AT FRANKLIN D. ROOSEVELT LIBRARY, HYDE PARK, NY ON 3/10-12/75
 
 On 3/10/74, Mr. DONALD B. SCHEWE, Assistant Librarian in the Reference Archives, Franklin D. Roosevelt Library, Hyde Park, NY, was advised of our interest in locating any communications bearing upon a conversation between former President FRANKLIN D. ROOSEVELT and former Secretary of State CORDELL HULL in the latter part of August, 1936. Mr. SCHEWE was advised that this conversation was concerned with the security of the US and that Mr. J. EDGAR HOOVER of the FBI may have participated in this conversation. Mr. SCHEWE was also advised that Mr. ROOSEVELT allegedly reduced the subject matter of above conversation to a memorandum and that we were interested in locating this memorandum or some information bearing upon above conversation. Arrangements were made to meet with Mr. SCHEWE at the Franklin D. Roosevelt Library in Hyde Park, NY, on 3/12/75. Mr. SCHEWE indicated that in the meantime he would conduct some research in this matter.
 

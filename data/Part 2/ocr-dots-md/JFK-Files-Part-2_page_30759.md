@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30759.png
-
-Convert to Markdown(12) 10ct 1965
+(12) 10ct 1965
 Dispatch from COS/JMWAVE
 Panegue terminated as of 31 Oct 1965. Agent
 Service record recommends him for re-use, on

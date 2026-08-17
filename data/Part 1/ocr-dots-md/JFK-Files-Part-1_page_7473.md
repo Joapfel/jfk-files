@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7473.png
-
-Convert to MarkdownRETURN TO:ТАЙГЕР
+RETURN TO:ТАЙГЕР
 10/14/65 caw
 FILE #151-1423
 

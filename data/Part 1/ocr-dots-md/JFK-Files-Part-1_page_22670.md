@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22670.png
-
-Convert to Markdown# DISPATCH
+# DISPATCH
 
 <table><thead><tr><td>CLASSIFICATION</td><td>DISPATCH SYMBOL AND NO.</td></tr></thead><tbody><tr><td>SECRET</td><td>DN-A-12437</td></tr><tr><td>TO</td><td>HEADQUARTERS FILE NO</td></tr><tr><td>INFO</td><td></td></tr><tr><td>Chief of Station, San Jose</td><td></td></tr><tr><td>FROM</td><td>DATE</td></tr><tr><td>Chief of Station, Mexico City</td><td>13 March 1959</td></tr><tr><td>SUBJECT</td><td>RE: "43-3" - (CHECK "(X)" ONE)</td></tr><tr><td>Proposed Costa Rican CP Penetration</td><td>MARRED FOR INDEXING</td></tr><tr><td>ACTION REQUIRED</td><td>NO INDEXING REQUIRED.</td></tr><tr><td></td><td>INDEXING CAN BE JUDGED<br/>BY QUALIFIED HQ. DESK ONLY</td></tr><tr><td colspan="2">REFERENCE(S)</td></tr></tbody></table>
 

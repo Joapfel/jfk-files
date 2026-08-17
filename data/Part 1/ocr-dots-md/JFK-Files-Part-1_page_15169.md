@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15169.png
-
-Convert to MarkdownAccommodation Address for David
+Accommodation Address for David
 
 David De Panaskhet
 c/o Jan Filsudski

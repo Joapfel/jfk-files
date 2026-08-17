@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21508.png
-
-Convert to MarkdownDECRE:
+DECRE:
 
 Did you ever tell anyone in the KGB about your contact with
 American Intelligence? No.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7574.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Confid. Informat. edred that. T. H. B. in China in the month of May, 1954. The case is under the title "The Tragedy of the Chinese Revolution" by APPELWAN.
 

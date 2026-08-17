@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25526.png
-
-Convert to MarkdownML: The Soviets are very trained, they would leave a cigarette on an ashtray. If you knocked it over they know immediately someone was in the apartment.
+ML: The Soviets are very trained, they would leave a cigarette on an ashtray. If you knocked it over they know immediately someone was in the apartment.
 
 FS: Now, when the agents, before your husband opened the door with the pass key, did the agents look the door over to see if there was any powder marks, tapes, hairs, or anything, or something leaning against the door to signify that possibly when the Cuban general, this, not Cuban general, this Russian general, who is a top KGB agent...
 

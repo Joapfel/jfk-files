@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17757.png
-
-Convert to Markdown605- Salida... 622-
+605- Salida... 622-
 
 622- Salida.- $289xxnnx.- (Servicio Internacional)- MARINA pre-gunta si hay algún nuzaje o cable para la embajada. HF que no hay ningúnuno y que llame al 19-09-06,- 630-
 

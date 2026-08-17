@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29559.png
-
-Convert to Markdown2 May 1961
+2 May 1961
 
 MEMORANDUM FOR: Contract Personnel Division
 SUBJECT : Amendment of Contract -

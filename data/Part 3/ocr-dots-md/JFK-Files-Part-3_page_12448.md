@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12448.png
-
-Convert to Markdown# Riha case investigators' theories might be altered
+# Riha case investigators' theories might be altered
 
 By ALAN CUNNINGHAM
 Rocky Mountain News Writer

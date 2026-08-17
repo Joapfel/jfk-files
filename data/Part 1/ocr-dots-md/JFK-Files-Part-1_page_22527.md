@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22527.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 bearing the code name "Operation Lancet." It was basically a proposal for a course of political action reinforced by the threat of being backed by muscle. The operation was to begin with the arrival of a "special U.S. confidential envoy" who would tell Trujillo to leave the country. "He tells it plainly and decisively; he will give him 12 or 18 hours to do it." It would be made clear that if Trujillo refused, a border incident would be contrived, which would be followed by "collective intervention." Assuming Trujillo's acceptance of the ultimatum, the plan then outlined steps for transition to an operating representative government. The army would be reduced in size. A caretaker government would prepare for free elections. Ambassador Farland forwarded the plan with these comments of his own to Rubottom:
 

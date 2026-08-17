@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4702.png
-
-Convert to MarkdownIRS [JFK Law 11(a)]
+IRS [JFK Law 11(a)]
 
 CQRR PAGE 1 LINE 12 WORD 3 SHOULD BE MONTE
 END AND ACK

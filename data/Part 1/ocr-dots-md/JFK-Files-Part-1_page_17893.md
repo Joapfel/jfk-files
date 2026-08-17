@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17893.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>SECTION 1.</th><th></th><th></th></tr></thead><tbody><tr><td colspan="3">THE ABOVE PROJECT HAS BEEN APPROVED FROM 1 July 1959 TO 30 June 1959 IN THE TOTAL AMOUNT OF $ 135,000 AS Shown below.</td></tr><tr><td>FI/PROJECTS BRANCH</td><td></td><td>DATE</td></tr></tbody></table>
 

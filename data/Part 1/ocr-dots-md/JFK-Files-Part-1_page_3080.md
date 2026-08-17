@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3080.png
-
-Convert to MarkdownChief of Station, Buenos Aires
+Chief of Station, Buenos Aires
 
 Chief, of Station, Panama City
 

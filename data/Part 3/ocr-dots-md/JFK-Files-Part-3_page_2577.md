@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2577.png
-
-Convert to Markdown# Full Response
+# Full Response
 
 e. FBI "Manual for the Conduct of Electronic Surveillance". (D.1) (This manual only deals with court-ordered electronic surveillance, not with warrantless "national security" surveillance.)
 

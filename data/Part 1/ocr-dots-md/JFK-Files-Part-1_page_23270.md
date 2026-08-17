@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23270.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA AIR
 (Specific Air or Sea Fouch)

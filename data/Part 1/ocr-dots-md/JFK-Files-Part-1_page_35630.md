@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35630.png
-
-Convert to MarkdownPrograma Radial "El Médico y Usted"
+Programa Radial "El Médico y Usted"
 
 Marzo, 1965
 

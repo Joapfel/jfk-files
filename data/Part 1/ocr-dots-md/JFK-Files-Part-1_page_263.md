@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_263.png
-
-Convert to Markdown14-00000
+14-00000
 
 QDBIAS - Pedro Luis DIAZ Lang contact LA/Reg.
 

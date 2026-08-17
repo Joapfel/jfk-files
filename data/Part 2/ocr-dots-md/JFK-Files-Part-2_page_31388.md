@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31388.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 "about 1 May 69 and made a statement and asked them to investigate. About 7 May I heard Mr Wer Bell was in Bangkok at the President Hotel. I went there with a Capt Gaylord and got back the MACV form 6. On 14 May I turned it over to the OSI. I felt that I had closed out our sponsorship, but also felt his (Wer Bell's) activities in SEA warranted investigation. This is why I went to the OSI. I did not authorize or direct the shipment of any captured enemy weapons to Mr Wer Bell and/or Sionics."
 

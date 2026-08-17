@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5192.png
-
-Convert to Markdown# UICUING MESSAGE
+# UICUING MESSAGE
 
 SIGNAL CENTER USE ONLY
 

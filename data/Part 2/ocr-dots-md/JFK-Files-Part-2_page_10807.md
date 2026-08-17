@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10807.png
-
-Convert to MarkdownThe following items were taken from SWINGlish after a search of his person:
+The following items were taken from SWINGlish after a search of his person:
 
 (1) Greyhound bus ticket, number 1 49120676 12 dated "20 Aug. 71" for travel between Washington, D. C., and Philadelphia, Pa.
 

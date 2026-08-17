@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9612.png
-
-Convert to Markdown# JOIN THE
+# JOIN THE
 SECRET ASSOCIATION
 
 An organization of loyal Americans

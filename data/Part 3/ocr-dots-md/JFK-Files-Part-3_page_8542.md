@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8542.png
-
-Convert to Markdown3
+3
 
 **ITEM III.**
 

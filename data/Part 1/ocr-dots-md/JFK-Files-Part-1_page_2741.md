@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_2741.png
-
 s. NOSENKO was also to be custodian of certain sensitive files in the section.
 
 NOSENKO has signed a protocol which listed his principal responsibilities during 1960 and 1961. It reads in part:

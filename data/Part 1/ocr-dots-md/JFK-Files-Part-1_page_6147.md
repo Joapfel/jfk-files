@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6147.png
-
-Convert to MarkdownJUL 16 1975
+JUL 16 1975
 
 June 23, 1975
 

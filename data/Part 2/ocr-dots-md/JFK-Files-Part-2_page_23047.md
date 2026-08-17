@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23047.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 Mr. diGenova. Dollars.
 

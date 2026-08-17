@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23741.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONTINUATION OF
 DISPATCH

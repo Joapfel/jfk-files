@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15277.png
-
-Convert to Markdown5. Are the events regarding your life history true? Yes.
+5. Are the events regarding your life history true? Yes.
 
 6. Did you serve in the German Army? No.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32698.png
-
-Convert to Markdown14 December 1959
+14 December 1959
 
 TO: Chief, CI/Support
 

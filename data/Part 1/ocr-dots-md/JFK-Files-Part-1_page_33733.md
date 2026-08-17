@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33733.png
-
-Convert to Markdown- ? -
+- ? -
 
 As a result of the conference of the Slavik-Majer Conference, as an embryo but functioning body, the labor group sprang into action, and leaving the planning and organizational stages behind, launched itself finally into a big press conference and much fanfare. This Labor group, just to confuse an already confusing situation further, is known as the Central-Eastern European Committee, while Augustine advised.
 

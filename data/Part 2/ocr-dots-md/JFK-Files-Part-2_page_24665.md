@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24665.png
-
-Convert to MarkdownBissell said he "may have" given Tweedy specific instructions about steps he was to take to further an assassination plan, but he did not remember to do so (Bissell, 9/10,p.4). Bissell said that exploring access to Lumumba --"almost certainly" seeking information from the Chief of Station about access for poisoning -- would have been a "key part" of his "planning and preparatory activity" but he had no specific recollection of cable communications on this subject (Bissell, 9/10, pp. 6-8). Bissell remembered that he was aware that the Chief of Station had an agent thought to have direct access to Lumumba (Bissell, 9/10, p. 80).
+Bissell said he "may have" given Tweedy specific instructions about steps he was to take to further an assassination plan, but he did not remember to do so (Bissell, 9/10,p.4). Bissell said that exploring access to Lumumba --"almost certainly" seeking information from the Chief of Station about access for poisoning -- would have been a "key part" of his "planning and preparatory activity" but he had no specific recollection of cable communications on this subject (Bissell, 9/10, pp. 6-8). Bissell remembered that he was aware that the Chief of Station had an agent thought to have direct access to Lumumba (Bissell, 9/10, p. 80).
 
 Bissell testified that he "most certainly" approved any cables that Tweedy sent to the Chief of Station seeking information about gaining access to Lumumba but it was so sensitive a matter (Bissell, 9/10, p. 8) Bissell added:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22351.png
-
-Convert to MarkdownMost of them have described the serious repercus-
+Most of them have described the serious repercus-
 sions of NOSENKO's defection. The possibilities with regard to
 the accuracy of these sources' reporting are:
 

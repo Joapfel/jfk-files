@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25636.png
-
-Convert to MarkdownU N I T E D S T A T ES G O V E R N M E N T
+U N I T E D S T A T ES G O V E R N M E N T
 
 Memorandum
 

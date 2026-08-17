@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12909.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SSC
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 **"A."** Only to the extent that subsequent to May the 12th I conferred with a former Agent, Charles Harding. Prior thereto it had concerned me, that my initial answer to that question for some reason did not impress me as being completely correct. I mentioned this to Harding and he informed me that my answer was incorrect and mentioned the change in the King residence and the fact coverage had not been thereafter authorized. When he informed me of this I immediately recalled the change in residence which previously had escaped my memory.
 

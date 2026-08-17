@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7601.png
-
-Convert to MarkdownRe: Superseded Sections of the
+Re: Superseded Sections of the
 Manual of Instructions
 
 NOTE:

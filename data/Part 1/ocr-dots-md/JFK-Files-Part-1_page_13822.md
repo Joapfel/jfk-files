@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13822.png
-
-Convert to Markdown17. Military service
+17. Military service
 
 18. History of Employment.
 

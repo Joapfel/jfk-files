@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21851.png
-
-Convert to MarkdownAccording to this report, "after a time it became evident that NOSENKO's interest in her was not only sexual, but also in information to which she had access in the course of her duties." A second official in Geneva told CIA that NOSENKO had definitely tried to recruit the secretary and that he attempted to obtain "disarmament secrets" from her.
+According to this report, "after a time it became evident that NOSENKO's interest in her was not only sexual, but also in information to which she had access in the course of her duties." A second official in Geneva told CIA that NOSENKO had definitely tried to recruit the secretary and that he attempted to obtain "disarmament secrets" from her.
 
 At his second meeting with CIA on 11 June 1962, NOSENKO described the same incident, in the context of reporting a possible KGB penetration of British counterintelligence: "I decided to try to take this English girl to bed. And this had nothing to do with work. No, it was simply (sex)...And Yura [Yuriy GUK, First Chief Directorate officer in Geneva] said to me: 'Listen, Yura. Be careful, because we have people even in British counterintelligence.'" NOSENKO described the incident as follows:
 

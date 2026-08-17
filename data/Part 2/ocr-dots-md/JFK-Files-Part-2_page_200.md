@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_200.png
-
-Convert to Markdown3. Security
+3. Security
 
 No change.
 

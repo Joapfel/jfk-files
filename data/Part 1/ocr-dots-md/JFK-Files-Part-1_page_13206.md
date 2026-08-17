@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13206.png
-
-Convert to Markdown14-00006
+14-00006
 
 SECRET
 BOWWAVE FEB 68 CITE CARACAS 8895

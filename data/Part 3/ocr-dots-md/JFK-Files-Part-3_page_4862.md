@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4862.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 It is pointed out that, under passport regulations, ROTHMAN may use passport for lawful travel within period of its validity whenever and as often as desired without further notification to Department of State or other government agency. Passport Office does not receive information as to whether or when a passport is used for foreign travel.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6672.png
-
-Convert to MarkdownA12 884 999. DPOB: 25 Apr 1910, Cardenas, Matanzas Province. U.S. address: 509 W 178th St., Miami, Fla. Address in Cuba: 1502 64th St., Marianao, Havana. Entered the U.S. at Miami on 16 Feb 1962 (PAA 422). Occupation in Cuba: Professor of physics. Visa waiver. PP-38810 valid until 28 Aug 63. 5'6" tall, 162 lbs. Married to Elena TORO Abril. Source: Immigration card.
+A12 884 999. DPOB: 25 Apr 1910, Cardenas, Matanzas Province. U.S. address: 509 W 178th St., Miami, Fla. Address in Cuba: 1502 64th St., Marianao, Havana. Entered the U.S. at Miami on 16 Feb 1962 (PAA 422). Occupation in Cuba: Professor of physics. Visa waiver. PP-38810 valid until 28 Aug 63. 5'6" tall, 162 lbs. Married to Elena TORO Abril. Source: Immigration card.
 
 Doctor. Member of the Revolutionary Teachers Directory. Resides at 4009 Elba St., New Orleans, Louisiana, U.S. Source: List of members of the New Orleans Delegation of the Revolutionary Teachers Directory, 20 Jul 63.
 

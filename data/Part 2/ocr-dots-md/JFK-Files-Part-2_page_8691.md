@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8691.png
-
-Convert to Markdowna major change of U.S. policy towards Cuba. It was anticipated that U.S. reaction would be violent, and from the beginning the plan called for immediate withdrawal at the price of agreement by U.S. that it would end hostile attitude towards Cuba. The Soviets did not implement phase two. This disappointed and angered the Cubans. The Cuban leaders considered that the Soviets had besmirched its own honor and offended the pride of Cuba. KHRUSHCHEV composed a letter to President Kennedy proposing a deal concerning Soviet missile bases in Cuba and American bases in Turkey. KHRUSHCHEV reportedly later regretted the phraseology and not having consulted with Cuba prior to dispatch of the letter.
+a major change of U.S. policy towards Cuba. It was anticipated that U.S. reaction would be violent, and from the beginning the plan called for immediate withdrawal at the price of agreement by U.S. that it would end hostile attitude towards Cuba. The Soviets did not implement phase two. This disappointed and angered the Cubans. The Cuban leaders considered that the Soviets had besmirched its own honor and offended the pride of Cuba. KHRUSHCHEV composed a letter to President Kennedy proposing a deal concerning Soviet missile bases in Cuba and American bases in Turkey. KHRUSHCHEV reportedly later regretted the phraseology and not having consulted with Cuba prior to dispatch of the letter.
 
 **GNVA 6316 (IN 31199) dated 3 March 1964**
 

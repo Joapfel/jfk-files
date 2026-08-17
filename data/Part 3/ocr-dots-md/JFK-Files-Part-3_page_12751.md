@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12751.png
-
-Convert to MarkdownLegal Counsel to Adams Memorandum
+Legal Counsel to Adams Memorandum
 
 Re: SENSTUDY 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1033.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 June 1968.
 

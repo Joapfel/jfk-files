@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19342.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **THE CHOSEN GROUP OF AMERICAN VOTERS ARE GONE... BUT WE ARE AN UNREPRESENTATIVE MAJORITY! We find our government responding to its military-industrial advisors while it turns a deaf ear to us. Oh yes, we have heard and read the stirring speeches against the Vietnam war, made on the floor of Congress. But most of these great orators (men who were put into office with the help of women) proceed to vote for the billion dollar appropriations that make this war possible, while millions of Americans are robbed of their rights to decent housing, health services, education and employment.**
 

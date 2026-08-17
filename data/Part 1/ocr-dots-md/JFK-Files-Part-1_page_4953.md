@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4953.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>01F</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="7">SECRET</td></tr><tr><td>COM:</td><td>/L9?</td><td>INFO: FILE</td><td>000, 000/00,</td><td>CHPLAN</td><td>XLSN/ID, CHPS</td><td></td></tr></table>
 

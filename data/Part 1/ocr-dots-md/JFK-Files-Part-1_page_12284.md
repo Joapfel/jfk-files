@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12284.png
-
-Convert to MarkdownSECRETO
+SECRETO
 
 (b) En caso de que el Voluntario sea lesionado, hiriere o se en- fermara en el desempeno de su tareas, el Patrocinador provea beneficios medicos, quirurgicos y facilidades de hospital y transportacion. Se pagara compensacion por una cantidad a la sola discrecion del Patrocinador, con tal de que no exceda los limites maximos señalados arriba por muerte.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29460.png
-
-Convert to MarkdownClassification:
+Classification:
 
 exactly, but I do recall that it was considered a coup of some sort for her to act so fast in digging out the photograph and the information on Oswald's visit to Mexico City.380/
 

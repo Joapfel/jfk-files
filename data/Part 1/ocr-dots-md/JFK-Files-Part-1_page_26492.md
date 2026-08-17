@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26492.png
-
-Convert to MarkdownFIELD INFORMATION REPORT
+FIELD INFORMATION REPORT
 
 EVALUATION OF SOURCE A Completely reliable. B Un可靠 re-assess C Fairly reliable D Not usually reliable E Not reliable (Applied to sources of doubtful reliability or loyalty, regardless of their components.) F Reliability cannot be judged (Applied to untested or insufficiently tested sources).
 

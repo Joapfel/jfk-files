@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21703.png
-
-Convert to Markdown1984年3月20日
+1984年3月20日
 
 I had a client-King to worry about. And also, we were trying
 to bring Zog into this country. So I became interested as

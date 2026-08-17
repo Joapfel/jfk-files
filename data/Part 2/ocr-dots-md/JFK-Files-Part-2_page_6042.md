@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6042.png
-
-Convert to Markdown" The Historian's Dilemma," Understanding Congress: Research Perspectives, GPO, 1991.
+" The Historian's Dilemma," Understanding Congress: Research Perspectives, GPO, 1991.
 
 "President Kennedy's National Security Policy: A Reassessment," Reviews in American History, March 1991.
 

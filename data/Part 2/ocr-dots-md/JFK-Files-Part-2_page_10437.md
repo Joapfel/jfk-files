@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10437.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 7 May 1973

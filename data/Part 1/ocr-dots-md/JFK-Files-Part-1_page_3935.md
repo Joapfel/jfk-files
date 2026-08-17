@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3935.png
-
-Convert to MarkdownAtt. 61 to UPGA-21893 dated
+Att. 61 to UPGA-21893 dated
 
 UFGA-21693/14
 

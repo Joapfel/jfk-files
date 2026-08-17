@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9030.png
-
-Convert to MarkdownMEMO TO : AG
+MEMO TO : AG
 FROM : LH (~~TICHBORN~~) TICHBORN
 IN RE : Meetings with MT re Spain FAZARE
 

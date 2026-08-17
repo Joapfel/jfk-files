@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12611.png
-
-Convert to Markdownacuity; however, show period of time involved and inclusive dates
+acuity; however, show period of time involved and inclusive dates
 of informant reports. Summary statements must be statements of
 facts and not conclusions. Information from different sources
 must be reported separately.

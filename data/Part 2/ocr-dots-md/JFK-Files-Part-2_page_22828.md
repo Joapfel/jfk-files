@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22828.png
-
-Convert to Markdown43
+43
 
 1 impractical because it was going to kill a large group of people in a headquarters mess, or something of that sort.
 

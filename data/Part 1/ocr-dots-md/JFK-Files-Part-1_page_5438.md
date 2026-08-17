@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5438.png
-
-Convert to MarkdownDirector, Domestic Contact Service
+Director, Domestic Contact Service
 
 ATTN : OCS (Musulin) - Info: International Div. (Alyea)
 Chief, New York Office

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5912.png
-
-Convert to MarkdownJohn:
+John:
 
 Thank you for agreeing to participate in briefing the JFK Assassination Records Review Board (ARRB) to be held on Monday, 17 March, at 2:00 p.m., in 2C06 IP Bldg. I regret the short notice. As we discussed, the ARRB has asked for information relating to the creation, transmission, and dissemination of cables and your name instantly came to mind. Their specific questions are:
 

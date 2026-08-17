@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7619.png
-
-Convert to Markdownget together again with Subject in August.
+get together again with Subject in August.
 
 6. I asked Subject if he thought he would have time to teach the boy. Subject said it was impossible to tell, but he could probably make time if we considered it important enough. I told Subject there was a good chance we would and in any case not to give LOGINOV a negative answer before consulting me. I explained that LOGINOV was KGB and one of the most able men in the Embassy, and warned Subject to be on his toes in his relations with him.
 

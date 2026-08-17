@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10586.png
-
-Convert to MarkdownChinese) Unit
+Chinese) Unit
 Herbert J. Morgan
 Five Special Agents
 

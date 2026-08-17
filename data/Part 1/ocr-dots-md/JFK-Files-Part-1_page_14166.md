@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14166.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM 53a</td>
     <td>CLASSIFICATION</td>

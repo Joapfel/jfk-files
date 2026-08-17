@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20991.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>NNNNVV</td>
         <td>EIA 171</td>

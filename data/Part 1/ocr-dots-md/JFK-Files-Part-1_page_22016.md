@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22016.png
-
-Convert to Markdown** Official records, indicate that Lisbon was transferred from Moscow to Lisbon, Portugal, in August 1961. If these records are correct, STOBSERG could not have seen NORONE with MICHAUD on this night in October 1961.**
+** Official records, indicate that Lisbon was transferred from Moscow to Lisbon, Portugal, in August 1961. If these records are correct, STOBSERG could not have seen NORONE with MICHAUD on this night in October 1961.**
 
 SINCE THE LEAVE OF THE FRENCH INDEPENDENT REPUBLIC
 STOBSERG DID NOT REPLY TO A REPORT THAT BECAME public in

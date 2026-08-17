@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4913.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>0</td><td>1</td><td>2</td></tr><tr><td>W R T Y</td><td>S D N A P S</td><td>I G O V E M E N T</td></tr><tr><td>A L A I D U S</td><td>K C B O J E C T V</td><td>F O R W A R D F U L F U L</td></tr><tr><td>N O P S</td><td>S E S I L I V</td><td>T H E B U S I N E S S F U L</td></tr><tr><td>O T O H O</td><td>D E S I D E R T O H O</td><td>M U S I T O H O</td></tr><tr><td>E Q U I D E S</td><td>P E S O P E Q U I D E S</td><td>R E F U S E F U L</td></tr><tr><td>Y A M S</td><td>C O N F U C I E N C E</td><td>W A R E N T D E S I S S U E</td></tr><tr><td>G U S T A V O</td><td>D I S T A N C E</td><td>V I S I T O P S</td></tr><tr><td>I P L I S E N O N U P S</td><td>S O P E S / P E S I V E N O T</td><td>H O M E S E P E R M E N T</td></tr></table>
 

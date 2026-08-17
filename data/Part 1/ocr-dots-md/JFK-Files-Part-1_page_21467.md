@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21467.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE : 18 NOV 60</td>
     <td>SECRET</td>

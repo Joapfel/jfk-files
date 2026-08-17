@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31671.png
-
-Convert to MarkdownSTUDENT COMMITTEE FOR TRAVEL TO CUBA
+STUDENT COMMITTEE FOR TRAVEL TO CUBA
 
 "The Columbia Owl," weekly student newspaper of Columbia University, New York City, December 12, 1962, issue, page one, contained an article entitled "Students to Visit Cuba During Holidays." This article stated in part that the Ad Hoc Student Committee for Travel to Cuba was formed October 14, 1962, by a group of students from New York City universities, the University of Wisconsin, Oberlin College and the University of North Carolina, who stated that as students they would like a chance to see and evaluate the situation in Cuba for themselves and had received an offer of transportation and two weeks stay in Cuba from the Federation of University Students in Havana, as guests of the Federation. The Committee accepted the offer and applied to the State Department of the United States for passport validation which was refused; however, over fifty students planned to defy the State Department ban and go to Cuba.
 

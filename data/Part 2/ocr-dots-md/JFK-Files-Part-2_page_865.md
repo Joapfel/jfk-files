@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_865.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION C</td></tr></table>
 

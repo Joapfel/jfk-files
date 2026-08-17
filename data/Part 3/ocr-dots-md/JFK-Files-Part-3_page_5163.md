@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5163.png
-
-Convert to MarkdownRev. 8/17/70
+Rev. 8/17/70
 
 CRIMINAL INFORMANTS
 

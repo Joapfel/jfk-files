@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2393.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1. FULL NAME</td>
     <td>BUSINESS OR HOME ADDRESS (One complete address in living street and number, etc.)</td>

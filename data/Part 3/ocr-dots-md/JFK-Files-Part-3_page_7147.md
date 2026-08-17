@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7147.png
-
-Convert to MarkdownMarch 4, 1975
+March 4, 1975
 
 MEMORANDUM FOR MR. ADAMS
 MR. WANNALL

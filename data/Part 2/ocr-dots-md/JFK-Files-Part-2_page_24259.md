@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24259.png
-
-Convert to Markdowntionship maintained with the IRS was basically a normal one.
+tionship maintained with the IRS was basically a normal one.
 Houston recalled that in the mid-50's the company, Air America,
 received a notice that they were going to be audited by the IRS.
 Company officials came to the Agency and indicated that this might

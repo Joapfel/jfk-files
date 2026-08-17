@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25006.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>4. Subject became very emotional and he requested that his son transfer the case to another judge. Subject indicated that he could not allow his son to be away from him. His request was turned down, and "Vladimir" (who could help him get this done) would not ask for their help.</td>

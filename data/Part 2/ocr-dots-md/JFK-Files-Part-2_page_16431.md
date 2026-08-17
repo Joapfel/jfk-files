@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16431.png
-
-Convert to Markdown1. We want freedom. We want power to determine the destiny of our Black Community.
+1. We want freedom. We want power to determine the destiny of our Black Community.
 
 We believe that black people will not be free until we are able to determine our destiny.
 

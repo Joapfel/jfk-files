@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5050.png
-
-Convert to Markdown10/09/84
+10/09/84
 
 SECRET
 FRP: .2.7 .2.7 .

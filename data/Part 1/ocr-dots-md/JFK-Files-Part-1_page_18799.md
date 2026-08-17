@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18799.png
-
-Convert to MarkdownMr. Karlow, Secretariat
+Mr. Karlow, Secretariat
 via Mr. May
 C. J. Gilbert, Registry
 

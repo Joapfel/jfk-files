@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4548.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 B. The CIA has primary responsibility for the clandestine collection of foreign intelligence information, and for the correlation, evaluation and dissemination within the Government of foreign positive and counter intelligence. It gathers and maintains biographic and other data on organizations and individuals, official and non-official, for the purpose of performing its statutory functions. It also originates, and receives from other sources, reports on organizations and individuals. However, the Agency has no police, subpoena or law-enforcement powers or internal-security functions.
 

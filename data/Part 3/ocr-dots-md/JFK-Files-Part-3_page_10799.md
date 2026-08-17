@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10799.png
-
-Convert to MarkdownNSCID No. 2 issued 1/13/48, relates to coordination of foreign intelligence collection activities "not covered by other NSC Directives."
+NSCID No. 2 issued 1/13/48, relates to coordination of foreign intelligence collection activities "not covered by other NSC Directives."
 
 The Director of Central Intelligence has responsibility for planning to assure there is no undesirable duplication and that coverage is adequate.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7971.png
-
-Convert to MarkdownSECRET
+SECRET
 
 27. Speech by Ronald Van Doren. Mr. Van Doren seems to be a follower of Governor Wallace. He began by commenting on the sad situation in a country with a judiciary where individuals have to make conjectures regarding a case as obvious as that of Bremer. There is no doubt that Bremer pulled the trigger. But one should examine the political situation at the time of his action. Wallace was by far the leading candidate in the election campaign, a threat to other candidates, and he was winning the nomination. He represented a challenge to both parties. Nothing he said could be interpreted as racist, and in the economic sense he carried wide appeal. The question which faced the other candidates was how he could be stopped from disrupting the two parties and from preventing the re-election of the President. History will show how he was stopped and why this occurred.
 

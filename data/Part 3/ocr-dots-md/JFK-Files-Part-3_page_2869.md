@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2869.png
-
-Convert to Markdown2455
+2455
 
 In short, if we learn a murder or bombing is to be carried out now, can we truly meet our responsibilities by investigating only after the crime has occurred, or should we have the ability to prevent? I refer to those instances where there is a strong sense of urgency because of an imminent threat to human life.
 

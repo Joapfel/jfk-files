@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_49.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><thead><tr><th colspan="2">EX</th></tr><tr><td>FILE IN CS FILE NO.</td><td></td></tr></thead><tbody><tr><td colspan="2">FROM DIRECTOR</td></tr></tbody></table>
 

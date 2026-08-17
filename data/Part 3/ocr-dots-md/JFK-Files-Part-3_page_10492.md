@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10492.png
-
-Convert to MarkdownHOLDERS’ INFORMATION
+HOLDERS’ INFORMATION
 
 We have enclosed the following notice and attached it herewith a copy of the letter issued by the NYSE to you on October 23, 1987. As you may see, we have received an attachment to our letter which is attached to this notice.
 

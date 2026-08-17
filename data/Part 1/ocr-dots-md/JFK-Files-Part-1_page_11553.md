@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11553.png
-
-Convert to MarkdownSiempre #810
+Siempre #810
 
 # GUATEMALA, PÚBLICA
 Sra. Director:

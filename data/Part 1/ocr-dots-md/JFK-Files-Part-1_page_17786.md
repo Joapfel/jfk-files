@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17786.png
-
-Convert to Markdown321-
+321-
 
 Salida ocupada.- 327-
 

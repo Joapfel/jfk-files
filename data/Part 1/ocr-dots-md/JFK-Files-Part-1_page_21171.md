@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21171.png
-
-Convert to MarkdownDLB: 71 APM 85
+DLB: 71 APM 85
 
 <table><thead><tr><th colspan="4">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>1. SERIAL NUMBER</td><td>2. NAME (LAST FIRST MIDDLE)</td><td>3. EFFECTIVE DATE</td><td>4. CATEGORY OF EMPLOYMENT</td></tr><tr><td>025798</td><td>WILCOTT JAMES B JR</td><td>NO. DA TO<br/>04 24 65</td><td>REGULAR</td></tr><tr><td rowspan="2">6. FUNDS X</td><td>V TO V</td><td>V TO CF</td><td rowspan="2">7. COST CENTER NO. CHARGEABLE<br/>5277 0003 0000</td><td rowspan="2">8. CSC OR OTHER LEGAL AUTHORITY</td></tr><tr><td>CF 10 V</td><td>CF 10 CF</td></tr><tr><td colspan="2">9. ORGANIZATIONAL DESIGNATIONS</td><td colspan="2">10. LOCATION OF OFFICIAL STATION</td></tr><tr><td colspan="2">11. POSITION TITLE<br/>FINANCE ASSISTANT</td><td colspan="2">12 POSITION NUMBER<br/>0470<br/>13 SERVICE DESIGNATION<br/>SF</td></tr><tr><td>14. CLASSIFICATION SCHEDULE (GS, LD, etc.)<br/>QS</td><td>15. OCCUPATIONAL SERIES<br/>0510.18</td><td>16. GRADE AND STEP<br/>07 4</td><td>17. SALARY OR RATE<br/>6850</td></tr><tr><td colspan="2">18. REMARKS</td><td colspan="2">SIGNATURE OR OTHER AUTHENTICATION</td></tr></tbody></table>
 

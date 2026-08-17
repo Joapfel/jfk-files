@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3158.png
-
-Convert to Markdown1770
+1770
 
 he knew any negro of outstanding intelligence or ability, let me know and we would have a discussion.
 

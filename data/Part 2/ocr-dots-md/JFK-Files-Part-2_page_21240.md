@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21240.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and he was the friend of CECCHI recruited by MALYugin. He said [CANALA] had given "some hint" to MALYugin concerning another Italian working in another Embassy who was a homosexual.
 

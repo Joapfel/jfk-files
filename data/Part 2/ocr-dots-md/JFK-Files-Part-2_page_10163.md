@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10163.png
-
-Convert to Markdown62-116395
+62-116395
 
 February 27, 1976
 

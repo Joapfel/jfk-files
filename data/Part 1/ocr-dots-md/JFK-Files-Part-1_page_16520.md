@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16520.png
-
-Convert to Markdown5 APR
+5 APR
 1972
 
 # DETAILED JUSTIFICATION AND ASSESSMENT

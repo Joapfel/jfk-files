@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6041.png
-
-Convert to MarkdownJose antonio echaeveria con tus ideas en marcha
+Jose antonio echaeveria con tus ideas en marcha
 
 **Mexico.-** The newspaper "Ataque", official reporter of the Delegation, is published. Many pamphlets, as the one about the 27th of November, and tons of written propaganda have been edited.
 

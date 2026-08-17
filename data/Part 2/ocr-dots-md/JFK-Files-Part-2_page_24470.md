@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24470.png
-
-Convert to Markdownhim" (Elder, p. 60). Elder further testified:
+him" (Elder, p. 60). Elder further testified:
 
 Q: "Other than that conversation that you just described between yourself and Mr. McCone, did he have anything else to say about that memorandum?
 

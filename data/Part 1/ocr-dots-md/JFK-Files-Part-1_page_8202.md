@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8202.png
-
-Convert to MarkdownPost Office Box 8105
+Post Office Box 8105
 Washington, D. C.
 
 March 9, 1960

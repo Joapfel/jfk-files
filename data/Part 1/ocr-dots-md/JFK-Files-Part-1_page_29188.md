@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29188.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">UNITED STATES L. SERVICE COMMISSION<br>DIRECTOR<br>FOURTH U. S. CIVIL SERVICK REGIO<br>TEMPORARY BUILDING "R"<br>3RD &amp; JEFFERSON DRIVE, S. W.<br>WASHINGTON, D. C.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10566.png
-
-Convert to MarkdownMr. Thomas V. Glynn
+Mr. Thomas V. Glynn
 
 July 9, 1975
 

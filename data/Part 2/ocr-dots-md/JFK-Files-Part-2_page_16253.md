@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16253.png
-
-Convert to MarkdownSergeant EUGENE CONNOLLY, Area Four Task Force,
+Sergeant EUGENE CONNOLLY, Area Four Task Force,
 Chicago Police Department, advised on June 9, 1969, that
 11 panther members were arrested after leaving panther
 headquarters during the evening of June 8, 1969. They

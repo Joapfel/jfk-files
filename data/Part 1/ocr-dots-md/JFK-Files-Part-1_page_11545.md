@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_11545.png
-
-Convert to MarkdownCara Sínsis
+Cara Sínsis
 
 Irregulares, el 29 de Diciembre de 1968. Eran al escribir este lo que fue al regreso de la finca dos días de platicar, con los revistos, tuvo corteo aminer el mismo día las tres y la tasaeta que está muy linda mucha gracias por todas tus primas. En la que tiene un fecho 20 mds. semanas a decir que éz envío una carta o la E & C. pero no en tiendo a donde es o a'quín, porque con el favor de aplicarme bien con él. Esa carta del hombre de la barrieta como me desagrado tanto la extra vía pero si la encuentro te la mando pés los patos, me lo dijeron desde un principio para qué tú te dieras cuenta acerca de ella pero ifo así muy brindará de la medida. El me mandó a decir que estaban trabajando en otra compañía (ala) por lo tanto no me comprenderá en lo que te me mandan a contratar pero él too muy sincera a ese respecto y por lo mismo me enoje mucho. Loma en cuenta que cuando Nels estuviera

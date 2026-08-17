@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11109.png
-
-Convert to Markdown5 April 1967
+5 April 1967
 
 MEMORANDUM FOR: CI/04
 

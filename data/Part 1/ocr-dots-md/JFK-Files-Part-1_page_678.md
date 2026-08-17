@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_678.png
-
-Convert to Markdown17 Jan 96
+17 Jan 96
 
 Washington
 

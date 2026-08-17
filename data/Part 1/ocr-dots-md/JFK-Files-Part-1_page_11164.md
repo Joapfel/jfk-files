@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11164.png
-
-Convert to Markdown22 November 1966
+22 November 1966
 
 Memorandum for the Record
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9316.png
-
-Convert to MarkdownFri. 25 Aug. 50
+Fri. 25 Aug. 50
 
 (non-labelled)
 

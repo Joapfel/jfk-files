@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6307.png
-
-Convert to Markdown# Secret - Working Notes
+# Secret - Working Notes
 
 ## Post Board Tasks (some examples)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4020.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 a Special Investigator for the Department of Alcoholic Beverage Control (ABC), State of California, Los Angeles, California, and had been dismissed in June, 1962, for his failure to answer questions pertaining to allegations he made concerning corruption within that organization.
 

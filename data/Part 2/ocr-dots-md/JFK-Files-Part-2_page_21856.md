@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21856.png
-
-Convert to MarkdownThe same day, through the PROP channel, Hedgman received authorization from headquarters to proceed with his top priority plan:
+The same day, through the PROP channel, Hedgman received authorization from headquarters to proceed with his top priority plan:
 
 YOU ARE AUTHORIZED HAVE EXPLORATORY TALKS WITH (SCHOTROFF) TO ASSESS HIS ATTITUDE TOWARD POSSIBLE ACTIVE AGENT OR CUTOUT ROLE. ... APPRECIATE MANNER YOUR APPROACH TO PROBLEM. (CIA Cable, OUT 75900, Fields to Leopoldville, 9/30/60.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28274.png
-
-Convert to Markdown(8)
+(8)
 
 E. IF BORN OUTSIDE U.S. WHEN DID YOU FIRST ARRIVE IN THIS COUNTRY? NA
 

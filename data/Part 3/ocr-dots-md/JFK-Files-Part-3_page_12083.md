@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12083.png
-
-Convert to Markdowncurrently average 27 per month; and (2) the appreciable increase (62 percent) in the past ten years of the Foreign Police Cooperation cases we handle.
+currently average 27 per month; and (2) the appreciable increase (62 percent) in the past ten years of the Foreign Police Cooperation cases we handle.
 
 The Legal Attache expansion in December, 1970, increased Bureau personnel abroad from 60 to 88, of which latter number 42 are Special Agents. The latest case load figures available for the 11 Legal Attache offices then existing are for 10/31/70, at which time the 11 offices carried a total of 3,020 cases. In October, 1960, five Special Agent Supervisors were assigned to the FLD, one of whom devoted a portion of his time to Buplans matters, which matters have now been transferred to another Section. At that time the case load for all foreign offices was 1693.
 

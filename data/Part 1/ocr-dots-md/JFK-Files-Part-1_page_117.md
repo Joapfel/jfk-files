@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_117.png
-
-Convert to MarkdownUnited States territorial waters. REUTEMAN advised AMCARBON-1 that KUBARK had played no role in mounting a provocation operation against the GOC. At the same time, REUTEMAN pointed out that it was highly unlikely that GUIROLA was a GOC agent. As a result of this conversation, arrangements were made for JMWAVE to check out certain aspects of the GUIROLA story. At the same time, AMCARBON-1 was prevailed upon not to write a story which might lead the public to speculate on whether GUIROLA was an agent or a plant in a propaganda play designed to embarrass the GOC.
+United States territorial waters. REUTEMAN advised AMCARBON-1 that KUBARK had played no role in mounting a provocation operation against the GOC. At the same time, REUTEMAN pointed out that it was highly unlikely that GUIROLA was a GOC agent. As a result of this conversation, arrangements were made for JMWAVE to check out certain aspects of the GUIROLA story. At the same time, AMCARBON-1 was prevailed upon not to write a story which might lead the public to speculate on whether GUIROLA was an agent or a plant in a propaganda play designed to embarrass the GOC.
 
 **7. PROPAGANDA OUTLET.** AMCARBON-1 has been used successfully, during the period covered by this report, as a propaganda outlet through which items of interest to KUBARK could be surfaced in the free world press. Examples of how AMCARBON-1 has been harnessed in this field are outlined below:
 

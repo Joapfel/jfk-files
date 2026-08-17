@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33315.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 In radio as in the press the Government has used CUP committees to formulate exaggerated wage demands, to ferment strikes, and to form ramp unions. CUP unions at Radio Pacifico, for example, forced the owner to sell out to a cooperative formed by employees when wage demands could not be met. The radio station subsequently was purchased by the Radical Party -- a member of the UP coalition.
 

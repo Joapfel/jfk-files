@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4999.png
-
-Convert to MarkdownCG 100-44963
+CG 100-44963
 
 For the Bureau's information, Sgt. JOSEPH GRUBISIC, Intelligence Section, Chicago PD, advised previously that he had learned from DAVID STAHL of the Mayor's Office, Chicago, that they had received a telephone call, a couple of days ago, from one WES POMEROY of the U.S. Attorney General's Office, to the effect that the Attorney General wanted the Chicago city officials to give every consideration to the granting of the permits requested by the Yippies.
 

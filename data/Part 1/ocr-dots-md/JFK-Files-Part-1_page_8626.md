@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8626.png
-
-Convert to Markdown14-00005
+14-00005
 
 **V. E. Aghilar**
 Virgen Aguilar

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8797.png
-
-Convert to MarkdownTowards the end of the article it reports that MC KEVITT had received an official denial from "a Washington source" that any of the official agencies which have been named in connection with the RIHA case actually had any knowledge of where RIHA is now. The source, according to the article which MC KEVITT refused to identify, also said RIHA was not involved in espionage of any sort and that none of these agencies have ever told anyone in Boulder, Denver, or elsewhere that RIHA was alive and well.
+Towards the end of the article it reports that MC KEVITT had received an official denial from "a Washington source" that any of the official agencies which have been named in connection with the RIHA case actually had any knowledge of where RIHA is now. The source, according to the article which MC KEVITT refused to identify, also said RIHA was not involved in espionage of any sort and that none of these agencies have ever told anyone in Boulder, Denver, or elsewhere that RIHA was alive and well.
 
 The article points out the most frequently mentioned agencies have been the FBI, CIA, Military Intelligence agencies and the U. S. INS.
 

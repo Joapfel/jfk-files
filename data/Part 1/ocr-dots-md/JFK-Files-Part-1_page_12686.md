@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12686.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ADJUSTMENT BY: 46</td>
     <td>PER:</td>

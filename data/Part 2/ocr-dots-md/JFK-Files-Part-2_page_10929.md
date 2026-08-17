@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10929.png
-
-Convert to Markdown[3. Persons to be contacted shortly after the arrival of the SAC include:
+[3. Persons to be contacted shortly after the arrival of the SAC include:
 
 a. Federal judges
 

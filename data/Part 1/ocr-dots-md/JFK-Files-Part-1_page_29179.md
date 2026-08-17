@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29179.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 INTEROFFICE MEMORANDUM
 

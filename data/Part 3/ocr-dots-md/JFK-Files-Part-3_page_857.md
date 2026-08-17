@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_857.png
-
-Convert to MarkdownUnited States citizens, unless it has a "significant connection" with a foreign power, its agents or agencies; by "significant connection" the FBI and the Department of Justice understand that the domestic organization must be substantially financed by, controlled by, or in active collaboration with such foreign power for the purposes of committing unlawful activities against the United States Government. The FBI presents its request to the Attorney General with all the facts and circumstances on which the request is based, and he must exercise an independent judgment as to whether the request falls within this standard and the letter, spirit, and rationale of the Keith decision.
+United States citizens, unless it has a "significant connection" with a foreign power, its agents or agencies; by "significant connection" the FBI and the Department of Justice understand that the domestic organization must be substantially financed by, controlled by, or in active collaboration with such foreign power for the purposes of committing unlawful activities against the United States Government. The FBI presents its request to the Attorney General with all the facts and circumstances on which the request is based, and he must exercise an independent judgment as to whether the request falls within this standard and the letter, spirit, and rationale of the Keith decision.
 
 ***
 

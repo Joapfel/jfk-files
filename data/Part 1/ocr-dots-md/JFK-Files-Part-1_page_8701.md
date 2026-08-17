@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8701.png
-
-Convert to Markdown10.01.02 Conduce a velocidad Muy alta ___ Promedio ✓: Muy baja ___
+10.01.02 Conduce a velocidad Muy alta ___ Promedio ✓: Muy baja ___
 
 10.01.03 Mientras conduces y conversa, da la impresión de que Presta poca atención al manejo ___
 

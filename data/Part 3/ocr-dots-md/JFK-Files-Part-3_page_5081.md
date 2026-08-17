@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5081.png
-
-Convert to MarkdownNWI 88608. DocID:32989550 Page 166
+NWI 88608. DocID:32989550 Page 166
 
 | Name | Compartmented Clearance Designated Briefed (SI, TK, B) | Date and Place of Birth | Social Security No. |
 |---|---|---|---|

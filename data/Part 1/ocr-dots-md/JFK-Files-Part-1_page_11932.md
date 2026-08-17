@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11932.png
-
-Convert to MarkdownUnited States District Court
+United States District Court
 FOR THE
 SOUTHERN DISTRICT OF CALIFORNIA
 

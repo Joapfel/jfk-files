@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25274.png
-
-Convert to MarkdownFIELD INFORMATION REPORT
+FIELD INFORMATION REPORT
 
 COUNTRY: Mexico
 SUBJECT: Activities of the Soviet Embassy, Mexico City, September 1956.

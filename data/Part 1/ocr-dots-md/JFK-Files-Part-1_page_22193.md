@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_22193.png
-
-Convert to Markdowngranted to him. That was the most serious defeat of the Soviet Security organs as NOSENKO occupied important positions in espionage and counterespionage departments and also was closely acquainted with the country's leading families and homes."
+granted to him. That was the most serious defeat of the Soviet Security organs as NOSENKO occupied important positions in espionage and counterespionage departments and also was closely acquainted with the country's leading families and homes."

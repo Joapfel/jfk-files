@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7641.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. After S, XIX wife and M had left BESABER picked up a girl and drove to the Arosena (phonetic) hotel in downtown Cuernavaca. Sitting in the garden of the hotel at about 1300 he spotted S(with his shirt off) sitting at another table conversing with a man who looked Russian, apparent age 25, thin, wavy dark brown hair. S's wife also present, but M not. BESABER left after about 15 minutes without talking to S although S must have seen him.
 

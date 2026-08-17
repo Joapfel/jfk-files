@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2865.png
-
-Convert to Markdown(SEVENTH DEPARTMENT - January 1962-January 1964)
+(SEVENTH DEPARTMENT - January 1962-January 1964)
 
 NOSENKO described the various ways he had tested suspicions of SHAKHOV in Geneva. He gave SHAKHOV disinformation and then watched for an indication that he passed it on to his American contacts. SHAKHOV was told to perform countersurveillance tasks during a meeting by NOSENKO with an imaginary agent, while other KGB officers checked for signs that SHAKHOV had forewarned the Americans about the meeting. Finally NOSENKO revealed to SHAKHOV the location of a KGB dead drop and checked five days later to see whether the specially prepared materials emplaced had been disturbed in any way. NOSENKO's conclusion was that SHAKHOV was absolutely free of suspicion, and it was his intention to report this finding when he returned to KGB Headquarters from Geneva.
 

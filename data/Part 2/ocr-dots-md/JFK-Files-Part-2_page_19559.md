@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19559.png
-
-Convert to Markdown**Modern welfare programs in the United States began with passage of the Social Security Act---In 1935, authorizing federal grants to states for public assistance and child welfare programs. In 1937, the Washington Legislature repealed the Puppers Law of 1854 and enacted a State Social Security Law. "Welfare" has been a bone of contention ever since.**
+**Modern welfare programs in the United States began with passage of the Social Security Act---In 1935, authorizing federal grants to states for public assistance and child welfare programs. In 1937, the Washington Legislature repealed the Puppers Law of 1854 and enacted a State Social Security Law. "Welfare" has been a bone of contention ever since.**
 
 ## Greenleigh Report
 

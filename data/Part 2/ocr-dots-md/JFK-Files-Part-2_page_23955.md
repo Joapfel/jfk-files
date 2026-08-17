@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23955.png
-
-Convert to Markdownminutes:
+minutes:
 
 " Cabell [Deputy DCI] noted that the internal dissidents were pressing for the release to them of certain small arms now in U.S. hands in the Dominican Republic. He inquired whether the feeling of the Group remained that these arms should not be passed. The members showed no inclination to take a contrary position at this time."* (Emphasis supplied). (Special Group Minutes, 5/18/61)
 

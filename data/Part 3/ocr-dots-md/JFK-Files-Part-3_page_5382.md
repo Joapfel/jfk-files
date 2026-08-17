@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5382.png
-
-Convert to MarkdownMAIL SURVEILLANCE,
+MAIL SURVEILLANCE,
 
 AND
 FROM SOURCE

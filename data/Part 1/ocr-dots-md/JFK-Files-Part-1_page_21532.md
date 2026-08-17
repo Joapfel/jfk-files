@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21532.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (counter-intelligence work among Soviet specialists in Ethiopia). The chief of 2 chief directory agreed and the question was almost decided but in the last moment the personnel department of KGB did not agree. The reasons were the case of 1954 (illness and use of the passport for "cover") and a checking in the place of my living (some of agents report that drink and on this base have quarrels with the wife).
 

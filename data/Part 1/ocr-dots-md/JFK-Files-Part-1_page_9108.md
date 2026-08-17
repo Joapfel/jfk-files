@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9108.png
-
-Convert to Markdown1. <u>**_First Part of the Article._**</u>
+1. <u>**_First Part of the Article._**</u>
 
 Echegaray is the number-three man at Euskal Herria and the person just directly involved in all TOF business. He is generally a very pleasant and intelligent person, but if we chance to consider recruiting him for the bank, I would recommend against such a move. Aside from certain personal traits (a tendency to be a plumbonist and general untidiness), Níco is often excessively outspoken and indiscreet. In a strongly-Catholic country he frequently blasts the Church without bothering to ascertain the religious inclinations of the person he's addressing - and his political views are brusely about with equal abandon. Furthermore, I have a feeling that Echegaray wants to get out of Spain and perhaps out of the investment business. Perhaps he's one of those perpetually-disinterested human beings who are always bitching about their jobs or resident countries but never make them move - _enchafados_?
 

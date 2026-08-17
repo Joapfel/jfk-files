@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11014.png
-
-Convert to MarkdownACTION: WH 8
+ACTION: WH 8
 
 INFO : DOP, CI/OA, WE 4, SAS 5, S/C 2
 

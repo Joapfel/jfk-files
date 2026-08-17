@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26033.png
-
-Convert to Markdownoperations personnel. The remaining six trainees may be
+operations personnel. The remaining six trainees may be
 assumed to have moderate experience - more in the field of law
 enforcement and police investigations rather than intelligence
 operations. 201 files are available at the desk on each indivi-

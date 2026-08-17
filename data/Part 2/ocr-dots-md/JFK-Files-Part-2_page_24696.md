@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24696.png
-
-Convert to MarkdownThe Chief of Station was confident that he would have foreknowledge
+The Chief of Station was confident that he would have foreknowledge
 of Lumumba's departure and that action plans were prepared for that
 eventuality:
 

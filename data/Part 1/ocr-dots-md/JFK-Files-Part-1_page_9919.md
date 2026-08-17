@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9919.png
-
-Convert to MarkdownLIRING-2
+LIRING-2
 
 L-2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13654.png
-
-Convert to MarkdownLetter from Director, FBI to Attorney General
+Letter from Director, FBI to Attorney General
 UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE
 ACTIVITIES
 

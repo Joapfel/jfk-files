@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23537.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TRSA-1142
 

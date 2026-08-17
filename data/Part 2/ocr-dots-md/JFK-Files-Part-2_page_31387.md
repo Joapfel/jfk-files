@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31387.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 "identified by a serial number as required by this chapter; or
 

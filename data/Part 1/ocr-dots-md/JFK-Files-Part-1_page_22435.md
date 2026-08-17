@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22435.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO<br/>Chief, VI Division</td><td>SECRET</td><td>MARRED FOR RELEASE<br/>NO INDICATION REQUIRED<br/>ONLY QUALIFIED DESE<br/>CAN BEGINS<br/>MICROFILM</td></tr><tr><td>FROM<br/>Chief of Station, Maxie City</td><td></td><td></td></tr><tr><td>SUBJECT<br/>FBI Part I - Alfonso DiSilva Torres</td><td></td><td></td></tr><tr><td colspan="3">ACTION REQUIRED - REFERENCED</td></tr></tbody></table>
 

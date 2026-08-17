@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21628.png
-
-Convert to Markdownwas not sponsored by any person of influence as was the case in 1953 with General KOBULOV who in mid-March 1953 was the First Deputy to BERIYA.
+was not sponsored by any person of influence as was the case in 1953 with General KOBULOV who in mid-March 1953 was the First Deputy to BERIYA.
 
 The previous summary also states that according to KGB defectors familiar with the standards in force at the time, no candidate was accepted who had ever had tuberculosis. This is a flat statement which it is doubtful any defector or series of defectors could fully substantiate; namely, that it never happened. Until and unless it is medically proven that NOSENKO did not have tuberculosis, it is accepted that he did have tuberculosis in 1952 and was at a sanitarium -- rest place in Kubinka. It is also accepted that he was an officer in the KGB after mid-March 1953. The influence of KOBULOV could undoubtedly have permitted NOSENKO to enter the KGB even though he previously had tuberculosis, but the flat statement that no candidate was accepted who had ever had tuberculosis is not and cannot be sufficiently substantiated.
 

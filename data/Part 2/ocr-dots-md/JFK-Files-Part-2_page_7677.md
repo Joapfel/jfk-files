@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7677.png
-
-Convert to Markdownhave the number 866 assigned to the memo that Mr. Hoover is going to send about protection of the President, and have it admitted to this record under that number.
+have the number 866 assigned to the memo that Mr. Hoover is going to send about protection of the President, and have it admitted to this record under that number.
 
 The CHAIRMAN. Yes; it may be.
 

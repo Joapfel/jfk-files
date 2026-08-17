@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8509.png
-
-Convert to MarkdownSECRET
+SECRET
 
 | Item | Manuscript Page | Exemption |
 |---|---|---|

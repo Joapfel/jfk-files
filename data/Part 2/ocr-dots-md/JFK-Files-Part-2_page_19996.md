@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19996.png
-
-Convert to Markdown# APPENDIX
+# APPENDIX
 
 ## Characterizations of Organizations
 

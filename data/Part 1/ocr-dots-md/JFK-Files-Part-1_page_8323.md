@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8323.png
-
-Convert to MarkdownMay 8, 1969.
+May 8, 1969.
 
 LIBACON-1
 

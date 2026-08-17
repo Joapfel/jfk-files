@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32722.png
-
-Convert to MarkdownChairman Khrushchev sent a copy of this message to U Thant "to enable you to familiarize yourself with our position, which we regard as exhaustive and which will help you to discharge your noble functions." At the same time, he informed the United States and the United Nations, that in connection with the negotiations U Thant was conducting with representatives of the USSR, the United States, and Cuba, the Soviet Government was sending First Deputy Foreign Minister V. V. Kuznetsov to New York to help U Thant in his "noble efforts aimed at eliminating the present dangerous situation."
+Chairman Khrushchev sent a copy of this message to U Thant "to enable you to familiarize yourself with our position, which we regard as exhaustive and which will help you to discharge your noble functions." At the same time, he informed the United States and the United Nations, that in connection with the negotiations U Thant was conducting with representatives of the USSR, the United States, and Cuba, the Soviet Government was sending First Deputy Foreign Minister V. V. Kuznetsov to New York to help U Thant in his "noble efforts aimed at eliminating the present dangerous situation."
 
 President Kennedy replied at once to the broadcast message of October 28 even before the official text reached him, and welcomed it as "an important contribution to peace." The operative paragraph read:
 

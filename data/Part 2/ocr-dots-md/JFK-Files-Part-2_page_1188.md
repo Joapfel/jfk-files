@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1188.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>FITNESS REPORT (Part I) PERFORMANCE</caption>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28516.png
-
-Convert to Markdown# JFK ASSASSINATION SYSTEM
+# JFK ASSASSINATION SYSTEM
 
 ## IDENTIFICATION FORM
 ---

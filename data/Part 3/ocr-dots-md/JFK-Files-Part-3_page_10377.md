@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10377.png
-
-Convert to Markdownf. A subscriber who receives a report of investigation from another subscriber may freely transmit copies of such reports to a third subscriber except as provided in e above.
+f. A subscriber who receives a report of investigation from another subscriber may freely transmit copies of such reports to a third subscriber except as provided in e above.
 
 g. A report of complete investigation received by the Armed Forces from the FBI will not be reopened without the approval of the FBI except to obtain additional background information. In such case, the FBI will be furnished copies of all information obtained. Other information required by the Armed Forces will be requested of the FBI.
 

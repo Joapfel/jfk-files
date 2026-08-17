@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32215.png
-
-Convert to Markdown<table><tr><td>Applicant's US Career School Panel</td></tr><tr><td>27014</td></tr></table>
+<table><tr><td>Applicant's US Career School Panel</td></tr><tr><td>27014</td></tr></table>
 
 SECRET
 EYES ONLY

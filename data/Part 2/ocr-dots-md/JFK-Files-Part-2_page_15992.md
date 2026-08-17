@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15992.png
-
-Convert to Markdown# STUDENT NONVIOLENT COORDINATING COMMITTEE (SNCC)
+# STUDENT NONVIOLENT COORDINATING COMMITTEE (SNCC)
 
 The Student Nonviolent Coordinating Committee (SNCC), headquartered at 360-382 Nelson Street, S. W., Atlanta, Georgia, is a nonmembership organization, which was born out of the sit-in movement that erupted across the South beginning in 1960.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4276.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 It is believed this surveillance's potential for continuation of this high-level performance is excellent, especially in furnishing information concerning the leadership, policy, and activities of the Students for a Democratic Society.
 

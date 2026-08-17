@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25129.png
-
-Convert to MarkdownDIEM
+DIEM
 GEN. MINH
 NGO DINH NHU
 

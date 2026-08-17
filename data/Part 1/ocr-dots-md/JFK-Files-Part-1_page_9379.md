@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9379.png
-
-Convert to MarkdownJuly 1950
+July 1950
 
 MEMORANDUM FOR: CAX 3
 SUBJECT: 229-~~CSA~~ U, Special Report on QUICK

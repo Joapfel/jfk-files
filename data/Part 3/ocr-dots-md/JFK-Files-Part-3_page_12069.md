@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12069.png
-
-Convert to Markdown3. Special Investigations - West Unit has one Agent and one clerk on loan from the Internal Security Section.
+3. Special Investigations - West Unit has one Agent and one clerk on loan from the Internal Security Section.
 
 4. Activities by New Left terrorists during the past year has been marked by an increase in acts of violence and conspiracies toward violence. The Weatherman group and other such groups have made it imperative that we institute continuing intensive investigations. By approved airtel to SAC, Albany, and all offices dated 11/4/70, the field was instructed to initiate investigation of all members of the Students for a Democratic Society (SDS) and members of procommunist militant New Left type campus organizations which follow SDS advocacy of violence and revolution. It is estimated that this will involve some 6,500 new investigations. If this trend continues, it will be necessary to obtain an additional clerk in the future; however, we are not requesting any additional clerical personnel at this time.
 

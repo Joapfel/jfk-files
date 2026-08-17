@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4541.png
-
-Convert to Markdownd. **Memorandum to W.K. Harvey dated 3 July 1962**
+d. **Memorandum to W.K. Harvey dated 3 July 1962**
 
 Page 2. "Despite COS Luxe's viewpoint, I happen to know that QJWIN can do more spotting in Corsican circles whenever we want him to."
 

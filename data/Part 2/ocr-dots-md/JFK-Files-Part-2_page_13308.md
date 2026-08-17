@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13308.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 Mr. O'Connor asked that we not contact the Committee directly at this time, but that we allow him to call John Elliff and Schwarz to request that he be advised of the identity of all proposed FBI witnesses and of the subject matter of the proposed interviews, and that such interviews or testimony not go forward pending developments of an agreement on guidelines. O'Connor promised that he would make the contact promptly and advise me today of the results. I agreed to withhold our contact pending receipt of the information from him.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21918.png
-
-Convert to MarkdownQ: Did Mr. Dulles tell you that President Eisenhower wanted Lumumba killed?
+Q: Did Mr. Dulles tell you that President Eisenhower wanted Lumumba killed?
 
 Mr. Bissell: I am sure he didn't.
 

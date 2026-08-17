@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12612.png
-
-Convert to MarkdownConsiderations affecting national defense in Alaska, Hawaii, and Puerto Rico require broadest possible construction of requirements for dissemination to intelligence services in those areas. See MRR, part II, section 5, pertaining to Bureau's overall responsibilities and policies in dissemination.
+Considerations affecting national defense in Alaska, Hawaii, and Puerto Rico require broadest possible construction of requirements for dissemination to intelligence services in those areas. See MRR, part II, section 5, pertaining to Bureau's overall responsibilities and policies in dissemination.
 
 a. Members of armed forces
 

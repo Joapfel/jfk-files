@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21583.png
-
-Convert to MarkdownSECRET
+SECRET
 
 aware that GOLITSYN had a conversation with KOVSHUK about
 [PREISFREUND] since GOLITSYN wanted to use [PREISFREUND]

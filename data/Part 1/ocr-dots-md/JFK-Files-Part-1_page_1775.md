@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1775.png
-
-Convert to Markdown# Research on International Communism
+# Research on International Communism
 
 The DD/I has established a special staff under an experienced intelligence officer for this purpose, and this staff is getting gradually organized.
 

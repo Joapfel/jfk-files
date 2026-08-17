@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17396.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Chicago were placed to telephone numbers 528-0500 and
 663-0423.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11356.png
-
-Convert to Markdown24 June 1963
+24 June 1963
 
 MEMORANDUM FOR: CI/OA
 SUBJECT : LITAMIL-9

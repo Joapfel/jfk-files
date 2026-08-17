@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29010.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="2">Profit or (Loss) From Business or Profession<br/>(Sole Proprietorship)<br/>Partnerships, Joint Ventures, etc., Must File Form 1065.<br/>▶ Attach to Form 1040. ▶ See Instructions for Schedule C (Form 1040).</td>
     <td>1974</td>

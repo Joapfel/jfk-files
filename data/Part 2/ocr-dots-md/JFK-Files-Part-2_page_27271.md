@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27271.png
-
-Convert to MarkdownA. Ltr from Helms to Milliken, 16 Mar 70
+A. Ltr from Helms to Milliken, 16 Mar 70
 
 B. Telephone Call to Gen Cushman from Ehrlichman, 7 July 71
 

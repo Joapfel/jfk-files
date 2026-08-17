@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29132.png
-
-Convert to MarkdownINDIVIDUAL
+INDIVIDUAL
 CALIFORNIA
 INCOME TAX
 

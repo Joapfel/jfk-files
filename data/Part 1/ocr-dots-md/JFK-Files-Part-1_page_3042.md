@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3042.png
-
-Convert to MarkdownI'll tell ((you)) that the nature of women is to exaggerate at times. And I would say not sometimes, but very often, very often. And why do you... don't you think that you (3G), that he is noting badly toward you? Let him make mistakes...
+I'll tell ((you)) that the nature of women is to exaggerate at times. And I would say not sometimes, but very often, very often. And why do you... don't you think that you (3G), that he is noting badly toward you? Let him make mistakes...
 
 C. continues soothing and lecturing B, and tries to convince her that her husband isn't so bad. A remains silent.
 

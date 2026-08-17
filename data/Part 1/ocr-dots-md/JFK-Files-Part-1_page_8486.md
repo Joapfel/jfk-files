@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8486.png
-
-Convert to Markdown13 September 1967
+13 September 1967
 
 CONTACT REPORT
 

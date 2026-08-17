@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30265.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Klein. Without giving particular names, how many
 Americans would you say asked permission to defect in 1959?

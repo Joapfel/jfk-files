@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14158.png
-
-Convert to Markdown(59. 8/23/62 Continued)
+(59. 8/23/62 Continued)
 
 " They have spotted at least one camp southwest of Havana, where the number of vehicles suggested the presence of 'many' more than the 200 presumed young Russians they did see, and where a radio antenna field had already been erected. This they think could be connected with radio monitoring. "
 

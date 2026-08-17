@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14200.png
-
-Convert to Markdown179. 11/5/62 - Dr. Charyk, Under Secretary of the Air Force, expressed to Board Member Gordon Gray the opinion that the following lessons were learned from the Cuba situation:
+179. 11/5/62 - Dr. Charyk, Under Secretary of the Air Force, expressed to Board Member Gordon Gray the opinion that the following lessons were learned from the Cuba situation:
 
 (1) There is a need for a group at the policy level, having access to all pertinent intelligence, which can perform the task of rapidly identifying intelligence requirements and objectives. (Dr. Charyk believed that in this instance USIB did not perform the function he had in mind.)
 

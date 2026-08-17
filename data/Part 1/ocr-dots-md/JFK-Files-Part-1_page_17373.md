@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17373.png
-
-Convert to MarkdownREMOVAL SLIP
+REMOVAL SLIP
 
 DOC. SYMBOL & NUMBER
 DOC. DATE 15 Nov 63

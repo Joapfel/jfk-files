@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7373.png
-
-Convert to Markdown6 February-1974
+6 February-1974
 
 MEMORANDUM FOR: Mr. Steven L. Kuhn
 SUBJECT : The David St. John Novels

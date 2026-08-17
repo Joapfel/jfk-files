@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33469.png
-
-Convert to Markdown# Allendes misstag
+# Allendes misstag
 
 — Den svenska debatten är ensidig. Man har på ett lystande sätt dokumenterat juutans grynheter men man drar ingen lardom av utvecklingen i Allendes Chile. Det är viktigt att kunna kritisera det som var fel i utvecklingen, annars kan man inte lara sig nagonting. Om man tystar ner varje form av debatt om det som var före kuppen, använder man sig av ett censur tankande som är på samma linje som juutans, säger Andres Kung, journalist och författare som besökt Chile före, under och efter Allendes tid. Han har nu också givit ut en debattbok, Att så socialism och skörda fascism.
 

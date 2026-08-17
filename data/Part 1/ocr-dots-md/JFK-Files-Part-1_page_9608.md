@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9608.png
-
-Convert to MarkdownChief, FI/Plan/Cover
+Chief, FI/Plan/Cover
 
 Chief, Contact Division, 00
 

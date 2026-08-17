@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16510.png
-
-Convert to MarkdownCHRTS HOPKINS:cb
+CHRTS HOPKINS:cb
 WU/COG/OS
 1163
 

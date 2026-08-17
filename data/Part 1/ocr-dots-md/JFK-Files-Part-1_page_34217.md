@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34217.png
-
-Convert to Markdownshed their blood in Viet Nam.
+shed their blood in Viet Nam.
 
 "Counter-Intervention is Equivalent to Legitimate Self-Defense".- The stubborn, unwarranted interpretation of the doctrine of non-intervention has made it possible for the Communists to intervene themselves in the affairs of other countries, even militarily and on a large scale, as did the Castro forces in the Dominican Republic. The concept that hangs around the halls where O.A.S. meetings are held is that which allows counter-intervention as a means of legitimate self-defense. This is equivalent to preventive action against subversion originated in Communist Cuba.
 

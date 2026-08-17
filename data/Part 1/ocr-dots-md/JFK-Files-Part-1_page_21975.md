@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21975.png
-
-Convert to Markdown14-0000
+14-0000
 
 ## 5. The FRIPPEL Case (1959-1963)
 

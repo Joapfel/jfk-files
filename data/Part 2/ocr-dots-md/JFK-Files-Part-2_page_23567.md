@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23567.png
-
-Convert to MarkdownII.
+II.
 
 5. How to Establish Policy Control? Here I wonder whether the British experience might not be of value. The notable feature of the British intelligence system in the determination to keep clandestine activity under strict Foreign Office control. This control is achieved in a number of ways:
 

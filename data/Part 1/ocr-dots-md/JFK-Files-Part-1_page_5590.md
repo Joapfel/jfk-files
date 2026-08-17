@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5590.png
-
-Convert to MarkdownCLASS: E6-14
+CLASS: E6-14
 
 SECRET
 

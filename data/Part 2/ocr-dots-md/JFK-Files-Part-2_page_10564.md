@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10564.png
-
-Convert to MarkdownNEW YORK
+NEW YORK
 
 COMMITTEE:
 AYS AND MEANS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2668.png
-
-Convert to Markdown# SEC. 7. BROTHERS AND SISTERS (Including half-, step-, and adopted brothers and sisters):
+# SEC. 7. BROTHERS AND SISTERS (Including half-, step-, and adopted brothers and sisters):
 
 1. FULL NAME
 

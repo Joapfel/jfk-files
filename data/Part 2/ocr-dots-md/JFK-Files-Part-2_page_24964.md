@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24964.png
-
-Convert to MarkdownMemo to Files
+Memo to Files
 September 5, 1975
 Page Two
 

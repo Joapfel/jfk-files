@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23720.png
-
-Convert to Markdownin volume the most material and according to CIA analysts
+in volume the most material and according to CIA analysts
 most of that information, a large proportion of that is
 revealed to their report and yet obviously a great deal of
 clandestine collection is carried out by the CIA itself and

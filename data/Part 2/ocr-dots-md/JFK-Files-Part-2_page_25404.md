@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25404.png
-
-Convert to MarkdownNew Orleans tion a photo- Orleans, La., given to a record, given
+New Orleans tion a photo- Orleans, La., given to a record, given
 
 to the same,
 

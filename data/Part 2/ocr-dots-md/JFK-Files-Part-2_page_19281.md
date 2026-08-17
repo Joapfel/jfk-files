@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19281.png
-
-Convert to MarkdownPAGE FIVE
+PAGE FIVE
 
 ARE BEING ASSISTED BY WSP.
 

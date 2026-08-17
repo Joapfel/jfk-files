@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33091.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>ORIG:</td>
     <td>JOHN M. E. nk</td>

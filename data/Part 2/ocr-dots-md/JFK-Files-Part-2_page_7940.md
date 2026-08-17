@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7940.png
-
-Convert to Markdown13-00000
+13-00000
 
 and Salem duty; commission to investigate the assassination of J. Kennedy," *Time*, 13 December 1963, pp. 26-27.
 

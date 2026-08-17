@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3144.png
-
-Convert to MarkdownTraduction.
+Traduction.
 
 Le titulaire du présent, citoyen de L'UNION
 

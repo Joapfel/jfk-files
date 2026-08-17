@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2981.png
-
-Convert to Markdown1919
+1919
 
 from that informant information which I considered to be significant.
 

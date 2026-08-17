@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31451.png
-
-Convert to MarkdownSP 100-33836
+SP 100-33836
 FTD/1r
 
 ## B. Employment

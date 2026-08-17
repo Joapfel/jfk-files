@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7379.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>Application for Employment<br/>FD-140 (Rev. 10-16-73)</td>
         <td>FEDERAL BUREAU OF INVESTIGATION<br/>UNITED STATES DEPARTMENT OF JUSTICE<br/>WASHINGTON, D. C. 20535</td>

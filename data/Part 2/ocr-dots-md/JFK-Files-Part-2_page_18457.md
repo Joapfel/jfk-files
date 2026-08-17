@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18457.png
-
-Convert to Markdown4. Surveillance at the Democratic National Convention, Atlantic City, 1964
+4. Surveillance at the Democratic National Convention, Atlantic City, 1964
 
 The Committee is examining the use of surveillance and other intelligence operations in Atlantic City, New Jersey, on or about the time of the Democratic National Convention in 1964. This case may involve specific allegations of abuses and other controversial matters where there is reason to believe improprieties may have occurred.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3308.png
-
-Convert to MarkdownARAUJO, Leonaldo
+ARAUJO, Leonaldo
 
 OCT. 15 ESA
 

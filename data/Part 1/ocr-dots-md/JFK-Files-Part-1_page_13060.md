@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13060.png
-
-Convert to MarkdownGUBS
+GUBS
 
 28 September 1960 ada
 

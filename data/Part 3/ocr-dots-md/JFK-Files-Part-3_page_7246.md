@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the "Special Report" and had made certain decisions with
 respect to issues raised therein. The President's decisions

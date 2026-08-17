@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8186.png
-
-Convert to MarkdownVIA AIR MAIL
+VIA AIR MAIL
 
 Margaret Randall
 c/o El Corne Emplumado

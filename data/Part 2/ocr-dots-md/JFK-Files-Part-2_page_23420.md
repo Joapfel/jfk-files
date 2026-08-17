@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23420.png
-
-Convert to Markdown7 October 1960
+7 October 1960
 
 LEOPOLDVILLE
 

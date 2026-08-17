@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5918.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (J) The subject file pertaining to Lee Harvey Oswald (#0351164) was established circa 1960. It appears this file was created as a separate repository for the numerous press clippings and reports received from other government agencies on the defection of Lee Harvey Oswald to the USSR and his activities following his return to the United States. The first volume of this file appears to have been preserved as the pre-assassination file, and the documents contained in this file are as follows:
 

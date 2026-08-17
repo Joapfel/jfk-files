@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8724.png
-
-Convert to Markdownmet in Cuba man by the name of Frank VEGA who spoke perfect English, and is believed to have identified himself as G-2; was disturbed that DEAN saw ORTA before seeing him (VEGA).
+met in Cuba man by the name of Frank VEGA who spoke perfect English, and is believed to have identified himself as G-2; was disturbed that DEAN saw ORTA before seeing him (VEGA).
 
 CUBAN INTELLIGENCE SERVICES - General 19-5-1
 

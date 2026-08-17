@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31176.png
-
-Convert to MarkdownSECRET
+SECRET
 
 0002728 termination of the CFA - make was group slow and undramatic Rovelli, in May 1967, reported that the groups are which had been delivered to Cuba in May. In April had arrived in Cuba, and an unclassified three-man team had then departed in June to influence the plan. In future Reports p845
 

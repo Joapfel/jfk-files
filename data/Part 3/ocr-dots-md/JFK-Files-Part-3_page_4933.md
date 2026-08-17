@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4933.png
-
-Convert to MarkdownNY 100-136585
+NY 100-136585
 
 When Dr. MARTIN LUTHER KING was invited to address the AFL-CIO convention some time ago, KING, on LEVISION's advice, first obtained approval to do so from A. PHILLIP RANDOLPH, negro labor leader, who, if he had not been consulted in the matter, might have felt that KING's making a speech at the aforesaid convention was a blow to RANDOLPH'S prestige.
 

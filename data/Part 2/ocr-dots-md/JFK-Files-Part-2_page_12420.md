@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12420.png
-
-Convert to Markdown(4) Separate statements should be prepared for each meeting or separate activity in which informants engage and should be dictated by Agent as if informant were preparing them himself.
+(4) Separate statements should be prepared for each meeting or separate activity in which informants engage and should be dictated by Agent as if informant were preparing them himself.
 
 (5) Information, after being reduced to writing, should be read promptly by informant and acknowledged by affixing his code name on each page. In espionage and foreign nationality matters, such authentication is necessary only where future prosecution is possible.
 

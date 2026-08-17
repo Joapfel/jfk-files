@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25419.png
-
-Convert to MarkdownMM 105-1742
+MM 105-1742
 
 Presidents of the several Central American Republics and the leading figures among the Cuban exiles in Miami, New York and Washington, were known to have the sanction of the United States Government. On July 16, 1963, SOMOZA left Miami and returned to Nicaragua.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2250.png
-
-Convert to MarkdownINTERNAL - ADMINISTRATIVE USE ONLY
+INTERNAL - ADMINISTRATIVE USE ONLY
 
 16 November 1978
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25953.png
-
-Convert to MarkdownFBI DOCUMENTS
+FBI DOCUMENTS
 
 DATE: 16 JANUARY 1976
 

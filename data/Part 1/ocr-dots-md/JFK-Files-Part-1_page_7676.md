@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7676.png
-
-Convert to Markdown10. PERSONALITY, CHARACTER, HABITS:
+10. PERSONALITY, CHARACTER, HABITS:
 
 All sources agree in describing Subject as smooth and completely self-controlled. He is an aggressive conversationalist. One source described him as vulgar, crude, ill-mannered, short-tempered and a tyrant, who thinks he is a big shot (8).
 

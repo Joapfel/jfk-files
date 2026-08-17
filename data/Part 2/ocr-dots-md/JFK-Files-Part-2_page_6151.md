@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6151.png
-
-Convert to Markdown56 Md. L. Rev. 1, *20
+56 Md. L. Rev. 1, *20
 
 intelligence agencies grumble about having to make public that which is most precious to them, but they argue that such declassification is costly and time consuming, especially in an era of diminished resources. n140
 

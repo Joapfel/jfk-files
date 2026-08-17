@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30197.png
-
-Convert to Markdown<table><tr><td>UNCLASSIFIED</td><td></td></tr><tr><td>INTERNAL USE ONLY</td><td></td></tr><tr><td>CONFIDENTIAL</td><td></td></tr><tr><td>SECRET</td><td></td></tr></table>
+<table><tr><td>UNCLASSIFIED</td><td></td></tr><tr><td>INTERNAL USE ONLY</td><td></td></tr><tr><td>CONFIDENTIAL</td><td></td></tr><tr><td>SECRET</td><td></td></tr></table>
 
 # ROUTING AND RECORD SHEET
 

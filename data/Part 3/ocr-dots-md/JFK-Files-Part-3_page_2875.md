@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2875.png
-
-Convert to Markdown1 question the need for intelligence gathering, suggesting that
+1 question the need for intelligence gathering, suggesting that
 2 information needed for the prevention of violence can be
 3 acquired in the normal course of criminal investigations.
 4

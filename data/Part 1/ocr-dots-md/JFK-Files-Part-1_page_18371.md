@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18371.png
-
-Convert to MarkdownSECRET
+SECRET
 ASSIGNMENT DESCRIPTION FORM
 
 (This form fully completed (see note below) in duplicate must accompany request for admission of candidate to Assessment or Training Classes)

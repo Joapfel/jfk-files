@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16260.png
-
-Convert to MarkdownSource advised that on June 20, 1969, 15 BPP members forcibly entered the SDS Convention in progress at that time and read a statement to all present that the BPP demanded the PLP not deviate from the Marxist-Leninist ideology. The Panthers wanted the PLP to change its position on the right to self-determination and stand in concert with the oppressed people.
+Source advised that on June 20, 1969, 15 BPP members forcibly entered the SDS Convention in progress at that time and read a statement to all present that the BPP demanded the PLP not deviate from the Marxist-Leninist ideology. The Panthers wanted the PLP to change its position on the right to self-determination and stand in concert with the oppressed people.
 
 6/21/69)
 

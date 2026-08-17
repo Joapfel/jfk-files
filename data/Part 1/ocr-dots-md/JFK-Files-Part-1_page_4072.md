@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4072.png
-
-Convert to MarkdownVI, ANALISIS FINANCIARIO
+VI, ANALISIS FINANCIARIO
 
 Monto estimado de la Inversion total del proyecto.
 

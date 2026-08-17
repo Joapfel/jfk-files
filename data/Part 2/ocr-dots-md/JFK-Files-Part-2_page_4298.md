@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4298.png
-
-Convert to Markdown3. Defensive Armament for GROSBEAK Aircraft
+3. Defensive Armament for GROSBEAK Aircraft
 
 The Special Group approved the paper of 11 August as presented, subject to confirmation that the sidewinder heat-seeker missile, already compromised, would not lead to a security problem should a GROSBEAK plane be lost.
 

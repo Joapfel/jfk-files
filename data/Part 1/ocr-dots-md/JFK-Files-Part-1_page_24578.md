@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_24578.png
-
 secretary of the federation and as a member of the Graphic Arts Union of Guatemala. Through his friendship with CARDOZA, DEL CID won the confidence of the PGT directors in Mexico City and carried out political tasks of some significance, including serving as one of Jacobo ARDENZ' bodyguards (7).
 
 6. GALICIA, Concha - Influential PGT member (6)

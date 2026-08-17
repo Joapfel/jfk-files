@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13567.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CRYPTO-SECURITY DOES NOT APPLY. HANDLE AS SECRET-CORRES-
 

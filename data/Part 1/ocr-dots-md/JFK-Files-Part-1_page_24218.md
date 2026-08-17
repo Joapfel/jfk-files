@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24218.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO<br/>Chief, KUWOLF</td><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td>INFO.<br/>Chief, KUDESK; Chief, EUR</td><td>PROCESSING ACTION<br/><table><tr><td></td><td>MARKED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Paris/LCPIPIT</td><td>XXX ONLY QUALIFIED DESK CAN JUDGE INDEXING<br/>MICROFILM</td></tr><tr><td>SUBJECT: DTDORIC/Operational QRPREY/QREBONY/Photo of QREBONY/1 and Contact</td><td>ACTION REQUIRED - REFERENCES</td></tr></table></td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO<br/>Chief, KUWOLF</td><td>CLASSIFICATION<br/>SECRET</td></tr><tr><td>INFO.<br/>Chief, KUDESK; Chief, EUR</td><td>PROCESSING ACTION<br/><table><tr><td></td><td>MARKED FOR INDEXING</td></tr><tr><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td>FROM<br/>Chief of Station, Paris/LCPIPIT</td><td>XXX ONLY QUALIFIED DESK CAN JUDGE INDEXING<br/>MICROFILM</td></tr><tr><td>SUBJECT: DTDORIC/Operational QRPREY/QREBONY/Photo of QREBONY/1 and Contact</td><td>ACTION REQUIRED - REFERENCES</td></tr></table></td></tr></table>
 
 Forwarded under separate cover is a photograph of QREBONY/1 with one of his contacts.
 

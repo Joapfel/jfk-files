@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9299.png
-
-Convert to MarkdownDE T-1
+DE T-1
 January 7, 1971
 
 The Flint Branch of the Detroit NCCF continues to function at 2009 Albert Street, Flint, Michigan.

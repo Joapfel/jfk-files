@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22010.png
-
-Convert to MarkdownINTERVIEW WITH: Paul David (alias)
+INTERVIEW WITH: Paul David (alias)
 
 REGARDING: Assassination Inquiry
 

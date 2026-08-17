@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28714.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 RZR: 29 MAR 63

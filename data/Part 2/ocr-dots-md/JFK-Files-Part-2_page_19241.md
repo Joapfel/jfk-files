@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19241.png
-
-Convert to Markdown<table><tr><td>VIA TELETYPE</td></tr><tr><td>DEC 27 1967</td></tr><tr><td>ENCIPHERED</td></tr></table>
+<table><tr><td>VIA TELETYPE</td></tr><tr><td>DEC 27 1967</td></tr><tr><td>ENCIPHERED</td></tr></table>
 
 WA -2- 3:08 PM EH
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7771.png
-
-Convert to Markdowncognizance of the fact that President Roosevelt as far back as
+cognizance of the fact that President Roosevelt as far back as
 1939 had directed the FBI to coordinate and conduct domestic
 counterintelligence activities. (Underlined part taken from
 Papich Committee report and is not necessarily the actual language

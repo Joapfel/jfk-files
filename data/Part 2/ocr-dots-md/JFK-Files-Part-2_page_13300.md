@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13300.png
-
-Convert to MarkdownLegal Counsel to Mr. Adarson Lome
+Legal Counsel to Mr. Adarson Lome
 RE: MATTE SELECT COMMITTEE
 FOR COPY AT DEMAND
 GROUP OF COMMITTEE

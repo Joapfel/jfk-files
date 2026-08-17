@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15648.png
-
-Convert to Markdown# III. TEACHING OF REVOLUTIONARY PROGRAM
+# III. TEACHING OF REVOLUTIONARY PROGRAM
 
 advised on November 14, 1969, he attended a political orientation class at the Precious Blood Church, Western and Congress Streets, Chicago, on October 29, 1969. About 30 individuals were in attendance.
 

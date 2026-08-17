@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7265.png
-
-Convert to MarkdownSECRET - EYES ONLY
+SECRET - EYES ONLY
 
 ADDRESSEES:
 

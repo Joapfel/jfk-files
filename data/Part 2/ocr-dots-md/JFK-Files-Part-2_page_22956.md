@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22956.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 P R O C E E D I N G S
 

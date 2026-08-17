@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18755.png
-
-Convert to MarkdownHNYA-105
+HNYA-105
 
 3 June 1953
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30984.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WII COMMENTS: A. Attached
 B. Submitted Project Renewal

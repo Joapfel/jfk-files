@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29701.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CENTRAL INTELLIGENCE AGENCY
 WASHINGTON 23, D. C.

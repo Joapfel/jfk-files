@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35202.png
-
-Convert to MarkdownCIVILIAN STATEMENT OF RECEIPTS AND EXPENDITURE OPERATIONS
+CIVILIAN STATEMENT OF RECEIPTS AND EXPENDITURE OPERATIONS
 
 Proceeding from the conciliated balance of 30 June 1960 of $2,868.95,
 we added to it a loan received from Dr. Justo Carrillo Hernandez in the

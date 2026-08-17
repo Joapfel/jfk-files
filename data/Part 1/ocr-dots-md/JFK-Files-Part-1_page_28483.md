@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28483.png
-
-Convert to MarkdownDATE 13 Aug '03
+DATE 13 Aug '03
 
 ORDS S:
 

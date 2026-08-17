@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25834.png
-
-Convert to MarkdownTSSR EVALUATION
+TSSR EVALUATION
 
 NAME: Raymond H. GERENDE
 

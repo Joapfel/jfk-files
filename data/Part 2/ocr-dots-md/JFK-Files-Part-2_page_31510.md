@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31510.png
-
-Convert to Markdown1.
+1.
 
 COMMITTEE TO END U. S. FOREIGN INTERVENTION, aka
 Committee to End U. S. Foreign Aggression,

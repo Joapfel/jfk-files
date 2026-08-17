@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33746.png
-
-Convert to MarkdownSECURITY INFORMATION
+SECURITY INFORMATION
 SECRET
 
 In reply refer to: W-1764

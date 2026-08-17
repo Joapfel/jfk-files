@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29133.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SCHEDULE<br>A<br>FORM 540</th></tr></thead><tbody><tr><td>Name as shown on Form 540<br>SAMUEL E HYLLIS RUBY</td><td>Social Security Number<br></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SCHEDULE<br>A<br>FORM 540</th></tr></thead><tbody><tr><td>Name as shown on Form 540<br>SAMUEL E HYLLIS RUBY</td><td>Social Security Number<br></td></tr></tbody></table>
 
 If your adjusted gross income is $8,000 or less and your filing status is "Married, Filing Jointly," "Head of Household," or "Widow(er) With Dependent Child," or $4,000 or less and your filing status is "Single," or "Married, Filing Separately," do not itemize, enter zero on Form 540, line 23, and check the tax table box.
 

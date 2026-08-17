@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23033.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 80
 

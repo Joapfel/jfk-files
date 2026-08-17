@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11885.png
-
-Convert to Markdown13 January 1968
+13 January 1968
 
 # 72669
 13 January 1968

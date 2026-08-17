@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10993.png
-
-Convert to MarkdownSECRET
+SECRET
 CONFIDENTIAL
 
 Date 5 March 1965

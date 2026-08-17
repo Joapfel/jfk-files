@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4160.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>-13 SECRET</td></tr></table>
 

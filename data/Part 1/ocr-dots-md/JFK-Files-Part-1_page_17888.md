@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17888.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OPERATIONAL AUTHORIZATION
 

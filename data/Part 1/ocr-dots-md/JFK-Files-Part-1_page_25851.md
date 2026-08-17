@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25851.png
-
-Convert to Markdown15 May 1957
+15 May 1957
 
 **MEMORANDUM FOR:** Chief, Safehouse Branch, Office of Logistics
 **TIRACOUGH** : Chief, Central Cover Branch, BO/P

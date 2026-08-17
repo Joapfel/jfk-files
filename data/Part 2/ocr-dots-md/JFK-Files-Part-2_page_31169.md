@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31169.png
-
-Convert to Markdown0002262
+0002262
 
 SECLvl
 

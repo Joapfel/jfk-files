@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18467.png
-
-Convert to MarkdownSECRET
+SECRET
 
 William K. Harvey
 

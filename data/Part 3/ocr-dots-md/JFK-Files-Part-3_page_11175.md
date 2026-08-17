@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11175.png
-
-Convert to Markdownexample of the types of material reported under item 1:
+example of the types of material reported under item 1:
 
 4. Memorandum from the Director of the FBI to the Attorney General, dated August 7, 1975, recommending the issuance of an executive order concerning the authority of the FBI to conduct domestic intelligence operations. See the Attorney General's reply to this memorandum which is published in the Joint Hearings before the Subcommittee on Administrative Practice and Procedure and the Subcommittee on Constitutional Rights of the Committee on the Judiciary and the Subcommittee on Surveillance of the Committee on Foreign Relations. Ninety-Third Congress (Second Session), on Warrantless Wiretapping and Electronic Surveillance (1974), pp. 31-32.
 

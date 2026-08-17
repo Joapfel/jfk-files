@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25177.png
-
-Convert to MarkdownSource: AENICKAG/2
+Source: AENICKAG/2
 Date acquired: September 1966
 
 # Georges BORTOLI, Representative of Radiodiffusion Television Francaise (ORTF)

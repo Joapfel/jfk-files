@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20865.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 National March on
 Pentagon, April 10, 1972

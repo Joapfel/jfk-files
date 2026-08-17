@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27777.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><tr><td>1. EMP. SERIAL NO.</td><td>2. NAME</td><td>3. ASSIGNED DUE</td><td>4. FUNDS</td><td>5. ALLOTMENT</td></tr><tr><td>126090</td><td>KEENAN THOMAS J</td><td>DOS/JOTC 3A</td><td>V-20</td><td></td></tr></table>

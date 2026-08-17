@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15628.png
-
-Convert to MarkdownTABLE OF CONTENTS
+TABLE OF CONTENTS
 
 Pages
 

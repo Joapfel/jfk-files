@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6422.png
-
-Convert to MarkdownFujitsu
+Fujitsu
 Tokyo
 
 For The Asylumist

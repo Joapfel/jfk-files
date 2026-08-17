@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12895.png
-
-Convert to MarkdownT 321023 EIA429
+T 321023 EIA429
 
 PAGE 02-02
 

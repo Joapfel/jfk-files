@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5048.png
-
-Convert to MarkdownMr. John Doar
+Mr. John Doar
 Assistant Attorney General
 
 July 9, 1965

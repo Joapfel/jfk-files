@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14335.png
-
-Convert to MarkdownMemorandum to Mr. J. B. Adams
+Memorandum to Mr. J. B. Adams
 
 RE: SENSTUDY 75
 62-116395

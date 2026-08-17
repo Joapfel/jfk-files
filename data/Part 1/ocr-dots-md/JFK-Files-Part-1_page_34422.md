@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34422.png
-
-Convert to Markdown# Memorandum
+# Memorandum
 
 TO : Chief, Contact Division
 

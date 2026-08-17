@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25855.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">Document Routing Sheet</th></tr><tr><th>Date Received</th><th>Received From</th><th>Classification</th><th>R #</th></tr></thead><tbody><tr><td>3/17/76</td><td>CIA</td><td>Confidential</td><td>2762</td></tr></tbody></table>
+<table><thead><tr><th colspan="4">Document Routing Sheet</th></tr><tr><th>Date Received</th><th>Received From</th><th>Classification</th><th>R #</th></tr></thead><tbody><tr><td>3/17/76</td><td>CIA</td><td>Confidential</td><td>2762</td></tr></tbody></table>
 
 Description: 3/11/76 etn. to miller (attn. Johnston) fm elda w/attach. 1P8
 re: Oswald file

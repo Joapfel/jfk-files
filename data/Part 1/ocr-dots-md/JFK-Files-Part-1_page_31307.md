@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31307.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="5">SECTION V<br>GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</th></tr><tr><th rowspan="2">NAME OF REGION OR COUNTRY</th><th rowspan="2">TYPE OF SPECIALIZED KNOWLEDGE</th><th rowspan="2">DATE & PLACE OF RESIDENCE</th><th rowspan="2">WORK ASSIGNMENT</th><th colspan="3">KNOWLEDGE ACQUIRED BY CHECK (X)</th></tr><tr><th>REST. SERVICE</th><th>TRAVEL</th><th>STUDY</th></tr></thead><tbody><tr><td></td><td></td><td>SEP 30 8 SS AM '71</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

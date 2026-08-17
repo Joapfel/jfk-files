@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4730.png
-
-Convert to MarkdownSECRET
+SECRET
 
 insisting that you get the information you need or you want, there's no point
 in me hanging around. I'm retired and I'm going out of your life." And I

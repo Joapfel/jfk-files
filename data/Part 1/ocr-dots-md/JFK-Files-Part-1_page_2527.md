@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2527.png
-
-Convert to Markdownhas stated that the KGB learned of the homosexual tendencies of JOHNSON "by chance" soon after his arrival. "SHMELEV" and "GRIGORIY," two homosexual agents of NOSENKO, were at the time operating out of a room at the Metropol Hotel where JOHNSON stayed. They met JOHNSON there and reported his apparent homosexual tendencies.
+has stated that the KGB learned of the homosexual tendencies of JOHNSON "by chance" soon after his arrival. "SHMELEV" and "GRIGORIY," two homosexual agents of NOSENKO, were at the time operating out of a room at the Metropol Hotel where JOHNSON stayed. They met JOHNSON there and reported his apparent homosexual tendencies.
 
 "In regard to the William Carroll JONES case, NOSENKO during current interviews has furnished additional information on the KGB operation against JONES, including the woman Ludmila BUGAYEVA who was recruited as an agent to work against JONES and was used in another case. The other details furnished by NOSENKO concerning the JONES case are compatible with his claim to having been Chief of the First Section, Seventh Department.
 

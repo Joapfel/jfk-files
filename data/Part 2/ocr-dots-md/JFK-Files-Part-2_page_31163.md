@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31163.png
-
-Convert to Markdown0002195
+0002195
 
 It is obvious that many lines of speculation can be developed, not all the latest news which is that the Agency did not turn up the full picture of recent events.
 

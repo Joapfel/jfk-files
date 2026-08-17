@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_138.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="5">
      SECTION XIII

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11489.png
-
-Convert to Markdown(c) Information suggestive of additional leads and information of particular significance in showing subject's knowledge of and adherence to revolutionary aims of organization or organizations with which he is associated should be fully and carefully reported.
+(c) Information suggestive of additional leads and information of particular significance in showing subject's knowledge of and adherence to revolutionary aims of organization or organizations with which he is associated should be fully and carefully reported.
 
 (d) Each report is to include all information having any pertinency as to whether or not there is justification for security index card. This includes pertinent information concerning background and subversive activities.
 

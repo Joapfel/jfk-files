@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13242.png
-
-Convert to MarkdownOn the following page of these papers, the paragraphs are numbered again from one. On this page a large ink X has been placed over the page; however, it is still legible. Paragraph 1 of this page reads, "Maximum security plus within KUBARK only (e.g., How much does Sivagusa[?] now know?). Limitation on number code clerks for enciphering and deciphering. Guise of LAURICLE objective." Paragraph 5 reads, "No chain of connections permitting blackmail."
+On the following page of these papers, the paragraphs are numbered again from one. On this page a large ink X has been placed over the page; however, it is still legible. Paragraph 1 of this page reads, "Maximum security plus within KUBARK only (e.g., How much does Sivagusa[?] now know?). Limitation on number code clerks for enciphering and deciphering. Guise of LAURICLE objective." Paragraph 5 reads, "No chain of connections permitting blackmail."
 
 2. Memorandum, dated February 19, 1962, from Richard Helms, Deputy Director (Plans), to William K. Harvey, Subject: "Authorization of ZRRIFLE Agent Activities." This memorandum authorizes Harvey to retain the services of agent QJWIN "and such other principal agents and subagents as may be required." Memorandum does not state the purpose of the ZRRIFLE project.
 

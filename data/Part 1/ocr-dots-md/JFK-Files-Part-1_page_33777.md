@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33777.png
-
-Convert to Markdown10 June 1952
+10 June 1952
 
 MEMORANDUM FOR: ASSISTANT DIRECTOR FOR POLICY COORDINATION
 

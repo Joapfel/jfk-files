@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14458.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Office Memorandum. UNITED STATES GOVERNMENT.
 

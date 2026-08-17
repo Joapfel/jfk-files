@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24164.png
-
-Convert to Markdown18 Nov 65
+18 Nov 65
 
 Subject: QREBONY/1 - Security at home
 

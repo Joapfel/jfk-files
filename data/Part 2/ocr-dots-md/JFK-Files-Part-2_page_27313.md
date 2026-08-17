@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27313.png
-
-Convert to MarkdownA. Ltr from Knoche to Belin - 6 May 75 SECRET
+A. Ltr from Knoche to Belin - 6 May 75 SECRET
 
 B. M/R - Subj: AGEE, Philip Burnett Franklin # 133 368 - 25 Mar 75 SECRET
 

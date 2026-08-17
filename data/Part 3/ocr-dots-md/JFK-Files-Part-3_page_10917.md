@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10917.png
-
-Convert to Markdown"Detailed study of organization and activities of intelligence divisions of the Government, including CIA, is being made by a committee consisting of Messrs. Allen Dulles, William H. Jackson, and Mathias Correa, assisted by a staff of four directed by Mr. Robert Blum of the Office of Secretary of Defense." With this statement it may be assumed the Task Force excused omissions it may have made with the observation that the Dulles group was conducting almost the same survey carried on in the Hoover Commission so far as CIA was involved.
+"Detailed study of organization and activities of intelligence divisions of the Government, including CIA, is being made by a committee consisting of Messrs. Allen Dulles, William H. Jackson, and Mathias Correa, assisted by a staff of four directed by Mr. Robert Blum of the Office of Secretary of Defense." With this statement it may be assumed the Task Force excused omissions it may have made with the observation that the Dulles group was conducting almost the same survey carried on in the Hoover Commission so far as CIA was involved.
 
 (lb) Clark Task Force Report
 

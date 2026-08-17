@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7566.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 politics being pursued by the Communist International and the Communist party in China. I cannot begin here to give a summary of some of these distortions (which IVELLY CATED TO YOU BY THE DOGEN), ranging from particular incidents (the willfully false picture given of the cotton mill strike in Shanghai, in January 1932, even to the point of transposing it to February to heighten the impression given of the workers' role in the Shanghai war) to high-flown generalizations like the statement recently made before the plenum of the E.C.C.I., that the C.C.P. has "won over the majority of the Chinese working class and the peasantry"....
 

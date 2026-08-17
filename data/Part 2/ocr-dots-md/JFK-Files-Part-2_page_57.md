@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_57.png
-
-Convert to Markdown<table><tr><td>MEMORANDUM FOR: Chief, WH/3/DR&H</td></tr><tr><td>Attn: Nelson Smith</td></tr><tr><td>NUMBER</td><td>C-82943</td></tr><tr><td>SUBJECT</td><td>Luis Albert FERRE</td></tr><tr><td>REFERENCE: Your Memorandum, Dated</td><td>4 May 1960</td></tr></table>
+<table><tr><td>MEMORANDUM FOR: Chief, WH/3/DR&H</td></tr><tr><td>Attn: Nelson Smith</td></tr><tr><td>NUMBER</td><td>C-82943</td></tr><tr><td>SUBJECT</td><td>Luis Albert FERRE</td></tr><tr><td>REFERENCE: Your Memorandum, Dated</td><td>4 May 1960</td></tr></table>
 
 A Provisional Operational Approval is granted for the use of this Subject as set forth below.
 

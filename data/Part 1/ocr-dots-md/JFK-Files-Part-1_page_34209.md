@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34209.png
-
-Convert to Markdownmilitary alliance with the U.S.S.R.. Now, a year later; his heart bleeding over his parting with Red China, and under brutal Soviet pressure, Castro's Nov. 7 speech inaugurating a hospital sounds like that of a "constructive" ruler whose concern is for the welfare of the people, and who asks that same people "to march up the (socialist) path". He is no longer arrogant. He belatedly begs for the people's support.
+military alliance with the U.S.S.R.. Now, a year later; his heart bleeding over his parting with Red China, and under brutal Soviet pressure, Castro's Nov. 7 speech inaugurating a hospital sounds like that of a "constructive" ruler whose concern is for the welfare of the people, and who asks that same people "to march up the (socialist) path". He is no longer arrogant. He belatedly begs for the people's support.
 
 "What About Latin American Communist Parties?".- Castro dismissed the fact that China did not greet the reorganization and change of the Cuban Communist Party, but spite and concern were obvious in the tone of his voice. Castro knows that he has betrayed China. On the other hand, the Communist Parties of Latin America have not addressed Castro any congratulatory messages either, which indicates that they are beginning to turn their backs on him on account of his "purging" of the old guard. Under such conditions, Castro's subservience to Moscow is greater every day. Castro has entered the most unsurmountable phase of his crisis.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34082.png
-
-Convert to Markdowneconomic intelligence report
+economic intelligence report
 
 FROM THE U.R. ECONOMIC RESEARCH BUREAU
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6291.png
-
-Convert to MarkdownIV. Selected Statutory Provisions in The President John F. Kennedy Assassination Records Collection Act of 1992, 44 U.S.C. § 2107 (Supp. V 1994)
+IV. Selected Statutory Provisions in The President John F. Kennedy Assassination Records Collection Act of 1992, 44 U.S.C. § 2107 (Supp. V 1994)
 
 Definition of Assassination Record
 

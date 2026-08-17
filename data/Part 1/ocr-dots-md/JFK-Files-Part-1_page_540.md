@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_540.png
-
-Convert to MarkdownSECRET
+SECRET
 
 21. SAKAMOTO Yoshikazu - Assistant professor at Tokyo University.
 

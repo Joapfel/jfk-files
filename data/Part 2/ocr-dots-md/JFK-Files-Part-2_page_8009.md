@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8009.png
-
-Convert to Markdown13-00000
+13-00000
 
 Virtue, in Spite of Erroneous Conceptions
 

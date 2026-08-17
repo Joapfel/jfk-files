@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2301.png
-
-Convert to MarkdownJanuary 12, 1970
+January 12, 1970
 
 Honorable Frank Church
 Chairman

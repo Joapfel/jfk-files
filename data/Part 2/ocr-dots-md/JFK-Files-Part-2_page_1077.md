@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1077.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">MILITARY STATUS QUESTIONNAIRE</td>

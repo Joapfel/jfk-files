@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14962.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td rowspan="2">ORIG:</td><td colspan="3">CLASSIFIED</td></tr><tr><td>SR/DOB</td><td colspan="2">MESSAGE</td></tr><tr><td>UNIT</td><td colspan="3"></td></tr><tr><td>EXT</td><td colspan="3"></td></tr><tr><td>DATE</td><td>Francis McNulty<br/>534<br/>27 June 1958</td><td colspan="2"></td></tr><tr><td>TO</td><td colspan="3">PARIS FRANKFURT</td></tr><tr><td>FROM</td><td>DIRECTOR</td><td colspan="2"></td></tr><tr><td>CONF</td><td>SR 6</td><td colspan="2"></td></tr><tr><td>INFO</td><td colspan="3">CI, CI/OPS, CI/OA, FI, FI/OPS, EE 4, WE 4, S/C 2</td></tr></table>
 

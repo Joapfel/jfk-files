@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24299.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PLANS, PROGRAMS, AND PROJECTS
 

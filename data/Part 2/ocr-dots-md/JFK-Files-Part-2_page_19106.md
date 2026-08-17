@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19106.png
-
-Convert to MarkdownDIRECTOR, FBI (105-118599)
+DIRECTOR, FBI (105-118599)
 
 SAC, WFO (105-52614) (P)
 

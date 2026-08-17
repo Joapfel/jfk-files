@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22857.png
-
-Convert to Markdown1. is to in effect to quote from or summarize this document,
+1. is to in effect to quote from or summarize this document,
    Mr. Schwarz.
 
 2.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23698.png
-
-Convert to MarkdownMonday or Tuesday, even his hope is that during the course
+Monday or Tuesday, even his hope is that during the course
 of the next week the Full Committee will finish that.
 
 In the meantime, of course, we can still be working on

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7210.png
-
-Convert to Markdownto benefit from the conclusions and assessments involved but
+to benefit from the conclusions and assessments involved but
 still protects the sources and methods by which we reach them.
 Unfortunately, their revelation by individuals without author-
 ization can result in the exposure of the source or technique

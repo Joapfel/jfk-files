@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5548.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Folder Summaries of the Nosenko Material Not Believed to be Relevant to the JFK Assassination
 

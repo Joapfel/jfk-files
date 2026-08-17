@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8700.png
-
-Convert to Markdown9.05.05 Bebedor constante a quien afecta muy poco el licor. Siempre conserva muy bien su dignidad y generalmente mantiene su aplomo aun cuando otros estén poniéndose muy ebrios. Sin embargo, no se afsla del grupo, o sea que da poco indicio de desagrado o aburrimiento.
+9.05.05 Bebedor constante a quien afecta muy poco el licor. Siempre conserva muy bien su dignidad y generalmente mantiene su aplomo aun cuando otros estén poniéndose muy ebrios. Sin embargo, no se afsla del grupo, o sea que da poco indicio de desagrado o aburrimiento.
 
 9.05.06 Bebedor parco que espacia los tragos. Parece beber sólo por imperativo social. Según adelanta la fiesta se va poniendo reservado y distante. No es extraño que siga hablando de su trabajo aunque no venga a cuento.
 

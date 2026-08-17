@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1335.png
-
-Convert to Markdowneven constructive criticism. Mr. Wheeler is so dedicated
+even constructive criticism. Mr. Wheeler is so dedicated
 to making the CS the best managed component in the Agency
 that he continues to spend his own earnings on books and
 periodicals on the subject of management and to encourage

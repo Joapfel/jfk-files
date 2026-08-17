@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29146.png
-
-Convert to Markdown NW 88326 DocId:32245535 Page 192
+NW 88326 DocId:32245535 Page 192
 
 Your signature—if filing jointly, BOTH must sign
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21879.png
-
-Convert to MarkdownTweedy might have been unaware of the true purpose of (Gottlieb)'s visit (Bissell, 9/10, pp. 20-22).
+Tweedy might have been unaware of the true purpose of (Gottlieb)'s visit (Bissell, 9/10, pp. 20-22).
 
 Bissell did not recall cables concerning the dispatch of a messenger and subsequently confirming that his instructions were to be followed, but he said "This sounds highly likely. . . I would expect, given the background, that the confirmation would have been forthcoming" (Bissell, 9/10, p. 43).
 

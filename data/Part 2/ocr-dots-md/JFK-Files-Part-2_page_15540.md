@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15540.png
-
-Convert to Markdownthose mechanical (obscene) came down and
+those mechanical (obscene) came down and
 stomped on the people in the street. We
 gonna do away with those crazy dog cops and
 (inaudible). (Inaudible) rights of the demo-

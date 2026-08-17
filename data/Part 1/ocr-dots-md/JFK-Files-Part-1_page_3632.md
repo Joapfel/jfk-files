@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3632.png
-
-Convert to MarkdownUNCLASSIFIED MESSAGE - Y-1
+UNCLASSIFIED MESSAGE - Y-1
 
 <table><tr><td colspan="2">UNCLASSIFIED</td></tr><tr><td>DATE: 26 Oct 73</td><td>From:</td></tr><tr><td>ACTION: DCI</td><td>P.O. Box 540</td></tr><tr><td>INFO: UR. File</td><td>N. 068229</td></tr></table>
 

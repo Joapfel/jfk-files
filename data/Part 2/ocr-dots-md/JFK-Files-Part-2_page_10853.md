@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10853.png
-
-Convert to Markdown# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 d. Each insert should be filed with the bulletin to which it relates. No indexing of individual notices contained therein is necessary.
 

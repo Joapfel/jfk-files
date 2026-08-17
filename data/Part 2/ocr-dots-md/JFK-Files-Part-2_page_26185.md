@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26185.png
-
-Convert to Markdown-89-
+-89-
 
 friends of mine, and when I'd talk to them and
 tell them my views, there was always sympathy

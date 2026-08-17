@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34825.png
-
-Convert to Markdown15 August 1966
+15 August 1966
 
 MEMORANDUM FOR THE RECORD.
 

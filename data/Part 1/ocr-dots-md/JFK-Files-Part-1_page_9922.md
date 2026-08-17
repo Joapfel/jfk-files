@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9922.png
-
-Convert to Markdown2.
+2.
 
 (a) In general the amount of the participation of both Sergio Valdez and Fulano in LILY's editorial as well as commercial efforts, L/3 has told Newton repeatedly that Valdez and Norma are aware of L/3's relationship in the plastic flower business with her. In Greens but that they are not willing of Newton's alias or of the true nature of their relationship. IIFMHC intercepts, however, reveal that L/3 keeps Sergio Valdez informed of his situation with Newton (and it must be assumed) of the general content of their conversations. During this period, Newton is referred to once as "Corba" and several times as "Valdez", whereas previously he was referred to simply as "that general". L/3 has entered to Newton that Sergio Valdez believes that he, L/3, is a legitimate member of the family and that his Dutch-carrier and his Dutch commercial.
 

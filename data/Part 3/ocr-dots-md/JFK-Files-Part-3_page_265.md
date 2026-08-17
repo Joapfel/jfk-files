@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_265.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Robert E. Scoggins, South Carolina Grand Dragon, United Klans of America, Inc., Knights of the Ku Klux Klan, had been receiving a veteran's pension from U. S. Government on a 100 percent disability. Despite this, he had been self-employed in the plumbing, electrical and contracting business. This information was furnished to the Veterans' Administration (VA).
 

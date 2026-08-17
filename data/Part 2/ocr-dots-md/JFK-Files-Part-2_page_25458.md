@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25458.png
-
-Convert to MarkdownML: Hmmm.
+ML: Hmmm.
 
 FS: He told you he loved you and so forth.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25007.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 thing, I was not used in any transitional sense at all.
 

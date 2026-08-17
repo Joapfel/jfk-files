@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6357.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>PROCESS SHEET<br/>FOR<br/>OD/C COLLECTIONS</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28473.png
-
-Convert to MarkdownCOPI
+COPI
 
 18 May 1955
 

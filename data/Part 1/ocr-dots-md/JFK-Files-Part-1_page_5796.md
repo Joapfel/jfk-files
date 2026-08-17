@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5796.png
-
-Convert to Markdown14-00800
+14-00800
 
 SECRET
 (No one filled in)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7708.png
-
-Convert to Markdown19. SOURCES.
+19. SOURCES.
 
 1. LIENVOY, passim.
 2. PACY-7280, Dec 1961

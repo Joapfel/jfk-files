@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1149.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 The Attorney General
 

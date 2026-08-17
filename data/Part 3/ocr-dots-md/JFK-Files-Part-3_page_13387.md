@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13387.png
-
-Convert to MarkdownGuatemala's claiming British Honduras as their territory. And they felt that we were sent over by CIA from Guatemala to stir up some kind of goings-on, and so forth. I did not tell them of the actual operation because the men did not know about the actual operation--only myself knew the actual operation. I told the men, at a later date, to tell the truth to the authorities of how they were recruited and for what reason they were recruited for.
+Guatemala's claiming British Honduras as their territory. And they felt that we were sent over by CIA from Guatemala to stir up some kind of goings-on, and so forth. I did not tell them of the actual operation because the men did not know about the actual operation--only myself knew the actual operation. I told the men, at a later date, to tell the truth to the authorities of how they were recruited and for what reason they were recruited for.
 
 OLSEN: Did the whole operation get started again, then?
 

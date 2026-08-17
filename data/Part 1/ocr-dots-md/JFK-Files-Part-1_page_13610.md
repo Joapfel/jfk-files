@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13610.png
-
-Convert to MarkdownRESUMEN
+RESUMEN
 
 viernes 17 noviembre 1961
 

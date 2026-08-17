@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9672.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 It is also noted DRAGER was arrested February 19, 1974, at Springfield, Ill., Sangamon County Sheriff's Office, for possession of burglary tools, marijuana (CDS) and weapons.
 

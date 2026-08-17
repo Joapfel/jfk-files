@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14328.png
-
-Convert to Markdown# DISSERTATION ON PROCEDURES FOR OPENING, CLOSING AND MAINTAINING DOMESTIC SECURITY CASES IN PENDING STATUS
+# DISSERTATION ON PROCEDURES FOR OPENING, CLOSING AND MAINTAINING DOMESTIC SECURITY CASES IN PENDING STATUS
 
 The FBI opens, continues pending investigation, and closes domestic security cases based on legal considerations. The Bureau is charged with the investigation of violation of numerous criminal statutes, as well as duties imposed by Presidential Directives and Executive Orders concerning internal security and employee loyalty matters.
 

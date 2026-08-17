@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22557.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 2) Mr. Wiley's contact with Earl Browder is not noted in the Contact List, for obvious reasons, although SRS ran Wiley against Earl Browder for several years, principally as a RECOVERY target. This contact is still being used, and, for the record, Browder apparently is fond of Wiley and enjoys his company.
 

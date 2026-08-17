@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17160.png
-
-Convert to MarkdownSECRET/MBAT
+SECRET/MBAT
 
 C. Personnel
 

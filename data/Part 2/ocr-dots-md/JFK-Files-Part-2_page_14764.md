@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14764.png
-
-Convert to MarkdownWFO 105-New
+WFO 105-New
 
 INFORMANT, who was the source of the above, was invited to attend the WCW by members of the SWC while she was with the WSP delegation in Moscow.
 

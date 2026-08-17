@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6677.png
-
-Convert to Markdown## SEGUNDO
+## SEGUNDO
 
 14. Viajes al aeropuerto: Desconozco.
 

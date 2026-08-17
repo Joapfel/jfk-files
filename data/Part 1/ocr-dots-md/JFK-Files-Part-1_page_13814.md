@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13814.png
-
-Convert to MarkdownMCC
+MCC
 
 CÓMPING
 CHRONO

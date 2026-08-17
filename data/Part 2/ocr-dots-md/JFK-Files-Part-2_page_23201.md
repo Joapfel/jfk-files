@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23201.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Tweedy. Was that the month of his death?
 

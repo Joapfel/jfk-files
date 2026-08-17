@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10746.png
-
-Convert to Markdown## En manos del FBI
+## En manos del FBI
 
 EX SENADOR y ex editor de periódicos en Cuba, Rolando Masferrer está ahora en serias dificultades con el FBI en USA. En 1966 se puso a la cabeza de un intento de invasión de Haiti. Sorprendido por las autoridades, fue sometido a juicio y condenado a tres años de prisión. Al fracasar sus acciones mientras estaba en libertad condicional, trató de rehuir la acción policial y finalmente fue derrocamo por las fuerzas del FBL A mediados de septiembre, Masferrer fue arrestado en Miami, Florida.
 

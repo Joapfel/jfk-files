@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8777.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 RD: INTERVIEW OF RETAINED FBI SA BY SSC
 

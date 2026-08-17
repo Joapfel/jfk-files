@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12030.png
-
-Convert to Markdown28 August 1951
+28 August 1951
 
 MEMORANDUM FOR: Chairman, CIA Defector Committee
 

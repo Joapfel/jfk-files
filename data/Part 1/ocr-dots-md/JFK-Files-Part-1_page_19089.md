@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19089.png
-
-Convert to Markdownon those of the men to be sent to the front. General, he stated that distributions are still continuing both in the groups, and that, as far as could be told, although some of the men are not companymen, all the position of responsibility in past organization are held by professionals.
+on those of the men to be sent to the front. General, he stated that distributions are still continuing both in the groups, and that, as far as could be told, although some of the men are not companymen, all the position of responsibility in past organization are held by professionals.
 
 25. The next day, according to the report, representative of the group on the Champs, there were 30000 registered members of the Army in the year of December 1946, and 24,997 in 1937. These figures are correct for the time being. The urgent question before the group in this year is to know what the mobilization of soldiers will be, and how many soldiers will be required to maintain a high rate of production. For example, workers in the building trades are getting up to 7 grams per hour, while skillsmen at a factory are only 12 or 15. Beside points out that it is not possible to refer all soldiers to the high level developed by the former, since this would cause an infinite number of闲 workmen. Therefore, the group faced with the delicate task of working at the same time for the relation - to certain elements - of some soldiers and the rest of others.
 

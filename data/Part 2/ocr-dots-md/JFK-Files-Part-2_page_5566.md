@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5566.png
-
-Convert to MarkdownReel 62, Folder 3
+Reel 62, Folder 3
 
 This folder contains a 74 page verbatim transcript of two interrogation sessions by Peter Deryabin which detail Nosenko's career progress and a disciplinary problem and its resulting impact on his promotion schedule.
 

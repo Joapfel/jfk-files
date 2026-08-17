@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10934.png
-
-Convert to Markdown(1) I did not use it (for example) a last name. It is
+(1) I did not use it (for example) a last name. It is
 obvious that, in that case, I would have used his
 full name. But since you asked for the letter of
 Mar 20th, 1965, I think it would be best if I put it in

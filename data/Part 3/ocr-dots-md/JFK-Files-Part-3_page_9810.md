@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9810.png
-
-Convert to MarkdownTo this end, such an index (called Adex) was instituted for making quickly retrievable information on four categories of individuals in order of dangerousness:
+To this end, such an index (called Adex) was instituted for making quickly retrievable information on four categories of individuals in order of dangerousness:
 
 I) National leaders of revolutionary or extremist groups, members who have exhibited a propensity for violence, members with training in sabotage, espionage, or guerrilla warfare, unaffiliated revolutionaries with a propensity for violence, and revolutionaries with access to key facilities.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17834.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CABLE: SECRETARIAT DISSEMINATION</td>
     <td>CLASSIFIED MESSAGE</td>

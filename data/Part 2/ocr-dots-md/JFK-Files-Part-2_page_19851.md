@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19851.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 3. Illinois Women's Abortion Coalition (IWAC), located at 343 South Dearborn Street, Chicago, Illinois, Room 343. IWAC is a non-membership organization with no officers and minimal activity. Those individuals who function in IWAC are predominantly YSA-SWP members.
 

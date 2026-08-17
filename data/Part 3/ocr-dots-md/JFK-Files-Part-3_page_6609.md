@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6609.png
-
-Convert to MarkdownLetter to PAC, Los Angeles
+Letter to PAC, Los Angeles
 
 TO: JANE POND
 

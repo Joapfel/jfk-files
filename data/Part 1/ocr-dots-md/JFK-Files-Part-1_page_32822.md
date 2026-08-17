@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32822.png
-
-Convert to MarkdownCONCUE:
+CONCUE:
 
 David Phillips
 WH/CDO

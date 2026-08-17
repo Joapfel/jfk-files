@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8690.png
-
-Convert to Markdownramifications of Cuba would be, but were talking to
+ramifications of Cuba would be, but were talking to
 reinforce their faith.
 
 GNVA 6117 (IN 00894) dated 18 January 1964

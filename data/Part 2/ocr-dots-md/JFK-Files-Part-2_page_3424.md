@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3424.png
-
-Convert to Markdown# h. NATIONAL PHOTOGRAPHIC INTERPRETATION CENTER
+# h. NATIONAL PHOTOGRAPHIC INTERPRETATION CENTER
 
 (1) AUTHORITY. The National Photographic Interpretation Center (NPIC) was established by National Security Council Intelligence Directive No. 8, dated 18 January 1961 and functions under the executive direction of the Director of Central Intelligence.
 

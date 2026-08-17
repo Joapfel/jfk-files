@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11118.png
-
-Convert to Markdown(c) Other security index subjects
+(c) Other security index subjects
 I. Closed
 
 (A) Cases of all other security index subjects must be followed by administrative ticklers set up so as to insure submission of [a periodic] investigative report [according to priority designation.] If, following investigation, no subversive data is developed and the only available information consists of verification of residence and employment and negative contacts with security informants and sources, submit in lieu of a report a letter (form FD-400) to the Bureau setting forth identity of informants and sources contacted, any additional administrative data deemed necessary, and form FD-305 properly executed. The cases shall be opened and assigned 45 days prior to the date the [periodic] report is due. Such cases shall also be opened and assigned six months after submission of the [periodic] report to accomplish verification of addresses [and further verification must be handled in accordance with 87D 7b (7) (b).] Upon such verification, the cases should be closed administratively.

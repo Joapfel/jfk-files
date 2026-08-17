@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22357.png
-
-Convert to Markdown# STATEMENT
+# STATEMENT
 
 Mr. Vice-President, Governor Reagan, distinguished members of this Commission. I am here willingly at your invitation; I shall answer all of your questions fully and candidly.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16574.png
-
-Convert to Markdownwhether violations of 18 U.S.C. 242 and 241 are involved. The investigation should include, but need not be limited to, the following.
+whether violations of 18 U.S.C. 242 and 241 are involved. The investigation should include, but need not be limited to, the following.
 
 1. Identify and interview all persons, including the allegedly wounded individuals who were present when the police conducted the Black Panther Party raid at 2337 West Monroe Street, Chicago, on December 4.
 

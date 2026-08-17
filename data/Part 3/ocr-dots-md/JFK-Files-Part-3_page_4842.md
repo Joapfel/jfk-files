@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4842.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ECHEMENDIA further stated that on the evening of his meet with NORMAN ROTHMAN at the Albion Hotel Lounge, Miami Beach, Florida, ROTHMAN had previously been in contact with MEYER LANSKY.
 

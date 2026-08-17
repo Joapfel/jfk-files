@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10279.png
-
-Convert to Markdownsensitive nonofficial cover cases under the guise
+sensitive nonofficial cover cases under the guise
 of normal commercial annuities. Backstopping for
 this arrangement is provided through CCS-procured
 bank accounts and Post Office boxes. 19 retirees

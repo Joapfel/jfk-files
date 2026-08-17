@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23936.png
-
-Convert to Markdownwhich had long had a standing grudge against that and saw no way of
+which had long had a standing grudge against that and saw no way of
 doing away with, but obviously they weren't all as left as Babu.
 Osman made
 You had for instance Osman Sharif, who may be Ambassador to United States.

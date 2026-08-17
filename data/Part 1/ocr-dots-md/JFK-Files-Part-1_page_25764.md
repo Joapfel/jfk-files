@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25764.png
-
-Convert to Markdown13 August 1957
+13 August 1957
 
 Mr. Raymond H. GERENDE
 

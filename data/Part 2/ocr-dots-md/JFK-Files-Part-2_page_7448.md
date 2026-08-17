@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7448.png
-
-Convert to Markdowndirected against the CASTRO regime in Cuba.
+directed against the CASTRO regime in Cuba.
 
 e. Utilize propaganda/ media, political action assets, and other covert means to combat the influence of Cuban revolutionary ideologies in Mexico.
 

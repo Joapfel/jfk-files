@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21835.png
-
-Convert to MarkdownPage
+Page
 
 b. NOSENKO's Conduct in Meetings 626
 c. NOSENKO's Behavior Under Interrogation 627

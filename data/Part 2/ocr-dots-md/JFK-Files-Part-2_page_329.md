@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_329.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MRIG : J. Stewart/pen</td><td>[ ] FILE RID</td></tr><tr><td>JMIT : W-2</td><td>[ ] INDEX</td></tr><tr><td>EXT : 3654.</td><td>[x] NO INDEX</td></tr><tr><td>DATE : 9 December 1956</td><td>X FILE IN CS FILE NO. 201-793301</td></tr></table>
 

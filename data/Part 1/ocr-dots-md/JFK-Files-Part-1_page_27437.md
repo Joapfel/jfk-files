@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27437.png
-
-Convert to Markdown(continued on next page)
+(continued on next page)
 
 <table>
    <tr>

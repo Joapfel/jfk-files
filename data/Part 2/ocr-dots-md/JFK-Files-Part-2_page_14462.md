@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14462.png
-
-Convert to MarkdownThe absence of an "X" in the "Ban" column means that the letter was not opened and that only the exterior is recorded in our files.
+The absence of an "X" in the "Ban" column means that the letter was not opened and that only the exterior is recorded in our files.
 
 5. Since the hypothetical request was for mail from P. KROVAN, who is believed to be located in Moscow only the listing as set out above would be furnished, since it would not appear that Paraskoviya KROVAN, located in the western section of the Ukrainian SSR is identical. If in connection with future investigation or information otherwise available, you may believe that KROVAN may be identical with the individual of interest to you, you need reference only the HUNTER report number and request the exterior photographs of item No. A57C05C3325, which will be reproduced from the original film and made available to you.
 

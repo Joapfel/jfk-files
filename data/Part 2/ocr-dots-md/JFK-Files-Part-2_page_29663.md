@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29663.png
-
-Convert to Markdown# Classification: TOP SECRET
+# Classification: TOP SECRET
 
 (This form is not to be used for material extracted from CIA-controlled documents.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29904.png
-
-Convert to Markdown14-00000
+14-00000
 
 STANDARD FORM 50 (8 PARTS)
 DECEMBER 1984

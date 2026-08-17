@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23646.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 HW 50955 DocId:32423509 Page 20
 

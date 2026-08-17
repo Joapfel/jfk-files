@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7573.png
-
-Convert to MarkdownISAAOS
+ISAAOS
 
 The July 30, 1932 issue of the NY Times under a Shanghai headline of 29 July 1932, states that Harold R. ISAACS, an American citizen was warned by the US Consul General in Shanghai that t e US may withdraw its extra-Territorial rights & allow him to be tried in a Chinese court. ISAACS then the editor of the " China Forum," had violently attacked Ching E-ai Sheh, calling him, among other things, " a butcher." The article further stated that ISAACS was an associate of Agnes SEDLER, a correspondent for American news-papers( DNB 1461)
 

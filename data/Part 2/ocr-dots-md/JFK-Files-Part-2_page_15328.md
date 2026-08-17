@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15328.png
-
-Convert to MarkdownMemo to Mr. Boardman
+Memo to Mr. Boardman
 from Mr. Belmont
 
 ACTION:

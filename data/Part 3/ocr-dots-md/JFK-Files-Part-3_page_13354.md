@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13354.png
-
-Convert to MarkdownOLSEN: Frank, we are now beginning tape No. 4, or belt No. 4,
+OLSEN: Frank, we are now beginning tape No. 4, or belt No. 4,
 here on this interview. And I would like to go into the subject a little
 bit further about any connections that you may have had with the assassina-
 tion of President Kennedy.

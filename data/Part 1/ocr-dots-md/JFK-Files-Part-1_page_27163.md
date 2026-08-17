@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27163.png
-
-Convert to MarkdownWilliam V. Broe
+William V. Broe
 4317 Saul Road
 Kensington, Maryland
 

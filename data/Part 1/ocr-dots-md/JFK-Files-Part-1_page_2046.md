@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2046.png
-
-Convert to Markdown5 November 1962
+5 November 1962
 
 MEMORANDUM FOR: Technical Services Division
 & (Authentication Branch)

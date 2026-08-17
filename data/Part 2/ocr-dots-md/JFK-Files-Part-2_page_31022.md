@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31022.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA Briefing - January 26, 1978
 

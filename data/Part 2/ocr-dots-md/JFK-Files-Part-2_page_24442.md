@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24442.png
-
-Convert to Markdownrecalls describing the channel as being 'from A to B to C'. As he then envisioned it, A was Maheu, B was Roselli, and C was the principal in Cuba. Edwards recalls that Mr. Dulles merely nodded, presumably in understanding and approval. Certainly there was no opposition. Edwards states that, while there was no formal approval as such, he felt that he clearly had tacit approval to use his own judgement." (I.G., pp. 17-18.)
+recalls describing the channel as being 'from A to B to C'. As he then envisioned it, A was Maheu, B was Roselli, and C was the principal in Cuba. Edwards recalls that Mr. Dulles merely nodded, presumably in understanding and approval. Certainly there was no opposition. Edwards states that, while there was no formal approval as such, he felt that he clearly had tacit approval to use his own judgement." (I.G., pp. 17-18.)
 
 Bissell testified that the description sounded "highly plausible". (Bissell Tr. 6/9/75 at 24.) Edwards said it was "accurate" (Edwards Tr. at 11).
 

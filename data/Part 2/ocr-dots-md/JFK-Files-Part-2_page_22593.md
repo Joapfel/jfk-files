@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22593.png
-
-Convert to MarkdownSECRET
+SECRET
 
 have a close association with Pennington without elaborating as to specific details. For example: On March 1967, Wiley prepared a report which states as follows - "In dealing with Don (Sweaney) and Lee (Pennington), both of whom know of my connection, I avoid any talk of my company activities. At one time, both knew some of my work because we received cooperation from them on certain projects. However, since Don went to his present job there has been little contact.
 

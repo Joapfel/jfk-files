@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1974.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CONFIDENTIAL FUNDS PERSONNEL ACTION
 

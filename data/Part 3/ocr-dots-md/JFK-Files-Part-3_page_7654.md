@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7654.png
-
-Convert to Markdown# TRAINING DIVISION
+# TRAINING DIVISION
 
 Section Chief Milton A. Jones, Inspectors Bernard M. Suttler and George T. Quinn, and SAs Lawrence J. Heim, John H. Campbell, Edward H. Gooderham, David L. Divan, Carl J. Hall, Louis S. Lear, Donald G. Haning, Robert B. Davenport, Robert C. Fay, George William Gunn and Fern C. Stukenbroeker.
 

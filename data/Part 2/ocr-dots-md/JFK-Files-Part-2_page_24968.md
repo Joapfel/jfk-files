@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24968.png
-
-Convert to MarkdownMobutu appeared to be the effective power in the Congo for the moment but Lumumba was not yet disposed of and remained a grave danger as long as he was not disposed of.
+Mobutu appeared to be the effective power in the Congo for the moment but Lumumba was not yet disposed of and remained a grave danger as long as he was not disposed of.
 
 However, I do not remember any such discussion, nor do I have any direct recollection of the substance of that meeting.
 

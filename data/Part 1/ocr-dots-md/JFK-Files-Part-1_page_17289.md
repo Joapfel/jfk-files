@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17289.png
-
-Convert to MarkdownEM-A-11257
+EM-A-11257
 KAP0K-1472
 
 c. Coordinate support requests from other Station Case Officers which involve either GERENDE, SCANTLING or the staff agent.

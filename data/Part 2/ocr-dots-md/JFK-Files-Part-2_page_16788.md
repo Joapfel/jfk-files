@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16788.png
-
-Convert to MarkdownThe metallic fragments were removed and the specimen appropriately marked.
+The metallic fragments were removed and the specimen appropriately marked.
 
 Removed from the area marked "1" was a lead fragment of the specific source of which could not be established.
 

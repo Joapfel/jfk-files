@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16936.png
-
-Convert to Markdown10/9/69 FRED HAMPTON,
+10/9/69 FRED HAMPTON,
 
 HAMPTON has decided to support the actions of but not necessarily participate in those actions. was the major reason HAMPTON took any position at all, the reason being that gives the Panthers whatever they want.
 

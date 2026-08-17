@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25076.png
-
-Convert to Markdownbut, in the midst of a big "binge" made possible by hateful
+but, in the midst of a big "binge" made possible by hateful
 capitalist brandy and whiskey, they decided to accompany four
 engineers of PEMEX [Petroleos Mexicanos; Mexican Petroleum] in
 an old automobile to Ciudad Mante. On the way, after the

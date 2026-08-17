@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30425.png
-
-Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+SEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
 
 I. NAME: John, No Company, Other Relationship: AGE:
 

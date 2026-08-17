@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5032.png
-
-Convert to MarkdownUNITED STATESGC RNMEN T
+UNITED STATESGC RNMEN T
 
 Memorandum
 

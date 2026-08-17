@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9868.png
-
-Convert to Markdownair is passed from the auditorium to the air handling equip-
+air is passed from the auditorium to the air handling equip-
 ment on the roof. These registers are solidly bolted into
 the walls.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6601.png
-
-Convert to MarkdownLA T-10 (1/9/69)
+LA T-10 (1/9/69)
 LA T-11 (1/28/69)
 
 On December 5, 1968, ANGELA YVONNE DAVIS attended a meeting of the Che Lumumba Club, MSS, SDCOP, at 2128 Third Avenue, Los Angeles. The topic of discussion centered around Communist Party youth action in the community.

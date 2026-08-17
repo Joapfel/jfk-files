@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1727.png
-
-Convert to MarkdownSTANDARD FORM 50
+STANDARD FORM 50
 REV. APRIL 1981
 
 PREPARED BY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30555.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **To:** CHANGHAI (DWARF) ROUTINE
 **From:** SPECIAL OPERATIONS 14 APR 48

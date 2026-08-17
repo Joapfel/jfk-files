@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13566.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 interview he might have, but was there for the purpose of expediting the interview by resolving questions concerning information he was authorized to furnish.

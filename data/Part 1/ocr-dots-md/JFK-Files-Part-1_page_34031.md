@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34031.png
-
-Convert to Markdownhad less. Total trade amounted to $ 1,551,000,000 (compared to $ 1,410,200,000 in
+had less. Total trade amounted to $ 1,551,000,000 (compared to $ 1,410,200,000 in
 1963), but trade with Communist countries reached $ 1,195,000,000 (compared to
 $ 1,054,900,000 in 1963). Trade with the Free World remained at the same level
 - $ 354,300,000 in 1963 and $ 356,000,000 in 1965, but with a difference - the Cu-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1937.png
-
-Convert to MarkdownWhen I saw you last in Washington you
+When I saw you last in Washington you
 promised one day you would be making a trip out
 to San Diego. I am holding you to that and
 hope it will be soon.

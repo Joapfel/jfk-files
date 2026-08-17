@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25353.png
-
 to, at a guess, SMOILOV. In early August, shortly after his arrival, he called a woman instructor at an obscure local business school and was told that he could come by for his grades the following week. (He infer from another conversation that HUTSEEV was attending this school with him.)
 
 LECHOW was also with ANTIASOV and BELIYAKOV when ANTIASOV was detained on their way "back from the University" at the end of September. (See ANTIASOV.) This should indicate that he was principally occupied during the weeks after his arrival in acquainting himself with local business methods and commercial practices, and perhaps taking some further formal instruction. Otherwise, his appearances in the traffic have been limited to answering the telephone for both KOLOMYAKOV and SAMOILOV in their absence (without making decisions or taking any action) and, under the tutelage of LAZAREV before the latter's departure, making routine calls connected with ordering wine, repairing the movie projector, and the like. He has also occasionally been seen driving one or another of the Embassy automobiles, apparently filling in for one of the chauffeurs.

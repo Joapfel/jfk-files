@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10400.png
-
-Convert to Markdownnot notified EEAB that he had the job and had moved from
+not notified EEAB that he had the job and had moved from
 the D.C. area.) He said he had been visited by a Special
 Agent of the FBI who told Lambert that his resume had been
 found among McCord's papers. The Agent wanted to know if

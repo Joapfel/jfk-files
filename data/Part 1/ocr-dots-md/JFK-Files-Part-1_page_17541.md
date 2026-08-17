@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17541.png
-
-Convert to MarkdownFor objective g:
+For objective g:
 
 f. Telephone conversations originating from residences or offices of prominent exile leaders in Mexico City.
 

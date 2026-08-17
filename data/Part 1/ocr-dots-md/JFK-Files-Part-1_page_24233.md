@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24233.png
-
-Convert to Markdownresolved before being taken up with Q, and thus he has a somewhat rosy
+resolved before being taken up with Q, and thus he has a somewhat rosy
 view of the operation. The satisfaction of accomplishment (i.e., being
 able to produce useful answers to our questions) is surely a factor
 in his present attitude.

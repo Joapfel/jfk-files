@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8352.png
-
-Convert to MarkdownTuesday.
+Tuesday.
 
 We do not know what was said, but from a source whom we have no reason
 to doubt, ( an ex-friend of Kelly's who deserted Kelly and came to us to

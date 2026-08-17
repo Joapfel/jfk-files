@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4899.png
-
-Convert to Markdown# ASSOCIATES
+# ASSOCIATES
 
 On October 22, 1962, MAX LURIE advised he represents NORMAN ROTHMAN. LURIE stated he recently received a letter from NORMAN ROTHMAN, who was in the Federal Penitentiary, Atlanta, Georgia, telling him that he, ROTHMAN, had made a statement to the FBI in Atlanta, that he had loaned PATSY ERRA approximately $100,000. LURIE stated that he prepared a mortgage for ROTHMAN to cover a loan from ROTHMAN to ERRA in 1959. LURIE stated that he knows of no other loans made by ROTHMAN to ERRA, and that he has no record of any other loans made by ROTHMAN to ERRA.
 

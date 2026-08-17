@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26958.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 2 March 1967
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16188.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">DISTRIBUTION STATEMENT: COS, WH/Miami (w/atts, u/s/c)</td>

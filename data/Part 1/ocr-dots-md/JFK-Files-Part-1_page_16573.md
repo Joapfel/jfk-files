@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16573.png
-
-Convert to MarkdownRogelio RODRIGUEZ Lopez (201-332665) AMMUG-1 commented that he knew RODRIGUEZ quite well and when RODRIGUEZ was in Mexico he used to handle HYSAGE-1.
+Rogelio RODRIGUEZ Lopez (201-332665) AMMUG-1 commented that he knew RODRIGUEZ quite well and when RODRIGUEZ was in Mexico he used to handle HYSAGE-1.
 
 Julian 'NOVAS Fernandez (201-747936)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8016.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 U.S. FOREIGN INTELLIGENCE ACTIVITIES -
 BRIEF FOR USE OF DIRECTOR IN APPEARANCE
 BEFORE PRESIDENTIAL BOARD TO REVIEW PERIODICALLY

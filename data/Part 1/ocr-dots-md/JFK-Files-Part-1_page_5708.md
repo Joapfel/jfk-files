@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5708.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>C-O-N-P-I-D-E-T-I-A-L</td>
    </tr>

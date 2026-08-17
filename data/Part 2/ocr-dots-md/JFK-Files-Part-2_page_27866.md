@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27866.png
-
-Convert to MarkdownIsiah C. Mathews
+Isiah C. Mathews
 
 21 Pearl Street
 Danbury, Connecticut 06810

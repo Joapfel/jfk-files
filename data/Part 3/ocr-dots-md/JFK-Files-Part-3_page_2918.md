@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2918.png
-
-Convert to Markdown2504-2505
+2504-2505
 
 why are they preserved? Why aren't they simply destroyed?
 Is there a problem that we can help through new law to enable

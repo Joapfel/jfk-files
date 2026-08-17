@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32744.png
-
-Convert to Markdown1. Develop the force structure necessary to our military requirements without regard to arbitrary budget ceilings.
+1. Develop the force structure necessary to our military requirements without regard to arbitrary budget ceilings.
 
 2. Procure and operate this force at the lowest possible cost.
 

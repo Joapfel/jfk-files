@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4171.png
-
-Convert to MarkdownSSC REQUEST 12-4-75
+SSC REQUEST 12-4-75
 
 ITEM 4
 

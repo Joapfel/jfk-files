@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7528.png
-
-Convert to Markdownagrees for the Third International in Shanghai.
+agrees for the Third International in Shanghai.
 
 6. In addition to the above individuals, Durbin is also reported to have been an acquaintance in Shanghai about 1932-33 of George Alexander LEHREU, who is presently employed at Yale University. KENBLATT was an acquaintance of IBAACE and was also reported to have been associated with "Luftwaring Group" (Shanghai) at that time.
 

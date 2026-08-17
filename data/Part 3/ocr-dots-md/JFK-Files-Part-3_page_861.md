@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_861.png
-
-Convert to Markdown# V. DOMESTIC "INTERNAL SECURITY" ELECTRONIC SURVEILLANCE: ALTERNATIVES TO KEITH PROHIBITION
+# V. DOMESTIC "INTERNAL SECURITY" ELECTRONIC SURVEILLANCE: ALTERNATIVES TO KEITH PROHIBITION
 
 There are several elements within United States society which pose a threat to the safety and tranquility of segments of that society, e.g., police officers, symbols of the "Establishment," etc. While some of these elements claim to be "revolutionary" and claim as an ultimate objective the overthrow of the United States Government, there is no responsible opinion that feels any of these elements have any chance of success in toppling the Government. Yet, they do pose a significant threat of inflicting serious, and sometimes extensive, damage on individuals and property.
 

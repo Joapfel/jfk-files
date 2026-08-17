@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13630.png
-
-Convert to MarkdownNR 636 CG CODE
+NR 636 CG CODE
 
 727PM NITEL 5/30/75 FMM
 TO DIRECTOR (62-116395)

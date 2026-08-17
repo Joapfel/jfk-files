@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27889.png
-
 s, I am also responsible for orientating new clerical staff members. I operate as alternate Time and Attendance clerk. Supervisor: Mrs. Linda Bailey
 
 Library of Congress - Congressional Research Service

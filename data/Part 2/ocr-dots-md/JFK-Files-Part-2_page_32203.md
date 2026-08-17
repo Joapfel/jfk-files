@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32203.png
-
-Convert to Markdown2) prohibition of ships of OAS member states from transportating embargoed items and deny use of ports to ships in Bloc-Cuba trade;
+2) prohibition of ships of OAS member states from transportating embargoed items and deny use of ports to ships in Bloc-Cuba trade;
 
 3) denial of Soviet over-flights and transit rights for flights to Cuba; and 4) a call on other states to take similar action.
 

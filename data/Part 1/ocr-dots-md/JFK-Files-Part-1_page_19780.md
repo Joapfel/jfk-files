@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19780.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filled In)
 
 MEMORANDUM OF UNDERSTANDING

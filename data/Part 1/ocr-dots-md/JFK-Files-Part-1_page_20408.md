@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20408.png
-
-Convert to MarkdownOCCUPATION _______________ LAST EMPLOYER _______________
+OCCUPATION _______________ LAST EMPLOYER _______________
 
 EMPLOYER'S OR OWN BUSINESS ADDRESS _______________ St. & No. _______________ City _______________ State _______________ Country _______________
 

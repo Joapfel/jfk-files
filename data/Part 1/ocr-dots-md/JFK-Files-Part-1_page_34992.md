@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34992.png
-
-Convert to Markdown# PAYROLL
+# PAYROLL
 
 ANNEX "I-F"
 

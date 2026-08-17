@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15795.png
-
-Convert to MarkdownGILHOOLY and BRADY were approaching the building
+GILHOOLY and BRADY were approaching the building
 from the front when a Negro male with a shotgun and a male
 Negro with a carbine fired on them. GILHOOLY subsequently
 died on November 14, 1969, from his wounds and BRADY

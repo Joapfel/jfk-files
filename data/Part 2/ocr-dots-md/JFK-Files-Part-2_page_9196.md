@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9196.png
-
-Convert to MarkdownRE: MICHAEL HALSEY BROWN
+RE: MICHAEL HALSEY BROWN
 
 hear that 15 out of 17 convicted traitors since 1945
 have been Jews? (Of course, 17 out of 17 members of

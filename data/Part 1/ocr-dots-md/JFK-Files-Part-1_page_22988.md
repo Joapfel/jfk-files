@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22988.png
-
-Convert to Markdown25. Military service - dates, country, unit, rank, duty, where services performed, decorations, when discharged, why. Give details if ever prisoner of war, U/S/ Army 1940 - 1941, Artillery, Private, North Carolina, discharged for entry in Air Forces. US Air Forces. 1941 - 1945, Intelligence Specialist, Panama, India-Burma theater. Discharged termination of War. US Air Forces, 1946-1949, Technical Sergeant, Intelligence Specialist, Political analysis, discharged - exp term of service.
+25. Military service - dates, country, unit, rank, duty, where services performed, decorations, when discharged, why. Give details if ever prisoner of war, U/S/ Army 1940 - 1941, Artillery, Private, North Carolina, discharged for entry in Air Forces. US Air Forces. 1941 - 1945, Intelligence Specialist, Panama, India-Burma theater. Discharged termination of War. US Air Forces, 1946-1949, Technical Sergeant, Intelligence Specialist, Political analysis, discharged - exp term of service.
 
 26. Present and past membership in organizations (professional, social, political, etc.)
 

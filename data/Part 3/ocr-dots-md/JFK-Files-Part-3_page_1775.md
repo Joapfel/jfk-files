@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1775.png
-
-Convert to MarkdownJAN 5 6 25 PH '78
+JAN 5 6 25 PH '78
 
 RECEIVED
 FEDERAL BUREAU

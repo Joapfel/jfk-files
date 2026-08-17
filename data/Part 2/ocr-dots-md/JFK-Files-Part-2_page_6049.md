@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6049.png
-
-Convert to MarkdownHENRY F. GRAFF cont'd
+HENRY F. GRAFF cont'd
 
 "Decision in Viet Nam: How Johnson Makes Foreign Policy," *The New York Times Magazine*, July 4, 1965, pp. 4-7, 16-20.
 Reprinted in Robert A. Divine, ed., *American Foreign Policy Since 1945*. Chicago: Quadrangle Books, 1969, pp. 215-32. Abridged, The Sunday Times (London), July 4, 1965, pp. 11, 13.

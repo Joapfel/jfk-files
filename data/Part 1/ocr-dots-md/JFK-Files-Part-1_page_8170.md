@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8170.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: BEN EVANS
 UNIT : WH/3/H&E

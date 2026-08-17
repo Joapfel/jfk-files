@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3507.png
-
-Convert to Markdown<table>
+<table>
   <caption>ROUTING</caption>
   <tbody>
     <tr>

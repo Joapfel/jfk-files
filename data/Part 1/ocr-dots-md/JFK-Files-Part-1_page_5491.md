@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5491.png
-
-Convert to MarkdownRE: May 1971, Charles B. Ruffin (Resigned)
+RE: May 1971, Charles B. Ruffin (Resigned)
 
 Subject: New Messages from Clarair J. Charles/Current Haitian Rules Activities in New York City
 

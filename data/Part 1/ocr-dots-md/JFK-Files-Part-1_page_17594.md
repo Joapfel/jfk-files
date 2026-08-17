@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17594.png
-
-Convert to MarkdownAttachment
+Attachment
 HUM-A-12936
 KAPOK-1631
 Page 8

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4463.png
-
-Convert to Markdownup for the development of collection assets. The disseminations by
+up for the development of collection assets. The disseminations by
 the (N.S.A) also serve as an effective means of checking selected
 information and activity that has been provided by other sources of
 information. The (NSA) also collaborates in the dissemination of

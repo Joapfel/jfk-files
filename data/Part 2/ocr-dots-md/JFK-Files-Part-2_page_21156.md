@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21156.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 case as described by NOSENKO actually related to EDWARD MC GOWAN, a CIA tourist agent who was detected by KGB mailing an operational letter in Minsk in August, 1958; however, one ROBERT ALAN MC GUIRE visited the Soviet Union in April-May, 1959, and was the target of KGB provocations although he had no intelligence connections. It was stated that interrogation did not resolve how NOSENKO knew the name [MC GUIRE], but not the background of his case and knew the background of [MC GOWAN]'s case but not his name.
 

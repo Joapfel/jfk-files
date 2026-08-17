@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25837.png
-
-Convert to Markdown2.
+2.
 
 I was telling you about. Dorticos: and the maltreatment, how was it? Hernandez:
 

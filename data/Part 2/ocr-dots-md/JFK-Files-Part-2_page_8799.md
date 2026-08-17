@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8799.png
-
-Convert to MarkdownMemo for Chief, Special Affairs Staff, by Henry Hecksher dated 3 September 1963 19-124-27/3 (Box 28)
+Memo for Chief, Special Affairs Staff, by Henry Hecksher dated 3 September 1963 19-124-27/3 (Box 28)
 
 A Tad SZULC article in a special to The New York Times datelined Key West, 1 Sept(1963) quotes "the judgement of authoritative quarters in Cuba'" that Washington tolerance of small refugee groups that are identified with political factions objectionable to most Cubans, specifically the groups that apparently operate from Nicaragua and are identified with ARTIME, works against the emergence of meaningful opposition. /Hecksher comment: I wonder who is actually behind what looks to me like a concerted denigration campaign?
 

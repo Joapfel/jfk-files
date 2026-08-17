@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14660.png
-
-Convert to Markdownreferred by Lenin and Mark as no longer applicable; it must be brought up to date and placed in the current series of technological evolution and world education. He is in Czechoslovakia wants to go to the USR. Everybody, especially the students, wants to leave for Austria or Germany. The black market is up to date. The definition is very sad.
+referred by Lenin and Mark as no longer applicable; it must be brought up to date and placed in the current series of technological evolution and world education. He is in Czechoslovakia wants to go to the USR. Everybody, especially the students, wants to leave for Austria or Germany. The black market is up to date. The definition is very sad.
 
 Fidel's latest speech, published by French Press, was distributed through the Embassy, but they got hold of the copies and destroyed them. They say that leftist publications praise whatever they want or whatever interests them, and Fidel's speech was of no interest to them, since they did not analyze it thoroughly.
 

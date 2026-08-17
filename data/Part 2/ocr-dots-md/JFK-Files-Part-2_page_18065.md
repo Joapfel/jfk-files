@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18065.png
-
-Convert to Markdown# CASE STATUS COVER SHEET
+# CASE STATUS COVER SHEET
 
 FOIA NUMBER: 1013889-001
 SUBJECT(s): Sullivan, William C

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35559.png
-
-Convert to MarkdownCOPY
+COPY
 
 INVOICE 65-1-2
 

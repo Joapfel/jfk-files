@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23660.png
-
-Convert to MarkdownSo it isn't really just a question. I would argue, of seeing where the current system takes us. It's a matter of looking at what we have learned as a result of our inquiry and saving, in fact, this is going to be an impediment and it is my personal opinion and I think supported at least by some testimony that that would be the case.
+So it isn't really just a question. I would argue, of seeing where the current system takes us. It's a matter of looking at what we have learned as a result of our inquiry and saving, in fact, this is going to be an impediment and it is my personal opinion and I think supported at least by some testimony that that would be the case.
 
 The second argument. I think, is a somewhat broader one, and I guess I'm not prepared to make it. But we've had an inquiry into the CIA, some of its problems, some of its accountability problems, some of its management problems, and as a result of this inquiry there is, at least it strikes me as being some inconsistency to be argued between having this broad inquiry and ending up with a much stronger, larger, and more powerful Central Intelligence Agency in every respect with greater authority over other elements of the intelligence community.
 

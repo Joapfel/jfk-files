@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11284.png
-
-Convert to Markdown3. Investigative procedures and suggestions re communist front organizations
+3. Investigative procedures and suggestions re communist front organizations
 To accurately and clearly show true nature of communist front groups,
 data concerning the following topics, where applicable, should be
 fully developed and reported on:

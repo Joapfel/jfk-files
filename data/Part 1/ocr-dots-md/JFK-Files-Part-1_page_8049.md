@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8049.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Report No: TCH-1365.
 

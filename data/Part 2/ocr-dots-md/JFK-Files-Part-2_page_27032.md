@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27032.png
-
-Convert to Markdown34. Any additional files on any incidents of technical surveillance, technical penetration, surreptitious entry, breaking and entering, by the CIA directly or in cooperation with another organization, public or private.
+34. Any additional files on any incidents of technical surveillance, technical penetration, surreptitious entry, breaking and entering, by the CIA directly or in cooperation with another organization, public or private.
 
 ## Directorate for Intelligence
 

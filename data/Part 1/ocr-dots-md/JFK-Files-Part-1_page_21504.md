@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21504.png
-
-Convert to Markdowninterviewer would not dispute or disparage his statements without adequate reason, this reluctance on the part of NOSENKO, in the opinion of the interviewer, totally disappeared.
+interviewer would not dispute or disparage his statements without adequate reason, this reluctance on the part of NOSENKO, in the opinion of the interviewer, totally disappeared.
 
 During the interviewing period, particularly in the first six months, NOSENKO materially assisted the interviewer by preparing approximately sixty memoranda on such diverse subjects as his life, motivation for detection, individual cases, notes which he furnished to CIA in 1964, KGB organization, and KGB officer and agent personalities. As an example of the scope of this work by NOSENKO, four of the memoranda included remarks concerning approximately [875] KGB officers, [100] KGB agents, 35 GRU officers, and [400] other Soviet nationals. These lists were alphabetically arranged and the above indicated cooperation of NOSENKO has materially assisted in the organization and evaluation of information furnished by him during current interviews.
 

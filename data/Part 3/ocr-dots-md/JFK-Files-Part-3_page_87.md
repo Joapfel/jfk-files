@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_87.png
-
-Convert to MarkdownINTELLIGENCE AND INFORMATION FILES (Continued)
+INTELLIGENCE AND INFORMATION FILES (Continued)
 
 **Studies in Intelligence**
 65-66944

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23356.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 of the operational plan that the Chief of Station might come
 up with.

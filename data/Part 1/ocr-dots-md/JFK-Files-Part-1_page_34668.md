@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34668.png
-
-Convert to Markdowno. Maritime broadcasts were cancelled for period for vessel maintenance. An electronic engineer has been hired and construction of TV intrusion equipment has begun. This equipment will be used on the maritime broadcast and be targeted against the Havana area.
+o. Maritime broadcasts were cancelled for period for vessel maintenance. An electronic engineer has been hired and construction of TV intrusion equipment has begun. This equipment will be used on the maritime broadcast and be targeted against the Havana area.
 
 f. Cuban Freedom Committee funded and directed two hours daily over WCOB, Miami, and six hours daily over WJMF, Key West.
 

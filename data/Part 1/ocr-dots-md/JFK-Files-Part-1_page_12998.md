@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12998.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IMMEDIATE PANAMA CITY INFO DIRECTOR
 

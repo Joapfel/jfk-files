@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6306.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EXPOSED Miss Marie Antonia LOPEZ
 523 S W 11th Ave.

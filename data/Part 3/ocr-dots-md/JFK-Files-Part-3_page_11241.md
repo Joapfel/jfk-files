@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11241.png
-
-Convert to MarkdownMemorandum to Legal Counsel Division
+Memorandum to Legal Counsel Division
 
 Re: U. S. Senate Select Committee Material; Authorization to Release Exhibits in "Intelligence Division Position Paper on Jurisdiction" dated 2/13/75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4069.png
-
-Convert to Markdown<table><tr><td>FD-36 (RG. 5-22)</td></tr><tr><td>FBI</td></tr><tr><td>Date: 12/9/75</td></tr></table>
+<table><tr><td>FD-36 (RG. 5-22)</td></tr><tr><td>FBI</td></tr><tr><td>Date: 12/9/75</td></tr></table>
 
 Transmit the following in
 

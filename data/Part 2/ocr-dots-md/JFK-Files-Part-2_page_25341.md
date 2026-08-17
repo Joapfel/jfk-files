@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25341.png
-
-Convert to MarkdownLiebengood Rough Notes from U. S. v. Veciana, et al con't.
+Liebengood Rough Notes from U. S. v. Veciana, et al con't.
 
 foreign passports belonging to several subjects were seized.
 Swiss bank account deposit slips were seized and are to be

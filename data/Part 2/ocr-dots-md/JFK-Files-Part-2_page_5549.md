@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5549.png
-
-Convert to MarkdownReel 45, Folder 13
+Reel 45, Folder 13
 
 This folder contains one document. The document is a ten page extract from the 835
 page study "The Case of Yuriy Ivanovich Nosenko" by Peter Bagley. It records Peter

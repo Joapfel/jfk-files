@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27043.png
-
-Convert to Markdown2. DOMESTIC CONTACT SERVICE
+2. DOMESTIC CONTACT SERVICE
 
 Vernon Sando
 

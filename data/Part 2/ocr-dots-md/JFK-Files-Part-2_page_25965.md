@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25965.png
-
-Convert to Markdownsuggested that a general policy statement might not be sufficiently
+suggested that a general policy statement might not be sufficiently
 flexible to take care of special situations which might arise.
 
 Mr. Dulles noted that the pertinent NSC paper authorized

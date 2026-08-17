@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24807.png
-
-Convert to Markdownthus authorized by the White House.*
+thus authorized by the White House.*
 
 This conflict in testimony, which the Committee has been unable
 to resolve through its hearings or the documentary record, leaves un-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23026.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 7 6 NAPOLITAN 7:01 1 1 7
 

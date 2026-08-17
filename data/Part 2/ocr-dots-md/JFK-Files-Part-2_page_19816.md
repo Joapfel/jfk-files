@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19816.png
-
-Convert to MarkdownSECOND WOMEN'S NATION-IL
+SECOND WOMEN'S NATION-IL
 ABORTION ACTION CONFERENCE
 
 The confidential source advised that during this

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27269.png
-
-Convert to MarkdownA - Memo for the File - Subj: Clandestine Service Regulations, now Directorate of Operations Instructions - 21 Feb 75.
+A - Memo for the File - Subj: Clandestine Service Regulations, now Directorate of Operations Instructions - 21 Feb 75.
 
 B - Memo for Dir. of CI - Subj: CIA Surveillance Activities Within the U.S. - 15 May 1975 SECRET
 

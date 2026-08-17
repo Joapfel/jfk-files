@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13538.png
-
-Convert to Markdown2 - Mr. J. A. Mintz
+2 - Mr. J. A. Mintz
 (1 - Mr. J.B. Hotis)
 
 1 - Mr. E. W. Walsh

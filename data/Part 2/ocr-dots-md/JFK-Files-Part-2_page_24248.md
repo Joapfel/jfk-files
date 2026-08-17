@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24248.png
-
-Convert to MarkdownSo it's not easy but I still think that they should make the effort. [The Chief CCS] knows my views on this pretty well, and we're all worried about the security of the damn thing. But we don't know another way to do it.
+So it's not easy but I still think that they should make the effort. [The Chief CCS] knows my views on this pretty well, and we're all worried about the security of the damn thing. But we don't know another way to do it.
 
 He believes that the current method while not perfect is the best that can be devised. The problem, of course, is that the generation of funds for these companies must literally be shown to be legitimate and non-governmental if the beneficiaries are to be protected. Consequently, if the government were to create an office that would funnel money to these companies without the benefit of investment, this would create the risk that a trace-back investigation by a foreign power could discover that the entity is being funded by the U.S. government. Houston closed by saying that he would invite any controls that Congress would choose to put on the mechanism in terms of insuring propriety.
 

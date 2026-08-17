@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4720.png
-
-Convert to Markdown**WARNING NOTICE**
+**WARNING NOTICE**
 **SENSITIVE INFORMATION SUBJECT TO AND METHODS INVOLVED**
 
 The following report, submitted to a CIA field station, relates to the activities of Operators before being used in any other capacity, or publication, or elsewhere outside the Agency. Printing results of this review, if any, will be provided by your agency.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29577.png
-
-Convert to MarkdownMEMORANDUM FOR: C/WR/4
+MEMORANDUM FOR: C/WR/4
 
 SUBJECT: Captain Grayson L. Lynch, USA (Ret.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9433.png
-
-Convert to MarkdownMAY 29 1950
+MAY 29 1950
 
 MEMORANDUM FOR: THE ASSISTANT DIRECTOR FOR POLICY COORDINATION
 SUBJECT: Lectures at Berlin House of Culture

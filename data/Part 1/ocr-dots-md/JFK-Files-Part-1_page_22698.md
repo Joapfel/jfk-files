@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22698.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 (SPECIFY AIR OR SEA POUCH)
 
 DISPATCH NO.

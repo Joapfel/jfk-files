@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6370.png
-
-Convert to Markdown63-72-022-1-1
+63-72-022-1-1
 
 offset by unclaimed depreciation on his automobile for that year. He will
 owe a small amount of self-employment tax on the unreported net amounts.

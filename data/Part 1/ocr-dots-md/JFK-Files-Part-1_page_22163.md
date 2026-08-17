@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22163.png
-
-Convert to Markdowndirectly to the rank of lieutenant colonel. In this manner it turned out that he never officially held the rank of major.*
+directly to the rank of lieutenant colonel. In this manner it turned out that he never officially held the rank of major.*
 
 10 August 1965: Under questioning by DERYABIN, NOSENKO repeated the chronology of his promotions given on 26 January 1965. He again explained that he was put up for captain in 1956, but this time said that the promotion had been blocked on the grounds that he should be made to wait because of shortcomings in his work. Asked why he had told CIA that he had been a major during the 1962 meetings and again in the biography prepared in Frankfurt, NOSENKO replied that he thought the true story would not be believed.
 

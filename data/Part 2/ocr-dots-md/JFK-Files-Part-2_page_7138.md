@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7138.png
-
-Convert to Markdown7-71 MFG. 2/76
+7-71 MFG. 2/76
 
 CABLE SEC DISSEM BY ________ PER ________
 PERSON/UNIT NOTIFIED ________

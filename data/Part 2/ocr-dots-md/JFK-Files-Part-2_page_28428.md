@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28428.png
-
-Convert to MarkdownSTEPHEN J. FALLIS
+STEPHEN J. FALLIS
 
 333 East 23rd Street
 Apartment #2B

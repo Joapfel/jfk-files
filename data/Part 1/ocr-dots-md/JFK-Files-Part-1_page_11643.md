@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11643.png
-
-Convert to Markdown1490000
+1490000
 
 # Fulminator - I
 Vina del Mar, Chile

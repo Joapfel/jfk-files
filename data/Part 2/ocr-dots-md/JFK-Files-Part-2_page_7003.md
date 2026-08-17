@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7003.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 EVENT: QUICK COM
 PLACE: 7BOO HQS

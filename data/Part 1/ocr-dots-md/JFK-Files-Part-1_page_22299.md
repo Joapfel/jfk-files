@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22299.png
-
-Convert to Markdownb. Entry into the Section
+b. Entry into the Section
 
 NOSENKO has given a detailed account of how he came to
 be transferred into the U.S. Embassy Section, but he has

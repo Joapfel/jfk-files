@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_773.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23 FEB 1961
 

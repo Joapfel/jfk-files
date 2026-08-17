@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6944.png
-
-Convert to Markdownfact that (1) if the promise of confidentiality is not required to
+fact that (1) if the promise of confidentiality is not required to
 have been made in writing, then there is seldom any effective means
 to counter the agency's claim of confidentiality and the agency
 wins by default; and (2) the agency's claim of confidentiality

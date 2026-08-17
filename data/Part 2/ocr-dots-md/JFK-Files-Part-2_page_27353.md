@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27353.png
-
-Convert to MarkdownA-I (F)
+A-I (F)
 
 A - Ltr from Knoche to Gray - 21 May 72 SECRET
 

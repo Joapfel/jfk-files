@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25886.png
-
-Convert to MarkdownSoviet Embassy.- 15-60-55.-
+Soviet Embassy.- 15-60-55.-
 
 27 Sept 63.
 

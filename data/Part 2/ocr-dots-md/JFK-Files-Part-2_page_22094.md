@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22094.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 DATES: Oct. 6, 1960
 

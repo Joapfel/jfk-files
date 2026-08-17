@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3902.png
-
-Convert to MarkdownUFGA
+UFGA
 
 Att. No. 20 to UFGA-21G03
 ~1945/14

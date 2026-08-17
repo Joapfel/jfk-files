@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5526.png
-
-Convert to Markdown13-00000
+13-00000
 
 that if the paper is withheld, and a court test results, the Agency must expect to fail in withholding the paper. The Office of the General Counsel, the Office of Security, SE Division and CI Staff favor making the paper available under the conditions set forth above.
 

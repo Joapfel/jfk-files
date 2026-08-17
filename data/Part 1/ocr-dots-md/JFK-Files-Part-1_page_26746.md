@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26746.png
-
-Convert to Markdown**From 0630, 4 May (Tuesday) to 0715, 5 May 1965**
+**From 0630, 4 May (Tuesday) to 0715, 5 May 1965**
 
 2.0 In, from long distance. Habana Cuba is calling. Maid answers. Call back in an hour. Holds the line while waiting for a reply....Finally hang up.
 

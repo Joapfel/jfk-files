@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_319.png
-
-Convert to MarkdownS-E-C-R-E-T NO FOREIGN DISSEM
+S-E-C-R-E-T NO FOREIGN DISSEM
 
 (classification) (dissemination)
 

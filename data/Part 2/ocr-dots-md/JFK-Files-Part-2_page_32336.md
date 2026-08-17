@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32336.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. The Voice of America Spanish broadcasts to Latin America during September carried a total of 20 news analyses, commentaries, press round-ups, and interviews related to the subject of Cuban subversion. Some of the developments treated included the following:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9116.png
-
-Convert to MarkdownRe: Black Panther Party
+Re: Black Panther Party
 Detroit Division
 
 The panelists were introduced by the moderator Lonnie Peeks with the following titles:

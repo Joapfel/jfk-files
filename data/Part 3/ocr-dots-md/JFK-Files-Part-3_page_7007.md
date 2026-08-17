@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7007.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 18,000 leaders in the field of Human Rights representing over 50 states of the United States to President JOHN F. KENNEDY requesting him to free CARL BRADEN. According to the communication, ABERNATHY was chairman of this delegation.
 

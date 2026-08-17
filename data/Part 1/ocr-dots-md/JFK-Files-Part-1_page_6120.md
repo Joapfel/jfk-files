@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6120.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 18 April 1977
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22824.png
-
-Convert to Markdown# American Student in China
+# American Student in China
 
 BLOCK, Morris
 D.O.S - 30 March 1928

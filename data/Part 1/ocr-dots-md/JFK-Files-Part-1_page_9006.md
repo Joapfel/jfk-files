@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9006.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE :17 JUL 61</td></tr><tr><td>TO :DIRECTOR</td></tr><tr><td>FROM :MEXICO CITY</td></tr><tr><td>ACTION :BELL-10 (TEMPO COPY SLOTTED FOR BELL AT 0545, 18 JUL)</td></tr><tr><td>INFO :COP, ADDP/A, CCG 2, CA 2, CA/PRG, CA/PROP WH 5</td></tr></table>
 

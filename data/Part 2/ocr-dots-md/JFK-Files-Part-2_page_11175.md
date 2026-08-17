@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11175.png
-
-Convert to Markdown(b) Where potential dangerousness of a subject has been established and inclusion of that subject in security index is warranted, the office of origin shall submit a recommendation for inclusion in security index by submitting form FD-122 to Bureau. Form must be prepared in triplicate. Original and one copy shall be forwarded to Bureau and one copy will be placed in subject's investigative case file.
+(b) Where potential dangerousness of a subject has been established and inclusion of that subject in security index is warranted, the office of origin shall submit a recommendation for inclusion in security index by submitting form FD-122 to Bureau. Form must be prepared in triplicate. Original and one copy shall be forwarded to Bureau and one copy will be placed in subject's investigative case file.
 
 Nothing should appear on FD-122 or subsequently on the security index card which is not in the subject's case file. Form FD-122 has two uses: (1) to recommend a subject for inclusion in the security index and (2) to submit changes to data which appears on face of security index cards already existent.
 

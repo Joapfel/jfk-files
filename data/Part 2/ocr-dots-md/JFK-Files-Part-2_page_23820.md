@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23820.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 kind of action which unfortunately led to the death of Dick
 Welch. There again we are ascribing something to the death of

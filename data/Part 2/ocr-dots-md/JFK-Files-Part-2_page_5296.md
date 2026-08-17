@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5296.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Status and Issues: The DO JFK Team is currently reviewing this proposal. If they agree with, the Agency and ARRB will spell out the guidelines which will be submitted to the Board at the 13 April meeting accompanied by a staff recommendation to accept. If the DO has problems with the proposed guidelines, I will request that the issue be postponed until the May meeting.
 

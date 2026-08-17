@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5421.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>INDEX: YES NO</td></tr><tr><td>CLASSIFY TO FILE NO.</td><td>2C1-3570-9</td></tr><tr><td>X-REF TO' FILE NO.</td><td></td></tr><tr><td>FILE RID.</td><td>RETI. TO BRANCH ☐</td></tr><tr><td>DESTROY ☐ SIG.</td><td>Aclairen, J.</td></tr><tr><td>FROM</td><td></td></tr><tr><td>ACTION</td><td>WH.8</td></tr><tr><td>INFO</td><td>FILE, 16 CSDG CAB CAPEG cf, SULPEZ FJ 3026, EJINTA, A20F 2DC PRIN</td></tr><tr><td colspan="2"><table><tr><td>RID COPY</td><td>ADVANCE COPY ☐ ISSUES ☐ BLOTTER ☑ TUBED</td><td>UNIT CSD1</td><td>TIME 22452</td><td>BY J.</td></tr></table></td></tr></table>
 

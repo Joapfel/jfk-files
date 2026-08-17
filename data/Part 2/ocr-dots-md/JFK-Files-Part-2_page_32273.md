@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32273.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (WITH TOP SECRET ENCLOSURES)
 
 January 22, 1963

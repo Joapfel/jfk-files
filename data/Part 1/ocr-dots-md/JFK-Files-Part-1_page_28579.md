@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28579.png
-
-Convert to MarkdownBAOLEY, Tenment H.
+BAOLEY, Tenment H.
 
 SECTION C (Continued)
 

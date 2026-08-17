@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18803.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM 1001
 (Rev. 6-11-86)

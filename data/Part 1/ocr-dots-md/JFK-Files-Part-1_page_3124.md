@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3124.png
-
-Convert to MarkdownO ALFARIEV Ivan Gavrilevich.
+O ALFARIEV Ivan Gavrilevich.
 
 Apode: Parece no tener.
 

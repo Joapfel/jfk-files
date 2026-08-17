@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4157.png
-
-Convert to MarkdownFebruary 10, 1964
+February 10, 1964
 
 # MEMORANDUM
 

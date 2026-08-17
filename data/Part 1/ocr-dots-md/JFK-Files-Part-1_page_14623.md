@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14623.png
-
-Convert to MarkdownReport No. 2061
+Report No. 2061
 
 31 October 1969
 1. 2 November 1969

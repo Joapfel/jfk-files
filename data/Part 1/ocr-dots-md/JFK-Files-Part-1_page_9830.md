@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9830.png
-
-Convert to Markdown17 February, 1968
+17 February, 1968
 
 Subject: LIRING/4 Report of Questioning by LIRING/2 re Rowton ("The Greek").
 

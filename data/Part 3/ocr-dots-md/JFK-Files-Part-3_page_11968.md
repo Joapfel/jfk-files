@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11968.png
-
-Convert to MarkdownBureau airtel to all offices dated 11/4/70 instructed the field to initiate investigation of all members of SDS and members of pro-communist, militant New Left-type campus organizations who follow SDS advocacy of revolution and violence. Each individual under investigation should be considered for the Security Index.
+Bureau airtel to all offices dated 11/4/70 instructed the field to initiate investigation of all members of SDS and members of pro-communist, militant New Left-type campus organizations who follow SDS advocacy of revolution and violence. Each individual under investigation should be considered for the Security Index.
 
 Bureau airtel to all offices dated 11/5/70 concerning informant development in New Left groups noted that each SAC was to make this matter his personal concern in order that penetration of these groups by top quality informants will be accomplished in the immediate future. Each SAC was directed to submit to the Bureau by 11/13/70 a complete analysis of his informant coverage in New Left groups clearly setting forth the weaknesses and productive steps being taken to rectify these weaknesses.
 

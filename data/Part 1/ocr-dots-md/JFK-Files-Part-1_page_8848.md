@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8848.png
-
-Convert to MarkdownSECRET 032232Z
+SECRET 032232Z
 
 DIR CITE MEXT A330
 LIREAM DTDORIC

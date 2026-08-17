@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22810.png
-
-Convert to Markdowntheir more sensitive intelligence operations, were meticulous
+their more sensitive intelligence operations, were meticulous
 in that respect.
 
 Now, I clearly am wrong. But that is what I would have

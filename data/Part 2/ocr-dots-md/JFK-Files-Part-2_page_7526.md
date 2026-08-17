@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7526.png
-
-Convert to MarkdownFollowing are items of interest from selected documents in
+Following are items of interest from selected documents in
 MOSKALEV'S CRS dossier:
 
 a. In 1961 PENKOVSKY identified a photo (with no name provided) as that of Col. Yuriy Ivanovich MOSKALEVSKIY, Air Force Col. and GRU officer in the Information Directorate of the GRU.

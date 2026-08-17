@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9729.png
-
-Convert to MarkdownThe following is a true copy of a tape sent to the F. I. Hand the news services in early April 1974.
+The following is a true copy of a tape sent to the F. I. Hand the news services in early April 1974.
 
 The new Revolutionary Army herewith immediately declares that the present Government of the United States of America is an illegal confederation of aliens and enemies of the people of America.
 

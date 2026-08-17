@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9472.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The speech appeared to be rather poorly organized and NEWTON was easily diverted from the main topics which he seemed to be pursuing. The speech had very few references to any actual radical action or violent confrontation.
 

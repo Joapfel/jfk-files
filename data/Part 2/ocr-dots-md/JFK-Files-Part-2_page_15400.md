@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15400.png
-
-Convert to MarkdownNovember 30, 1959
+November 30, 1959
 
 MR. A. H. BELMONT
 

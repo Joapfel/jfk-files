@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2908.png
-
-Convert to Markdown2494
+2494
 
 understand that to be at the time anything that was unusual.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33562.png
-
-Convert to MarkdownIN 031722
+IN 031722
 
 TDFIR -314/07571-73
 

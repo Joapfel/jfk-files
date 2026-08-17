@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21253.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 On November 18, 1967, (N-31), NOSENKO stated that although [REINER] would have considered CHELNOKOV to be an Intourist official, NOSENKO believed [REINER] who was very sly, "suspected" CHELNOKOV and used him to settle questions which could not be settled through Intourist. He did not believe that [REINER] would know CHELNOKOV's full name and said that CHELNOKOV had a "city number." NOSENKO had previously explained that KGB officers frequently gave their contacts a "city telephone number" rather than the telephone number of their KGB office although the telephone would be physically located in the office of the KGB officer.
 

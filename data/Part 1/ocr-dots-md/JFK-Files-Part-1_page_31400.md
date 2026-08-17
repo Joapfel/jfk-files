@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31400.png
-
-Convert to MarkdownThis letter was written at a time when the 10 Division had achieved for CIA its first detailed budget from NCOE and was further asking a mutuality of relations between NCOE and CIA, ultimately defined in Memorandum of Understanding, dated 24 September, signed by H. B. Miller and Allen W. Dulles. It proves what at the time we only suspected, that Miller was calling on support from Valentino against CIA.
+This letter was written at a time when the 10 Division had achieved for CIA its first detailed budget from NCOE and was further asking a mutuality of relations between NCOE and CIA, ultimately defined in Memorandum of Understanding, dated 24 September, signed by H. B. Miller and Allen W. Dulles. It proves what at the time we only suspected, that Miller was calling on support from Valentino against CIA.
 
 3. Mr. Phoenix and Lang present Admiral Miller's tendency for tight administration. Both have carried on a campaign within NCPE to discredit Miller. However, Mr. Phoenix, perhaps Lang, and almost all of the responsible officials of NCPE back Miller in his attitude towards CIA. For example, despite repeated requests by DCI and as recently as three weeks ago by DCGI personally, Miller has refused to turn over to CIA a list of NCPE employees. Even a request by DCI to John Hughes has failed to produce this list.
 

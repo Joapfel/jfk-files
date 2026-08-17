@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12834.png
-
-Convert to Markdownby Cuban counterrevolutionaries. Now we decidedly believe the first assumption is correct.
+by Cuban counterrevolutionaries. Now we decidedly believe the first assumption is correct.
 
 The CIA directly participated in the destruction of the Cubana aircraft in Barbados."
 

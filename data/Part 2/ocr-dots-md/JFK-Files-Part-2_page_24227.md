@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24227.png
-
-Convert to Markdownfrom lack of a clear-cut distinction "at just what level policy matters may be decided . . ." Management procedures for the project were such that "under the current status everyone may take credit but no one could be blamed." As far as operational capability was concerned he remarked:
+from lack of a clear-cut distinction "at just what level policy matters may be decided . . ." Management procedures for the project were such that "under the current status everyone may take credit but no one could be blamed." As far as operational capability was concerned he remarked:
 
 Quite candidly, I am somewhat concerned about the operational capability of Project MHBOUND. It seems, as a result of its Topsy-like growth, to be oriented toward the military and the building trades. Quite candidly, it is felt that the base must be broadened. Further, I am far from convinced that we have yet developed anywhere near the professional status necessary to "sell" this Project as one having unique operational capabilities sufficient to justify its existence. In other words, I am not impressed with the capability as it now exists nor am I sure that we can sell this product and then be assured that it can perform in a satisfactory manner.
 

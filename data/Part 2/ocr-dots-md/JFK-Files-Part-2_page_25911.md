@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25911.png
-
-Convert to Markdownconsideration of all avenues of approach, pitfalls, suspected motives, etc.
+consideration of all avenues of approach, pitfalls, suspected motives, etc.
 Most important of all, it seems to me, is our acceptance of the fact that
 maybe we don't even have anyone on our staff with sufficient experience,
 sophistication, background, and investigative maturity to deal with this

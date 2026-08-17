@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25405.png
-
-Convert to Markdownthere was something like that, and it was a coincidence. And there is another
+there was something like that, and it was a coincidence. And there is another
 coincidence too for me, and that is that when Oswald left the city he went to
 Mexico, and the letter from Fernandez that was intercepted here was to Mexico
 too, and Oswald visit the Cuban consulate in Mexico, and the Fernandez letter

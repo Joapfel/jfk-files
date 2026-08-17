@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8637.png
-
-Convert to Markdown14-06000
+14-06000
 
 Date: 2-25-73
 

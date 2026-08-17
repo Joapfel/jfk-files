@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23894.png
-
-Convert to MarkdownA has nothing to do with ~~NEAP~~ His basically with the Embassy.
+A has nothing to do with ~~NEAP~~ His basically with the Embassy.
 
 He told me had an incident with the Sov First Sec. at the Cuban Embassy
 last Jan. The Sov heard his name, said are you Swiss English? He said, no,

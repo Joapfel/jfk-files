@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13450.png
-
-Convert to Markdownant k3
+ant k3
 
 2239
 

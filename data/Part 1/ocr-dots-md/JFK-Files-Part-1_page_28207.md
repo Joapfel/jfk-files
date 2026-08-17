@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28207.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HEADQUARTERS
 6499TH SUPPORT GROUP (PACAF)

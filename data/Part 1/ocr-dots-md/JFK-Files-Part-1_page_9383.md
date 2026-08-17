@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9383.png
-
-Convert to MarkdownII. ACTIVITIES
+II. ACTIVITIES
 
 1. Publications Project: the immediate editing of a volume on the founding Berlin Congress. Most of the material is already available in three languages: French, English, and German. This will be completed in the next month by the transitional Congress Bureau in Berlin. Herbert Muhlen is assisting in putting out the special double number of "Der Monat" on the Congress, which may be a kind of experimental model". François Bondy is returning to work out a table of contents and an editorial approach to the Congress volume.
 

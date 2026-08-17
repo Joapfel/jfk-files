@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33983.png
-
-Convert to Markdown2) CARTOON: Headline: RYSCOTT OF CUBA-TRADING SHIPS TO BE STRIPPED UP: Castro faces a sinking vessel named "Maritime Trade With Cuba" and says: "It seems we have sprung a leak!"
+2) CARTOON: Headline: RYSCOTT OF CUBA-TRADING SHIPS TO BE STRIPPED UP: Castro faces a sinking vessel named "Maritime Trade With Cuba" and says: "It seems we have sprung a leak!"
 
 PAGE THREE:
 

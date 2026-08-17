@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34110.png
-
-Convert to Markdown- 4 -
+- 4 -
 
 ## TOBACCO
 

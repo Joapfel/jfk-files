@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17512.png
-
-Convert to MarkdownA person identified as MACKEY by one of the occupants was walking toward a police squad car as VALENTINE'S car passed MACKEY's residence.
+A person identified as MACKEY by one of the occupants was walking toward a police squad car as VALENTINE'S car passed MACKEY's residence.
 
 When VALENTINE's vehicle stopped, ANGRUM ran and jumped into the vehicle.
 

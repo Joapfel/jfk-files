@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6135.png
-
-Convert to Markdown56 Md. L. Rev. 1, *7
+56 Md. L. Rev. 1, *7
 
 n35. Question-and-Answer Session at the Annual Convention of the Associated Press Managing Editor's Association, Orlando, Fla., 1973 Pub. Papers 946, 956 (Nov. 17, 1973).
 

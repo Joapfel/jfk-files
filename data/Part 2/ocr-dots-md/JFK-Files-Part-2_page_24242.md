@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24242.png
-
-Convert to MarkdownThe Inspector General was invited in, according to Houston. In addition, the Finance Office kept its own books in the proprietary accounts branch on MUTUAL. Such reviews were done, he said, "on a constant basis."
+The Inspector General was invited in, according to Houston. In addition, the Finance Office kept its own books in the proprietary accounts branch on MUTUAL. Such reviews were done, he said, "on a constant basis."
 
 We were very conscious of the amount of money involved and the possibilities of someone trying to, someone yielding to temptation and trying to do something with all of this money.
 

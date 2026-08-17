@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7227.png
-
-Convert to MarkdownMemorandum to Mr. J. B. Adams
+Memorandum to Mr. J. B. Adams
 
 Re: Senate Subcommittee on FBI Oversight
 

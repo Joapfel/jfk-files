@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18347.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Public Law 513, approved May 13, 1950, 81st Congress (2nd Session), is quoted verbatim herewith:
 

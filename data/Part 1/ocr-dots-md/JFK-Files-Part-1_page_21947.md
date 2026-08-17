@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21947.png
-
-Convert to Markdown101.
+101.
 
 RICHARDS. The one agent reporting on RICHARDS whom NOSENKO could name was the maid Mariya NEVEROVA, KGB cryptonym "SHVEDOVA," but she had never provided any worthwhile information about RICHARDS. In addition, some Soviet drivers reported on RICHARDS, but nothing useful was obtained from them.
 

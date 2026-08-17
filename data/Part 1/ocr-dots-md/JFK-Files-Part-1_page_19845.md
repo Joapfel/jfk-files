@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19845.png
-
-Convert to Markdown26 March 1971
+26 March 1971
 
 MEMORANDUM FOR : Office of Finance/C&TD
 SUBJECT : Verification of Contract Service for Sandra B. CAZAZZUS (P), Terminated Contract Employee

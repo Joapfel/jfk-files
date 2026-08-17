@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8693.png
-
-Convert to MarkdownWAVE 7707 (IN 62544) dated 17 November 1963
+WAVE 7707 (IN 62544) dated 17 November 1963
 
 Message to agent. We are unable to support insurrection in Pinar now because it would be premature.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14309.png
-
-Convert to MarkdownMr. Bundy's view that the Board must continue to keep
+Mr. Bundy's view that the Board must continue to keep
 itself fully informed about the foreign intelligence program,
 and Mr. Bundy emphasized the need for the Board to be com-
 pletely informed regarding covert action operations taking

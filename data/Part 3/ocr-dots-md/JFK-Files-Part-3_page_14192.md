@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14192.png
-
-Convert to Markdown(145. 10/9/62, Continued)
+(145. 10/9/62, Continued)
 
 Under Secretary of State Ball now admits that 85 ships have delivered troops and war goods to the island. He admits that 15 missile sites have been established, and it is estimated that the total will eventually reach 25. This knowledge has been possessed for a long time by many of us. Under Secretary Ball said . . . that four missile sites of different types have been identified. He said that these sites are similar to known Soviet defense missiles sites which are believed to contain anti-shipping missiles having a range of 20 to 25 miles. The significant sentence, rather buried away, is that several more such sites will be installed.
 

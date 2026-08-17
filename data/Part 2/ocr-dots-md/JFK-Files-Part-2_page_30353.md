@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30353.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 doing there, but in reading that file, in the first few
 2 pages or anything, did you notice anything in terms of his

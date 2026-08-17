@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_837.png
-
-Convert to Markdown<table><tr><td>STANDARD FORM 106 (8 PART)</td></tr><tr><td>NEW YORK</td></tr><tr><td>CENTRAL INTELLIGENCE AGENCY</td></tr><tr><td>NOTIFICATION OF PERSONNEL ACTION</td></tr></table>
+<table><tr><td>STANDARD FORM 106 (8 PART)</td></tr><tr><td>NEW YORK</td></tr><tr><td>CENTRAL INTELLIGENCE AGENCY</td></tr><tr><td>NOTIFICATION OF PERSONNEL ACTION</td></tr></table>
 
 <table><tbody><tr><td>L NAME</td><td>105-943-OF-PARTY</td><td>S DATE OF BIRTH</td><td>2. NUMBER OF ACTION BOS</td><td>A DATE</td></tr><tr><td>MR. JOHAN F X</td><td>17/7/74</td><td>9 Oct 1928</td><td></td><td>26 June 1956</td></tr><tr><td colspan="5">This is where you would list the following action affecting your personnel.</td></tr><tr><td>A NATURE OF ACTION (See following definitions):</td><td>S EFFECTIVE DATE</td><td>F CIVIL SERVICE CB SERVLE LEGAL AUTHORITY</td></tr><tr><td>PROMOTION</td><td></td><td></td></tr><tr><td>FROM</td><td></td><td></td></tr><tr><td>TO</td><td></td><td></td></tr><tr><td rowspan="4">FIELD</td><td rowspan="4"></td><td rowspan="4">DEPARTMENTAL</td></tr><tr><td>& POSITION TITLE</td></tr><tr><td>& SERVICE TYPE</td></tr><tr><td>& GRADE SALARY</td></tr><tr><td rowspan="3">DEPARTMENTAL</td><td>10 ORGANISATIONAL RELATIONS</td><td>131630</td></tr><tr><td>11 MANAGEMENT</td><td>a</td></tr><tr><td>12 FIELD CA SERVICE</td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

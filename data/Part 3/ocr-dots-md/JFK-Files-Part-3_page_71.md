@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_71.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BRAZIL
 Brazilian National Security Council 64-35551

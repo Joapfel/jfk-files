@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19130.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 (When Filled in)
 
 27 April 1971

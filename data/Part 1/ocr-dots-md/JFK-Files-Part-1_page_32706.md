@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32706.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="4">12. RELATED AND RESIDING IN FOREIGN COUNTRIES</td>

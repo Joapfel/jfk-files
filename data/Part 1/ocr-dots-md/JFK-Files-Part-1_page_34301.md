@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34301.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">ATT/nea<br/>C/CA/PP<br/>018/9138<br/>7 DEC 65</td>

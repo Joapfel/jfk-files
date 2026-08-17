@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29611.png
-
-Convert to Markdown12 AUG 1971
+12 AUG 1971
 
 Mr. Myroslaw A. Maksymiec
 4718 Asbury Place, N. W.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27303.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 A - Project REDFACE I (SECRET)
 

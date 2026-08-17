@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21869.png
-
-Convert to Markdownthat eventually
+that eventually
 
 I destroyed a great deal of traffic, because
 the Congo was a highly sensitive area in

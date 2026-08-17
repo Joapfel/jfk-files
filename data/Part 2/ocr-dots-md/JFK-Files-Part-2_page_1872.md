@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1872.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">STATEMENT OF FEDERAL CIVILIAN AND MILITARY SERVICE</th><th rowspan="2">OFFICE<br>050</th><th rowspan="2">DIVISION<br>R.L.</th></tr><tr><th>NAME (First, Last)</th><th>(Fore, Last)</th><th>(Middle initial)</th></tr></thead><tbody><tr><td>Woods</td><td>JAMES</td><td>SCHUVE</td><td>PREMISES &amp; RECORDS</td><td>Lee</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">STATEMENT OF FEDERAL CIVILIAN AND MILITARY SERVICE</th><th rowspan="2">OFFICE<br>050</th><th rowspan="2">DIVISION<br>R.L.</th></tr><tr><th>NAME (First, Last)</th><th>(Fore, Last)</th><th>(Middle initial)</th></tr></thead><tbody><tr><td>Woods</td><td>JAMES</td><td>SCHUVE</td><td>PREMISES &amp; RECORDS</td><td>Lee</td></tr></tbody></table>
 
 ### I. FEDERAL CIVILIAN SERVICE (BEGIN WITH THIS AGENCY AND FOLLOW IN RECEIENCY CHRONOLOGICAL ORDER)
 

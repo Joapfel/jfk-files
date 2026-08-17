@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24495.png
-
-Convert to MarkdownSecretary of State Dean Rusk testified:
+Secretary of State Dean Rusk testified:
 
 "I never had any reason to believe that anyone
 that I ever talked to knew about had any active

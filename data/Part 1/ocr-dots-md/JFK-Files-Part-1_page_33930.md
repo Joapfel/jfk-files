@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33930.png
-
-Convert to MarkdownMANHASSET, NEW YORK
+MANHASSET, NEW YORK
 
 "Your challenge to pray for those who have been deprived of their spiritual freedom is timely and greatly needed. The religious liberty which we enjoy in America should be a cherished heritage, and one which we seek to share with the peoples of the world. I trust that the Crusade for Freedom will be successful in many parts of the world."
 

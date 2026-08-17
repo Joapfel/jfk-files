@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13341.png
-
-Convert to Markdown10 August 1967
+10 August 1967
 
 MEMORANDUM
 

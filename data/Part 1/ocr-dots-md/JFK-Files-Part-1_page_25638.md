@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25638.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="5">SECTION XIII BROTHERS AND SISTERS</th></tr><tr><td rowspan="2">FULL NAME</td><td>SER</td><td>YEAR OF BIRTH</td><td rowspan="2">PLACE OF BIRTH</td><td rowspan="2">NATIONALITY AT BIRTH*</td></tr><tr><td>#</td><td>#</td></tr></thead><tbody><tr><td>Dario MARCHALO LIFOS</td><td>2</td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

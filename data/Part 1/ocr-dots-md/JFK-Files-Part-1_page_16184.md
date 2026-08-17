@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16184.png
-
-Convert to MarkdownDDO/OPS/LSN/FIGColeman/ck
+DDO/OPS/LSN/FIGColeman/ck
 
 (30 July 74)
 

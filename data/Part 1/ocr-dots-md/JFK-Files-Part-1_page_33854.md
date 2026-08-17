@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33854.png
-
-Convert to MarkdownIn reply refer to:
+In reply refer to:
 15 April 1982
 
 Dear Min:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MILITARY SERVICE OR MILITIA.
 

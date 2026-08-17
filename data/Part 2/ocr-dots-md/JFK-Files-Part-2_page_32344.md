@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32344.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # 7. Difficulties Encountered in Filling Available Military Quotas in the United States
 

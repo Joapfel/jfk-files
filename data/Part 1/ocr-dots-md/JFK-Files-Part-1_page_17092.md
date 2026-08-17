@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17092.png
-
-Convert to MarkdownS M 3-358
+S M 3-358
 
 MEMORANDUM FOR: Assistant Deputy Director for Plans
 

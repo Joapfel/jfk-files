@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16957.png
-
-Convert to Markdown14-0000
+14-0000
 
 RIG : C. Busots-Videla
 NIT : WII/1

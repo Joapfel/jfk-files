@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6288.png
-
-Convert to Markdown# Outline of Presentation to the Board
+# Outline of Presentation to the Board
 
 ## August 6, 1996
 

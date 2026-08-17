@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16625.png
-
-Convert to Markdown3. Telephone number called: 309-676-3174, called October 28, 1969, listed to Rosie Grismore, 516 North Sanford, Peoria, Illinois.
+3. Telephone number called: 309-676-3174, called October 28, 1969, listed to Rosie Grismore, 516 North Sanford, Peoria, Illinois.
 
 When the original records transmitted herewith have served their purpose, they should be returned directly by you to the Illinois Bell Telephone System.
 

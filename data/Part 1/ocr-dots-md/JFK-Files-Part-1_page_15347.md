@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15347.png
-
-Convert to Markdown4. Less than 24 hours after facing Whitehouse to advise him that his claim of USD 1950 had been reduced to 1027.66, Whitehouse reacted with the newspaper media in an exemplary manner when he could have ~~reacted~~ with a adverse feeling. The Subject despite difficulties encountered in the field with KUBARK advisors appears to be man of honor and certainly under controlled situations ~HSO~ professional pilot and could be an asset to KUBARK interests.
+4. Less than 24 hours after facing Whitehouse to advise him that his claim of USD 1950 had been reduced to 1027.66, Whitehouse reacted with the newspaper media in an exemplary manner when he could have ~~reacted~~ with a adverse feeling. The Subject despite difficulties encountered in the field with KUBARK advisors appears to be man of honor and certainly under controlled situations ~HSO~ professional pilot and could be an asset to KUBARK interests.
 
 Edward W. LORENTZ
 

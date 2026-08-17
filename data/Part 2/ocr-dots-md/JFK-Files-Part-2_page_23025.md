@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23025.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 of this lead, I was surprised with the speed with which we got a response back on this man and the details run down that we got on him in terms of who he was and where he worked and so forth, and I think I concluded at that time that somebody knew this fellow very well and somewhere in the whole labrynth, either Justice or we or somebody had access to somebody who could give us a great deal of insight into people who had been involved with the gambling establishment in Cuba.
 

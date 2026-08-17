@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21767.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 OFFICE OF THE SECRETARY OF DEFENSE
 WASHINGTON 25, D. C.

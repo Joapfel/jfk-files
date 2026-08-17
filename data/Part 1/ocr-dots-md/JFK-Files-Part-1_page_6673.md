@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6673.png
-
-Convert to MarkdownUTAS009
+UTAS009
 
 attaching a copy in Spanish), JAMBU identified Agustin and Miguel Antonio as Agustin and Miguel Antonio GUITART Mandev. He did so probably because he did not know that they are half brothers who have different matronymics. We are certain that the individuals reported by JAMBU are Agustin and Miguel Antonio GUITART Campuzano because they have the same occupations.
 

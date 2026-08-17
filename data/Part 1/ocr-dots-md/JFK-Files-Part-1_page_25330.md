@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25330.png
-
-Convert to MarkdownSECRET
+SECRET
 
 EVA-1223
 Page 3.

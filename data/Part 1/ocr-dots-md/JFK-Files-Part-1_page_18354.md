@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18354.png
-
-Convert to MarkdownPHYSICAL QUALIFICATION RECORD
+PHYSICAL QUALIFICATION RECORD
 
 <table><tr><td>NAME</td><td>NATURE OF ACTION</td></tr><tr><td>BURKE, WILLIAM P.</td><td>E.O.D.</td></tr><tr><td>TITLE OF POSITION</td><td>GRADE</td></tr><tr><td>Regional Manager</td><td>P-3</td></tr><tr><td>DEPARTMENT OR FIELD</td><td></td></tr><tr><td>Field</td><td></td></tr></table>
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_16859.png
-
-Convert to MarkdownOn June 4, 1969, the facts of this case were presented to Assistant United States Attorney NICHOLAS J. ETTEN authorized the filing of a complaint charging subjects LOCKETT PHILIP BIBBS, BRUCE ALLEN DICKSON, ANDREA BEVERLY GRAVES, HARVEY DWIGHT HOLT, PATRICK KEEN, LARRY MAURICE ROBINSON, JESSIE WARD, and GEORGIA WASHINGTON with Harboring and concealing subject, GEORGE SAMS, Jr., in violation of Title 18, Section 1071, United States Code.
+On June 4, 1969, the facts of this case were presented to Assistant United States Attorney NICHOLAS J. ETTEN authorized the filing of a complaint charging subjects LOCKETT PHILIP BIBBS, BRUCE ALLEN DICKSON, ANDREA BEVERLY GRAVES, HARVEY DWIGHT HOLT, PATRICK KEEN, LARRY MAURICE ROBINSON, JESSIE WARD, and GEORGIA WASHINGTON with Harboring and concealing subject, GEORGE SAMS, Jr., in violation of Title 18, Section 1071, United States Code.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29831.png
-
-Convert to MarkdownD - would think somebody would mention. I was very surprised to find out that he had had cars stolen
+D - would think somebody would mention. I was very surprised to find out that he had had cars stolen
 
 M - but Sherman wasn't working there
 

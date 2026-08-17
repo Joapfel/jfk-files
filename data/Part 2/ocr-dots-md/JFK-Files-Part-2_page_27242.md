@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27242.png
-
-Convert to MarkdownA - Memo to Belin from Clapper - Subj: Public Affairs Considerations in Deleting Assassination Findings - 29 May 75
+A - Memo to Belin from Clapper - Subj: Public Affairs Considerations in Deleting Assassination Findings - 29 May 75
 
 B - Memo to Belin from Clapper - 22 May 75 w/attachment
 

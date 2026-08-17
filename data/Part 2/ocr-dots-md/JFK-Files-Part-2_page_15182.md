@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15182.png
-
-Convert to Markdown# LOUIS WOLFSON
+# LOUIS WOLFSON
 ## INFORMATION CONCERNING
 
 At request of the Department, received April 17,

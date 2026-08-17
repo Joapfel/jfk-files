@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23701.png
-
-Convert to MarkdownMr. Kirbow. Mr. Chairman, on that particular thing, at the staff level I had bracketed that entire paragraph because I'm not sure what we're trying to accomplish by what you say there.
+Mr. Kirbow. Mr. Chairman, on that particular thing, at the staff level I had bracketed that entire paragraph because I'm not sure what we're trying to accomplish by what you say there.
 
 This is probably the most difficult task that faces a counter-intelligence organization any place in the world is to establish whether or not a defector that you have just picked up is a double agent or not.
 

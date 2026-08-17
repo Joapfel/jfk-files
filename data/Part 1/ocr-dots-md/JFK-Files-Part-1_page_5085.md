@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5085.png
-
-Convert to Markdownof the assassination. But, he added, "I went underground to direct the internationalization of the war. I thought that the action people [terrorists] should get out of the U.S. and operate from different bases throughout Central and South America." In the next 18 months, four of the ten people on the FLNC list were killed, and a fifth had his legs blown off.
+of the assassination. But, he added, "I went underground to direct the internationalization of the war. I thought that the action people [terrorists] should get out of the U.S. and operate from different bases throughout Central and South America." In the next 18 months, four of the ten people on the FLNC list were killed, and a fifth had his legs blown off.
 
 During that period, Bosch was traveling widely in the Caribbean. (Did he ever slip back into the U.S.? Bosch laughed. "If I have to go to the United States, I go.") His main goal was to forge alliances with friendly governments in Nicaragua, the Dominican Republic, Costa Rica and Venezuela—all countries with powerful Cuban exile communities.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6852.png
-
-Convert to Markdownfiles often accrue totally unsubstantiated information which can be fairly characterized as gossip, but which do get into the files when a total investigation is done; and third, where we've made a specific promise of confidentiality to a particular informant.
+files often accrue totally unsubstantiated information which can be fairly characterized as gossip, but which do get into the files when a total investigation is done; and third, where we've made a specific promise of confidentiality to a particular informant.
 
 Before I ask you about those three, can I just ask,
 are there any other areas of documents that you as director of

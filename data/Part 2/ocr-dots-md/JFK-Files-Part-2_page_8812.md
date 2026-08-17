@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8812.png
-
-Convert to Markdown13-00000
+13-00000
 
 # VOLUME II (Box I) Memo from FBI to CIA dated 12 Aug 1963
 

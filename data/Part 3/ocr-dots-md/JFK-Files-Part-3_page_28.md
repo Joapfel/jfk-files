@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_28.png
-
-Convert to MarkdownVietnamese military developments by other means; the PDB should carry more
+Vietnamese military developments by other means; the PDB should carry more
 
 Vietnamese political and economic items. x Smith urged that the Brief
 have more coverage of

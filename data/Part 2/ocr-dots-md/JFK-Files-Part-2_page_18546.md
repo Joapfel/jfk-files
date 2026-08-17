@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18546.png
-
-Convert to Markdownunless the identity of the individual as an informant or potential
+unless the identity of the individual as an informant or potential
 informant has already been made known to the Committee, or unless the
 Attorney General, the Chairman and Vice Chairman, jointly agree on the
 limited disclosure of such identities to the Chairman and Vice Chairman.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17247.png
-
-Convert to MarkdownLIMERICK residences. In addition, specific targets are continually considered for LICOOL installations. A recent example of SCANTLING's efforts in this connection would be the spotting and acquisition of the LIMOTOR base in the same apartment building with LITALON -1. Contributions of this type operational information are quite time consuming due to the necessity for checking out several apartments that a LIMERICK individual may initially be considering as a residence.
+LIMERICK residences. In addition, specific targets are continually considered for LICOOL installations. A recent example of SCANTLING's efforts in this connection would be the spotting and acquisition of the LIMOTOR base in the same apartment building with LITALON -1. Contributions of this type operational information are quite time consuming due to the necessity for checking out several apartments that a LIMERICK individual may initially be considering as a residence.
 
 2. "To collect operational information pertaining to other targets of opportunity, foreign official installations and personnel of intelligence interest operating in Mexico." As indicated below, SCANTLING is also extremely useful for collecting information on targets other than LIMERICK:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23736.png
-
-Convert to Markdown# Decision.
+# Decision.
 
 Senator Huddleston Well, there are too many elements here involved in who ought to be promoted. There are too many human elements and somebody has to make a decision.
 

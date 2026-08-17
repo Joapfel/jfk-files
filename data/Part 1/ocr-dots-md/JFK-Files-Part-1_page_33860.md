@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33860.png
-
-Convert to MarkdownSECURITY INFORMATION
+SECURITY INFORMATION
 
 The Case of Henry Landowski
 

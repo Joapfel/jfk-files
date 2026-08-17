@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33055.png
-
-Convert to MarkdownSECRET TELEPOUCH
+SECRET TELEPOUCH
 
 DISPATCH NO - UFAW-304
 

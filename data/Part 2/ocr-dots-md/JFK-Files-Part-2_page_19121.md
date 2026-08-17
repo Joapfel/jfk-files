@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19121.png
-
-Convert to Markdown<table><tr><td>62-</td></tr></table>
+<table><tr><td>62-</td></tr></table>
 
 <table><tr><td>HQ-116395</td></tr></table>
 

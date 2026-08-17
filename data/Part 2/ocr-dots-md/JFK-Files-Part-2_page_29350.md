@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29350.png
-
-Convert to Markdownhe remembers that a Mexican would often come to the second floor and ask him to come and listen to the conversation.
+he remembers that a Mexican would often come to the second floor and ask him to come and listen to the conversation.
 
 Mr. Arehart was questioned about whether there was a process whereby transcription of important conversations in English or Russian could be expedited. He explained that there would not be such a process for a Russian conversation since they could not judge the importance of the conversation due to the fact that no one in the base understood Russian. He said that there was such a procedure for English conversations. He said that after listening to the conversation and deeming it important he would Mark the tape "Urgent" and would put it in a box and deliver it.
 

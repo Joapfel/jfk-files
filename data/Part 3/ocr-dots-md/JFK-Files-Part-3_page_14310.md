@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14310.png
-
-Convert to Markdownbe kept informed concerning these activities.
+be kept informed concerning these activities.
 
 Dr. Killian remarked to Dr. Langer that the Board Panel on NSC 5412/2 matters should conduct a continuing review, with the objective of the Panel becoming fully informed regarding covert action programs, following which the Board would determine the next step to be taken.
 

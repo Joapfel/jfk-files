@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15679.png
-
-Convert to Markdown5. Repayment. It is recognised that your failure to make, for or refund any monies advanced you hereunder shall entitle the Government to withhold the total amount of such indebtedness or any portion thereof from any monies due you under the terms of this contract in such manner as it deems appropriate.
+5. Repayment. It is recognised that your failure to make, for or refund any monies advanced you hereunder shall entitle the Government to withhold the total amount of such indebtedness or any portion thereof from any monies due you under the terms of this contract in such manner as it deems appropriate.
 
 6. Negotiated Benefits. (a) (i) If, in the performance of activities under this agreement, you incur an injury or illness which is not the result of your gross negligence, willful misconduct, or intemperate act, the Government will provide medical, surgical, hospital, transportation and disability benefits in such amounts and under such conditions as the Government in its sole discretion deems proper provided, however, that such benefits shall not exceed a total of $5000 for the same injury or illness.
 

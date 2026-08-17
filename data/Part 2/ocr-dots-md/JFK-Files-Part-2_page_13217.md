@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13217.png
-
-Convert to MarkdownCompartmented
+Compartmented
 Clearance
 
 10 JUN 1975

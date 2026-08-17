@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15482.png
-
-Convert to Markdown# Panama
+# Panama
 
 Chancery, Washington, D.C. WF 1456-S* $1,024.58
 Ambassador to OAS, Washington, DC WF 1547-S* Not Available

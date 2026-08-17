@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10886.png
-
-Convert to MarkdownINTERNAL SECURITY relates to the defense and protection within
+INTERNAL SECURITY relates to the defense and protection within
 the United States and its territories and possessions of the
 people, the government, the institutions, and the installations
 of critical importance from all hostile or destructive action.

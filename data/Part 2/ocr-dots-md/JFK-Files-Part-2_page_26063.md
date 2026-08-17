@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26063.png
-
-Convert to Markdown-93-
+-93-
 
 say, "Well, the U.S. government did, and you were a secret agent for them, and so on. It was very hard to disprove some of their talk and say, Well, that just isn't so. Except once in a while they'd get really wild and claim I was down--I walked in on a briefing for example, with French officers telling about how some American visitors from Washington, ~~down~~ at that very moment I was trying to buy off a sect leader, and very naively, with a suitcase full of money, and I didn't know but the guy was going to ambush me and take all the money and not do whatever I was going to plan to do. And at that moment, I just asked him, I said, Well, please keep on with your briefin~~g~~g I want to know whether the guy killed me or not. "It was crazy." Now these were very responsible French officials and the fact that I'd be miles away from the scene of some of these things never stopped the damn circulation of these stories. I don't know how you ever stop that stuff.
 

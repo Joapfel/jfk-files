@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_174.png
-
-Convert to MarkdownD.
+D.
 
 Three Organizations with Which There Have Been Some
 Witting Contacts

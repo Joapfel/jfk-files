@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6037.png
-
-Convert to Markdown# Memorandum to Mr. Belmont
+# Memorandum to Mr. Belmont
 
 had been conducted but they were unable to discover any present connections with the Communist Party by O'Dell.
 

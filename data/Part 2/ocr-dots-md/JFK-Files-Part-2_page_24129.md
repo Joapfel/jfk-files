@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24129.png
-
-Convert to MarkdownH. <u>Relationships with Tax, Regulatory, and Other Agencies</u>
+H. <u>Relationships with Tax, Regulatory, and Other Agencies</u>
 
 Management and control of proprietaries often requires "cooperative
 interface" with outside agencies to gain beneficial working relation-

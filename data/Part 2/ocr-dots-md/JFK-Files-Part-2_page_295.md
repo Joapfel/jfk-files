@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_295.png
-
-Convert to MarkdownSECRET 050643Z
+SECRET 050643Z
 
 DR. IEG WAVE CITE MEXI 7234
 

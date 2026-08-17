@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25165.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>HILSMAN, Roger (Ass't. Sec.State for Far Eastern Aff -- FE)</td><td rowspan="2">25 August 1963</td><td rowspan="2">TOP SECRET</td></tr><tr><td>LODGE, Henry Cabot (Amb. to SVN)</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>HILSMAN, Roger (Ass't. Sec.State for Far Eastern Aff -- FE)</td><td rowspan="2">25 August 1963</td><td rowspan="2">TOP SECRET</td></tr><tr><td>LODGE, Henry Cabot (Amb. to SVN)</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

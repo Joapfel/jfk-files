@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_794.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 KHN: 15 OCT 73

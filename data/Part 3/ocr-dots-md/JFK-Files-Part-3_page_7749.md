@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7749.png
-
-Convert to Markdowninsurrection or rebellion; to engage in seditious conspiracy; or
+insurrection or rebellion; to engage in seditious conspiracy; or
 to plot the overthrow of the Government. Under such circumstances
 it would seem that the FBI not only has the duty to conduct
 investigations to prevent the crimes, but has the obligation to

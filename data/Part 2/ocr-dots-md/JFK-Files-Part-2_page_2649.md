@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2649.png
-
-Convert to Markdown(13) 10-68-41
+(13) 10-68-41
 
 | (Name and Chapter) | (St. and Number) | (City) | (State) | (Country) |
 | :--- | :--- | :--- | :--- | :--- |

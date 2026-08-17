@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12133.png
-
-Convert to MarkdownVenceremos Brigade
+Venceremos Brigade
 
 implementation of this suggestion.
 

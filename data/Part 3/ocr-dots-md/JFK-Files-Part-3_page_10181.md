@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10181.png
-
-Convert to Markdown2 - Mr. S. F. Phillips
+2 - Mr. S. F. Phillips
 
 ALL INFORMATION CONTAINED
 BELOW IS CLASSIFIED BY SP-2 ALM/76

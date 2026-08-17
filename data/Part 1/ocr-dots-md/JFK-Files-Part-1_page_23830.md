@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23830.png
-
-Convert to Markdown22. Travel (cont.)
+22. Travel (cont.)
 
 1962 - ENGLAND, FRANCE, MOROCCO, ALGERIA
 Departure from FREC, no fixed objective

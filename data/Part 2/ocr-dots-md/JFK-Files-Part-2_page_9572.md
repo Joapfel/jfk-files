@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9572.png
-
-Convert to MarkdownAbu Amr looked at me: "Look at the Israelis. They liquidated all their officers, but I differentiate andARMED FORCES AND URRATED ON ONE. Don't you think?"
+Abu Amr looked at me: "Look at the Israelis. They liquidated all their officers, but I differentiate andARMED FORCES AND URRATED ON ONE. Don't you think?"
 
 The sun was already 2:00 o'clock in the afternoon. The sea was very still, making it very dangerous. I told Abu Amr: "I have been much more careful."
 

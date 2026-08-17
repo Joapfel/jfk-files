@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12679.png
-
-Convert to Markdown## F. RESERVE INDEX
+## F. RESERVE INDEX
 
 ### 1. Purpose
 

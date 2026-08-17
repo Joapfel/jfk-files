@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28655.png
-
-Convert to MarkdownU.S. DEPARTMENT OF LABOR
+U.S. DEPARTMENT OF LABOR
 EMPLOYMENT STANDARDS ADMINISTRATION
 
 Office of Workers' Compensation Programs

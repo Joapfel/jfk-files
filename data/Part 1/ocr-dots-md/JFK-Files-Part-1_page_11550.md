@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11550.png
-
-Convert to Markdown# Notaria
+# Notaria
 
 Seвитная № 10 на слитном в. 4961
 Лицензия:

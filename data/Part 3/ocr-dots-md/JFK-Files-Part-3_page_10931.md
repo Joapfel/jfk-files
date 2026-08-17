@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10931.png
-
-Convert to Markdowne. The Director's Stand Over the Years
+e. The Director's Stand Over the Years
 
 The Director's stand over the years with respect
 to jurisdiction concerning foreign intelligence matters

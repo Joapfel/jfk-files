@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23133.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 We had a jurisdictional problem. For instance, a Cuban agent detected in the United States or being suspected of being a Cuban agent would have been a case that we would have had to have coordinated with the FBI, and essentially the FBI took primary action on this.
 

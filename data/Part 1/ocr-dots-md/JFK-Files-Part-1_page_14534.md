@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14534.png
-
-Convert to MarkdownRECEPCION POR EL XIV ANIVERSARIO DEL EJERCITO POPULAR NACIONAL DE LA R.D.A.
+RECEPCION POR EL XIV ANIVERSARIO DEL EJERCITO POPULAR NACIONAL DE LA R.D.A.
 
 * El agregado militar, naval y aéreo de la Embajada de la República Democrática Alemana, capitán de fragata Emil Fehlauer, ofreció anoche una recepción con motivo del 14 aniversario del Ejército Popular Nacional de la RDA, fundado el primero de marzo de 1956.
 

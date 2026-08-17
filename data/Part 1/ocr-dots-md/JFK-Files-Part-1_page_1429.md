@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1429.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Page 13: Mr. Colby is quoted by the author indicating certain information revealing complications between Mr. Colby and Dr. Kissinger. In addition to breaching personal confidences, the author contradicts what he had indicated earlier to be an intent to permit Mr. Colby to speak for himself.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13908.png
-
-Convert to Markdown1104.
+1104.
 
 Entrada 1331.- ROBERTO solicita hablar con ROGELIO y -
 RAUL indica que no está. ROBERTO pregunta sino le de-

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30804.png
-
-Convert to MarkdownSEC. 15. EDUCATION
+SEC. 15. EDUCATION
 
 Monroe School (Grade) Minor City, Iowa, U.S.A.
 1931 - 1938

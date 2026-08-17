@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7736.png
-
-Convert to Markdown14-0000
+14-0000
 
 9.02 Eating:
 

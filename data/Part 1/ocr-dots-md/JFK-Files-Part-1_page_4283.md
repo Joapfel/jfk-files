@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4283.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Separate Cover Attachment to UFGA-23354
 

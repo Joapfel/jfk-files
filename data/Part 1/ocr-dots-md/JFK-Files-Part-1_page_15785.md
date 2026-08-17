@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15785.png
-
-Convert to MarkdownSR/DOB/60
+SR/DOB/60
 
 5 July 1960
 

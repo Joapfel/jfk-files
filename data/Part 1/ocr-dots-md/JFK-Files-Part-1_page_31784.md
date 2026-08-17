@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31784.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 28 APR 1979
 

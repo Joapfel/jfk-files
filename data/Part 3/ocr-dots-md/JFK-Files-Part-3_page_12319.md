@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM
 

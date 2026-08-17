@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8269.png
-
-Convert to Markdown13-00000
+13-00000
 
 <table><tr><td>Martha, 1944</td><td>Mary, in the village of Medelov's children. Embraced by</td></tr><tr><td>April - May 1944</td><td>Studied in Moscow at St. Petersburg University.</td></tr><tr><td>P.O.U. 1942</td><td>National Aparition Union.</td></tr><tr><td>May - June 1943</td><td>Began under Annual Archives, linked closed with Dr. C.S.M. Dimitrov</td></tr><tr><td>April 1941</td><td>Emerged from hiding to begin work with the Order from Moscow, Gorbachev, Moskovsky Aparitions.</td></tr><tr><td>June 1944</td><td>Afters events on April 9th, was lost during hiding and began works to absorb all of the Committees.</td></tr><tr><td>July 1945</td><td>Because he was regarded as a traitor to the Committee.</td></tr><tr><td>August 1946</td><td>Died in Berlin.</td></tr></table>

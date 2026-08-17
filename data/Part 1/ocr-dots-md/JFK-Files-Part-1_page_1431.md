@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1431.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Page 25-27: The specifics associated with the Cuban Missile Crisis of 1962 involving former Director John McCone and others are subject to strong question as to whether they should be included in this text. Again, what is provided by Mr. Phillips in this manuscript is drawn from such personal experiences realized in his Agency duties.
 

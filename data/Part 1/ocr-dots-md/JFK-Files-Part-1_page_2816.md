@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2816.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (AMERICAN EMBASSY SECTION - January 1960-January 1962)
 

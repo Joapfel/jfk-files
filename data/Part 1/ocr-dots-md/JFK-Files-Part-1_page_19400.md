@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19400.png
-
-Convert to MarkdownCOS Form 1001
+COS Form 1001
 
 (CO. FINAL ACTION REQUEST
 (To be signed and submitted in Trilicate)

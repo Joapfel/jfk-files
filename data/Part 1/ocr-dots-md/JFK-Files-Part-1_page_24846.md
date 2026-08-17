@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24846.png
-
-Convert to Markdown<table><tr><td>10-0000</td></tr></table>
+<table><tr><td>10-0000</td></tr></table>
 
 UNITED STATES GOVERNMENT
 Memorandum

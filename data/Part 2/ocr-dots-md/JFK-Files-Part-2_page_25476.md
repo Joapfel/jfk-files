@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25476.png
-
-Convert to Markdown-27-
+-27-
 
 Oh, you mean what the agents brought in?
 

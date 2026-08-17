@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12740.png
-
-Convert to MarkdownIn case of individual subject of prior investigation who is currently being recommended for security index, do not disseminate prior reports. However, prepare a letterhead memorandum including pertinent information previously developed which should be disseminated to Secret Service, together with current report. Copies of this letterhead memorandum should be forwarded to Bureau for dissemination at headquarters level.
+In case of individual subject of prior investigation who is currently being recommended for security index, do not disseminate prior reports. However, prepare a letterhead memorandum including pertinent information previously developed which should be disseminated to Secret Service, together with current report. Copies of this letterhead memorandum should be forwarded to Bureau for dissemination at headquarters level.
 
 [ [FD-376 should also accompany succinct letterhead memoranda submitted in priority III security index cases.]
 

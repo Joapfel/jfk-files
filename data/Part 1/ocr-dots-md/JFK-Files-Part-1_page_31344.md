@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31344.png
-
-Convert to MarkdownADDITIONAL: ADDITIONAL. FOR THE #16 (UNIVERSITY):
+ADDITIONAL: ADDITIONAL. FOR THE #16 (UNIVERSITY):
 
 In September, 1947, I entered Harvard Graduate School of Arts and Sciences again to major in History. In June 1958, I received a degree of letter of Auto. Since then, I have done two years of additional graduate work toward a degree of Doctor of Philosophy.
 

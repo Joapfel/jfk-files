@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14220.png
-
-Convert to Markdown**TOP SECRET**
+**TOP SECRET**
 
 *   **intelligence activities.** These advisory groups, which incidentally included some of the members of your present Board, have made specific recommendations on the subject. In 1954 the Doolittle Committee emphasized the need for: a) developing nonofficial cover facilities; b) the placement of "deep-cover sleepers agents" with a corresponding decrease in dependence upon official cover; c) the creation of a long-range, deep-cover planning system; and d) the promulgation of cover doctrine and procedure. In 1955 the Technological Capabilities Panel of the President's Science Advisory Committee, noting that "we should today be laying the groundwork for extensive covert operations in every country available to our agents", recommended that "a heavy long-term investment should be made in the preparation of covert agents as eventual sources of high-level intelligence." More recently, in its report of July 2, 1961, your Board recommended that the new Director of Central Intelligence consider the desirability and means of achieving a deeper cover for all clandestine and covert activities of the Central Intelligence Agency, and that the disproportionate number of CIA personnel operating under diplomatic cover be reduced on an orderly basis, having in mind their replacement by agents under deep cover.
 

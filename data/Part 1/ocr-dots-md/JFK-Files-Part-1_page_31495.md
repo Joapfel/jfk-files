@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31495.png
-
-Convert to MarkdownAnother potential use of FECS might be in conjunction with certain proposals advanced by individual RFE staff members. These call for the use of refugees as funding sources for group reactions to new broadcast themes and as example groups for testing basic satellite country attitudes. Refugees helped by FECS might be more interested in contributing to such projects; conversely, FECS efforts to restore their feeling of belonging to the struggle for liberation of their countries would be immediateCURABLE ASSISTED BY THIS OPPORTUNITY FOR THEM TO COME IN THE SHARPEING OF THIS POTENT "BROTHER WEAPON".
+Another potential use of FECS might be in conjunction with certain proposals advanced by individual RFE staff members. These call for the use of refugees as funding sources for group reactions to new broadcast themes and as example groups for testing basic satellite country attitudes. Refugees helped by FECS might be more interested in contributing to such projects; conversely, FECS efforts to restore their feeling of belonging to the struggle for liberation of their countries would be immediateCURABLE ASSISTED BY THIS OPPORTUNITY FOR THEM TO COME IN THE SHARPEING OF THIS POTENT "BROTHER WEAPON".
 
 ---:-:--:--:---
 

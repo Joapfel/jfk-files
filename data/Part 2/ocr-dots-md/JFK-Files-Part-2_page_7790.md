@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7790.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (d) B-75, dated 9 April 1968; Subject: Attempted Anti U.S.-Demonstrations in Kingston, according to the Special Branch of the Jamaican security service; exempt under (b)(1)(5)B(1).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5212.png
-
-Convert to Markdown2. The types of gambling prevalent in the San Francisco Division are primarily wagering on horse races and sporting events. In addition, small numbers betting with a weekly drawing take place usually in the Spanish-speaking communities. There are also legal and illegal card games operating usually in low-income commercial neighborhoods. Gambling in the division is conducted by individual operators who are independent of each other, except for layoff purposes with respect to bookmaking and there are no indications of hoodlum control over any of these activities.
+2. The types of gambling prevalent in the San Francisco Division are primarily wagering on horse races and sporting events. In addition, small numbers betting with a weekly drawing take place usually in the Spanish-speaking communities. There are also legal and illegal card games operating usually in low-income commercial neighborhoods. Gambling in the division is conducted by individual operators who are independent of each other, except for layoff purposes with respect to bookmaking and there are no indications of hoodlum control over any of these activities.
 
 3. Concerning the extent of gambling in this division, bookmakers ECKSTEIN and LEAHY, named in Paragraph 1 above, operate in the following manner. Both are in daily contact with their accounts located in the Bay area which include other bookmakers for layoff purposes, split bookmakers, and numerous individual bettors.
 

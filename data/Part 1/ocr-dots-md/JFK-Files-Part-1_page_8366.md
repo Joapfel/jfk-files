@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8366.png
-
-Convert to MarkdownSOURCE: LIEÚMBRACE
+SOURCE: LIEÚMBRACE
 DATE: Jueves 12 de dic. de 1968.
 PARTICIPANTS: 5,14.
 FILE:

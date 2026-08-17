@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21000.png
-
-Convert to MarkdownSECRET]
+SECRET]
 
 MC 100-743G
 

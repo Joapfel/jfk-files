@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17553.png
-
-Convert to Markdown4. The station does not intend to cut down on independent LIPEAT operations since there are plenty of targets to keep both LIPEAT and LI-FEAT occupied.
+4. The station does not intend to cut down on independent LIPEAT operations since there are plenty of targets to keep both LIPEAT and LI-FEAT occupied.
 
 5. The LIPEAT Project was the source of 99 positive intelligence reports, 72 of which were disseminated. Those not disseminated were considered by Headquarters to be of value for operational background or were outdated. RR made the following evaluations of LIPEAT reports:
 

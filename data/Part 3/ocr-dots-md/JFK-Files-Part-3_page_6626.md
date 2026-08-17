@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6626.png
-
-Convert to MarkdownRev. KING on May 26, 1966, informed ANDREW J. YOUNG, that a Whitehouse Conference on Civil Rights was to be held June 1-2, 1966. He said in addition to himself and YOUNG, ABERNATHY and RANDOLPH T. BLACKWELL would attend this conference.
+Rev. KING on May 26, 1966, informed ANDREW J. YOUNG, that a Whitehouse Conference on Civil Rights was to be held June 1-2, 1966. He said in addition to himself and YOUNG, ABERNATHY and RANDOLPH T. BLACKWELL would attend this conference.
 
 AT-T-5, 5/66
 

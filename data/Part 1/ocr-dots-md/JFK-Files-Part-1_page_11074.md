@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11074.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO IMMEDIATE MEXICO CITY JMWAVE INFO: OTTAWA
 TYPIC

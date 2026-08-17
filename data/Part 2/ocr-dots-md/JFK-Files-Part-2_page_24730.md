@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24730.png
-
-Convert to Markdown-As discussed above, Bissell testified that the minutes of meetings of the Special Group on August 25, 1960 and the NSC on September 21, 1960 indicate that assassination was contemplated at the Presidential level as one acceptable means of "getting rid of Lumumba" (see Sections 5(a)(ii) and 5(a)(iii), supra).
+-As discussed above, Bissell testified that the minutes of meetings of the Special Group on August 25, 1960 and the NSC on September 21, 1960 indicate that assassination was contemplated at the Presidential level as one acceptable means of "getting rid of Lumumba" (see Sections 5(a)(ii) and 5(a)(iii), supra).
 
 There was "no question", according to Bissell, that the cable from Allen Dulles to the Chief of Station in Leopoldville on August 26, which called for Lumumba's removal and authorized Hedgman to take action without consulting headquarters, was a direct outgrowth of the Special Group meeting Dulles had attended the previous day (Bissell, 9/10/75, pp. 31-32). Bissell was "almost certain" that he had been informed about the Dulles cable shortly after its transmission (Bissell, 9/10/75, p. 12). Bissell testified that he assumed that assassination was one of the means of removing Lumumba from the scene that is contemplated within the language of Dulles' cable (Bissell, 9/10/75, p. 32):
 

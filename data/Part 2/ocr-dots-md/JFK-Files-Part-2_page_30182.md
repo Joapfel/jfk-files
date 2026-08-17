@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30182.png
-
-Convert to Markdown# Select Committee on Assassinations
+# Select Committee on Assassinations
 U. S. House of Representatives
 Washington, D. C. 20515
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8624.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 JUL 1977
 

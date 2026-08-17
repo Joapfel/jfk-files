@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9721.png
-
-Convert to MarkdownWe have recruited into our ranks many persons and some leaders who have over the years worked for the so-called left in the United States. Once they looked into our philosophy and found that the philosophy that has been pumped into their brains over the past several years, they could not resist finding out more. Once the so-called leftist found out that they were lured into the leftist (Red) encampments with drugs, sex-and generally nothing philosophies, they were ready for us.
+We have recruited into our ranks many persons and some leaders who have over the years worked for the so-called left in the United States. Once they looked into our philosophy and found that the philosophy that has been pumped into their brains over the past several years, they could not resist finding out more. Once the so-called leftist found out that they were lured into the leftist (Red) encampments with drugs, sex-and generally nothing philosophies, they were ready for us.
 
 Once they lived with groups of non-Whites and drug addicts, they found that they wanted nothing to do with the Reds. Most dropped out, began to wonder, returned to Nature and health food diets and kept their ears and eyes open. When they finally discover the real Natural elements such as the great outdoors and what could be done for them by sticking to a health food or Natural diet, they never again could think seriously about the so-called leftist philosophy.
 

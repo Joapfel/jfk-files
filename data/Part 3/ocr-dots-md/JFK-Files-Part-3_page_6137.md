@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6137.png
-
-Convert to MarkdownTO: Mr. Cregar
+TO: Mr. Cregar
 
 RE: SENSTUDY '75
 

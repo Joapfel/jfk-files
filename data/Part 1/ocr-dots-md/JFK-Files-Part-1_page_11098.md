@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11098.png
-
-Convert to MarkdownALBERU (SOUTO), Luis
+ALBERU (SOUTO), Luis
 #279 089
 
 5 June 1967

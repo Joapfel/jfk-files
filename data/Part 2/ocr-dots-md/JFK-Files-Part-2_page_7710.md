@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7710.png
-
-Convert to Markdownd. Convinced that there is a bonanza for the American businessman in the USSR and that "business" can alter the Soviet lifestyle and reduce governmental, i.e., CP control;
+d. Convinced that there is a bonanza for the American businessman in the USSR and that "business" can alter the Soviet lifestyle and reduce governmental, i.e., CP control;
 
 e. Believing that the Cold War was a myth created by America;
 

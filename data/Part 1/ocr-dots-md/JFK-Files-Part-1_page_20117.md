@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20117.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>7. RATINGS ON PERFORMANCE OF SPECIFIC DUTIES</caption>

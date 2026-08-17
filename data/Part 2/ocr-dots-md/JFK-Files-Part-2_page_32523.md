@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32523.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 SECRET
 

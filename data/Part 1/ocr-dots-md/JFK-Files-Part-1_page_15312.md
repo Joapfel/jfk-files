@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15312.png
-
-Convert to Markdownbuted to different places in Berlin. He came to a unit sta- tioned close to the BRAUNEN BURGER TOR, vis-a-vis to the French Embassy building, where he had to wait and drive a cab for eight hours the day. He lived in the same house in front of which their cars were stationed. He does not remember any names from the time of this training period. One of his co-drivers in this small unit was KOVIKOF.
+buted to different places in Berlin. He came to a unit sta- tioned close to the BRAUNEN BURGER TOR, vis-a-vis to the French Embassy building, where he had to wait and drive a cab for eight hours the day. He lived in the same house in front of which their cars were stationed. He does not remember any names from the time of this training period. One of his co-drivers in this small unit was KOVIKOF.
 
 40. David remained in this drivers' unit in Berlin until, some three to four months later, volunteers were called to go to France, as lorry-drivers to the west coast where the Atlantic Wall was being constructed. He volunteered, and 15 days later, together with other volunteers, he was sent to Paris.
 

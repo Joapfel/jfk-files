@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11480.png
-
-Convert to MarkdownThe FBI program against the New Left was the most wide-
+The FBI program against the New Left was the most wide-
 sweeping of all. Its targets included underground newspapers,
 students protesting various university policies, the antiwar
 Inter-University Committee for Debate on Foreign Policy, and

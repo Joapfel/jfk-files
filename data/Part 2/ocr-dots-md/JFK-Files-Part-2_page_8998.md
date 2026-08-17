@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8998.png
-
-Convert to Markdowncano: "I can go with you", contestando el norteamericano --
+cano: "I can go with you", contestando el norteamericano --
 "You are not a man", agregando: "I can do it, I can kill him";
 que después de oír lo anterior, el declarante salió rápida--
 mente del baño, percatándose con el rabillo del ojo de que -

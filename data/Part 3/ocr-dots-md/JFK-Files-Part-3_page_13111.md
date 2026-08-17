@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13111.png
-
-Convert to MarkdownThe DCI will furnish his observations as to
+The DCI will furnish his observations as to
 eligibility for access to classified information to the
 appropriate Committee Chairman for his consideration. The
 Committee Chairman will render the final determination after

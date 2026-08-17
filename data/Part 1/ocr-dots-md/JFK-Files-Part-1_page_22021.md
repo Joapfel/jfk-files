@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22021.png
-
-Convert to Markdown192.
+192.
 
 (d) Information from GOLITSYN
 

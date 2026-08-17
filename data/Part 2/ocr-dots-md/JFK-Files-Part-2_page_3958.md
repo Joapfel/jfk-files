@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3958.png
-
-Convert to Markdown[SIRHAN'S MOTIVES
+[SIRHAN'S MOTIVES
 
 Unlike Lee Harvey Oswald, Sirhan Sirhan has lived to tell of his motivations—but he has chosen to remain silent. The only other potential source of information is his family, which had not spoken to the press.
 

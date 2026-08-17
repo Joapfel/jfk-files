@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24868.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td>FILE RID</td><td></td></tr><tr><td>INDEX</td><td rowspan="3">SECRET</td></tr><tr><td>NO "E" EX</td></tr><tr><td>FILE IN ... FILE NO.</td></tr></table>

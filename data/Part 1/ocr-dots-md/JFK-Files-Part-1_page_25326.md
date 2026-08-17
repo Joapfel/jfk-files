@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25326.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 7. J. MCAV. Valde Baron
     Monatello 17

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10420.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Conversation with Jack Bauman
 

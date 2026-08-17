@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13010.png
-
-Convert to MarkdownSECFT
+SECFT
 
 <table>
     <tr>

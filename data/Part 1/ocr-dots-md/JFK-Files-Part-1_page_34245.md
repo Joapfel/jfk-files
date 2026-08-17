@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34245.png
-
-Convert to Markdown# EDITORIALS:
+# EDITORIALS:
 
 "It's Not Propaganda, Fidel, It's The Truth".- We answer Castro's complaints against democratic propaganda, pointing our that it consists not merely of propaganda, but of the whole infamous truth about his regime. We avail ourselves of the circumstances to connect the above with the statements made in Miami by Capt. Augusto M. Gonzalez, the skipper of the Cuban merchant flagship "Uvero", and the Chief Engineer, Roberto Surroca, who defected in Ceylon because of the circumstances that prevail in Cuba.
 

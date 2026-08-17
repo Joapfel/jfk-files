@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31703.png
-
-Convert to MarkdownSECURITY MIGD
+SECURITY MIGD
 
 - 2 -
 

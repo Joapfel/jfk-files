@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7009.png
-
-Convert to MarkdownAT-T-5, 5/66
+AT-T-5, 5/66
 
 III. MISCELLANEOUS
 

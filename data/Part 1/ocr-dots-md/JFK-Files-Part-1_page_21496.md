@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21496.png
-
-Convert to MarkdownG. Is There Evidence of a Political or Any Other Type Objective Which Could Justify a Dispatch of NOSENKO by the KGB With Permission to Speak Freely to CIA Concerning His Knowledge of the KGB and Without NOSENKO Being Given a Specific Mission or Missions?
+G. Is There Evidence of a Political or Any Other Type Objective Which Could Justify a Dispatch of NOSENKO by the KGB With Permission to Speak Freely to CIA Concerning His Knowledge of the KGB and Without NOSENKO Being Given a Specific Mission or Missions?
 
 H. Is There Any Evidence That the Contacts of NOSENKO in 1962 or in 1964 With CIA Were Known to the KGB Prior to His Detection or That NOSENKO Was Ever BRIELED by the KGB Relative to His Behavior or KGB Objectives During These Contacts or After His Detection?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15581.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><thead><tr><th colspan="2">DATE : 25 MAR 61</th><th>TO : DIRECTOR<br/>FROM : LEOPOLDVILLE<br/>ACTION : C/AF 3 (TEMPO COPY SLOTTED AF 1711 25 MAR)<br/>INFO : COP, C/CA, C/CI, C/FI 2, S/C 2</th><th>SECRET</th></tr></thead><tbody><tr><td>1</td><td>C. Eto</td><td>L-1039A</td><td></td></tr><tr><td>2</td><td>J. M. Kirtley Jr.</td><td></td><td>A/A</td></tr><tr><td>3</td><td>G. Hainey</td><td></td><td></td></tr><tr><td colspan="3"></td><td>MAR 25 2050Z 61</td></tr><tr><td colspan="3"></td><td>PRIORITY</td></tr><tr><td colspan="3"></td><td>IN 25118</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27702.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>STANDARD FORM 52<br/>PROPERTY LISTED ON THE<br/>9 1/2% DEBT OR INCOME CHAIN<br/>DISTRIBUTION TO ORDERLY BENEFICIARY<br/>BANK ORDERED BY</td>

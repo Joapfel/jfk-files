@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1586.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In August 1951 the Agency was interested in contacting Professor Edouard POLDINI, a geophysicist and professor at the University of Geneva and formerly an employee of the SCHLUMBERGER CORPORATION in Paris, for operational use. He was to be used as a channel to a Janus KANTAS who could give information about the fate of the previous employees of the Jersey Company in Hungary, the production figures and extent of exploitation of existing oil fields and exploration of new oil fields together with the names of the officials of the Russian Hungarian Company who took over the Jersey Company.
 

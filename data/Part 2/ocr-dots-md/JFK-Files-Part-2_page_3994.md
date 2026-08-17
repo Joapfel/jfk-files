@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3994.png
-
-Convert to Markdownfurther specific questioning on 22 May 1964 covering the various homosexual
+further specific questioning on 22 May 1964 covering the various homosexual
 areas however, there were no strong reactions to indicate that Subject might
 be practicing deception on the specific question regarding engaging in home-
 sexual activities since working for CIA.

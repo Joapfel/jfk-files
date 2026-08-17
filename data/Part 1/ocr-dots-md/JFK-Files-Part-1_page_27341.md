@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27341.png
-
-Convert to MarkdownVOUCHERED
+VOUCHERED
 
 Form approved,
 Budget Bureau No. 50-R012.8.

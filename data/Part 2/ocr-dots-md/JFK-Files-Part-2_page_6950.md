@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6950.png
-
-Convert to Markdown* **Identification and Location of Additional Secret Service Records and Information.** Time consuming and careful review of Secret Service activities by the Review Board produced a series of requests for additional records and information that, in turn, led to the identification of additional relevant assassination records. For example, in response to the Review Board's first eight requests for additional information, the Secret Service has submitted more than 1,500 pages of material.
+* **Identification and Location of Additional Secret Service Records and Information.** Time consuming and careful review of Secret Service activities by the Review Board produced a series of requests for additional records and information that, in turn, led to the identification of additional relevant assassination records. For example, in response to the Review Board's first eight requests for additional information, the Secret Service has submitted more than 1,500 pages of material.
 
 * **Identification and Location of Additional Military Records and Information.** The Department of Defense (including its many components and the military services) (collectively "DOD"), identified few assassination records on its own initiative. DOD has nevertheless been cooperative with the efforts of the Review Board to locate assassination records. When such records have been located, DOD has been willing to release the records with few redactions.
 

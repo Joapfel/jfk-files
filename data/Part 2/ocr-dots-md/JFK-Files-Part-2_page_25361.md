@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25361.png
-
-Convert to Markdown# Trafficante Made Secret Appearance At Senate Investigation, Sources Say
+# Trafficante Made Secret Appearance At Senate Investigation, Sources Say
 
 By RON LaBRECQUE
 Herald Staff Writer

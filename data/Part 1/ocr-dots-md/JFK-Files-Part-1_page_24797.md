@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24797.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. The files show that Tichborn's magazine, Dialogos was funded through Tichborn by various individuals through arrangements made by CCS. The AC/WH/6 interrogated Tichborn on any foundation funding, Tichborn could recall only one instance of foundation funding, some $2-2,500 given Dialogos Editor Ramon Xirau by the Fairfield Foundation. There is also a reference in the files that one, Louis Mercier, was informed that ODACID also supported Dialogos.
 

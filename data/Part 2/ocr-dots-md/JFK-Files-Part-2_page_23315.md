@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23315.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Senator Mondale. Yeah, but see, if we were completely neutral I'd agree with that. If they wanted to assassinate Trujillo that's their business. I agree with it, that's none of our business.
 

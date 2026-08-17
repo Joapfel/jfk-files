@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1497.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. We then proceeded to the 29 items which we would like to see modified but which we could not consider classified. We made this clear to Hunt and went through them one by one, discussing our concern with each. Hunt contended that most of these items should not be considered sensitive since they had been publicized extensively; in some cases confirmed in testimony; and, in the case of other items, the principals involved were dead. However, he agreed to changes in the items referred to in paragraphs 1, 3, 17, and 32 of the CI Staff memorandum of 19 September. These involve the deletions of the names of Henry Pleasants and Frank Holcomb, both now retired under cover; a direct reference to joint operations with the British in Hong Kong against China; and the wording of his reference to CIA alias documentation used by the Watergate burglars. The language of this last item will be changed so that it no longer leaves the impression that the documentation was prepared by the Agency for this operation.
 

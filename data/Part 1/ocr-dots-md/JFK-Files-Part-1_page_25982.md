@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25982.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Deputy Director of Security
 (Investigations and Support)

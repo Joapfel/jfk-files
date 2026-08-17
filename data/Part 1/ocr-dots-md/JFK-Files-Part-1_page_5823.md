@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5823.png
-
-Convert to MarkdownCIA LETTERHEAD
+CIA LETTERHEAD
 
 Suggested reply to Mrs. CUESTA's letter of 4 August 1975
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22008.png
-
-Convert to MarkdownFILE:
+FILE:
 
 Cheever confirmed what we knew about Harvey. Although Cheever worked closely with Harvey, he told us that Harvey was a loner and most surely would not inform him of operations unless he had a "must need to know". In Cheever's opinion, Harvey was one of the great believers in compartmentalization; Cheever "complained that Harvey turned him into his staff man" (as compared to an operational extension). Cheever also told us that Harvey was a two martini man at lunch with thyroid problems; this often "led to problems for Harvey at early afternoon meetings".
 

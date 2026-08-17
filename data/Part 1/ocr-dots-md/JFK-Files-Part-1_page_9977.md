@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9977.png
-
-Convert to Markdown1 August, 1967
+1 August, 1967
 
 1. At meeting with Rowton 1700. 31 July 1967 reported that Crozco's Crozco Leal, who claimed be L/3's new FAR liaison for procurement of arms, currently staying in his apartment on Calzada Tacataya. L/3 explained to Rowton that at 2200 29 July meeting with Crozco, latter stated that he had instructions from FAR headquarters to escort L/3 to Tapachula for contact instructions and instructed L/3 procure immediately before or Walter C= automatic with 52 three clips and at least 50 cartridges plus detonators with normal or electric fuse and three poison tablets of highest possible potency which he would need on trip from Guatemala City to Montes headquarters. Crozco, however, insisted that L/3 bring these items with him to Tapachula and added that he would himself go there if they were safely delivered to Guatemala City for eventual pick-up by L/3.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6436.png
-
-Convert to MarkdownHonorable P. Kenneth O'Donnell
+Honorable P. Kenneth O'Donnell
 
 he would like to put so much pressure on the President that he will have to sign an Executive Order making segregation unconstitutional.
 

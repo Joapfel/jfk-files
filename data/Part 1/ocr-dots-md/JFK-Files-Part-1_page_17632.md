@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17632.png
-
-Convert to MarkdownAttachment to HMM-A-10198
+Attachment to HMM-A-10198
 KAPOK-1401
 
 PROJECT: OUTLINE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18052.png
-
-Convert to MarkdownU. S. Senate Select Committee On Intelligence Activities (SSC)
+U. S. Senate Select Committee On Intelligence Activities (SSC)
 
 With regard to Item 24 of request #1, our indices contain no references to a Zelma Coolidge. One reference concerning a Tony Consiglio and one reference to a Sam Cravatta were located. A Xerox copy of each of these indices cards is being furnished.
 

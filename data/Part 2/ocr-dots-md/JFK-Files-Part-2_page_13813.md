@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13813.png
-
-Convert to Markdownb. What type of information has been stored in readily retrievable form by the Unit and Section?
+b. What type of information has been stored in readily retrievable form by the Unit and Section?
 
 c. To whom and for what reasons has intelligence information been disseminated by the Unit and Section?
 

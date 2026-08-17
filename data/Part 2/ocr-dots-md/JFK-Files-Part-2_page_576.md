@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_576.png
-
-Convert to Markdown<table><tr><td colspan="3">MESSAGE FORM<br>TOTAL COPIES: 33</td></tr><tr><td>SECRET</td><td colspan="2"></td></tr></table>
+<table><tr><td colspan="3">MESSAGE FORM<br>TOTAL COPIES: 33</td></tr><tr><td>SECRET</td><td colspan="2"></td></tr></table>
 
 <table><thead><tr><th colspan="4" style="text-align:center;">ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>2</td><td></td><td>998301</td><td></td></tr><tr><td>3</td><td></td><td>998301</td><td></td></tr><tr><td>4</td><td></td><td>998301</td><td></td></tr><tr><td>5</td><td>10</td><td></td><td></td></tr></tbody></table>
 

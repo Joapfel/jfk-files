@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30500.png
-
-Convert to Markdown1-75
+1-75
 
 allowed any cover-up or any destruction of evidence which might
 shed some light on the assassination of President Kennedy.

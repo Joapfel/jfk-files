@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_529.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td>ORIG:</td><td>J. MOUGHAN; fph</td></tr><tr><td>UNIT:</td><td>WH/C/CA/EW</td></tr><tr><td>CIT:</td><td>2601</td></tr><tr><td>DATE:</td><td>14 SEPTEMBER 66</td></tr></table>

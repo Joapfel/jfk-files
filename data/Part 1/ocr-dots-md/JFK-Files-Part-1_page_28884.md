@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28884.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DD/S 65-3882
 

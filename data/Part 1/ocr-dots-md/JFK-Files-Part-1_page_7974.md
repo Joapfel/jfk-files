@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7974.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HOT-A-LOVE, P. 8
 27 November 1957

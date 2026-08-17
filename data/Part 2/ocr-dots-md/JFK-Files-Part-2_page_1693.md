@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1693.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 23 MAY 1971.

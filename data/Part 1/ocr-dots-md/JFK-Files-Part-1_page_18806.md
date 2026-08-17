@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18806.png
-
-Convert to Markdown: Strategic Services
+: Strategic Services
 
 February 10, 1945
 

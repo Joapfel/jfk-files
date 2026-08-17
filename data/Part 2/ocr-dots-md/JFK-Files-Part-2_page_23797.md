@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23797.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Bader. The CIA?
 

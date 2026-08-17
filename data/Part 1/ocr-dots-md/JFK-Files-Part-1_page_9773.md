@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9773.png
-
-Convert to Markdown22 April,1968
+22 April,1968
 
 Subject: holando Mendez Aguilar, Guatemalan Rebel Contact In Mexico City.
 

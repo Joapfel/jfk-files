@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32061.png
-
-Convert to Markdown<table><tr><td>PRIORITY</td></tr></table>
+<table><tr><td>PRIORITY</td></tr></table>
 
 <table><tbody><tr><td>CC NR<br/>1248</td></tr></tbody></table>
 

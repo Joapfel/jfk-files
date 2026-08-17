@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14869.png
-
-Convert to Markdown528 EMCL/LSB/LSB/LSB
+528 EMCL/LSB/LSB/LSB
 
 UNIT George Fill
 SR/DOB 528

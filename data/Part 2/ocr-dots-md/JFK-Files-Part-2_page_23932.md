@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23932.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mann suggested for Merchant's consideration and, if he approved, for discussion by the Special Group, the provision of token quantities of selected items desired by the dissidents. Mann specifically mentioned small explosive devices which would place some "sabotage potential" in the hands of dissident elements, but stated that there "would be no thought of toppling the GODR (Government of Dominican Republic) by any such minor measure." (Mann to Merchant memo, 1/12/61)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29829.png
-
-Convert to MarkdownM - David
+M - David
 
 D - David, Sully and Gino were together, I think that is there
 M- you think it is the man that owns it

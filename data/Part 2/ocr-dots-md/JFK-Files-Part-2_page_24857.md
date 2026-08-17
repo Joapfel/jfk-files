@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24857.png
-
-Convert to MarkdownOctober 10-October 22 (approximate)
+October 10-October 22 (approximate)
 
 Karamessines and one or two others went with Kissinger to speak with the President, after a larger meeting. Karamessines believed this meeting took place between October 10 and 24. (Karamessines testimony, p. 89) According to Karamessines, the "President went out of his way to impress all of those there with his conviction that it was absolutely essential that the election of Mr. Allende to the presidency be thwarted."* As they were leaving the Oval Office, the President took Karamessines aside to reiterate the message. (Karamessines testimony, p. 8)
 

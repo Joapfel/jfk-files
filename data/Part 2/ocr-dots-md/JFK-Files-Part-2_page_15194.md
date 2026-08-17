@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15194.png
-
-Convert to MarkdownAttachment B
+Attachment B
 
 With State Department approval we are developing live sources in office and establishment of countries listed below. Actual sources developed to date and potential sources under investigation are: shown in connection with each target country.
 

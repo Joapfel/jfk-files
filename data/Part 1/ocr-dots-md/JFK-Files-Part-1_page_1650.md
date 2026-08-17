@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1650.png
-
-Convert to MarkdownSubject: Philip Burnett Franklin Agee
+Subject: Philip Burnett Franklin Agee
 
 1. NAME OF OFFICER OR EMPLOYEE Elsie I. Scaletti
 2. PERSONAL KNOWLEDGE OF SUBJECT #56840

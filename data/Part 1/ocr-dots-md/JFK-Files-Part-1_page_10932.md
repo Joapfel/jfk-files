@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10932.png
-
-Convert to Markdown(c) The airship should be able to carry a crew of two men, and an additional one for the time being.
+(c) The airship should be able to carry a crew of two men, and an additional one for the time being.
 
 (d) It is proposed that one man should remain on board at all times, in case of anything happening. In such a case he should be provided with means of self-rescue. The total number of persons on board should not exceed one hundred.
 

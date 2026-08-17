@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4029.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 by five main companies because of the annual quota of five boats per shipyard. They are excellent products with the latest fishing and navigation equipment. Nevertheless, they are costly because of the high cost of labor and raw materials in the country. Since we possess most of the wood in Bluefields, trained and competent personnel, and a superior functional boat design, we are able to supply the necessities for a national fishing fleet, as well as to place these boats on the world market. We base our decisions on preliminary calculations which prove the possibility of our ability to produce an excellent boat at less cost and superior to the North American boats.
 

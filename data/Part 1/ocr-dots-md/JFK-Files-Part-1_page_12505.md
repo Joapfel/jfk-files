@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12505.png
-
-Convert to Markdown4. CIPFENCE-4
+4. CIPFENCE-4
 
 CIFENCE-4 continues to be a reliable and steady Station
 asset who enjoys the confidence of and has a very close working

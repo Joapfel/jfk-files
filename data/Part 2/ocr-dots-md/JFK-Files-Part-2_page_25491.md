@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25491.png
-
-Convert to Markdowna Wednesday and the whole thing...
+a Wednesday and the whole thing...
 
 FS: So what happened?
 

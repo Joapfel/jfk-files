@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7540.png
-
-Convert to MarkdownSubject: Unidentified Man
+Subject: Unidentified Man
 
 1. A photograph of this unidentified man was published in the Warren Commission report on the assassination of President Kennedy. Copies have also been widely distributed in news media by journalists critical of the Warren Commission investigation. The subject visited the Cuban and Soviet Embassies in Mexico City during October 1963.
 

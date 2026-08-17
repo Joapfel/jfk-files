@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24553.png
-
-Convert to MarkdownThe minutes of the May 3, 1962, Special Group Augmented meeting make no mention of Harvey's above-related plot activities. The minutes of that meeting show that on his return from Miami, Harvey gave a progress report to the Special Group Augmented on "agent teams" and the "general field of intelligence". (Harvey, Ex. 3, Memorandum of Special Group Augmented Meeting, May 1962, p. 1.) Harvey reported that three agent teams had been infiltrated and that 72 actual or potential reporting sources were also in place. (Harvey Ex. 3, p. 1.)
+The minutes of the May 3, 1962, Special Group Augmented meeting make no mention of Harvey's above-related plot activities. The minutes of that meeting show that on his return from Miami, Harvey gave a progress report to the Special Group Augmented on "agent teams" and the "general field of intelligence". (Harvey, Ex. 3, Memorandum of Special Group Augmented Meeting, May 1962, p. 1.) Harvey reported that three agent teams had been infiltrated and that 72 actual or potential reporting sources were also in place. (Harvey Ex. 3, p. 1.)
 
 Shortly after the May 3 meeting, General Taylor went to see the President to give him what he called a "routine briefing" (Taylor Tr. ___, p. ___).
 

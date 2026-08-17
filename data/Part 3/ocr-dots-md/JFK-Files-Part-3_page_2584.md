@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2584.png
-
-Convert to Markdown3. All memoranda and other materials pertaining to the FBI's termination in 1966 of the investigative techniques referred to in President Nixon's statement of May 22, 1973 (Presidential Docs. 693-94). (C.I.)
+3. All memoranda and other materials pertaining to the FBI's termination in 1966 of the investigative techniques referred to in President Nixon's statement of May 22, 1973 (Presidential Docs. 693-94). (C.I.)
 
 D. Other Specific Techniques
 

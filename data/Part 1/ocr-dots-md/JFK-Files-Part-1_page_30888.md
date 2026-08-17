@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30888.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Mexico City
 

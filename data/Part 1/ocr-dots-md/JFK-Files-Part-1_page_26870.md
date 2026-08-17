@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26870.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, CI/UA
 ATTENTION : Mr. George Ball

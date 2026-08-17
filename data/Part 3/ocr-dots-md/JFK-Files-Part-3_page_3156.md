@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3156.png
-
-Convert to Markdown1768
+1768
 
 program that indicate that it was not the greatest thing coming down the pike.
 

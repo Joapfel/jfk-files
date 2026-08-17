@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23439.png
-
-Convert to MarkdownJuly 28
+July 28
 
 President EISENHOWER stated at an NSC meeting: "Until TRUJILLO is eliminated, we cannot get our Latin American friends to reach a proper level of indignation in dealing with CASTRO." In this regard, "the President said if we attempted to take any action with respect to Cuba before settling the TRUJILLO situation, we would be the loser." (NSC Minutes)
 

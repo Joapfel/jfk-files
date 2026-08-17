@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25190.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CONEIN</td><td>October 1963</td><td>DIEM ✓</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>CONEIN</td><td>October 1963</td><td>DIEM ✓</td></tr></table>
 
 **OCCURRENCE:** CONEIN stated that he looked upon his job as conveying orders from his ambassador to the people that were planning the coup and to monitor those people who were planning the coup, and to get as much information so that our government would not be caught with their pants down. He did agree not to thwart the coup and in fact, to supply economic and military assistance if the coup succeeded, but did not conceive his objective the encouragement or the promotion of the coup, nor did he ever discuss the possibility of discouraging the coup. CONEIN stated that if the United States had now shown any interest or remained neutral in opposing DIEM, there would have been a coup anyway. pp. 38-41
 

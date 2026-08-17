@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6204.png
-
-Convert to MarkdownDirectorate of Administration
+Directorate of Administration
 
 # Deputy Director for Support
 (DDS) - 1965

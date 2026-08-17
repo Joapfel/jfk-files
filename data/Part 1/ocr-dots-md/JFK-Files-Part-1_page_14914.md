@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14914.png
-
-Convert to Markdown<table><tr><td>VOGEL 53c<br/>10-27 1949</td><td>CITIZENS' CHIEF OF TELEGRAPHY<br/>GENERAL OFFICE, PARIS</td><td>CLASSIFICATION</td></tr><tr><td></td><td>BETWEEN A AND B</td><td>SECRET</td></tr></table>
+<table><tr><td>VOGEL 53c<br/>10-27 1949</td><td>CITIZENS' CHIEF OF TELEGRAPHY<br/>GENERAL OFFICE, PARIS</td><td>CLASSIFICATION</td></tr><tr><td></td><td>BETWEEN A AND B</td><td>SECRET</td></tr></table>
 
 Newens and Winship were picked up and we departed for Paris. During the trip we had an opportunity to converse with Subject about his early life, family problems, etc. As it turned out the long drive gave us an ideal opportunity to draw out Subject about himself and his present circumstances. He arrived in Paris on 16 October at 0700 hours. Subject was dropped near the house of Identity A. Arrangements were made to meet him at 1600 hours in the vicinity of the Gare Montparnasse. During this session with Subject, P.O. I provided information was obtained. After the four hour meeting, we took Subject to dinner which gave us further opportunity to talk to him. Between our arrival in Paris and our meeting with Subject at 1600 hours, he had been occupied with business affairs so that he had not slept at all, was tired, and wanted to break up early.
 

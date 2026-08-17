@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5007.png
-
-Convert to MarkdownNovember 26, 1975
+November 26, 1975
 
 UNITED STATES SENATE SELECT
 COMMITTEE ON INTELLIGENCE (SSC)

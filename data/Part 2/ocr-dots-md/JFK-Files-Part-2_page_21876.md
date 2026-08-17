@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21876.png
-
-Convert to Markdownsent in a channel that was even more closely restricted than the
+sent in a channel that was even more closely restricted than the
 normal CIA cable traffic (Tweedy, 9/9, pp. 22, 32-33). Tweedy
 said destruction of such cable traffic would have been left to the
 discretion of the Chief of Station and he did not know whether

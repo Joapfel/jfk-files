@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21956.png
-
-Convert to Markdownagainst in the summer of 1957.* NOSENKO reported specifically on her possible sexual involve- ment with two other tourists, one American and the other British, during 1957-1959. NOSENKO mentioned at one point that he "even told Larissa about his last name."
+against in the summer of 1957.* NOSENKO reported specifically on her possible sexual involve- ment with two other tourists, one American and the other British, during 1957-1959. NOSENKO mentioned at one point that he "even told Larissa about his last name."
 
 - Vladimir MUROMTSEV: KGB cryptonym "LEBEDEV," recruited in 1955. (NOSENKO has also said that MUROMTSEV had been a Second Chief Directorate agent "since 1958.") MUROMTSEV was called into the Army in about 1959 and was sent to some Soviet Air Force academy in Central Asia, where he worked as an inter- preter for Syrian students studying there. During this period, his file was held by the local KGB in Central Asia. Later he returned to Moscow and was reactivated by the Second Chief Directorate.
 

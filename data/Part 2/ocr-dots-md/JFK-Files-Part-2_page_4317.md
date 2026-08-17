@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4317.png
-
-Convert to Markdown13-00000
+13-00000
 
 The reasons for these casualty figures are the increasing effectiveness of Castro's internal security forces and discovery brought about when agents try to obtain food. No matter how good the documentation, an outsider in a community is viewed with suspicion.
 

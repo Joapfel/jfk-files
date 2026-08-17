@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1142.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In February, 1965, a mailing of a leaflet prepared by the FBI was made to residents, businesses and organizations in the neighborhood where the Philadelphia Clubhouse of the W. R. B. DuBois Club of America (BCA) was relocating (3260 N. Broad Street, Philadelphia). The leaflet was an announcement of the opening of the BCA and set out a disclaimer of its being a communist group. Its intent was to put anticomunist groups on notice of the BCA's presence.
 

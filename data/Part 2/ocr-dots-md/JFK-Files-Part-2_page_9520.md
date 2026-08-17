@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9520.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 WAYNE THEODORE ROBERTSON, leader of the Flint,
 Michigan branch of the Detroit NCCF, lead a discussion at

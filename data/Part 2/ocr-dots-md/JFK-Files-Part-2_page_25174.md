@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25174.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:<br/>COLBY<br/>LODGE, H.C.<br/>NSC</td><td></td><td>DATES:<br/>Fall 1963</td><td>CATEGORIES:<br/>DIEM</td></tr><tr><td colspan="4">stated</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:<br/>COLBY<br/>LODGE, H.C.<br/>NSC</td><td></td><td>DATES:<br/>Fall 1963</td><td>CATEGORIES:<br/>DIEM</td></tr><tr><td colspan="4">stated</td></tr></table>
 
 OCCURRENCE: Mr. COLBY stated that: "The Defense Department was almost totally in a position that the wars in the countryside, that the countryside seems to be going along reasonably well, that this (DIEM's continuance in office) is an urban problem, urban political problem which should not interfere with the main things going on. This was true of the Secretary and General HARKINS out there and the Joint Chiefs here and so forth". p. 62
 

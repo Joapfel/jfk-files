@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15265.png
-
-Convert to MarkdownThe French had instituted a special means of control for the non-French citizens residing in France, and Subject had neglected to get the proper documents. Subject stated that these were the only brushes with two French Police that he had while he was a youth.
+The French had instituted a special means of control for the non-French citizens residing in France, and Subject had neglected to get the proper documents. Subject stated that these were the only brushes with two French Police that he had while he was a youth.
 
 10. Regarding his Army career, Subject stated that in 1939 he volunteered for service in the French Foreign Legion. He stated that he had registered, with his class, for Army service but had never received a notice to report, and this was the reason for his volunteering in the Legion. Subject went with his group to Tunisia, where he was assigned to the cavalry.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12885.png
-
-Convert to MarkdownMay 21, 1975
+May 21, 1975
 
 The following represents the writer's recollection
 of testimony given this date before the Senate Select Committee

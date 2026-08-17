@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11099.png
-
-Convert to Markdown(b) Data to appear on separate attached card
+(b) Data to appear on separate attached card
 
 I. The following data must be placed on a separate
 card to be attached to reverse side of the security

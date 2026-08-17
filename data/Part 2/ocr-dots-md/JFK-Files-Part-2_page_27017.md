@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27017.png
-
-Convert to MarkdownIII. Misellaneous "histories" which were not requested but which considering the Senate Select Committee's Charter and stated areas of interest -- are in the nature of "glaring omissions"
+III. Misellaneous "histories" which were not requested but which considering the Senate Select Committee's Charter and stated areas of interest -- are in the nature of "glaring omissions"
 
 1. Staff relations with the Department of State and with Ambassadors, 1957-1967 (TS) (213)
 

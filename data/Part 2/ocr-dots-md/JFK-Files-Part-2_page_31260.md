@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31260.png
-
-Convert to Markdown002308
+002308
 
 so probably some plan
 1. 27 March 1961 AMBRNE/5

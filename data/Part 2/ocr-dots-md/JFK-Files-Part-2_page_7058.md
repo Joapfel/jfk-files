@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7058.png
-
-Convert to MarkdownSection B includes a discussion of the "Rule of Reason" that the Review Board ultimately adopted with regard to receiving evidence from the agencies.
+Section B includes a discussion of the "Rule of Reason" that the Review Board ultimately adopted with regard to receiving evidence from the agencies.
 
 c. *JFK Act requires the Review Board to balance evidence for postponement against public interest in release.*
 

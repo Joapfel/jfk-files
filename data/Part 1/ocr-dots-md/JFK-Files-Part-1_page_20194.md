@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20194.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 DATE: 31 July 1962

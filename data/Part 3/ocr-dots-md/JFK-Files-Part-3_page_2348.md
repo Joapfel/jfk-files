@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2348.png
-
-Convert to Markdown(SDS) during the Columbia University riots, the turmoil at San Francisco State College, and participation in the student unrest at the University of California at Berkeley California.
+(SDS) during the Columbia University riots, the turmoil at San Francisco State College, and participation in the student unrest at the University of California at Berkeley California.
 
 The PLP has been particularly successful in its attempts to play a major role in the activities of SDS. During the SDS National Convention, which ended on June 22, 1969, at Chicago, the PLP element succeeded in splitting the organization into two separate groups, each electing national officers and claiming their respective groups to be in control of SDS.
 

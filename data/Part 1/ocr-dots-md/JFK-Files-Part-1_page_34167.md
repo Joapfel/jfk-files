@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34167.png
-
-Convert to MarkdownMiami, June 10, 1966
+Miami, June 10, 1966
 
 Professor Torsten Gardlund
 Svenska Sockergabriks Aktiebolaget.

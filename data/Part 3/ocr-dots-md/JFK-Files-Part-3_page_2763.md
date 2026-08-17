@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2763.png
-
-Convert to Markdown1959
+1959
 
 Senator Tower. Any more questions?
 

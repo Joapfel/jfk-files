@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15398.png
-
-Convert to Markdown1 - Mr. Schaefer
+1 - Mr. Schaefer
 
 SAC, Washington Field
 15-63113

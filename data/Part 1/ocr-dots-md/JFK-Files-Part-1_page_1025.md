@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1025.png
-
-Convert to MarkdownPEREZ, Eduardo
+PEREZ, Eduardo
 
 1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
 

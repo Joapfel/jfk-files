@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7725.png
-
-Convert to Markdown4.12.07 In general, would you characterize him as
+4.12.07 In general, would you characterize him as
 Laconic ____ Average x Garrulaus ____
 
 4.12.08 In ordinary conversation, does the content tend to be primarily

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14198.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">ADVANCE COPY ☐ ISSUED ☑ SLOTTED</th></tr></thead><tbody><tr><td>BY: ____________________ AT: ___________ Z</td><td>INDEX ☐ YES ☐ NO</td></tr><tr><td>DISSENT BY: ____________________ PER: _________</td><td>X-REF TO FILE NO. ____________________<br/>FILE-RID: ☐ GET TO: ____________________ BRANCH ☐ DESTROY ☐ SIG.</td></tr><tr><td>ACTION ☐ RID COPY</td><td>INFO: ____________________<br/>FILE.VR: ____________________</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5716.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 This material contains information affecting the National Defense of the United States within the meaning of the Espenagoy Laws, Title 18, U.S.C. §§ 793 and 794, the transmission or revolution of which in any manner to an unauthorized person is prohibited by law.
 

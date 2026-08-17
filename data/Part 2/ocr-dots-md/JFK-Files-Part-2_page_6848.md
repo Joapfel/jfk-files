@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6848.png
-
-Convert to MarkdownFirst, vesting in a body outside--in an outside body the determination whether CIA materials related to the assassination can be released to the public is inconsistent with my own statutory responsibility to protect intelligence sources and methods.
+First, vesting in a body outside--in an outside body the determination whether CIA materials related to the assassination can be released to the public is inconsistent with my own statutory responsibility to protect intelligence sources and methods.
 
 Second, I am concerned that the joint resolution contains no provision requiring security clearances or secure document handling by the assassination materials review board or its staff.
 

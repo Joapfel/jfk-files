@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15761.png
-
-Convert to Markdowna fascist, a man that's responsible for the
+a fascist, a man that's responsible for the
 occupation of a ....
 (garbled voices here)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20960.png
-
-Convert to Markdown19 October 1954
+19 October 1954
 
 MEMORANDUM FOR: Chief, Psychological and Paramilitary
 Operations Staff

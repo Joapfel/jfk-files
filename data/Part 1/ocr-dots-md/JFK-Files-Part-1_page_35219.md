@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35219.png
-
-Convert to Markdown# FRENTES REVOLUCIONARIOS DEMOCRATICOS
+# FRENTES REVOLUCIONARIOS DEMOCRATICOS
 
 ## Manutención y Alquileres
 ### Mes de Julio de 1960

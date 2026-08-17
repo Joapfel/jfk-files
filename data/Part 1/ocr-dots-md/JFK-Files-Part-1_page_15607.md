@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15607.png
-
-Convert to Markdown14-00000
+14-00000
 
 ORIG: D. HESCHUR
 UNIT: AP/W/2

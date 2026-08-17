@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27067.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 Presumably Mr. Hilsman was also acting in response to NSAM 181. In any case, the paper he requested and the Board memorandum already requested by the DD/I were combined. Successive drafts of such a paper, prepared by the ONE staff, were quickly over-taken by the photography which became available after 29 August. At the USIB meeting of 7 September, further attempts to write it were deferred until the new information could be digested. This estimate, SNIE 85-3-62, was in fact passed by USIB on 19 September. Its substance will be discussed later. (See Paras. 26-29)
 

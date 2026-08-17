@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3806.png
-
-Convert to MarkdownMessrs. Horak, Vaughn and Wright.
+Messrs. Horak, Vaughn and Wright.
 
 July 6, 1975
 

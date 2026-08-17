@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15295.png
-
-Convert to Markdown# V-
+# V-
 ## PIERF of ACTIVITIES (Continued, 3)
 
 **D. II, continued:**

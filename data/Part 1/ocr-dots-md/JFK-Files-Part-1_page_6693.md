@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6693.png
-
-Convert to MarkdownNew Orleans, Jun-25-63
+New Orleans, Jun-25-63
 
 Dear Mr. Tella:
 

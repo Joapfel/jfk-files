@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7684.png
-
-Convert to Markdownvisited Mexico 31 Mar - 14 Apr 1967. While GIGORYEV was in Mexico he
+visited Mexico 31 Mar - 14 Apr 1967. While GIGORYEV was in Mexico he
 was reported in contact with Subject several times, once making plans to
 go to the movies together, also to ask Subject whether he should attend a
 French reception and to report the illness of one of the other Soviet delegates.

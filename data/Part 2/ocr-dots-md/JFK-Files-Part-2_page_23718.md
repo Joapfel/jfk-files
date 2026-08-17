@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23718.png
-
-Convert to Markdownnumber 27 because it has a bracketed portion that we might considerably do away with.
+number 27 because it has a bracketed portion that we might considerably do away with.
 
 That's page 40.
 

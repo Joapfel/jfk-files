@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18757.png
-
-Convert to Markdown14-0000
+14-0000
 
 VIA: Air (City/Air or Sea Pouch)
 

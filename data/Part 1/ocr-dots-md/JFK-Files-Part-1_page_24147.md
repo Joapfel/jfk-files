@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24147.png
-
-Convert to MarkdownRobert Tater
+Robert Tater
 
 (Los datos sobre la vida y curricula de estos señores anteriores a su visita a Cuba deberán encontrarse en otra parte.)
 

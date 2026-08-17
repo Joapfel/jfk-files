@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9055.png
-
-Convert to Markdown11. An amended cove: letter is awaited from WURRINY/1 as well as QJSALT/1's response to TICHBORN's assignment.
+11. An amended cove: letter is awaited from WURRINY/1 as well as QJSALT/1's response to TICHBORN's assignment.
 
 Gale W. Allen
 

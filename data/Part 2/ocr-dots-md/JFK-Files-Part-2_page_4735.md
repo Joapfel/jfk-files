@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4735.png
-
-Convert to MarkdownSECRET
+SECRET
 
 on the Committee staff. She arranged a dinner party with several of the new
 staff types - this is the Church Committee not the Pike Committee. Seymour

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27224.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

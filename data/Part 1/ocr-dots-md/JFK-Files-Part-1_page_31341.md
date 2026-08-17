@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31341.png
-
-Convert to Markdown(Information & Education Enlisted Specialist, Aug., 1944 - Feb, 1946)
+(Information & Education Enlisted Specialist, Aug., 1944 - Feb, 1946)
 
 4. Designed and prepared displays for War Information Centers in camp libraries, and in post headquarters. Developed visual aids for classroom use.
 

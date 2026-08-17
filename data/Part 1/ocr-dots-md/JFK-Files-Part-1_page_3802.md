@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3802.png
-
-Convert to MarkdownCentral South Internacional Inc.
+Central South Internacional Inc.
 
 P. O. BOX 1453 LITTLE RIVER STATION, MIAMI, FLA. 33128
 

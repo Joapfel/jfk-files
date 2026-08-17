@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19794.png
-
-Convert to Markdown4 May 1959
+4 May 1959
 
 MEMORANDUM FOR: Mr. James P. O'Connell
 

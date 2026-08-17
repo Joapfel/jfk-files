@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9835.png
-
-Convert to Markdown19 February, 1968
+19 February, 1968
 
 Subject: LIII/3 Report of Meeting with Carmen Lozada.
 

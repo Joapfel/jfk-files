@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3416.png
-
-Convert to MarkdownLos cubanos tenemos que lanzarnos a la lucha sin esperar por anunciar los eventuales internacionales que pueden venir o no venir.
+Los cubanos tenemos que lanzarnos a la lucha sin esperar por anunciar los eventuales internacionales que pueden venir o no venir.
 
 La revista de ciencia de las Cosas, en su号, ha publicado un artículo titulado "El viento va a ser más fuerte". El título y el contenido son los mismos. Pero la noticia es exacta. Es tan increíblemente ciuda que ya no hayamos podido suponerle un rango mínimo del which. No sé qué es el problema de Historia de hablar de diferencias. Si lo que se implica es Cuba una vs de-protected fidei Castro es un tru-tutelaiano o una Dictadura, wea de Inglésola o de Venezuela, MEDEPIMOR USARIO LOS PESILLOS.
 

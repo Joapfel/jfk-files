@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5382.png
-
-Convert to Markdown# INFORMATION REPORT
+# INFORMATION REPORT
 CENTRAL INTELLIGENCE AGENCY
 
 The information contained in this report affecting the National Defense of the United States under the control of the Intelligence Laws, Title 18, USC Section 743 and 754, shall not be transmitted or reproduced by any manner to an unauthorized person, nor shall it be used by any other Government agency.

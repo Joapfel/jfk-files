@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9278.png
-
-Convert to Markdown# FEDERAL BUREAU OF INVESTIGATION
+# FEDERAL BUREAU OF INVESTIGATION
 
 <table>
    <thead>

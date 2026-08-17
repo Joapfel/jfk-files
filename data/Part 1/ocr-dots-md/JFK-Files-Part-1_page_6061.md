@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6061.png
-
-Convert to MarkdownJá em 1906.
+Já em 1906.
 
 A partir de lá, até hoje não consideramos que a fronteira de poder se torna tal o Salvador. Mas é do Castro que temos de virar umIRO para o Sur.
 

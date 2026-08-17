@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3639.png
-
-Convert to Markdown5. USSR-Berlin
+5. USSR-Berlin
 
 c. The USSR may repeat last year's performance of multiple firings from a prototype operational complex at Tyuratam. Three such launchings were attempted at five-minute intervals in May 1963; two succeeded.
 

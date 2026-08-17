@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24490.png
-
-Convert to Markdownviving CIA policy maker with first hand knowledge of high-level decision-making in the early phases of the Castro assassination efforts. Bissell testified that he believed Allen Dulles had informed the President (although Dulles did not so inform him) and that accordingly the plots had been approved by the highest authority. Bissell was questioned about how he felt the President would have been made aware of the plots:
+viving CIA policy maker with first hand knowledge of high-level decision-making in the early phases of the Castro assassination efforts. Bissell testified that he believed Allen Dulles had informed the President (although Dulles did not so inform him) and that accordingly the plots had been approved by the highest authority. Bissell was questioned about how he felt the President would have been made aware of the plots:
 
 "Senator Baker: ...You have no reason to think that he [Dulles] didn't or he did [brief President Kennedy]. But the question I put was whether or not in the ordinary course of the operations of the CIA as you know it under their traditions, their rules and regulations, their policies as you knew them what in your opinion -- [w]as the President, President-elect briefed or was he in the light of all these circumstances?
 

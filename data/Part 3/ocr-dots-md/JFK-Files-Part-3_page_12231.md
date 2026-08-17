@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12231.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 5/8/70
 

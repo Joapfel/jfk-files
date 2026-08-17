@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6376.png
-
-Convert to Markdown104-10333-10013
+104-10333-10013
 
 FOR OFFICIAL USE ONLY
 

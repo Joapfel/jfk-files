@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16401.png
-
-Convert to MarkdownPeople of the world, unite and defeat the U.S. aggressors and all their running dogs! People of the world, be courageous, dare to fight, defy difficulties and advance wave upon wave. Then the whole world will belong to the people. Monsters of all kinds shall be destroyed.
+People of the world, unite and defeat the U.S. aggressors and all their running dogs! People of the world, be courageous, dare to fight, defy difficulties and advance wave upon wave. Then the whole world will belong to the people. Monsters of all kinds shall be destroyed.
 
 MAO TSE-TUNG
 

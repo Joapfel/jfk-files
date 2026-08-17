@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20405.png
-
-Convert to Markdown**In reply, Please Refer to**
+**In reply, Please Refer to**
 **File No. 100-44707**
 
 Title DEMONSTRATION PROTESTING U.S. POLICY IN VIET NAM, WASHINGTON, D.C., JANUARY 15 - 16, 1968

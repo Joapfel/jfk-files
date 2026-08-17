@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4682.png
-
-Convert to MarkdownFBI CABLES
+FBI CABLES
 
 FROM DIRECTOR, FBI
 DATE 8 DECEMBER 1977

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10835.png
-
-Convert to MarkdownRecado que recibimos de Pradito, antiguo "hombre rana" de la CIA: "A pesar conciudado que los traficantes de drogas a los que ustedes han denunciado do en sus criminales manejos, han tratado a dos asesinos que matan por dinero para que los ataquen a ustedes. Lo unico que puedo decir es que los dos fueron oficiales del ejercicio de Castro".
+Recado que recibimos de Pradito, antiguo "hombre rana" de la CIA: "A pesar conciudado que los traficantes de drogas a los que ustedes han denunciado do en sus criminales manejos, han tratado a dos asesinos que matan por dinero para que los ataquen a ustedes. Lo unico que puedo decir es que los dos fueron oficiales del ejercicio de Castro".
 
 Decimos nosotros: ";Huy, que miedo! .."
 

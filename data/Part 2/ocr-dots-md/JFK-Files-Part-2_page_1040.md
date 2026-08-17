@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1040.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 AUG 1967
 

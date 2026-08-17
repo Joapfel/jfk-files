@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5315.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 8 October 1997

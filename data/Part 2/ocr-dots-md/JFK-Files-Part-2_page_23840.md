@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23840.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Senator Huddleston. Well, where will it disappear now? It won't come to the authorization committee and the appropriations committee. I mean, it won't be a line item.
 

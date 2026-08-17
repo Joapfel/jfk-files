@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5448.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG:</td>
     <td>R. Borg</td>

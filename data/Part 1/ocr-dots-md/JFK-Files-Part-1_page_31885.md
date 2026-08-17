@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31885.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE PROPOSED</td>
     <td colspan="6">NOTIFICATION OF PERSONNEL ACTION</td>

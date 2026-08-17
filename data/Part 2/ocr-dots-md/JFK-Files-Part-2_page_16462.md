@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16462.png
-
-Convert to MarkdownI think that this is a revolutionary thing in itself. That's political power. That's power itself. Matter of fact what is power other than the ability to define phenomenon and then make it act in a desired manner? When black people start defining things and making it act in a desired manner, then we call this Black Power!
+I think that this is a revolutionary thing in itself. That's political power. That's power itself. Matter of fact what is power other than the ability to define phenomenon and then make it act in a desired manner? When black people start defining things and making it act in a desired manner, then we call this Black Power!
 
 MOVEMENT: Would you comment further on what you mean by Black Power?
 

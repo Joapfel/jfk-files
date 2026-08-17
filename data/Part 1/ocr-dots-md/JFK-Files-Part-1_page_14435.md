@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14435.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>MESSAGE FORM<br/>TOTAL SIZE: ... K</td><td colspan="3">EQUIPMENT IN PERSONNEL - SEEN BY:</td></tr></thead><tbody><tr><td rowspan="4">S E C R E T</td><td>1</td><td>5</td><td></td></tr><tr><td>2</td><td>6</td><td></td></tr><tr><td>3</td><td>7</td><td></td></tr><tr><td>4</td><td>8</td><td></td></tr></tbody></table>
 

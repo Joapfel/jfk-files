@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4483.png
-
-Convert to Markdown# FEDERAL E'JREAU OF INVESTIGATION
+# FEDERAL E'JREAU OF INVESTIGATION
 
 <table>
     <tr>

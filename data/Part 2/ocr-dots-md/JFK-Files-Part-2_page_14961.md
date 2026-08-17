@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14961.png
-
-Convert to MarkdownFlorida, (all in connection with organized crime matters) and the Dominican Embassy (in connection with security matters). Details concerning these installations were set forth in a summary memorandum regarding the Bureau's involvement in the prosecution of Baker dated 1/10/67.
+Florida, (all in connection with organized crime matters) and the Dominican Embassy (in connection with security matters). Details concerning these installations were set forth in a summary memorandum regarding the Bureau's involvement in the prosecution of Baker dated 1/10/67.
 
 Logs relative to the electronic surveillances on Black, the Fremont Hotel and Siegelbaum were furnished to the Department and excerpts were furnished to the trial judge who ordered that they be made available to the defense. These logs were the subject of pretrial hearings during November, 1966, following which the judge ruled that there was no causal relationship between the information in the logs and the charges in the indictment.
 

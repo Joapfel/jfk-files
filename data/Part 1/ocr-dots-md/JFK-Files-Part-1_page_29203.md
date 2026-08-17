@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29203.png
-
-Convert to MarkdownChange in Population of United States and Ireland - 1760-1820
+Change in Population of United States and Ireland - 1760-1820
 
 logarithmic scale
 

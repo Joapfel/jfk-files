@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18302.png
-
-Convert to MarkdownAttachment I.
+Attachment I.
 
 1. Charles C. Kissinger
 

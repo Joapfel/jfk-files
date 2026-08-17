@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4828.png
-
-Convert to MarkdownSECRET
+SECRET
 
 confession everyday is the other side to that same question.
 

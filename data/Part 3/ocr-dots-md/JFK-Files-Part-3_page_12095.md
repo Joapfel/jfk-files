@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12095.png
-
-Convert to MarkdownESPIONAGE SECTION
+ESPIONAGE SECTION
 
 |                       | Cases | Men   | Average |
 | :-------------------- | -----: | ----: | -------: |

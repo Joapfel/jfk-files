@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6711.png
-
-Convert to MarkdownRE: PROJECT HUNTER
+RE: PROJECT HUNTER
 
 8. Any traffic from or to U. S. Students in Moscow or to U. S. persons who were former students in Moscow.
 

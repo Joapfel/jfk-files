@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29562.png
-
-Convert to MarkdownMr.
+Mr.
 Dear Mr.
 
 The United States Government, as represented by the Contracting Officer, hereby contracts with you as a Contract Employee for the use of your services and the performance of duties of a confidential nature under the following terms and conditions:

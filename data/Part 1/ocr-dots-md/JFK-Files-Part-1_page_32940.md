@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32940.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:<br/><br/><table border="1" style="border-collapse: collapse;"><tbody><tr><td rowspan="5">S E C R E T</td><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><td>5</td></tr></tbody></table></td></tr></table>
+<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:<br/><br/><table border="1" style="border-collapse: collapse;"><tbody><tr><td rowspan="5">S E C R E T</td><td>1</td></tr><tr><td>2</td></tr><tr><td>3</td></tr><tr><td>4</td></tr><tr><td>5</td></tr></tbody></table></td></tr></table>
 
 ORIG.
 UNIF.

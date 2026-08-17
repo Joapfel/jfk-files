@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8712.png
-
-Convert to MarkdownCALLER : Says he is from the revolutionary newspaper and would like the opinion of Dr. Roa regarding the assassination of Kennedy.
+CALLER : Says he is from the revolutionary newspaper and would like the opinion of Dr. Roa regarding the assassination of Kennedy.
 
 PEREGRINA : Repeats that Roa is in Havana, and with regards to Kennedy, they can't say anything because they know nothing about it and the Ambassador isn't around at the moment.
 

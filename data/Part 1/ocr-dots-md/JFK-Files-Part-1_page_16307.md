@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16307.png
-
-Convert to MarkdownUSARM A Document = 88945
+USARM A Document = 88945
 DATE: December 1964
 SUBJECT: WICKS, Alister
 CLASSIFICATION: Confidential

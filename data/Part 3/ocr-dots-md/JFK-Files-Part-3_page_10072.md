@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10072.png
-
-Convert to MarkdownNRØØ1 MP CODED
+NRØØ1 MP CODED
 
 7:13 PM NITEL MARCH 25, 1975 DSC
 TO DIRECTOR

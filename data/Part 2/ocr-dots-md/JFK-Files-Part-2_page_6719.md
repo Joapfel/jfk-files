@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6719.png
-
-Convert to MarkdownMr. John Pereira
+Mr. John Pereira
 
 December 18, 1997
 Page 6

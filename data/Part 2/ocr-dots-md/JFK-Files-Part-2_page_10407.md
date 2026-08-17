@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10407.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of
+SUBJECT: Sensitive Activities Performed by the Office of
 Logistics
 
 assistance in connection with the political conventions

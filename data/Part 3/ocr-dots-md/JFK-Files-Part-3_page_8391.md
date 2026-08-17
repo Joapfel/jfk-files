@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8391.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 VII. TACTICS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_930.png
-
-Convert to MarkdownSECRET
+SECRET
 
 READING ANALYSIS PROGRAM
 

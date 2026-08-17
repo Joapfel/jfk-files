@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2372.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>EMPLOYER NAME</th>

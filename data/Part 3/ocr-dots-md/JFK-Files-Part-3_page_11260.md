@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11260.png
-
-Convert to Markdown## PAGE TWO . AT 100-0
+## PAGE TWO . AT 100-0
 
 POSITION                                            PER CENT OF TIME
 3 HEADQUARTERS CITY AGENTS      WORKING             10

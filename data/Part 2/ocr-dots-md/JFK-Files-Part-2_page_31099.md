@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31099.png
-
-Convert to Markdown⑩ PRQ Part II 3 May 1963
+⑩ PRQ Part II 3 May 1963
 Subject will be CIA penetration of a Cuban offshore group & will be paid a monthly stipend depending on amount & type of his production
 
 ⑪ Cable 8 July 1963 IN 7543

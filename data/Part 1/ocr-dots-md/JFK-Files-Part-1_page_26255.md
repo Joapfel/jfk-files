@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26255.png
-
-Convert to MarkdownTranslation of letter of introduction to Rico Galan
+Translation of letter of introduction to Rico Galan
 
 12 January 1967
 

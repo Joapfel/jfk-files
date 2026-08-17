@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11928.png
-
-Convert to MarkdownOGC 75-1073
+OGC 75-1073
 
 5 November 1975
 

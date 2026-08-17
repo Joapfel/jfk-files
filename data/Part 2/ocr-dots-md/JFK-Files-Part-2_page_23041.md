@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23041.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. I mentioned to you earlier when we were in touch with an individual whose name I cannot remember who had been involved with one of the gambling houses in Cuba who came to us with leads to Soviets from a missile site who wanted to defect.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10081.png
-
-Convert to MarkdownMAR 26 1975
+MAR 26 1975
 
 NR001 NO CODE
 

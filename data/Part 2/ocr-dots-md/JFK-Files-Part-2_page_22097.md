@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22097.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
  dates: FEB, 1961 (APPROXIMATE)
 CUBA - PHASE I

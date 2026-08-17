@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13804.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Monthly financial aid from the Cuban Embassy in Rio de Janeiro to Julio's left-wing peasant leagues in northeastern Brazil has reportedly been cut off by orders from Havana. A key leader of the President Communist Party of Brazil may have been responsible for the cutoff by recently revealing the serious internal friction within Julio's organization to a Cuban Embassy official. (CIP DPB Recife TDCS-3,530,312, 5 December, CONFIDENTIAL)
 

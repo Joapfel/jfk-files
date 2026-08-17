@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1970.png
-
-Convert to MarkdownLS 66-2612
+LS 66-2612
 
 E F T O PAGE THREE
 

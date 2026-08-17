@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27246.png
-
-Convert to MarkdownB-G-G (II-00)
+B-G-G (II-00)
 
 A - Ltr from Chairman, CAB to Mr. Belin - 13 May 75 (SECRET) w/attachment
 

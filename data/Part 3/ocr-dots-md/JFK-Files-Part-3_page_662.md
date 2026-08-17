@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_662.png
-
-Convert to MarkdownAPPENDIX CONTINUED
+APPENDIX CONTINUED
 
 The first source above advised that KARENGA also stated that race riots throughout the country were not riots but were actually revolts or revolutions and that the black people were going to win their freedom by violence, if necessary.
 

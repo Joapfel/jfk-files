@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28513.png
-
-Convert to MarkdownRESUME
+RESUME
 
 Dominick Kevin Giangrasso
 7902 Wallace Road

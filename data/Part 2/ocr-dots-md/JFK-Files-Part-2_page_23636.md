@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23636.png
-
-Convert to Markdowngiving he is responsible for preparing the community's budget, and he has this Committee for this purpose in trying to place responsibility squarely on him to do that.
+giving he is responsible for preparing the community's budget, and he has this Committee for this purpose in trying to place responsibility squarely on him to do that.
 
 Now this would not mean, however, that the Secretary of Defense be senior to him in the cabinet. I mean the National Security Council could not make a reclama and could not go over his head.
 

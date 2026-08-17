@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9214.png
-
-Convert to MarkdownDE T-1
+DE T-1
 February 5, 1974
 
 ## II. MEMBERSHIP

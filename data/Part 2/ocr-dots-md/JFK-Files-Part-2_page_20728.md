@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20728.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 BS 100-43809
 

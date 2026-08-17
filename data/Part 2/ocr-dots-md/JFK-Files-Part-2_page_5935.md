@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5935.png
-
-Convert to Markdownk. Federal Bureau of Investigation report dated
+k. Federal Bureau of Investigation report dated
 3 July 1961 from Dallas, Texas
 
 I. Note to CI/SI dated 28 September 1961

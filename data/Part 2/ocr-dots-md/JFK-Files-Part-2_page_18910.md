@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18910.png
-
-Convert to Markdown9/30/70
+9/30/70
 
 SAG, WFO
 

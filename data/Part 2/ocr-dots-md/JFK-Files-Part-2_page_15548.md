@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15548.png
-
-Convert to Markdownmembers from Chicago on charges of Offense Against Property Actarceny, and one of the individuals, CLEVELAND COOK, for violation of the 1935 Firearms Act. The other two arrested were JEWEL L. COOK, brother of CLEVELAND, and WILLIE J. CALVIN. The automobile they were driving was registered to CLEVELAND COOK, and a gun was found in the glove compartment. Lieutenant LASLEY advised that the three appeared in Marion County Municipal Court on the morning of October 1, 1969, and they were all held on bond; JEWEL COOK and WILLIE CALVIN on $3,500 surety bond, and CLEVELAND COOK on $7,500 surety bond.
+members from Chicago on charges of Offense Against Property Actarceny, and one of the individuals, CLEVELAND COOK, for violation of the 1935 Firearms Act. The other two arrested were JEWEL L. COOK, brother of CLEVELAND, and WILLIE J. CALVIN. The automobile they were driving was registered to CLEVELAND COOK, and a gun was found in the glove compartment. Lieutenant LASLEY advised that the three appeared in Marion County Municipal Court on the morning of October 1, 1969, and they were all held on bond; JEWEL COOK and WILLIE CALVIN on $3,500 surety bond, and CLEVELAND COOK on $7,500 surety bond.
 
 ( .9/30/69)
 

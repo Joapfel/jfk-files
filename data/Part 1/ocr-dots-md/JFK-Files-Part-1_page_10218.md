@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10218.png
-
-Convert to Markdown12 December, 1968
+12 December, 1968
 
 Subject: LIRING/3 Receipt of Letter from Gustavo Colindres.
 

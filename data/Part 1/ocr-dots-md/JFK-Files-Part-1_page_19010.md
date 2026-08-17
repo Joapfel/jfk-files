@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19010.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 <table><tr><td>This material contains information affecting the National Defense of the United States within the meaning of the Enbodyage Laws, Title 10, U.S.C. Secs. 792 et seq., the transmission or revelation of which in any manner to an unauthorized person is prohibited by law.</td></tr></table>
 

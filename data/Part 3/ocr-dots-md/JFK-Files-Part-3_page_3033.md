@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3033.png
-
-Convert to MarkdownMR. ADAMS: We disseminated every single item which he reported to us.
+MR. ADAMS: We disseminated every single item which he reported to us.
 
 QUESTION: To a police department which you knew was an accomplice to the crime.
 

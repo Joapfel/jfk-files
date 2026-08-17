@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31790.png
-
-Convert to MarkdownMexico City October 1977
+Mexico City October 1977
 
 IN424833
 MEXI 42342

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19036.png
-
-Convert to Markdown1. Bayerische Elected 1865 - NED's First Effort
+1. Bayerische Elected 1865 - NED's First Effort
 
 2. 13 March 1865, parliamentary elections, Schleswig-Holstein, (NEO Right directive not to participate. A few did)
 

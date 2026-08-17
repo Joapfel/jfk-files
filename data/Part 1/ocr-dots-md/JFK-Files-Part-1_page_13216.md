@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13216.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td><td></td><td>DISTRIBUTION AND DISTRIBUTION STATEMENT - COPY BY:</td></tr><tr><td colspan="3">SECRET</td></tr><tr><td>DATE</td><td></td><td>(a)(i) (in No.)<br/>(refer to No. in table below)</td></tr><tr><td>CABLE SECRETARY DISSEMINATION</td><td>☐ INDEX ☐ DESTROY ☐ RETURN TO _________ BRANDER ☐ FILE NO.</td><td>CITE DIRECTOR 71548</td></tr><tr><td>BY:______________________ P.O.:_____________</td><td>☐ NO INDEX ☐ FILE IN CI FILE NO.</td><td></td></tr><tr><td>COPIES:</td><td>☐ END COPY</td><td>NOW REPRINT ON PLE VB</td></tr><tr><td>(Classification)</td><td>(Date and time filed)</td><td>(Reference number)</td></tr></table>
 

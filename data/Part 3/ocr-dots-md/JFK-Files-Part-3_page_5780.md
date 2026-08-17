@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5780.png
-
-Convert to MarkdownRe: "National Guardian,"
+Re: "National Guardian,"
 Weekly Guardian Associates, Inc.;
 Internal Security - C
 Internal Security Act of 1950

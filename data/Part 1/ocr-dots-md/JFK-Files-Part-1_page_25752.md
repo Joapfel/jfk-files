@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25752.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>TO : Chief, WH Division</td>

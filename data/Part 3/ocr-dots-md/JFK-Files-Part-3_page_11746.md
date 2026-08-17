@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11746.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR E. S. MILLER:
 (ESM:wmj 8/26/71)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7532.png
-
-Convert to MarkdownPg. 95 - At hospital was orderly by name of Ivan. There were other young interns, orderlies, etc., there.
+Pg. 95 - At hospital was orderly by name of Ivan. There were other young interns, orderlies, etc., there.
 
 Pg. 99 - Some months before Kennedy was killed, an inquiry was being circulated, about this man (Saul). Someone wanted to contact him. Word went out that someone needed his services.
 

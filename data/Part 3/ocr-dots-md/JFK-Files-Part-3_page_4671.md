@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4671.png
-
-Convert to MarkdownUNI: D STATES DEPARTMENT OF J. TICE
+UNI: D STATES DEPARTMENT OF J. TICE
 FEDERAL BUREAU OF INVESTIGATION
 
 In Reply, Please Refer to

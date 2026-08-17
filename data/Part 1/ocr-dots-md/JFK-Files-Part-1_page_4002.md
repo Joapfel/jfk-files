@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4002.png
-
-Convert to MarkdownArtime ... 3
+Artime ... 3
 
 I believe his key contribution may be in the area of rural organization and motivation. He and his men (he said he has 220 available for immediate action) need rural organization training. Only a few know much about it. I suggested therefore he investigate the cooperative training school at Antigonish, Nova Scotia, which from everything I have been able to find out in Panama and elsewhere is the best thing of its kind in the world. He said he had heard of it very favorably and mentioned he would talk with a Bishop friend of his and see if he could get some of his men enrolled in the school immediately.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22781.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **RENORANDUM TO:** Chairman, CS Agent Panel
 

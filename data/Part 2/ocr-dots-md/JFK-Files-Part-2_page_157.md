@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_157.png
-
-Convert to MarkdownSECRET
+SECRET
 
 liberally apply importance to a wide variety of events and subjects, and since she is likely to be short of money shortly after arriving, WE Division believes there is a possibility she may try to establish contact.
 

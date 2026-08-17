@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14156.png
-
-Convert to Markdown2 - Mr. A. Mintz
+2 - Mr. A. Mintz
 (1 Mr. J. B. H)
 1 - Mr. W. R. Wannall
 1 - Mr. W. O. Cregar

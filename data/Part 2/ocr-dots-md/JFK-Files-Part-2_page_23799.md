@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23799.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the CIA should be prohibited from using American media organizations for cover.
 

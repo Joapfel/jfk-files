@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33830.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Accordingly, we have requested that we be provided with a list,
 together with any available information regarding the political

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15045.png
-
-Convert to MarkdownMemo to the File
+Memo to the File
 
 On 5 Feb 63 CO went to Bonn to talk with OCA re the KIRGUE case. and the BfV request for information on him.
 

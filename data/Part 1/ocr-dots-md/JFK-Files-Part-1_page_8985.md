@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8985.png
-
-Convert to Markdownwould be extremely valuable if properly handled.
+would be extremely valuable if properly handled.
 
 b) Recommends that the Ll families be approached on a millionaire to millionaire basis to cooperate with a reasonable reformist movement. also that they be approached by the quick time he would be
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26025.png
-
-Convert to Markdown-57-
+-57-
 
 LANSDALE:
 

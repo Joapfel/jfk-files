@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3235.png
-
-Convert to MarkdownSection XIX
+Section XIX
 
 G. RELIY, EUGENE
 Riga, USSR

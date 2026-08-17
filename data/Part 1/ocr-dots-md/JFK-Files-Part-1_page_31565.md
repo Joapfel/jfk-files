@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31565.png
-
-Convert to Markdown# CUMBERLY IRRIGATION
+# CUMBERLY IRRIGATION
 
 Mr. Redwood
 917-1

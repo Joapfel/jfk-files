@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13782.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Report & CC-658, , 28 May 64 (cont.)
 

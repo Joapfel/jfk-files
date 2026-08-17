@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2298.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 37-1
 NOV 1949

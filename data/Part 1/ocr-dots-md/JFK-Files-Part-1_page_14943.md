@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14943.png
-
-Convert to MarkdownPicture of
+Picture of
 AFASPIC
 
 SR/DOR PICTURES FOR

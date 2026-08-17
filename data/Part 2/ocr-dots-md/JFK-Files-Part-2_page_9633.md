@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9633.png
-
-Convert to MarkdownFor example:
+For example:
 
 One researcher might read every book available on "escape and evasion" and all the stories or articles written on prison escapes, looking for ideas that might someday help our members escape from a concentration camp.
 

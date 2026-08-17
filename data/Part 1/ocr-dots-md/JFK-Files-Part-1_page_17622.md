@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17622.png
-
-Convert to MarkdownAttachment to H34-A-10198
+Attachment to H34-A-10198
 
 KAPOR-1401
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3265.png
-
-Convert to Markdownhave expressed public support for, an organization which has
+have expressed public support for, an organization which has
 as its objective activities which may involve violence. The
 purpose of the preliminary investigation is to verify or refute
 the allegations or information. However, the vagueness of the

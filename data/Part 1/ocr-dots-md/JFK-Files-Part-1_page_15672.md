@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15672.png
-
-Convert to MarkdownLettre de Consommation N°:
+Lettre de Consommation N°:
 
 conclut le 11 mai 1961 et terminé
 

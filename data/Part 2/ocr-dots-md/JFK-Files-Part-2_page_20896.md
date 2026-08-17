@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20896.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : DIRECTOR, FBI
 

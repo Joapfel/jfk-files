@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10497.png
-
-Convert to MarkdownNEW 88608 DocId:32989628 Page 334
+NEW 88608 DocId:32989628 Page 334
 
 CTT E-1 MARCH 05 CTR
 

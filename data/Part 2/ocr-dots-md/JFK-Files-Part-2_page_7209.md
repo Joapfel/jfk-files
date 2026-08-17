@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7209.png
-
-Convert to Markdown17 OCT 1975
+17 OCT 1975
 
 MEMORANDUM FOR: DDO Division and Staff Chiefs
 SUBJECT : The Director's Greeting Card List

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5911.png
-
-Convert to MarkdownQuestion 6 - Where are records that would describe liaison (etc) cooperation or operations between OS and CI located? How are these records organized?
+Question 6 - Where are records that would describe liaison (etc) cooperation or operations between OS and CI located? How are these records organized?
 
 With the short turnaround time imposed on responding to this request no information could be readily located to provide an answer to this question. It is believed that if information of this nature does exist, it may be located in archived policy or administrative files of the Office of Security and/or Security Research Staff. Retrieval and review of this information would require an extensive research effort. Officers who may possess knowledge of this type of record were queried and it was suggested that info responsive to this question may possibly be located in DO records.
 

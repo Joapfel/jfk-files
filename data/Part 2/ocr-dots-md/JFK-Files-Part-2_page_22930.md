@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22930.png
-
-Convert to Markdown144
+144
 
 was excluded in order to avoid his martyrdom.
 

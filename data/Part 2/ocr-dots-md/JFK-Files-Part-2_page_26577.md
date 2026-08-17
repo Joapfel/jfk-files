@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26577.png
-
-Convert to Markdownc. Now the Peasant Party, one of the three in the coalition, has voted to pull out, and probably will do so as soon as Inonu gets back from Washington. Another partner, the Turkey Party, has wanted to pull out, and apparently has stayed in only because of pressure from the military.
+c. Now the Peasant Party, one of the three in the coalition, has voted to pull out, and probably will do so as soon as Inonu gets back from Washington. Another partner, the Turkey Party, has wanted to pull out, and apparently has stayed in only because of pressure from the military.
 
 d. A new coalition is at least a theoretical possibility, with a number of independents taking the place of the Peasant Party, but Inonu probably would not be prime minister.
 

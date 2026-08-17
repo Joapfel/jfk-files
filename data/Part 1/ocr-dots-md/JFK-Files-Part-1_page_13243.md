@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13243.png
-
-Convert to Markdown12. A. JMWAVE 318. IN 1749, 23 September 1966 stated that Madrid-8990 (IN 85265) reported that Roberto arrived in Madrid from Havana 26 August 1966. Only other station traces on Roberto is (transmittal Luis POSADA PRC Part 1) UFGA 20828, which passed information provided by Subject.
+12. A. JMWAVE 318. IN 1749, 23 September 1966 stated that Madrid-8990 (IN 85265) reported that Roberto arrived in Madrid from Havana 26 August 1966. Only other station traces on Roberto is (transmittal Luis POSADA PRC Part 1) UFGA 20828, which passed information provided by Subject.
 
 19.C.² AWOT files show Roberto in charge of telepone center at Buena Vista, Mariana according to telephone company bulletin of June 1964. D. AMOT-214 in oct 64 reported Roberto's id been an employee of the Telephone Company
 

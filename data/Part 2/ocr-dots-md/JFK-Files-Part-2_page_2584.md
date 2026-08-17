@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2584.png
-
-Convert to MarkdownSECRET
+SECRET
 
 File No. 2205
 13 July 1961

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7466.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO</td><td>Chief, DO</td><td>SECRET</td><td>RECEIVED FOR DEPOSITING</td></tr><tr><td>NO.</td><td></td><td></td><td>X NO RECEIVING REQUIRED</td></tr><tr><td>FROM</td><td>WOMACE Representative, Boston</td><td></td><td>APPROVED QUALIFIED DESK CAN BE GIFT ENVELOPED</td></tr><tr><td>SUBJECT</td><td>ISOLOG/WUSPARROW/Operational<br/>Dr. Harold R. ISAACS, Professor of Political Science at M.I.T.</td><td></td><td>BROKEN</td></tr><tr><td>ACTION REQUIRED</td><td colspan="3">REFERENCES</td></tr></tbody></table>
 

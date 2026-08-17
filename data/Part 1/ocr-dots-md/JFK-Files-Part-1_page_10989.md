@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10989.png
-
-Convert to Markdowntional tourism intensively and, of course, is bringing in a lot of money.
+tional tourism intensively and, of course, is bringing in a lot of money.
 
 But what boring things I'm writing! I'm sure that you are already sleepy. Not by any means do I want you to think that these are exercises in Spanish so as not to forget it. I simply want to relate some of my impressions and observations, and you, a man so good and fine, can understand, can't you?
 

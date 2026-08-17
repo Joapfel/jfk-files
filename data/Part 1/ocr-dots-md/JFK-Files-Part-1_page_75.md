@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_75.png
-
-Convert to MarkdownFIELD DISTRIBUTION
+FIELD DISTRIBUTION
 
 A Division
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26458.png
-
-Convert to Markdown# Carta del Dr. Álvarez Ramírez sobre la crisis en su Partido
+# Carta del Dr. Álvarez Ramírez sobre la crisis en su Partido
 
 Befor
 

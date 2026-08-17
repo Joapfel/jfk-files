@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26513.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. But by and large, our evidence shows that Cuba is not now attempting a large program of physical support for Latin American revOLUTIONaries. It is, rather, concentrating on supplying the inspiration, the guidance, the training, and the communications and technical assistance they require.
 

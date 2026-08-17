@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22491.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Ober's Operation: (continued)
 

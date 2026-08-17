@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4321.png
-
-Convert to Markdown-2-
+-2-
 
 Operation No. 31110: A sea rendezvous with Cuban fishermen for the purpose of establishing a ratline into Cuba.
 

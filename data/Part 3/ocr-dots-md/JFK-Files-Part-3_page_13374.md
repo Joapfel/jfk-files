@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13374.png
-
-Convert to MarkdownSTURGIS: No, sir, because I was very hot at this and Seymour Hersh told me that it was in the outline--yes, he told me, I believe he told me, that it was in the outline that Andrew made up, supposedly that we both made together. And I told Seymour Hersh that I did not make no outline up with Andrew St. George. I don't know what's in it.
+STURGIS: No, sir, because I was very hot at this and Seymour Hersh told me that it was in the outline--yes, he told me, I believe he told me, that it was in the outline that Andrew made up, supposedly that we both made together. And I told Seymour Hersh that I did not make no outline up with Andrew St. George. I don't know what's in it.
 
 OLSEN: Do you know whether at any time while you were being interviewed by Andrew St. George he was making a recording of the conversation?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1969.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 N 20-190-139
 

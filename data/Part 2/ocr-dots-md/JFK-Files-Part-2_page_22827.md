@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22827.png
-
-Convert to Markdown1 it didn't depend on anybody else's notes or anybody else's
+1 it didn't depend on anybody else's notes or anybody else's
 2 refreshing his recollection.
 
 3 Mr. Bundy. That he didn't say to me, and I have no way

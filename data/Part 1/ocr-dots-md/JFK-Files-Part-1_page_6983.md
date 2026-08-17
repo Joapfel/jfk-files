@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6983.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MAURICE HYMAN HALPERIN
 

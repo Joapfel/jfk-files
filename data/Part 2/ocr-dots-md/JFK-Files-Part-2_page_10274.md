@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10274.png
-
-Convert to MarkdownCONTROLED DISSEMIN
+CONTROLED DISSEMIN
 
 DEVELOPMENTS:
 

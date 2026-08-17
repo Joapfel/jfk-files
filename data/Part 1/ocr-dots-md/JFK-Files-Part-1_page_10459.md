@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10459.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>REPORT NO.</td><td>00-525501</td></tr><tr><td>DATE DISTR.</td><td>Jan 57</td></tr><tr><td>NO. PAGES</td><td>2</td></tr></table>
 

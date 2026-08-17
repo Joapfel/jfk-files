@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13397.png
-
-Convert to Markdownizations described above should be investigated when
+izations described above should be investigated when
 mation is received indicating their involvement. The
 yardstick indicated above for organizations in deter-
 ing whether the investigation should continue, should apply

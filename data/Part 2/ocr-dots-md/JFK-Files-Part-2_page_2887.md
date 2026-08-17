@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2887.png
-
-Convert to Markdown# NOTIFICATION OF PERSONNEL ACTION
+# NOTIFICATION OF PERSONNEL ACTION
 
 Mr. William M. Kent 5-9-29 PSA 6 6-26-58
 Limited Appointment 7/23/58 Section 522.1

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15700.png
-
-Convert to Markdown# Termination
+# Termination
 
 1. Project: WIRGUE
 

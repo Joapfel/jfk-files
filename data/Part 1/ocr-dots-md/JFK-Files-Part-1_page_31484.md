@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31484.png
-
-Convert to Markdowndevelop its interest in the European refugee field, a new instrument must be found. These factors also tend to indicate roughly some of the qualities which this instrument must possess.
+develop its interest in the European refugee field, a new instrument must be found. These factors also tend to indicate roughly some of the qualities which this instrument must possess.
 
 1. No single exile organization engaged in refugee activity, including those receiving NCF support, is consistently good in all of its local branches. This observation applies also to those organizations receiving NCF support which do not fall into the national council category (the APGR and Romanian Welfare).
 

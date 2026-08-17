@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9083.png
-
-Convert to MarkdownSECRET
+SECRET
 
 By letter dated June 26, 1958, we voiced our concern regarding CIA's alleged interview with a Chinese alien whom CIA was considering for overseas recruitment. CIA denied that an approach of the alien had been made. Our investigation contradicted the statements emanating from CIA. (Rev. Bureau file)
 

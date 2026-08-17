@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24141.png
-
-Convert to Markdown33. MHLUMEN
+33. MHLUMEN
 
 A Liberian company which serves as owner of MHFETCH (see below) and as the source of an operational loan; no employees.
 

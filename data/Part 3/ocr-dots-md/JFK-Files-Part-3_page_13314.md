@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13314.png
-
-Convert to MarkdownIs there any CIA connection with an anti-Castro group which
+Is there any CIA connection with an anti-Castro group which
 held meetings at 3126 Hollandale Street in Dallas or with
 a Cuban group which allegedly held meetings attended by Oswald
 at 3128 Harlendale Street in Dallas?

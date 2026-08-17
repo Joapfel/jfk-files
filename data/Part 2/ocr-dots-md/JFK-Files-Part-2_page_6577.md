@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6577.png
-
-Convert to Markdownresort to terrorist methods against the populace, an unexplained fire,
+resort to terrorist methods against the populace, an unexplained fire,
 creation of suspicion in a minor but key official, the sudden appearance
 of antiregime slogans on walls, a defection from the armed forces—these
 and similar things, whether major or minor, and over and over again on

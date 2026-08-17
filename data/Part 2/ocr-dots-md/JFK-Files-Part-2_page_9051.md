@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9051.png
-
-Convert to MarkdownSECRET
+SECRET
 
 He could not explain such an expression since he could not remember having said anything like it. He knew nothing whatever beforehand about the murder of the President."
 

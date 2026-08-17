@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23856.png
-
-Convert to Markdown**Agency Information**
+**Agency Information**
 
 AGENCY : SSCIA
 

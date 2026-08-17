@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20986.png
-
-Convert to MarkdownAUG 31 11 45 AM '67
+AUG 31 11 45 AM '67
 
 LIAISON SECTION, FBI
 C-O-N-F-I-D-E-N-T-I-A-L

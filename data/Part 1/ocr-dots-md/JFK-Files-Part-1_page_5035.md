@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5035.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>CABLE SEC LISTER BY</td>
         <td>MR. TOTALL. OP. TS</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35583.png
-
-Convert to Markdown<table><tr><td>POST OFFICE DEPARTMENT<br/>OFFICIAL BUSINESS</td><td>PREFERENCE FOR PRIVATE USE TO AVOID<br/>PAYMENT OF POSTAGE, $1.00</td></tr><tr><td colspan="2">INSTRUCTIONS- Fill in items below and complete instructions on other side, if applicable. Must be cut last ends, attach and hold firmly to back of article. Post on front of article. RETURN RECEIPT REQUESTED.</td></tr><tr><td>REGISTERED NO</td><td>NAME OF SENDER<br/>MAY BE HEADED</td></tr><tr><td>CHECK NO.</td><td>STREET AND NO OR P.O. BOX<br/>PO BOX</td></tr><tr><td>INSURED NO.</td><td>CITY, STATE, AND ZIP CODE<br/>Carol. GALLAGH F.L.A.</td></tr></table>
+<table><tr><td>POST OFFICE DEPARTMENT<br/>OFFICIAL BUSINESS</td><td>PREFERENCE FOR PRIVATE USE TO AVOID<br/>PAYMENT OF POSTAGE, $1.00</td></tr><tr><td colspan="2">INSTRUCTIONS- Fill in items below and complete instructions on other side, if applicable. Must be cut last ends, attach and hold firmly to back of article. Post on front of article. RETURN RECEIPT REQUESTED.</td></tr><tr><td>REGISTERED NO</td><td>NAME OF SENDER<br/>MAY BE HEADED</td></tr><tr><td>CHECK NO.</td><td>STREET AND NO OR P.O. BOX<br/>PO BOX</td></tr><tr><td>INSURED NO.</td><td>CITY, STATE, AND ZIP CODE<br/>Carol. GALLAGH F.L.A.</td></tr></table>
 
 US-18-71348-S-7
 

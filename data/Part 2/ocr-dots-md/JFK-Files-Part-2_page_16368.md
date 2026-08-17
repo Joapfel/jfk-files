@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16368.png
-
-Convert to Markdown# "THE PEOPLE VS. FRED HAMPTON
+# "THE PEOPLE VS. FRED HAMPTON
 
 "We want all people when brought to trial to be tried in court by a jury of their peer group or people from their communities, as defined by the constitution of the United States."
 

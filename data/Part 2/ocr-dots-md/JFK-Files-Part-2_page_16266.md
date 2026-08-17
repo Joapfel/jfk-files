@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16266.png
-
-Convert to Markdownby the State Committee that the Party should borrow some money and make donations to selected organizations. $100 was to go to the Chicago BPP.
+by the State Committee that the Party should borrow some money and make donations to selected organizations. $100 was to go to the Chicago BPP.
 
 6/18/69)
 

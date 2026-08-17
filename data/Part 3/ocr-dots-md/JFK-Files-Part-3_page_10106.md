@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10106.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 DIVISION
 APR 25 5.03 PH 7-75
 

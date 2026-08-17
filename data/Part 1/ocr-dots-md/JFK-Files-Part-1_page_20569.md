@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20569.png
-
-Convert to MarkdownWashington, D.C. 20503
+Washington, D.C. 20503
 
 6 May 1973.
 

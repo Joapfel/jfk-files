@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35208.png
-
-Convert to Markdown# STUDENTS' SECTION
+# STUDENTS' SECTION
 
 In Attachment-6 are explained the amounts delivered to the Students' representatives in exile which collaborate with the DEMOCRATIC REVOLUTIONARY FRONT.
 

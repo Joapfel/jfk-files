@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32756.png
-
-Convert to Markdownin the Navy and Air Force versions, and by use of common equipments
+in the Navy and Air Force versions, and by use of common equipments
 and structures.
 
 To avoid any doubt as to the objective, I asked Deputy Secretary

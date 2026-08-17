@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29198.png
-
-Convert to MarkdownEducation to be Substituted for Experience
+Education to be Substituted for Experience
 
 High School
 

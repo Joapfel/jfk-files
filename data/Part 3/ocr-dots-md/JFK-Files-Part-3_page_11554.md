@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11554.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR E. S. MILLER:
 (R. E. White:bhg, 9/7/71)

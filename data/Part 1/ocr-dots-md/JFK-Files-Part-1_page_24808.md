@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24808.png
-
-Convert to MarkdownMarch 13, 1967
+March 13, 1967
 
 Vida Internacional, S.A.
 222 West 33rd Street

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7326.png
-
-Convert to Markdown13.04.01 In general, as a couple are they: obviously very compatible
+13.04.01 In general, as a couple are they: obviously very compatible
 as compatible as most ______ obviously not very compatible ______ X
 
 13.04.02 Is he inclined to: never appear jealous of her ____

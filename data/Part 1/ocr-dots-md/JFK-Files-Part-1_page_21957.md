@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21957.png
-
-Convert to Markdown111.
+111.
 
 Commonwealth Department in 1957 or the beginning of 1958. In 1957 or 1959 she was involved in a sexual compromise operation against an American professor, which did not reach the point of a recruitment approach. Between 1957 or 1958 and 1960 she was working against an American tourist named Philip NIELSEN who was suspected of connection with CIA and who was under study for recruitment by the KGB.* KUNGAROVA later married NIELSEN and the two lived in England. The KGB was still interested in NIELSEN at the time NOSENKO left the Tourist Department, but NOSENKO believed there was no recruitment. Mrs. NIELSEN died in 1965.
 

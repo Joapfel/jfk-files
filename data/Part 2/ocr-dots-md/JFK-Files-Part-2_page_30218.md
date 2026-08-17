@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30218.png
-
-Convert to MarkdownAPPLICANT
+APPLICANT
 
 1. LOOP
 

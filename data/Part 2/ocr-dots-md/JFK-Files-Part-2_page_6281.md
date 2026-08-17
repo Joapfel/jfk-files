@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6281.png
-
-Convert to MarkdownOLC 79-2477
+OLC 79-2477
 
 10 August 1979
 

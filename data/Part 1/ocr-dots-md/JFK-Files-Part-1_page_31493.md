@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31493.png
-
-Convert to Markdownhave additional authority for such arguments by virtue of their
+have additional authority for such arguments by virtue of their
 membership in one division of an organization actively working
 in many ways for the liberation of the refugees' homelands.
 

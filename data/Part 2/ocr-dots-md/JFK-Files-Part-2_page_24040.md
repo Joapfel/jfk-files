@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24040.png
-
-Convert to Markdownavailable to the Ambassador four hours before it took place,
+available to the Ambassador four hours before it took place,
 and suggested that Lodge not change his plans to go to the
 United States on October 31. (I.G., C, p. 37; Pentagon Papers,
 p. 219.)

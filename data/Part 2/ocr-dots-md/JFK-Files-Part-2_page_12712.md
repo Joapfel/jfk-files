@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12712.png
-
-Convert to MarkdownXII. Furnish no information and make no statements to a person being interviewed which might later be used to embarrass Bureau. Agents should not allow themselves to be interviewed by interviewee or to be placed in a position of answering questions instead of asking them.
+XII. Furnish no information and make no statements to a person being interviewed which might later be used to embarrass Bureau. Agents should not allow themselves to be interviewed by interviewee or to be placed in a position of answering questions instead of asking them.
 
 XIII. Terminate immediately an interview if subject proves to be hostile or uncooperative on initial contact.
 

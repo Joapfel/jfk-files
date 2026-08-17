@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13953.png
-
-Convert to Markdown(15) That improvements be achieved in the quality of CIA personnel.
+(15) That improvements be achieved in the quality of CIA personnel.
 
 (16) That consideration be given to a possible change in the name of the CIA.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26480.png
-
-Convert to MarkdownFIELD INFORMATION REPORT
+FIELD INFORMATION REPORT
 
 GRADING OF SOURCE: A Completely reliable source is one that sources of doubtful honesty or levels of competence are tested before being used as a testbed.
 

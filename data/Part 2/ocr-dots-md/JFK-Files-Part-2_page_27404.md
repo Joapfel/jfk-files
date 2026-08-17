@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27404.png
-
-Convert to Markdown9. Memo dated 15 August 1967 from T. H. Karamessines, DDP, to Chief CI Staff re "Overseas Coverage of Subversive Student and Other Related Activities." (2 pages, plus routing sheet).
+9. Memo dated 15 August 1967 from T. H. Karamessines, DDP, to Chief CI Staff re "Overseas Coverage of Subversive Student and Other Related Activities." (2 pages, plus routing sheet).
 
 (Items 1-9 are contained in a file labeled "Charter MHCHAOS").
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8626.png
-
-Convert to Markdown13-00000
+13-00000
 
 In the Congress and I believe there's going to be a rapid creation of this new department and a heavy emphasis on the importance of energy questions to our people.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27385.png
-
-Convert to MarkdownApril 23, 1975
+April 23, 1975
 
 SECRET - SENSITIVE
 

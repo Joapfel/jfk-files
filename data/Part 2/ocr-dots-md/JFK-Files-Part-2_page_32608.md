@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32608.png
-
-Convert to MarkdownIII. Control of Clandestine Movement of Guerrillas and arms
+III. Control of Clandestine Movement of Guerrillas and arms
 
 Department of State
 

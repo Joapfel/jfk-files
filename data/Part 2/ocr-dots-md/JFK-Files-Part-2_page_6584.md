@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6584.png
-
-Convert to Markdown2. Cuba is an unwilling instrument of Soviet policy, subject to the whims and moods of a foreign power.
+2. Cuba is an unwilling instrument of Soviet policy, subject to the whims and moods of a foreign power.
 
 3. Moscow will use Cuba as it sees fit and for its own purposes, giving help and withdrawing it to suit the Kremlin's desires.
 

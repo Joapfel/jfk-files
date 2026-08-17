@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4450.png
-
-Convert to Markdown1. Cuban (insurance) executive, who had a large and diversified net, provided intelligence in late June 1962 which specifically anticipated the massive Soviet military build-up which ultimately took place in Cuba. Throughout the build-up itself this agent provided an almost continuous stream of OB intelligence on missile, maritime and air phases of the build-up. He provided the initial reporting on delivery of IL-28's to the island.
+1. Cuban (insurance) executive, who had a large and diversified net, provided intelligence in late June 1962 which specifically anticipated the massive Soviet military build-up which ultimately took place in Cuba. Throughout the build-up itself this agent provided an almost continuous stream of OB intelligence on missile, maritime and air phases of the build-up. He provided the initial reporting on delivery of IL-28's to the island.
 
 2. A relative of a former Cuban president whose government connections provided him on several occasions with information on attitudes of various military factions toward Castro and the Soviets. Agent also provided some detailed missile OB.
 

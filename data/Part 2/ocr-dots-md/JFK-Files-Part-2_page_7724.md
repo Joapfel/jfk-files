@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7724.png
-
-Convert to MarkdownMarch 1953:
+March 1953:
 
 for necessary reorganizations, together
 with the names of recommended chiefs.

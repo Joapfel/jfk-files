@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9208.png
-
-Convert to MarkdownUNITED STATES GOVERNMENT
+UNITED STATES GOVERNMENT
 Memorandum
 
 1 - Mr. J. B. Adams

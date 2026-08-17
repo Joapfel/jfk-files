@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9686.png
-
-Convert to MarkdownST 157-4275
+ST 157-4275
 
 **Build:** Slender
 **Hair:** Brown

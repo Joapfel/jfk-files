@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21685.png
-
-Convert to MarkdownIt is not accepted that the train manifests are incontrovertible evidence that KOSOLAPOV could not have been on the same train as JENNER. Neither is it accepted that the train manifests are in error.
+It is not accepted that the train manifests are incontrovertible evidence that KOSOLAPOV could not have been on the same train as JENNER. Neither is it accepted that the train manifests are in error.
 
 There is just not a satisfactory answer for the indicated discrepancy between the train manifests and the statement of NOSENKO that KOSOLAPOV and JENNER were on the same train. If indeed KOSOLAPOV did not travel with JENNER, this does not establish anything more than that NOSENKO is wrong; it is evidence that he does not know something he, as the supervisor of KOSOLAPOV, should have known according to his own statements.
 

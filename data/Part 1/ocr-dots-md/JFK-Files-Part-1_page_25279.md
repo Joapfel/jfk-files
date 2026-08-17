@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25279.png
-
-Convert to Markdown5. KULAZHENKOV, CHERKASOV, and POPOV and their wives were invited to attend a reception on Friday, 29 September at the Lebanese legation in honor of the Lebanese Ambassador to Washington, D.C., who was passing through Mexico. The Soviet Charge d'Affaires also accepted an invitation for dinner at the Lebanese legation on 29 September at 8:00 p.m.
+5. KULAZHENKOV, CHERKASOV, and POPOV and their wives were invited to attend a reception on Friday, 29 September at the Lebanese legation in honor of the Lebanese Ambassador to Washington, D.C., who was passing through Mexico. The Soviet Charge d'Affaires also accepted an invitation for dinner at the Lebanese legation on 29 September at 8:00 p.m.
 
 6. On 19 September ROUAMO made arrangements to call on Dr. Guillermo de ASSA (ph) of the Cultural Committee of the Organization of American States, who had recently been home to Argentina. ROUAMO mentioned that he had also spent three months away from Mexico on vacation in the Soviet Union.
 

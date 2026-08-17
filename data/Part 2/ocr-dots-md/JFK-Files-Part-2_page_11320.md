@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11320.png
-
-Convert to Markdownmemoranda have been expressly prepared for dissemination to Secret Service only and have not been furnished to the Department or INS; therefore, the copy furnished INS locally and two of the copies furnished the Bureau should reference the last communication to INS.]
+memoranda have been expressly prepared for dissemination to Secret Service only and have not been furnished to the Department or INS; therefore, the copy furnished INS locally and two of the copies furnished the Bureau should reference the last communication to INS.]
 
 For instructions pertaining to dissemination to Secret Service in other than security index cases, refer to section 83K, volume III, of this manual.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9052.png
-
-Convert to Markdown14-00000
+14-00000
 
 22 May 1968
 

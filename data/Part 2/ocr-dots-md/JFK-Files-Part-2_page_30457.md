@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30457.png
-
-Convert to Markdownnormal time lag would be two weeks. In other words, the tapes
+normal time lag would be two weeks. In other words, the tapes
 would normally be retained for a two-week period.
 
 Mr. Shaw. That is what it seems to say, yes.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7066.png
-
-Convert to Markdownthe pseudonym without harming the individual. The CIA did not object to the Review Board's policy to release pseudonyms. The CIA did identify several pseudonyms that it believed to be particularly sensitive, and demonstrated to the Review Board with clear and convincing evidence that release of those pseudonyms would do irreparable harm.
+the pseudonym without harming the individual. The CIA did not object to the Review Board's policy to release pseudonyms. The CIA did identify several pseudonyms that it believed to be particularly sensitive, and demonstrated to the Review Board with clear and convincing evidence that release of those pseudonyms would do irreparable harm.
 
 c. CIA crypts.
 

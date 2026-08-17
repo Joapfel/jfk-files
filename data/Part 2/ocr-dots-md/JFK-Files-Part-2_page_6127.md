@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6127.png
-
-Convert to MarkdownOffice of General Counsel
+Office of General Counsel
 
 FROM: Clandelle
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25663.png
-
-Convert to MarkdownPRO PART I EQUIVALENT
+PRO PART I EQUIVALENT
 
 NAME: MACHADO Llosa, Manuel
 DFOB: 12 December 1913, Aurac, Oriente, Cuba

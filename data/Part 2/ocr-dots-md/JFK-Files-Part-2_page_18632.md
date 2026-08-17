@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18632.png
-
-Convert to MarkdownJuly 23, 1975
+July 23, 1975
 
 I,
 

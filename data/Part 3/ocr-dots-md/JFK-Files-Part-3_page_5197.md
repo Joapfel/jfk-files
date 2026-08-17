@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5197.png
-
-Convert to MarkdownCriminal Intelligence Program - 3 -
+Criminal Intelligence Program - 3 -
 
 instructions regarding the investigation of gambling matters. How have you complied with those instructions? Be as brief as possible; however, be specific.
 

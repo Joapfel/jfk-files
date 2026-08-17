@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6503.png
-
-Convert to MarkdownTOP SECRET SPECIAL HANDLING NOFORN
+TOP SECRET SPECIAL HANDLING NOFORN
 
 The terror campaign could be pointed at Cuban refugees seeking haven in the United States. We could sink a boatload of Cubans enroute to Florida (real or simulated). We could foster attempts on lives of Cuban refugees in the United States even to the extent of wounding in instances to be widely publicized.
 

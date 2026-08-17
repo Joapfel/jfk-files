@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22724.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 over 180 leads of penetration in France, and it occasioned my drafting a letter for Mr. McCone to give to President Kennedy to give to DeGaul. DeGaul secretly sent to this country one of his highest trusted military men. He was here incognito. He met with the defector for three days.
 

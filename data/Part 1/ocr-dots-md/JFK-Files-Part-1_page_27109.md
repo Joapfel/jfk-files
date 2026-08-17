@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27109.png
-
-Convert to MarkdownOffice of Public Information:
+Office of Public Information:
 Central Intelligence Agency
 Langley, Virginia
 

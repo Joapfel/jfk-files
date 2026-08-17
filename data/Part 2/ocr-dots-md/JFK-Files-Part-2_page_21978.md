@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21978.png
-
-Convert to MarkdownFirst, it assumes that Dulles himself knew of the plots, a matter which is not certain. Second, it assumes that Dulles went privately to the two Presidents--a course of action which Helms, who had far more covert action experience than Bissell, testified was precisely what the doctrine of plausible denial forbade CIA officials from doing. Third, it necessarily assumes that the Presidents would understand from a "circumlocutious" description that assassination was being discussed.
+First, it assumes that Dulles himself knew of the plots, a matter which is not certain. Second, it assumes that Dulles went privately to the two Presidents--a course of action which Helms, who had far more covert action experience than Bissell, testified was precisely what the doctrine of plausible denial forbade CIA officials from doing. Third, it necessarily assumes that the Presidents would understand from a "circumlocutious" description that assassination was being discussed.
 
 The chain of assumptions is far too speculative for the Committee to make findings implicating Presidents who are not able to speak for themselves. Moreover, it is inconsistent with Bissell's other testimony that "formal and explicit" approval would be required for assassination,* and contrary to the testimony of all the Presidential advisors, the men closest to both Eisenhower and Kennedy.
 

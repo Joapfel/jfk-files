@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27842.png
-
-Convert to MarkdownREBECCA WHEELER MARTIN
+REBECCA WHEELER MARTIN
 
 101 So. Whiting Street
 Alexandria, VA 22304

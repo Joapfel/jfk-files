@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7845.png
-
-Convert to MarkdownMemorandum V. V. Kolombatovic to Mr. W. R. Wannall
+Memorandum V. V. Kolombatovic to Mr. W. R. Wannall
 
 Re: John D. Tarpey
 Assistant Chief Inspector,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18348.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 "(e) The term 'unauthorized person' as used herein shall be construed to mean any person who, or agency which, is not authorized to receive information of the categories set forth in section 1 of this Act, by the President, or by the head of a department or agency of the United States Government which is expressly designated by the President to engage in communication intelligence activities for the United States.
 

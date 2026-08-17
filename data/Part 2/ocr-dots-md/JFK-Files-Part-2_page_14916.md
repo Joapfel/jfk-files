@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14916.png
-
-Convert to MarkdownJOSEPH ROSENBERG, a 41-year-old concert violinist,
+JOSEPH ROSENBERG, a 41-year-old concert violinist,
 on May 12, 1960, made a false bomb threat regarding a Pan
 American jet airliner at Idlewild Airport, New York City.
 He was arrested May 12, 1960, and arraigned before the U. S.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31463.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="4">UNCLASSIFIED RESTRICTED CONFIDENTIAL SECRET (SENDER WILL CIRCLE CLASSIFICAT NO BOTTOM)</td>

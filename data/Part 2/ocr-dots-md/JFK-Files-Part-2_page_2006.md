@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2006.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filtered In)
 
 # NOTIFICATION OF PERSONNEL ACTION

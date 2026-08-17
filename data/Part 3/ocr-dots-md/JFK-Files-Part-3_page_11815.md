@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11815.png
-
-Convert to Markdown(1) There are no clerical or supervisory vacancies in the Section.
+(1) There are no clerical or supervisory vacancies in the Section.
 
 (2) No one is under transfer into or out of the Section.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4372.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 This source provided pertinent data on November 24, 1970, relating to bus departures for the Revolutionary People's Constitutional Convention (RPCC) in Washington, D. C., and on November 27, 1970, advised RPCC was having trouble finding a place to hold the Convention due to difficulties with Howard University. On December 22, 1970, this source furnished names of several members who left the BPP. On January 14, 1971, the source furnished procedures for arranging speeches by BPP Supreme Commander Huey P. Newton.
 

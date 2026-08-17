@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4778.png
-
-Convert to Markdown22 Apr 76
+22 Apr 76
 
 The CIA knew about and approved acts against the Cuban de Aviation office in Mexico City. Participating in this act was Lee VEGA, an ABDAL leader who traveled to Venezuela from Venezuela.
 

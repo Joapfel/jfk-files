@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22236.png
-
-Convert to MarkdownDate:08/15/92
+Date:08/15/92
 
 Page:1
 

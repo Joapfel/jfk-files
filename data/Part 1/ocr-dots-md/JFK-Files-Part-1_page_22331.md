@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22331.png
-
-Convert to Markdown738.
+738.
 
 agent refused to leave the United States, and when the CPUSA protested the arrest of one of its members, KOTEN was released.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31583.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 to petition his representative, ROY LEMON. The petition urged

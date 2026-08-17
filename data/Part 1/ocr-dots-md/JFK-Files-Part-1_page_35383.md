@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35383.png
-
-Convert to MarkdownBefore such an action is undertaken, the enemy must be softened by propaganda, sabotage, raids, underground action, and the mass of the people of Cuba must be prepared to accept the provisional government through propaganda, increased knowledge of the Council and its unifying efforts.
+Before such an action is undertaken, the enemy must be softened by propaganda, sabotage, raids, underground action, and the mass of the people of Cuba must be prepared to accept the provisional government through propaganda, increased knowledge of the Council and its unifying efforts.
 
 Dr. MIRO asked me what I thought of this project; did I think that Castro could be overthrown in any other way. I admitted that strong military action appeared necessary. I stated further that of course his plan would have to be studied at the highest government levels. He proposed that he might elaborate a plan with his military collaborators, and I suggested that he do this so that it might be examined and considered.
 

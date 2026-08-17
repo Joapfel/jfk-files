@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23838.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In effect, the proprietary was earning money which was financing the proprietary organization.
 

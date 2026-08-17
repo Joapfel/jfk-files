@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3477.png
-
-Convert to MarkdownCONTACT REPORT # 54
+CONTACT REPORT # 54
 
 OPERATION: AMWORLD
 DATE TYPED: 6 Apr. 64

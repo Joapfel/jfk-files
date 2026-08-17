@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21613.png
-
-Convert to Markdown"Because none of the above explanations is consistent with the data developed in interrogations and investigations, we are left with the hypothesis that NOSENKO was dispatched by the KGB. While this explanation does not reconcile all the anomalies, none of them renders it untenable."
+"Because none of the above explanations is consistent with the data developed in interrogations and investigations, we are left with the hypothesis that NOSENKO was dispatched by the KGB. While this explanation does not reconcile all the anomalies, none of them renders it untenable."
 
 "In the absence of further revelations by NOSENKO, or other persuasive evidence to the contrary, CIA finds that the evidence establishes a presumption that NOSENKO was dispatched by the KGB, and believes that prudence requires that he be regarded as still responsive to KGB control, and that his information should be assessed accordingly."
 

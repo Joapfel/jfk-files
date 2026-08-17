@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9042.png
-
-Convert to Markdown(5)
+(5)
 
 [CA]S-2290
 

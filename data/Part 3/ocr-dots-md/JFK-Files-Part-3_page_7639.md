@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7639.png
-
-Convert to MarkdownADDENDUM OF W. M. FELT
+ADDENDUM OF W. M. FELT
 
 1-4-73
 

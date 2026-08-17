@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10609.png
-
-Convert to MarkdownThe pertinent individuals to first consider are the
+The pertinent individuals to first consider are the
 state officers of the White Knights of the Ku Klux Klan. They
 are:
 

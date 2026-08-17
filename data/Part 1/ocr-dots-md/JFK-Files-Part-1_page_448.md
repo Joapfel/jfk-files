@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_448.png
-
-Convert to MarkdownThe source suggested that the next meeting
+The source suggested that the next meeting
 take place in Carlstadt, New Jersey, to which suggestion
 Espinosa replied he does not like to schedule meetings
 in New Jersey unless absolutely necessary.

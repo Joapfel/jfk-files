@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10798.png
-
-Convert to MarkdownKATHLEEN MARY RIDOLFI
+KATHLEEN MARY RIDOLFI
 
 As previously noted, RIDOLFI was apprehended by
 Special Agents of the FBI on August 22, 1971, inside the

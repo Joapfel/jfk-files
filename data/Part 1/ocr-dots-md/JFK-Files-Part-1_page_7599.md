@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7599.png
-
-Convert to Markdownthoughts in the seven weeks since she had agreed to cooperate,
+thoughts in the seven weeks since she had agreed to cooperate,
 but it proved unfounded. She this time was relaxed from the
 start, was very friendly, and seemed to enjoy the opportunity
 to get out. (She later told me in her apartment that she didn't

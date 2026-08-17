@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22566.png
-
-Convert to MarkdownSECRET
+SECRET
 
 his name prominently in the public eye. The lecture tour, of course, is essential not only for prestige purposes, but to make the necessary survey to determine the best possible media for Source if and when he ultimately moves to Washington.
 

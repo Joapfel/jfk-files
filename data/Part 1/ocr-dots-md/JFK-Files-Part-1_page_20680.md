@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20680.png
-
-Convert to MarkdownSECRET
+SECRET
 
 11 DEC 1957
 

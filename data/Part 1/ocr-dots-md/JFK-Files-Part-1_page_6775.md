@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6775.png
-
-Convert to Markdownal terminar los reajustes de postguerra y, a partir de ese momento, comenzó a manifestarse la crisis actual.
+al terminar los reajustes de postguerra y, a partir de ese momento, comenzó a manifestarse la crisis actual.
 
 Desde este punto de vista, es particularmente interesante la evaluación de la experiencia económica de este periodo. Dado el nivel relativamente elevado existente al inicio del mismo y las oportunidades excepcionales de que se dispusieron, el desarrollo alcanzado puede representar algo así como el "florecimiento óptimo" de la economía latinoamericana, funcionando de manera tradicional. Por tanto, la cuantía en que ese "florecimiento" de la economía dejó de satisfacer las necesidades de desarrollo de la región, nos permitirá estimar las dimensiones reales de la crisis actual.
 

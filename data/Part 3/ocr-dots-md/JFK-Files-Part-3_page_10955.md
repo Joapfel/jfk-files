@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10955.png
-
-Convert to MarkdownH. CURRENT AGREEMENTS BETWEEN FBI AND CIA
+H. CURRENT AGREEMENTS BETWEEN FBI AND CIA
 
 1. According to SAC Letter 59 dated 5/24/49, CIA and FBI had reached agreement whereby clearance would be requested of FBI before CIA conducted an interview with an alien in the U.S. This clearance would consist of a review of Bureau files concerning individual in question.
 

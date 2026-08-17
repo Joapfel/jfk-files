@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5943.png
-
-Convert to Markdown# ADMINISTRATIVE USE ONLY
+# ADMINISTRATIVE USE ONLY
 
 ## 11 February 1993
 

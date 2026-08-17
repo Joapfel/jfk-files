@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23278.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3 JUL 1957
 

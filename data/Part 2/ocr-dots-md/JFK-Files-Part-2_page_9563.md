@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9563.png
-
-Convert to MarkdownZionist challenge by education, economic and human mobilization,
+Zionist challenge by education, economic and human mobilization,
 and competed with the Zionists in the fields of management,
 finance and technology.
 

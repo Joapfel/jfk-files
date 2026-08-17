@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30834.png
-
-Convert to MarkdownSECRET (WHEN FILLED IN)
+SECRET (WHEN FILLED IN)
 
 <table><tr><td>REQUEST FOR OS MAILING</td></tr></table>
 

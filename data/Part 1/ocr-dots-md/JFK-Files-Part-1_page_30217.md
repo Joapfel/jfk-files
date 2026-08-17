@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30217.png
-
-Convert to Markdown14-00000
+14-00000
 
 REQUEST FOR SECURITY CLEARANCE
 

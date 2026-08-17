@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_675.png
-
-Convert to MarkdownF.D.
+F.D.
 
 # FBI
 

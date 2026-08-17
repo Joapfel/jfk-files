@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14816.png
-
-Convert to MarkdownWinston establishes his position as the new Soviet Commissar and the encomienda occurring from 1943, he does not lack for personal or material comforts. He can travel anywhere in the country at will, no time he desires. When he goes to the Soviet Union, he is given homage, cataract operations, and afforded all the modern conveniences of life.
+Winston establishes his position as the new Soviet Commissar and the encomienda occurring from 1943, he does not lack for personal or material comforts. He can travel anywhere in the country at will, no time he desires. When he goes to the Soviet Union, he is given homage, cataract operations, and afforded all the modern conveniences of life.
 
 Winston's second wife, Fern, is said to have accompanied him to Russia. She has no easy life, but she frequently has to meet his nurse, secretary, and chauffeur. She gets nothing in return from him except abuse. She is tall, is reported to have helped patch up their marital difficulties and persuaded them to stay together.
 

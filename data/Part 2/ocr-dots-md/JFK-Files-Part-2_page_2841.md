@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2841.png
-
-Convert to MarkdownRESUME
+RESUME
 
 William M. Kent
 836 Van Buren Street

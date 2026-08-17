@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9653.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 BILL FRIEDLE,
 With notation "Cop Now"

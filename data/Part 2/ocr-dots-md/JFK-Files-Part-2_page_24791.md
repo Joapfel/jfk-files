@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24791.png
-
-Convert to MarkdownDominican Republic. Noted the President's view that the United States should not initiate the overthrow of Trujillo before we knew what government would succeed him, and that any action against Trujillo should be multilateral." (Record of Actions by National Security Council, 5/5/61) (Approved by the President, 5/16/61)
+Dominican Republic. Noted the President's view that the United States should not initiate the overthrow of Trujillo before we knew what government would succeed him, and that any action against Trujillo should be multilateral." (Record of Actions by National Security Council, 5/5/61) (Approved by the President, 5/16/61)
 
 Although the precise dates are uncertain, Dearborn was recalled to Washington to participate in drafting of these contingency plans and recommendations. Dearborn was in Washington at least from May 10 through May 13, 1961.
 

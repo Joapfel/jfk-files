@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23311.png
-
-Convert to Markdown1 Trujillo with a .38. I wouldn't have thought that, if I thought
+1 Trujillo with a .38. I wouldn't have thought that, if I thought
 2 about it.
 3 President Kennedy went to Paris a week or two later. When
 4 the assassination actually occurred, we were all taken by

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18047.png
-
-Convert to MarkdownRE: SENSTUDY 75
+RE: SENSTUDY 75
 
 (6) Scope of investigations and emergency detention plans. (The Bureau will be the principal topic of this hearing.)
 

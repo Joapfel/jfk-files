@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4968.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (=delinquent/=inconsistent)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17133.png
-
-Convert to Markdown14 May 1973
+14 May 1973
 
 MEMORANDUM FOR: Acting Chief, WH Division
 SUBJECT: KDFACTOR Project Amendment and Termination

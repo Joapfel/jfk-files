@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3942.png
-
-Convert to MarkdownU·GA·-1693/14
+U·GA·-1693/14
 Att. No 63 to UFGA-21693
 
 SUBJECT: TORRES Picart, Juan

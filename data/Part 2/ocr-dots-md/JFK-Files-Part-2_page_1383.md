@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1383.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 SPECIFY AIR OR SEA POUCH
 
 DISPATCH NO. ZJJA-505

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17895.png
-
-Convert to MarkdownMarch 4, 1959
+March 4, 1959
 
 TO: WH/Logistics
 FROM: WH/III/Mexico

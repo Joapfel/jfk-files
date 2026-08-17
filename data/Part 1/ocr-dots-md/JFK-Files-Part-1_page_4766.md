@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4766.png
-
-Convert to MarkdownT 007001 614506
+T 007001 614506
 
 PAGE 81
 

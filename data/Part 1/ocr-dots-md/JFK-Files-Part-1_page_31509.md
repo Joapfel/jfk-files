@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31509.png
-
-Convert to Markdown2203 Foxhall Road, N.W.
+2203 Foxhall Road, N.W.
 Washington, D.C.
 
 17 July, 1952

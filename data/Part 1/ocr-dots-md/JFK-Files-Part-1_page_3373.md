@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3373.png
-
-Convert to MarkdownA-19 promised to have the answer when he calls back this afternoon.
+A-19 promised to have the answer when he calls back this afternoon.
 
 5. A-19 stated that Jorge RODRIGUEZ Quesada is not the AMWORLD representative in Costa Rica.
 

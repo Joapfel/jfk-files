@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10383.png
-
-Convert to Markdown(b) <u>Primary jurisdiction</u> - Subject to the provisions hereof, the FBI will exercise primary jurisdiction over all alleged violations of section 844 which are directed at foreign diplomatic facilities or at activities, such as transportation and tourist offices, operating under the aegis of a foreign government although not in a diplomatic status, over all alleged violations of subsections 844(d) through (i) which are perpetrated by terrorist/revolutionary groups or individuals and all other violations of subsections 844(e) through (g) which are <u>not</u> directed at Treasury Department or Postal Service buildings or functions.
+(b) <u>Primary jurisdiction</u> - Subject to the provisions hereof, the FBI will exercise primary jurisdiction over all alleged violations of section 844 which are directed at foreign diplomatic facilities or at activities, such as transportation and tourist offices, operating under the aegis of a foreign government although not in a diplomatic status, over all alleged violations of subsections 844(d) through (i) which are perpetrated by terrorist/revolutionary groups or individuals and all other violations of subsections 844(e) through (g) which are <u>not</u> directed at Treasury Department or Postal Service buildings or functions.
 
 (c) <u>Type of Investigation to be Conducted</u>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15623.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 One Remington 12 gauge shotgun, Serial #70740V, Model #870;
 

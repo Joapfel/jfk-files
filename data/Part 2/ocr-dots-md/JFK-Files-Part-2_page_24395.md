@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24395.png
-
-Convert to Markdownon August 29, 1975
+on August 29, 1975
 
 # TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31171.png
-
-Convert to MarkdownStill valid as of
+Still valid as of
 6 December 1977.
 
 9. FEB 1977

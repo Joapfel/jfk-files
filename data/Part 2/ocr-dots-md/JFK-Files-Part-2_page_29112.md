@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29112.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="7">Part I—CAPITAL ASSETS—Short-term capital gains and losses—assets held not more than 6 months</th>

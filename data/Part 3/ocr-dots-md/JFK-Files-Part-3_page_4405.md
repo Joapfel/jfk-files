@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4405.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 shaping up as a focal point for planning of violent demonstration activities. Informant coverage of MDC, and especially which is made up of drug users who appear to suffer a paranoid fear of police infiltration, has been practically impossible.
 

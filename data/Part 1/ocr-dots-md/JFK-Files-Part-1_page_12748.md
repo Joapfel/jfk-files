@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12748.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="3">CABLE DEC DISSEMS BY HH PER ST2103</td><td rowspan="2" colspan="4">TOTAL COPIES: 1/6-250</td></tr><tr><td colspan="3">PERSON/UNIT NOTIFIED:</td></tr><tr><th>ADVANCE COPY ISSUED</th><th>SHEET NUMBER</th><th>REPRODUCTION BY OTHER THAN<br/>ISSUING OFFICE IS PROHIBITED</th></tr></thead><tbody><tr><td>ACTION UNIT</td><td>RF FILE VR</td><td>STAFF</td></tr><tr><td>C/W116</td><td></td><td>1 4</td></tr><tr><td>ACTION #</td><td></td><td>2 3</td></tr><tr><td>INFO</td><td></td><td>3 6</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11742.png
-
-Convert to Markdown# Growing Popularity of Rugby League Football
+# Growing Popularity of Rugby League Football
 
 Walter Pilkington
 

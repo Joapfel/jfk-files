@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33921.png
-
-Convert to MarkdownGRANVILLE, NORTH DAKOTA
+GRANVILLE, NORTH DAKOTA
 
 "In response to your letter, I included special prayers in my pastoral
 prayers today. It will be good of you to ask the peoples of Hungary,

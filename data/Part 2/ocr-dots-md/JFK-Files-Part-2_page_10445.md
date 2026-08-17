@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10445.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 8 May 1973
 

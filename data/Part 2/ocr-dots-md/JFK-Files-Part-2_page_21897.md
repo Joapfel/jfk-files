@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21897.png
-
-Convert to MarkdownThis message itself was deemed too sensitive to be retained at the station: "this dispatch should be reduced to cryptic necessary notes and destroyed after the first reading." (CIA Dispatch, <u>AUDW</u> 147, 11/2/60.)
+This message itself was deemed too sensitive to be retained at the station: "this dispatch should be reduced to cryptic necessary notes and destroyed after the first reading." (CIA Dispatch, <u>AUDW</u> 147, 11/2/60.)
 
 QJWIN arrived in Leopoldville on November 21, 1960 (CIA Cable (IN 49486), 11/29/60) and returned to Europe in late December 1960 (CIA Cable (OUT 54710), Director to Leopoldville, 12/9/60).
 

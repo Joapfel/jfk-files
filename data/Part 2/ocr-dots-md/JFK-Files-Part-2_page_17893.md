@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17893.png
-
-Convert to MarkdownNR 011 LV CODE
+NR 011 LV CODE
 
 838 PM NITEL MARCH 25, 1975 MLP
 

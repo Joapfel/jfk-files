@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_787.png
-
-Convert to Markdown1 July 1959
+1 July 1959
 
 Files: K - 2303
 

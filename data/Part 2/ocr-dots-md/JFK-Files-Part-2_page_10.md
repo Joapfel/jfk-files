@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10.png
-
-Convert to Markdownb. The Puerto Rican Cement Company has a verbal agreement with Mr. Philpotts granting him exclusive distribution of cement in Guadaloupe, Barbados, and Antigua.
+b. The Puerto Rican Cement Company has a verbal agreement with Mr. Philpotts granting him exclusive distribution of cement in Guadaloupe, Barbados, and Antigua.
 
 c. AMCO currently owes the Puerto Rican Cement Company $40,000 and is slow in payment.
 

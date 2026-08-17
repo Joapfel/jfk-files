@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16297.png
-
-Convert to Markdown# EDUCATION
+# EDUCATION
 
 We understand that the main purpose of the educational system as it now stands is to make people fit smoothly into the capitalistic class society. We understand that the children of poor people are trained to be poor people--the children of factory workers are trained to work in factories--the children of rich people are trained to take their parents places. The present educational system is irrelevant to the true needs and desires of the people. The schools are run like prisons because this society is a prison. We demand that all people know their true history. We demand that all people have the opportunity to develop their abilities.
 

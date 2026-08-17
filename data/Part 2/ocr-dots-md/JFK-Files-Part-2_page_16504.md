@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16504.png
-
-Convert to Markdownd. Check on application of what has been studied by his squad members. This should be checked constantly through observation of street training and what they learn from the mass in the community.
+d. Check on application of what has been studied by his squad members. This should be checked constantly through observation of street training and what they learn from the mass in the community.
 
 7. Sub-section leaders must collect daily reports from his squad members and then relay them to his section leader.
 

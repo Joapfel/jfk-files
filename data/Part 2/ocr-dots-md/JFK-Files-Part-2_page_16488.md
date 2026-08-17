@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16488.png
-
-Convert to Markdownin the wee hours of the morning -- even when these
+in the wee hours of the morning -- even when these
 strangers wear the uniform of policemen. History
 teaches us that the man in the uniform may or may not
 be a policeman authorized to enter the homes of the

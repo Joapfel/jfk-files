@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16308.png
-
-Convert to MarkdownWe do Not Like to See War
+We do Not Like to See War
 between the Peoples
 of Uptown!
 

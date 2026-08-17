@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18217.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>10</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PAGE NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>10</td></tr></tbody></table>
 
 CONTINUATION OF
 DISPATCH

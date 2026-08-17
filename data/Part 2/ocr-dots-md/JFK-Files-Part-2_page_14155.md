@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14155.png
-
-Convert to MarkdownJune 2, 1975
+June 2, 1975
 
 2 - Mr.S.F.Phillips
 

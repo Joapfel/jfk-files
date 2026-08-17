@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34311.png
-
-Convert to MarkdownCOPIES UNLESS IN FINAL FORM.
+COPIES UNLESS IN FINAL FORM.
 
 SECRET
 

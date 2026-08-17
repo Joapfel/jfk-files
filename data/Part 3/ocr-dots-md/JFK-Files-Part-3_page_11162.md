@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11162.png
-
-Convert to Markdown(h) Identifying collaborative operations between the United States intelligence agencies and other foreign intelligence liaison services against targets within the country extending the collaborations or within a jointly targetted third country.
+(h) Identifying collaborative operations between the United States intelligence agencies and other foreign intelligence liaison services against targets within the country extending the collaborations or within a jointly targetted third country.
 
 (i) Identifying collaboration with foreign governments in signals intelligence collection, particularly for arrangements which, if revealed, would be politically embarrassing in the countries involved.
 

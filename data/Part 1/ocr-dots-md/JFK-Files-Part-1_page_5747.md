@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5747.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a member of the governing board of the Two Continent Commodity Corporation
 (TCCC) an import-export firm whose other board members were:

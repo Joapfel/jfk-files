@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25673.png
-
-Convert to Markdown"Maybe Roselli's information was the vital nerve of the Kennedy assassination," a Senate source told The Herald.
+"Maybe Roselli's information was the vital nerve of the Kennedy assassination," a Senate source told The Herald.
 
 High officials in the Cuban government also reportedly feel there was a "Cuban factor" in the JFK death, but they see it as a result of exile politics, according to a recent article by Alton Frye, a senior fellow of the Council Foreign Relations in Washington.
 

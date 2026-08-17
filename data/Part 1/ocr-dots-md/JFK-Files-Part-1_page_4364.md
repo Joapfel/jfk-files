@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4364.png
-
-Convert to Markdown14-06000
+14-06000
 
 SECRET
 AUG 28 1973

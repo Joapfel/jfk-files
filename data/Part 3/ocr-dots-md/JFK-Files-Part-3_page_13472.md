@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13472.png
-
-Convert to Markdownamt
+amt
 
 1 think it might be well --
 2 MR. KIRKLAND: It is true that it is a very important

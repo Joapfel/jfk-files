@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33416.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><th>DATE</th><th>TO</th></tr></thead><tbody><tr><td>07-26-89</td><td>DIRECTOR</td></tr><tr><td>07-26-89</td><td>DEPUTY DIRECTOR</td></tr><tr><td>07-26-89</td><td>OPERATOR</td></tr><tr><td>07-26-89</td><td>CLERK</td></tr></tbody></table>
 

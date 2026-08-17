@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10371.png
-
-Convert to MarkdownAPPENDIX A
+APPENDIX A
 
 PERIOD OF MARTIAL LAW
 

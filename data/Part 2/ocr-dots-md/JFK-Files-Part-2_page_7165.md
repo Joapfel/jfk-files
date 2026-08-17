@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7165.png
-
-Convert to MarkdownFORM 3020b
+FORM 3020b
 7-71 MFG. 2/78
 
 CABLE SEC DISSEM BY 4% PER CSR #112 TOTAL COPIES 10-6 RUN BY

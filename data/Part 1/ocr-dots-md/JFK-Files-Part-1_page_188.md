@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_188.png
-
-Convert to MarkdownC.
+C.
 Six Project Organizations
 
 23. American Friends of Refugees, Inc. (AFR) - Manhattan,

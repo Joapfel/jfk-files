@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17476.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr></table>
 
 CUBA
 

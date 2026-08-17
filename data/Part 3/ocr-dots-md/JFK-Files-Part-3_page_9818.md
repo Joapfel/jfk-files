@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9818.png
-
-Convert to MarkdownAmbassadors or heads of permanent missions to the United Nations are not investigated.
+Ambassadors or heads of permanent missions to the United Nations are not investigated.
 
 No surveillances are conducted at the White House, the Capitol, the Supreme Court, the House and Senate Office Buildings or the United Nations.
 

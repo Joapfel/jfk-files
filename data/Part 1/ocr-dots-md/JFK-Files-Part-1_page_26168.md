@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26168.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INVESTIGATIVE SUPPLEMENT
 

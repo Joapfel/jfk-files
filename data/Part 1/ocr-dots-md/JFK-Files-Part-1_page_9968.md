@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9968.png
-
-Convert to Markdown27 July, 1967
+27 July, 1967
 
 1. LIRING/3 reported to Rowton at brief preliminary debriefing that during Rowton absence a Guatemalan (unidentified) telephoned him a safehouse and instructed him go to Tapachula on 19 July and await contact in lobby of local moviehouse. LIRING/3 stated that he took trip and was approached in lobby by same MEXICAN young Guatemalan woman (with oriental features) whom he had met in Guatemala City during his last trip. This woman simply informed him that a comarade would contact him (L/3) at his home in next few days and discuss future operations. LIRING/3 continued that he returned to Mexico City next day and was contacted at his home by Guatemalan aged about 45, mustache, glasses, balding head, slightly hooked nose, wearing hat _ixxatxazt_ who later stated his true name is Moises Crozco Deal and that he has been in Mexico past twenty years.
 

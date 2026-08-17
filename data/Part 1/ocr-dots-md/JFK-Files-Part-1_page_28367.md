@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28367.png
-
-Convert to Markdown24 November 1964
+24 November 1964
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

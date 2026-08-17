@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25255.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Conein<br>Lodge, H.C.</td><td>11/2/63</td><td>Diem ✓</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Conein<br>Lodge, H.C.</td><td>11/2/63</td><td>Diem ✓</td></tr></table>
 
 **OCCURRENCE:**
 

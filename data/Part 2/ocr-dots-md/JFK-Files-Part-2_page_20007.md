@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20007.png
-
-Convert to MarkdownA CALL TO ALL AMERICAN WOMEN
+A CALL TO ALL AMERICAN WOMEN
 
 Who are outraged by the senseless slaughter in Vietnam and the persistent neglect of human needs at home
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3576.png
-
-Convert to Markdown2. Venezuela
+2. Venezuela
 
 a. The Communist effort to frustrate the presidential election (1 December) continues.
 

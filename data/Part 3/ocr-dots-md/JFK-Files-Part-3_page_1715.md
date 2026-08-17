@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1715.png
-
-Convert to Markdown**UNITED OFFICIAL USE**
+**UNITED OFFICIAL USE**
 
 STATE 010886
 

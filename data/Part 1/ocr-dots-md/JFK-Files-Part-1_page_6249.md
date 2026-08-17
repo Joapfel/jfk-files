@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6249.png
-
-Convert to MarkdownLA SITUACION UNIVERSITARIA
+LA SITUACION UNIVERSITARIA
 
 Antes del Comunismo
 

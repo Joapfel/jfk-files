@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6165.png
-
-Convert to Markdownc. Tab C contains the identification of nine FBI documents that were surfaced during the appeal search. I recommend this list be referred to the FBI for their action.
+c. Tab C contains the identification of nine FBI documents that were surfaced during the appeal search. I recommend this list be referred to the FBI for their action.
 
 d. Tab D contains a document that originated with the Department of the Army. I recommend that it be returned to the Army for their action.
 

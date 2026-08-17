@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28992.png
-
-Convert to Markdown10 April 1956
+10 April 1956
 
 # MEMORANDUM FOR THE RECORD
 

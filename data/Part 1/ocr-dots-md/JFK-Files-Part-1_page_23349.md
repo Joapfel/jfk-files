@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23349.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE:</td><td>204 FO/RFL/BRB<br/>15 JAN 57</td></tr><tr><td>TO:</td><td>DIRECTOR</td></tr><tr><td>PROMO:</td><td>HAVANA</td></tr><tr><td>ACTION:</td><td>[STRIKED] MH 5</td></tr><tr><td>INFO:</td><td>FI/RI 2, S/C 2</td></tr></tbody></table>
 

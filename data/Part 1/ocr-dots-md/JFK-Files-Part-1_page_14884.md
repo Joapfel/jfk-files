@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14884.png
-
-Convert to Markdownand that he has always been a master of his actions at all times and
+and that he has always been a master of his actions at all times and
 that these actions could have been changed by his own volition. This attitude
 reveals his tremendous narcissistic investment in his own powers. As
 far as this project is concerned, it would be unwise to rely upon the

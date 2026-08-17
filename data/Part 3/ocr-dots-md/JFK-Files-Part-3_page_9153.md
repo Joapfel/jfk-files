@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9153.png
-
-Convert to MarkdownBlack Panther Party: San Francisco-Oakland (Los Angeles)
+Black Panther Party: San Francisco-Oakland (Los Angeles)
 Late, 1960's through early 1970's
 
 The Committee is examining the extent to which this

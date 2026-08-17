@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13117.png
-
-Convert to Markdown94TH CONGRESS
+94TH CONGRESS
 1ST SESSION
 
 U. S. RES. 165

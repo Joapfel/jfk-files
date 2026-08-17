@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25218.png
-
-Convert to MarkdownSECRET.
+SECRET.
 
 UNITED PRESS INTERNATIONAL (UPI)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29957.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION:</td><td>STANDARD FORM AND NO<br/>ATT N/W TO EGBT 2387</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION:</td><td>STANDARD FORM AND NO<br/>ATT N/W TO EGBT 2387</td></tr></table>
 
 MEMORANDUM FITNESS REPORT
 

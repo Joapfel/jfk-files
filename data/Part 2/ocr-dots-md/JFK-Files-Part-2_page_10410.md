@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10410.png
-
-Convert to MarkdownOJCS-594-73
+OJCS-594-73
 
 11 MAY 1973
 

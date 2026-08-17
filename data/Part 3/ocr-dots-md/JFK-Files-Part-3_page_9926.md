@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9926.png
-
-Convert to MarkdownII. FBI will be responsible for:
+II. FBI will be responsible for:
 
 1. All investigations of cases in these categories involving civilians and foreign nationals of all classes in the continental United States, Puerto Rico, the Virgin Islands, the State of Hawaii**, and the State of Alaska* except as specifically described hereinafter in Paragraph V, Section 5.
 

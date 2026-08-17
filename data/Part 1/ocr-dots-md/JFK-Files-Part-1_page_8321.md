@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8321.png
-
-Convert to Markdown12 May 1969
+12 May 1969
 
 MEMORANDUM FOR: Mr. Nathan L. Ferris
 Legal Attache

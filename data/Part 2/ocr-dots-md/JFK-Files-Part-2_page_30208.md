@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30208.png
-
-Convert to MarkdownAdmiral Stansfield Turner OCR
+Admiral Stansfield Turner OCR
 
 by the fact that Blahut had opened the Committee's safe in which the photos were stored, and on the first two interviews with the Committee, he lied about having done so;
 

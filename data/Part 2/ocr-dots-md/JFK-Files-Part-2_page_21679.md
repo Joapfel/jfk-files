@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21679.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of giving information to the Thai authorities so that they
 could decide whether to exert jurisdiction?

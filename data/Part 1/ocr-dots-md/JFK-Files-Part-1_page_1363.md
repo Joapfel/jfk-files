@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1363.png
-
-Convert to Markdown14 February 1977
+14 February 1977
 
 MEMORANDUM
 

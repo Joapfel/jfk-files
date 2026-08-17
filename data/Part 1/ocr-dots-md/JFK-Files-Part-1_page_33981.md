@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33981.png
-
-Convert to MarkdownSECRET
+SECRET
 
 are turning out, these estimates appear to have been sound indeed. The AMHIM bulletin continues to give good replay to those studies which results in their dissemination throughout Latin America.
 

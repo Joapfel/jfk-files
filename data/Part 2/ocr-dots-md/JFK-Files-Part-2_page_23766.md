@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23766.png
-
-Convert to Markdowninfluencing the carrying out of the election?
+influencing the carrying out of the election?
 
 Senator Huddleston. Well, we subvert our own elections every time we run.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26309.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 <table><tr><td>SECRET<br/>(When Filled In)</td></tr></table>
 

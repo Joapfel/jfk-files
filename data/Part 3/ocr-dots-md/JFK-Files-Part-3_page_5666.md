@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5666.png
-
-Convert to Markdown2:35 p.m.
+2:35 p.m.
 
 June 17, 1963
 

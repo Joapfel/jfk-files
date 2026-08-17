@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10879.png
-
-Convert to Markdown# PROJECT
+# PROJECT
 
 PROJECT
 

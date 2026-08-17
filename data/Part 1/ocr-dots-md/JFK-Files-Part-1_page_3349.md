@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3349.png
-
-Convert to Markdownwhich AMYUM-19 belongs), liaison with AWORLD conducted
+which AMYUM-19 belongs), liaison with AWORLD conducted
 through AMYUM-19 ipso facto involves KUBARK in factional
 strife. We recall that some of the major troubles be-
 setting the action mechanism prior Playa Giron stemmed

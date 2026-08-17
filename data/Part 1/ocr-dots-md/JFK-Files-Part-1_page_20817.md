@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20817.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filled in)
 
 <table><thead><tr><td colspan="4">8. PHYSICAL DESCRIPTION OF PLACER (Permanent Place of Residence, unless address is item 6 is approved in lieu thereof)</td></tr><tr><td>PULL ADDRESS</td><td>8204 Stone Tail Drive<br/>Jonesburg, PA 15079</td><th colspan="2">9. OTHER PLACE REQUESTS (Requested Permanent Place of Residence if different from Item 5)</th></tr><tr><th colspan="2">FULL ADDRESS</th><th colspan="2">CONCUR</th></tr><tr><th>DEPUTY DIRECTOR</th><th></th><th colspan="2">DATE</th></tr></thead><tbody><tr><td>APPROVED</td><td></td><td>APPROVED</td><td></td></tr><tr><td>DEPUTY DIRECTOR</td><td>[Signature]</td><td>DIRECTOR OF PERSONNEL</td><td>DATE</td></tr></tbody></table>

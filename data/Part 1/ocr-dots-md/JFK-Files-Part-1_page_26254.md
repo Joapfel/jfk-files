@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26254.png
-
-Convert to MarkdownAddonda, 17 January 1967, at Headquarters
+Addonda, 17 January 1967, at Headquarters
 
 1. My offer to Rico Galan (para 4) to pay him for an article he might write for CORRISPONDENZA SOCIALISTA was made at the suggestion of LIEMVOY/2.
 

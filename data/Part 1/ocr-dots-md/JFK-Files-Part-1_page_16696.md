@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16696.png
-
-Convert to Markdownc) Propaganda campaigns for and against. Periodicals; themes.
+c) Propaganda campaigns for and against. Periodicals; themes.
 
 **10. Relations with the United States**
 

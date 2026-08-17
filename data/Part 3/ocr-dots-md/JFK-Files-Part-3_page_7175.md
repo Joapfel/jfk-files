@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7175.png
-
-Convert to Markdown1 committee of the Senate which may be called, for con-
+1 committee of the Senate which may be called, for con-
 
 2
 venience of expression, the Select Committee To Study

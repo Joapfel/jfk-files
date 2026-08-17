@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30561.png
-
-Convert to Markdown23 January 1948
+23 January 1948
 
 **TO:** Newton J. Killer
 

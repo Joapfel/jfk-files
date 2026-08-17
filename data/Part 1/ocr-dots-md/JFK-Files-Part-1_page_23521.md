@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23521.png
-
-Convert to Markdown<table><thead><tr><th></th><th>TO</th><th>FROM</th><th>SUBJECT</th></tr></thead><tbody><tr><td></td><td>: Chief, WHD</td><td>: Chief of Station, San José</td><td>: GENERAL— Operational<br/>: Alfredo T. POVEDANO</td></tr></tbody></table>
+<table><thead><tr><th></th><th>TO</th><th>FROM</th><th>SUBJECT</th></tr></thead><tbody><tr><td></td><td>: Chief, WHD</td><td>: Chief of Station, San José</td><td>: GENERAL— Operational<br/>: Alfredo T. POVEDANO</td></tr></tbody></table>
 
 DATE: 11 August 1952
 

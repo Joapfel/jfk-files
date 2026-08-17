@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5412.png
-
-Convert to Markdown# FBI: Missing the Point
+# FBI: Missing the Point
 
 Many disclosures have surfaced so rapidly that the public may have become snared to still more revelations about improper activities of government intelligence agencies. Yet the admissions and comments Monday by FBI Director Clarence M. Kelley should not be permitted to pass unnoticed:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6836.png
-
-Convert to Markdowncc Mr. Ladd
+cc Mr. Ladd
 Mr. Rosen
 Mr. Walley
 Mr. Pennington

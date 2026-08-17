@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27111.png
-
-Convert to MarkdownSUBJECT: Frank STURGIS
+SUBJECT: Frank STURGIS
 
 e. Stanley TAYLOR - Leeds, United Kingdom; allegedly an associate of Roberto
 

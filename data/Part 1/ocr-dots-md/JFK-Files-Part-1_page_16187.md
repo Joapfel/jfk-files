@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16187.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 DDO/WH/7/CAR/Albert Ramos:cm:7493/1956 (5 August 74)
 

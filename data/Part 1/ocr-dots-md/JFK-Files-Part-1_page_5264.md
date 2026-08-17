@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5264.png
-
 in the tobacco industry was Army AGLILE, who
 
 FILE IN 201- 357029

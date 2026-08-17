@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13606.png
-
-Convert to Markdownviernes 8 diciembre 1961
+viernes 8 diciembre 1961
 
 cuando acercan algunas sugerencias y reformas substantiales que es necesario introducir. ACUILAR está de acuerdo en ello y se comunicará la semana entrante con CASTILLO para hacer lo suyunministri lo que rescidió el Comité Nacional.
 

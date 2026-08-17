@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1879.png
-
-Convert to MarkdownDWAYNE ORVILLE ANDREAS
+DWAYNE ORVILLE ANDREAS
 
 1. According to press reports of 25 August 1972, Mr. Andreas is Chairman of the First Oceanic Corporation, Minneapolis, Minnesota. It was his $25,000 check which was given to Mr. Kenneth Dahlberg, Midwest Regional Chairman of the Finance Committee to Re-elect the President, and which eventually made its way into the Miami, Florida, bank account of Watergate participant Bernard L. Barker.
 

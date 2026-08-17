@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14966.png
-
-Convert to MarkdownPROPOSED LEGISLATION REGARDING CRIMES
+PROPOSED LEGISLATION REGARDING CRIMES
 AGAINST BANKING INSTITUTIONS
 
 By letter to the Attorney General 3/1/65, we called attention to the rise in crimes against banking institutions and recommended the Department propose legislation which would require bank supervisory agencies to establish minimum security requirements for all banks under Federal Charter. A follow-up letter was sent on 3/29/65, and again on 3/1/66. The Department advised on 4/12/66, that a legislative proposal was being developed. A proposed bill was submitted for our review on 6/6/66, which we returned on 6/9/66, recommending no changes. In reply to our inquiry on 7/25/66, the Department, on 8/3/66, advised the Bill was under study by the Office of the Deputy Attorney General.

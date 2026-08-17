@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24779.png
-
-Convert to Markdownadvised that the State Department representative in the Dominican Republic had made the assessment that the Dominican government could not be overthrown without the assassination of Trujillo.
+advised that the State Department representative in the Dominican Republic had made the assessment that the Dominican government could not be overthrown without the assassination of Trujillo.
 
 Bissell testified that he had no clear recollection of the details of the February 14 briefing and he was unable to say whether or not the method of overthrow to be attempted by the dissidents was discussed. (Bissell, 7/22, pp. 101, 102)
 

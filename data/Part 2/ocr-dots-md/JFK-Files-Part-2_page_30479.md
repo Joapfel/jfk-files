@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30479.png
-
-Convert to Markdown1-54
+1-54
 
 Mexican government, given its position, was the only government
 in the Western Hemisphere which maintained relations with

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19792.png
-
-Convert to MarkdownAs the youth organization of the Socialist Workers Party (SWP), the Young Socialist Alliance (YSA) serves as the main source of recruitment into that organization. The YSA is described in the masthead of its official publication, "The Young Socialist Organizer," as "A multinational revolutionary socialist youth organization."
+As the youth organization of the Socialist Workers Party (SWP), the Young Socialist Alliance (YSA) serves as the main source of recruitment into that organization. The YSA is described in the masthead of its official publication, "The Young Socialist Organizer," as "A multinational revolutionary socialist youth organization."
 
 The SWP has been designated pursuant to Executive Order 10450.
 

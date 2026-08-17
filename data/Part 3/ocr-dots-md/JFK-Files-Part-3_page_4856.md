@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4856.png
-
-Convert to MarkdownSECRET.
+SECRET.
 
 MM T-5 is PCI BERNARD SHAFFER.
 

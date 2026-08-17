@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5257.png
-
-Convert to Markdown<table><thead><tr><td>No. 25,027</td></tr></thead><tbody><tr><td>QUOTIDIEN LE PLUS ANCIEN D'HAITI — PONDE EN 1896</td></tr><tr><td>9ème ANNEE</td></tr></tbody></table>
+<table><thead><tr><td>No. 25,027</td></tr></thead><tbody><tr><td>QUOTIDIEN LE PLUS ANCIEN D'HAITI — PONDE EN 1896</td></tr><tr><td>9ème ANNEE</td></tr></tbody></table>
 
 Figure de Pionnier :
 Clémard Joseph Charles

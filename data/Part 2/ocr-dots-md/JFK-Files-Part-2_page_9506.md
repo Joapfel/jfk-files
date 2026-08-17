@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9506.png
-
-Convert to MarkdownUNited sTATEs DEpARTMENT oF JuSTiCe
+UNited sTATEs DEpARTMENT oF JuSTiCe
 FEDERAL BUREAU OF INVESTIGA Tion
 
 CONFIDENTIAL

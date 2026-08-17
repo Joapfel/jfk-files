@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35670.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Julio</td>
     <td>1</td>

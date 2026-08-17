@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_10546.png
-
 that the Denver Police Department had
 
 1 - The Attorney General

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32622.png
-
-Convert to Markdownfact that, under these general circumstances, he continued to
+fact that, under these general circumstances, he continued to
 function normally, responding to numerous demands being made
 on him by the situation and Headquarters, and set about paving
 the way for his successor to take up the cudgel from the best

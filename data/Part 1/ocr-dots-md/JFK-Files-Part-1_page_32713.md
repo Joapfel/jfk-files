@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32713.png
-
-Convert to Markdown**CONFIDENTIAL**
+**CONFIDENTIAL**
 
 DATE: 15 September 1958
 

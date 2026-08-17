@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13592.png
-
-Convert to Markdown62-116395
+62-116395
 
 1 - M J. J. McDermott
    (Attn: H. R. Hauer)

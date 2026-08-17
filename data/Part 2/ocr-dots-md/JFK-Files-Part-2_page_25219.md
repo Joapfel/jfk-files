@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25219.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>DON, GENERAL<br>HARKINS, GENERAL<br>CONEIN,</td><td>Oct. 24, 1963</td><td>DIEM ✓</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>DON, GENERAL<br>HARKINS, GENERAL<br>CONEIN,</td><td>Oct. 24, 1963</td><td>DIEM ✓</td></tr></table>
 
 OCCURRENCE:
 

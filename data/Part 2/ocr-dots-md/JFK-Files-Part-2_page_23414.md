@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23414.png
-
-Convert to MarkdownHW
+HW
 
 <table><tr><td rowspan="2">DIRECTOR<br>LEOPOLDVILLE<br>C/AF (DR HUNTER, AF DIY NOTIFIED 1940 30 SEP)<br>DDP, S/C 2</td><td></td><td>SEP 30 '75 4:00 PM</td></tr><tr><td colspan="2"></td><td>RECD U CASE SETT.</td></tr><tr><td colspan="2"></td><td>OPERATIONAL IMMEDIATE</td></tr><tr><td colspan="2"></td><td>IN 28857</td></tr></table>
 

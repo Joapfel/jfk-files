@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10542.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tbody><tr><td colspan="3">CLASSIFIED MESSAGE TOTAL COPIES</td></tr><tr><td>ISSUE: ☒ YES ☐ NO</td><td style="text-align:right;">201-823979</td><td></td></tr><tr><td colspan="3">S-REF TO FILE No. 201-101,256</td></tr><tr><td>FILE D15 ☒ DET. TO SEARCH ☐</td><td colspan="2"></td></tr><tr><td>DESTROY ☐ S16.</td><td colspan="2">Lester</td></tr><tr><td colspan="3" style="border-top: 1px solid black; padding:0; height:1em;"></td></tr><tr><td colspan="2">ACTION WH-☑ RID COPY</td><td colspan="2">ADVANCE COPY ☐ SLIPPED ☐ TYPED</td></tr><tr><td colspan="4" style="border-top: 1px solid black; padding:0;"><table><tbody><tr><td>ACTION</td><td>WH-☑</td><td>RID COPY</td></tr></tbody></table></td></tr><tr><td>INFO FILE WBG WHSCOB,Cigarettes, Cigars, Fij</td><td colspan="3"></td></tr></tbody></table>
 

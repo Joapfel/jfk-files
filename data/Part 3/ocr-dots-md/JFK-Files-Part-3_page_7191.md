@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7191.png
-
-Convert to MarkdownSECRET
+SECRET
 
 All United States governmental components have some individual internal responsibility for the security of personnel, records, and physical facilities. Aside from these basic security functions, the overall counterintelligence role in the United States Government is shared by several specific intelligence agencies. The conduct of counterintelligence overseas is one of CIA's original functions flowing from the National Security Act of 1947, as amended, and specifically spelled out and developed in a series of National Security Council Intelligence Directives. The FBI has the general responsibility for conduct of counterintelligence operations within the United States based on statutory responsibilities (enforcement of espionage, sabotage, neutrality, registration acts, and related matters) as well as a series of Presidential Directives and Attorney General orders.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23470.png
-
-Convert to MarkdownSECRET - EYES ONLY
+SECRET - EYES ONLY
 
 While agreeing that the Government could not take an official stand, Mr. Merchant expressed his personal opinion that if the companies should suspend operations, this would give the Soviets a great opportunity, given the fact that the Cuban economy is so dependent on oil. He pointed out that no alternative leader to Castro has yet emerged, and that the United States would be held liable for any economic crisis that might be precipitated in this way.
 

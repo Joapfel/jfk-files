@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14568.png
-
-Convert to MarkdownSAC, New York (105-30508) (Orig and 3)
+SAC, New York (105-30508) (Orig and 3)
 
 October 16, 1958
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24584.png
-
-Convert to Markdown"General Lansdale:...the meeting at which they said that was still on a development of my original task, which was a revolt and an overthrow of a regime. At the same time, we were getting intelligence accumulating very quickly of something very different taking place in Cuba than we had expected, which was the Soviet technicians starting to come in and the possibilities of Soviet missiles being placed there... At that time, I thought it would be a possibility someplace down the road in which there would be some possible need to take action such as _assassination_."*
+"General Lansdale:...the meeting at which they said that was still on a development of my original task, which was a revolt and an overthrow of a regime. At the same time, we were getting intelligence accumulating very quickly of something very different taking place in Cuba than we had expected, which was the Soviet technicians starting to come in and the possibilities of Soviet missiles being placed there... At that time, I thought it would be a possibility someplace down the road in which there would be some possible need to take action such as _assassination_."*
 
 (Lansdale, p. 21).
 

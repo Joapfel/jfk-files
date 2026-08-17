@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1682.png
-
-Convert to MarkdownA11
+A11
 
 L20 1C0 045
 

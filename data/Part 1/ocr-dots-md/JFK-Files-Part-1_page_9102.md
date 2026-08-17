@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9102.png
-
-Convert to MarkdownCONFORME
+CONFORME
 
 3. Fancisco Valdez, Presidente de la Nueva Colombia
 

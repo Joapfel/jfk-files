@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4439.png
-
-Convert to MarkdownPERSONNEL DEPT.
+PERSONNEL DEPT.
 C.I.A.
 WASHINGTON,D.C.
 

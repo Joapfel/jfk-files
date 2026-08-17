@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2928.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 however, that the United States continue its surveillance and be prepared to act if a plane were shot down.
 

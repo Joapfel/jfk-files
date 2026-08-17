@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6528.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Second, with respect to assisting the Latin American nations to resist the impact of Communist subversion, there is a summary of our current programs and a listing of specific additional things which we can do; in other words, a treatment of the subversive question from two points of view - therapy as regards Cuba; prophylaxis as regards Latin America at large.
 

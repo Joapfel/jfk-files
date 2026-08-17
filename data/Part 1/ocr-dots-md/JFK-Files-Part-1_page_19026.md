@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19026.png
-
-Convert to MarkdownPARTIES IN
+PARTIES IN
 BADEN-WUERTTEMBERG
 
 90630 5 68

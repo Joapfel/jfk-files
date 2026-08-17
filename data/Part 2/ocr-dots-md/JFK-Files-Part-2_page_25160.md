@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25160.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 Diem
 

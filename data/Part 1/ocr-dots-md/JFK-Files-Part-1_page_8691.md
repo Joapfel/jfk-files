@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8691.png
-
-Convert to Markdown8.11 Al ser presentado a un número regular de personas
+8.11 Al ser presentado a un número regular de personas
 
 Dedica un momento a cada una
 Responde a cada presentación rápidamente

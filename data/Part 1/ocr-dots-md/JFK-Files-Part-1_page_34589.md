@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34589.png
-
-Convert to MarkdownEMERGENCY INSTRUCTIONS
+EMERGENCY INSTRUCTIONS
 (Continued)
 
 2. Windows in cell to remain blacked out and doors to other rooms on 3rd floor to be closed and locked when SUBJECT leaves cell, in order to prevent his becoming oriented to surroundings.

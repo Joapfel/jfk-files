@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12427.png
-
-Convert to Markdown# Proporción Talla - Industrial - Sort
+# Proporción Talla - Industrial - Sort
 
 La lines divisiona entre talla e industrial es a veces arbitraria y no absoluta. Generalmente el diamante propio para la talla se caracteriza así:
 

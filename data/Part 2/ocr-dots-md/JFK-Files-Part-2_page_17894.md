@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17894.png
-
-Convert to MarkdownTHE following are the categories of intelligence currently disseminated to the public by the Department of Defense and the Military College of South Carolina.
+THE following are the categories of intelligence currently disseminated to the public by the Department of Defense and the Military College of South Carolina.
 
 The following list indicates the types of intelligence currently disseminated by the Military College of South Carolina:
 

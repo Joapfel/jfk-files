@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22535.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 added that, "If air drop delivery not possible, Hqs now studying means of effecting delivery by sea if deemed more practicable."
 

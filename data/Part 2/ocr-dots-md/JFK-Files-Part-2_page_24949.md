@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24949.png
-
-Convert to Markdownwith O'Donnell a plan to snatch Lumumba from "protective custody."
+with O'Donnell a plan to snatch Lumumba from "protective custody."
 But he does not specifically remember this.
 
 COS said that "O'Donnell did not seem to do anything most of the time, and I didn't take him very seriously. He spent a lot of time drinking." COS said that he was not aware of any action O'Donnell took to carry out an assassination or a "snatch" of Lumumba.

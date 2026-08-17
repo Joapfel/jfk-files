@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4988.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">SECRET 2914208 SEP 76 INTEL</td>

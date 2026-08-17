@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13625.png
-
-Convert to Markdown1. meet to coordinate. They do coordination of their work?
+1. meet to coordinate. They do coordination of their work?
 2. AMLASH Case Officer. I don't know. I wasn't involved
 3. in that part of it.
 4. Mr. Johnston. Was SAS targeted directly at Cuba, or

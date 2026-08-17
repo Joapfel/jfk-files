@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19695.png
-
-Convert to MarkdownWFO 100-55290
+WFO 100-55290
 
 appeared to be newspapers. Source states that all the girls are generally quiet and stay to themselves.
 

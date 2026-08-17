@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26482.png
-
-Convert to Markdown# FIELD INFORMATION REPORT
+# FIELD INFORMATION REPORT
 
 GRADING OF SOURCE: A Complete evaluation of a source is possible only after the document has been read and understood. This evaluation should be based on a consideration of all available evidence, including any information provided by the source itself (for example, in a letter). It should also take into account any bias or other factor that may affect the reliability of the information.
 

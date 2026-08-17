@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10323.png
-
-Convert to MarkdownSENSITIVE
+SENSITIVE
 
 9 July 1973
 

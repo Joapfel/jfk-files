@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26692.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a successful operation. By that, I mean they didn't do as
 much damage as they wanted to because they had to get out

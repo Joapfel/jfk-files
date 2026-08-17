@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_325.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CONFIDENTIAL
 NY 105-14669

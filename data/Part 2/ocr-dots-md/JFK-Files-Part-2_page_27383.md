@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27383.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TABLE OF CONTENTS
 

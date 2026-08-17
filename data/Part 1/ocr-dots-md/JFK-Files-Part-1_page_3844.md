@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3844.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2"> Earl Williamson, DC, WH 'COG '7451/1948 9 March 1967 </td>
     <td> SECRET </td>

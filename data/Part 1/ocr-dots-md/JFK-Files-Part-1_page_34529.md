@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34529.png
-
-Convert to Markdown3. What is the procedure after a tourist applies for a Soviet visa? Do you know at what tourist agency or in what foreign country Oswald applied for a visa to the USSR or bought a tour to the USSR? Who was the Soviet Intourist representative in that country who took Oswald's visa application to the Soviet Embassy?
+3. What is the procedure after a tourist applies for a Soviet visa? Do you know at what tourist agency or in what foreign country Oswald applied for a visa to the USSR or bought a tour to the USSR? Who was the Soviet Intourist representative in that country who took Oswald's visa application to the Soviet Embassy?
 
 ✓ 9. You stated previously that Oswald was not considered a defector. If he was not a defector, then what was he?
 

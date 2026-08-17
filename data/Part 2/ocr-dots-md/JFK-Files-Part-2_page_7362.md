@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7362.png
-
-Convert to Markdown6) Areas should be designated in which classified material can be reviewed. These areas should be secure against access by unauthorized personnel. Material should not be removed from these areas for the sake of convenience except when necessary for the work of the committees and should not be transported overnight to the office or residence of personnel of the committees.
+6) Areas should be designated in which classified material can be reviewed. These areas should be secure against access by unauthorized personnel. Material should not be removed from these areas for the sake of convenience except when necessary for the work of the committees and should not be transported overnight to the office or residence of personnel of the committees.
 
 (b) Document Security
 

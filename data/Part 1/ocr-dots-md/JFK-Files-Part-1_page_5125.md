@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5125.png
-
-Convert to Markdown# SPECIAL REPORT
+# SPECIAL REPORT
 ## Cuban Extremists in U.S. A GROWING TERROR THREAT
 
 Out from Miami spreads a wave of violence. Terrorists' aim is to topple Castro, free Cuba. Nearly all Cuban refugees share this dream. But the acts of a few zealots create trouble for fellow exiles and for the U.S.

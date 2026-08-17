@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7280.png
-
-Convert to Markdown<table><tr><td>CABLE SEC DISSEM BY PER:</td><td>TOTAL COPIES RL BY</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td>SECRET</td></tr></table>
+<table><tr><td>CABLE SEC DISSEM BY PER:</td><td>TOTAL COPIES RL BY</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td>SECRET</td></tr></table>
 
 REPRODUCTION BY OTHER THAT ISSUING OFFICE IS PROHIBITED
 

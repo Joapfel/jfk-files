@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32461.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 Panamanian Communist Party (PDP) leader Ruperto Thomas' recent trip to Cuba was evidently an effort to persuade Castro to support the PDP rather than the more activist Panamanian pro-Communist VAN group. When he returned to Panama on 14 December, Thomas reportedly said that Jorge Turner, who also went to Havana in September and has not returned, and other VAN leaders are still campaigning against the PDP in Cuba. However, the Cubans claim to have told VAN leaders they must cooperate with the PDP to get Castro support.
 

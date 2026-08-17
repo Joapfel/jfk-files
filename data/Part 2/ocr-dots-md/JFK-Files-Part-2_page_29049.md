@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29049.png
-
-Convert to Markdown# SCHEDULE OF DEDUCTIONS
+# SCHEDULE OF DEDUCTIONS
 
 ## YEAR ENDED
 

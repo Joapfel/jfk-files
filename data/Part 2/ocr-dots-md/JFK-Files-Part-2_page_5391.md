@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5391.png
-
-Convert to MarkdownOIM 98-00044
+OIM 98-00044
 
 13 April 1998
 

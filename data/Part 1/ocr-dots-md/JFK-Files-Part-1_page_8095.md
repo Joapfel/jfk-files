@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8095.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 1 JUNE 1976
 CLASSIFICATION: SECRET

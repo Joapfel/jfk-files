@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11374.png
-
-Convert to Markdownpersonal friends reside.
+personal friends reside.
 
 7. Although at first appearance, and according to his own opinion statements, LITAMIL-9 appears to be extremely nervous because of his clandestine activities in behalf of KUBARK and against Cuba, after some discussion it was apparent that he actually relishes these clandestine actions that he would have engaged in then long before he did, and that he would have continued a covert relationship with KUBARK even after Castro falls, serving either in Mexico (where he has many contacts of interest to KUBARK) or in Cuba in some post in some future government. He has excellent report with his present KUBARK case officer. He states that as long as KUBARK remains willing to accept that he has definite personal limitations, (since he can perform only those clandestine tasks related to his cover and cannot be trained or induced to do anything else) he will gladly continue collaborating with KUBARK as long as desired.
 

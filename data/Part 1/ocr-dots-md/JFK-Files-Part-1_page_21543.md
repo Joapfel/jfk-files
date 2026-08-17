@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21543.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. Has NOSENKO given an acceptable explanation of his motivation in contacting CIA in 1962 and for his defection in 1964? Of the eight listed categories which are being given specific consideration in the matter of the bona fides of NOSENKO, this category is probably the most difficult in which to present a logical position with factual support. There are too many intangible aspects involved and although motivation is an important factor, full resolution of the motivation problem is not a paramount factor in deciding whether NOSENKO is or is not a dispatched agent. NOSENKO could have contacted this Agency in 1962 and defected in 1964 without KGB knowledge and yet even at this late date have failed to disclose some important events of a personal nature which actually were important ingredients in his ultimate decision.
 

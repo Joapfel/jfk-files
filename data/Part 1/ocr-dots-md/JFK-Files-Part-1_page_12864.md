@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12864.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. NOVO Sarnpol, Guillermo. There is no information available on him beyond that provided this Agency by the FBI. There is no current or previous operational interest in this individual.
 

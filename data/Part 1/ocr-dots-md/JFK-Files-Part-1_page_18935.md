@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18935.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 STATUS AND EFFICIENCY REPORT
 
 (197-Instructions on reverse side)

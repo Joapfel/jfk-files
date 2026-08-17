@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32056.png
-
-Convert to MarkdownSECRET (When Pictured In)
+SECRET (When Pictured In)
 
 OFFICE OF PERSONNEL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26826.png
-
-Convert to Markdown14-00000
+14-00000
 
 (On the motion of Mr. Hays, of Michigan, and seconded by Mr. L. S. Taft, of Ohio), was passed the following resolution:
 

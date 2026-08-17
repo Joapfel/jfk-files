@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10242.png
-
-Convert to Markdownyou use the maximum available resources, investigative and
+you use the maximum available resources, investigative and
 intelligence, to collect and report all facts bearing upon
 (riot activity)." Elaborating on this point, he said, "In
 these circumstances we must be certain that every attempt is

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20526.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Secondly, Mr. Hunt has carried with him from SAS a continuing participation in the work of that staff in its two aspects: the countering of Soviet political action and a reawakened and redefined concern with Communist Party operations. He has contributed to the definition of these interests and worked closely with the Branches in identifying opportunities. Neither of these areas are of a nature that has made for prompt common understanding between Headquarters and the field. Mr. Hunt's TDY's have been of major assistance in furthering this understanding.
 

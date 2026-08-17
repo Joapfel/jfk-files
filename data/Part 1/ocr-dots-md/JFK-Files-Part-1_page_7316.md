@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7316.png
-
-Convert to Markdown10.04.20 Have you ever heard anyone describe him as an othlete? Yes _X_ No ___
+10.04.20 Have you ever heard anyone describe him as an othlete? Yes _X_ No ___
 If Yes, give details:
 
 10.04.21 Is he the kind of person who: is very much preoccupied with keep-

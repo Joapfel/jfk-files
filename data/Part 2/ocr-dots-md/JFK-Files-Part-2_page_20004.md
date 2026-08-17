@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20004.png
-
-Convert to MarkdownPD 100-10983
+PD 100-10983
 
 Enclosed for the Bureau are twelve copies, for San Francisco two copies and 750 two copies of a Letterhead Memorandum (LMM) Suitable for dissemination concerning proposed anti-war demonstration activities. May 1, 1968. Portland, Oregon. in support of Demonstration Projecting U.S. Policy in Vietnam, Washington, D.C. May 13, '68. Sources utilized in this LMM, who have furnished reliable information in the past, are as follows:
 

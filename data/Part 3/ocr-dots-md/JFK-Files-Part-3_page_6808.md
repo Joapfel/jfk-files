@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6808.png
-
-Convert to MarkdownGeneral and the President. Prior to that time, again
+General and the President. Prior to that time, again
 based upon talks between the Attorney General and Mr.
 Evans at which I was present, it had been decided that it
 was not in the best interest of the United States to

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6234.png
-
-Convert to Markdownin connection therewith. This brochure reflected
+in connection therewith. This brochure reflected
 that ABERNATHY at that time served as President
 of the Montgomery (Alabama) Improvement Association.
 

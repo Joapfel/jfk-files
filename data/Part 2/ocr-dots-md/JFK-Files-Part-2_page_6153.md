@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6153.png
-
-Convert to Markdown-End Footnotes-
+-End Footnotes-
 
 In the case of the Kennedy assassination, how far are we willing to countenance secrecy when a fully illuminated rendition of the events surrounding the President's murder could go a long way to restore trust in government? At what point do the costs of concealing materials become sufficiently high to our government's credibility that they are no longer worth paying? At what point do the costs of disclosure become so great that we compromise our future security? Perhaps nowhere are these issues more acutely felt by the JFK Board than in those matters involving intelligence operations.
 

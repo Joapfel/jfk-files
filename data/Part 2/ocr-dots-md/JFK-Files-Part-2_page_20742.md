@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20742.png
-
-Convert to MarkdownPHILADELPHIA WOMEN'S NATIONAL
+PHILADELPHIA WOMEN'S NATIONAL
 ABORTION ACTION COALITION
 
 The SWP has been designated pursuant to Executive

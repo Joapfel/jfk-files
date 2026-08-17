@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21798.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 FitzGerald when it became the Special Activities Staff and he took it over?
 

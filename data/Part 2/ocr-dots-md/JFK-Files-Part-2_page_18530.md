@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18530.png
-
-Convert to Markdown5-113a (Rev. 3-21-73)
+5-113a (Rev. 3-21-73)
 
 SECRET
 

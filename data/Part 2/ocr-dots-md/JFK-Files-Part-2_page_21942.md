@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21942.png
-
-Convert to Markdown(with this message on September 24. (Task Force Log, September 23)
+(with this message on September 24. (Task Force Log, September 23)
 
 Thomas Karamessines, the Deputy Director for Plans, testified:
 

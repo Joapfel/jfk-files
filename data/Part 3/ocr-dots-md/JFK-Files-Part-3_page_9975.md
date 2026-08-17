@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9975.png
-
-Convert to Markdown--investigation of employees and other individuals to be granted access to sensitive information;
+--investigation of employees and other individuals to be granted access to sensitive information;
 
 --collection of foreign intelligence information from foreign nationals and, from cooperating U.S. citizens;
 

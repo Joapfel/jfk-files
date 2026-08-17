@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21815.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (Auto-7 A)
 

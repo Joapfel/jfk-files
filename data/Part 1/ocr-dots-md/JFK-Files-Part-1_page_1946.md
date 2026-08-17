@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1946.png
-
-Convert to Markdownregarding this part of Maheu's life. It was Flynn who informed
+regarding this part of Maheu's life. It was Flynn who informed
 the undersigned some months ago that when Maheu secured
 employment with the former public administration in the 1950's
 his sponsor was Senator Margaret Chase Smith.

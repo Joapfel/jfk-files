@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11291.png
-
-Convert to MarkdownWhen it is determined that a security index subject is imprisoned, make arrangements with the confining institutions to be informed of the subject's release. An administrative tickler should be set up for a date shortly prior to the expected date of the subject's release to assure that you are informed of the subject's release. Upon receipt of advice of the release of the subject, ascertain whether the subject should be continued in the security index. If so, submit FD-122 in accordance with instructions set forth below.
+When it is determined that a security index subject is imprisoned, make arrangements with the confining institutions to be informed of the subject's release. An administrative tickler should be set up for a date shortly prior to the expected date of the subject's release to assure that you are informed of the subject's release. Upon receipt of advice of the release of the subject, ascertain whether the subject should be continued in the security index. If so, submit FD-122 in accordance with instructions set forth below.
 
 Standards for inclusion of such subjects in the unavailable section of the security index are the same as those for any other potentially dangerous subject.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26767.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="4">SECRET</td></tr><tr><td>FROM<br/>México, City</td><td colspan="3"></td></tr><tr><td>ACTION<br/>WHICHE 8</td><td colspan="3"></td></tr><tr><td>ADVANCE COPY</td><td>[ ]</td><td>[x]</td><td>[ ]</td></tr><tr><td>UNIT<br/>INHIS</td><td colspan="2"></td><td></td></tr><tr><td>TIME<br/>01.00</td><td colspan="2"></td><td>[X]</td></tr><tr><td>BY<br/>1/7</td><td colspan="2"></td><td></td></tr></table>
 

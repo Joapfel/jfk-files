@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31392.png
-
-Convert to MarkdownDecember 1, 1952
+December 1, 1952
 
 Dear Redwood,
 

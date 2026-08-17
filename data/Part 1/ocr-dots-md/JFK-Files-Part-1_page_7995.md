@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7995.png
-
-Convert to Markdown10 May 57
+10 May 57
 38
 
 **Proof:** J. M. Hone

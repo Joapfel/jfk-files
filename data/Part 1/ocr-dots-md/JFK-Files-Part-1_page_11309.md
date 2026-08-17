@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11309.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES
 
 <table><thead><tr><td></td><td colspan="2">CUTING</td></tr></thead><tbody><tr><td>1</td><td></td><td>5</td></tr><tr><td>2</td><td></td><td>6</td></tr><tr><td>3</td><td></td><td>7</td></tr><tr><td>4</td><td></td><td>8</td></tr></tbody></table>

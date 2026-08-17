@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14675.png
-
-Convert to MarkdownNational Archives and Records Administration
+National Archives and Records Administration
 
 Kennedy Assassination Collection Full Results
 

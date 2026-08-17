@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10644.png
-
-Convert to MarkdownAt West Palm Beach, Florida
+At West Palm Beach, Florida
 (Palm Beach County)
 
 Council For Statehood

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35178.png
-
-Convert to MarkdownSTATEMENT OF EXPENCES
+STATEMENT OF EXPENCES
 
 ANNEX "A"
 

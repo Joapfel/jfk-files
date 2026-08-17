@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24976.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE FOUR JIMWAVE 1469 SECRET
 

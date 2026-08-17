@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26858.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 TOTAL COPIES 25
 

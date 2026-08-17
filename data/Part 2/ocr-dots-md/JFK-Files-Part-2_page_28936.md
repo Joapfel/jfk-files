@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28936.png
-
-Convert to Markdown5010-107
+5010-107
 
 UNITED STATES GOVERNMENT
 Memorandum

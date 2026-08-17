@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15708.png
-
-Convert to MarkdownSECRET
+SECRET
 
 member of a REDSOX team. This project was postponed for a year. In the interim he was assigned to TSD, where he was employed at a covert site, involving the cataloging of specific information from East German Documents, and developing and/or improving tools and methods for picking locks. On 17 June 1940, it was decided that Project ASENTINEL would not be carried out. On receipt of this information SR/DOB en-deavored to place subject elsewhere, where his training would be beneficial. The African Division expressed interest and had agreed to utilize him as a result of assessments. During the period from the 21st of October until dispatch, subject will be carried on OGA funds.
 

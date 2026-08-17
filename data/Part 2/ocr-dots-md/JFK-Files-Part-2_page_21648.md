@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21648.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 Mr. Schwarz. This message states:
 

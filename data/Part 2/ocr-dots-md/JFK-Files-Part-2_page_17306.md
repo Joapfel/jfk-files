@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17306.png
-
-Convert to MarkdownSocial Health, said his reac-
+Social Health, said his reac-
 tion to the summons was
 "this rassment by the City
 Health Department."

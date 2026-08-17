@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23335.png
-
-Convert to Markdown14-00000
+14-00000
 
 CLASSIFIED MESSAGE
 

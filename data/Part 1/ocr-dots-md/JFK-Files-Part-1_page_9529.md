@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9529.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="2">U.S. MILITARY PERSONNEL - IF ANY, CURRENTLY ENLISTED OR ENERGIZED IN THE U.S. ARMY, NCO OR ENLISTED IN THE U.S. NAVY, AIR OR-space (IF APPLICABLE) TO BE INCLUDED, IF AT ALL, ONLY IN A TOTAL OF

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3787.png
-
-Convert to Markdownhave started a campaign to discredit him, like the one
+have started a campaign to discredit him, like the one
 the Miami Herald started against me at first. But they
 it
 should never have done/like they did. Another mistake

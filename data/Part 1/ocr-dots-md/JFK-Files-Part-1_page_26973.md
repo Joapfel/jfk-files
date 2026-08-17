@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26973.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 17 MARCH 1975
 ORIG: WENDY RAHMAN

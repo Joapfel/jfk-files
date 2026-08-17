@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2581.png
-
-Convert to MarkdownConvention in Atlantic City, New Jersey,
+Convention in Atlantic City, New Jersey,
 in August 1964;
 
 (2) relate to electronic surveillances of telephones and/or premises at 2414 Atlantic Avenue and/or the Clairidge Hotel in Atlantic City, New Jersey, during August 1964. (D.7.a.b.)

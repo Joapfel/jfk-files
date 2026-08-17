@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24758.png
-
-Convert to Markdown- 8 -
+- 8 -
 
 Other LEONOV's Mexican contacts of particular
 interest are:

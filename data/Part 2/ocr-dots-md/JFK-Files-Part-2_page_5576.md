@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5576.png
-
-Convert to MarkdownMr. MURPHY. I honestly couldn't find anyone, or I am not aware of anyone that the division or the CI Staff, that is, those officers concerned with this case, were handling it directly. I don't know of any former Soviet intelligence officer or other knowledgeable source to whom they spoke about this matter who felt this would have been possible. If someone did, I never heard of it.
+Mr. MURPHY. I honestly couldn't find anyone, or I am not aware of anyone that the division or the CI Staff, that is, those officers concerned with this case, were handling it directly. I don't know of any former Soviet intelligence officer or other knowledgeable source to whom they spoke about this matter who felt this would have been possible. If someone did, I never heard of it.
 
 Mr. KLEIN. During this interrogation period, beginning in April 1964, would it be fair to say that the questions relating to Oswald and the problems which you have just been discussing relating to Oswald constituted a major area for questioning and in interrogating Nosenko?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4137.png
-
-Convert to Markdown3. The covert action project for Bolivia was approved.
+3. The covert action project for Bolivia was approved.
 
 4. Matt Baird put on a fine briefing on CIA counterinsurgency training. Bundy indicated he would reassure the Attorney General and I do not think we will have any further problem as to outside inspections or overseeing of our training program.
 

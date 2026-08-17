@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31414.png
-
-Convert to Markdown<table><thead><tr><th>PACKAGES</th><th></th><th>WEIGHTS*</th></tr><tr><td>NO.</td><td>KIND</td><td></td></tr></thead><tbody><tr><td>BX</td><td>FIREARMS, NOI (NMFC: 69300)</td><td>CUBE 8.8 183</td></tr><tr><td colspan="2">HANDLE I A W, APR 205-1</td><td></td></tr></tbody></table>
+<table><thead><tr><th>PACKAGES</th><th></th><th>WEIGHTS*</th></tr><tr><td>NO.</td><td>KIND</td><td></td></tr></thead><tbody><tr><td>BX</td><td>FIREARMS, NOI (NMFC: 69300)</td><td>CUBE 8.8 183</td></tr><tr><td colspan="2">HANDLE I A W, APR 205-1</td><td></td></tr></tbody></table>
 
 <table><tr><td>ISSUING OFFICE<br/>TMO 437TH MAW CHARLESTON AFB,S.C. 29404</td></tr></table>
 

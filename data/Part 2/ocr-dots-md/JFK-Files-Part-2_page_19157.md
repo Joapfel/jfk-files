@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19157.png
-
-Convert to MarkdownAMERICAN INSTITUTE FOR MARXIST STUDIES
+AMERICAN INSTITUTE FOR MARXIST STUDIES
 
 A source advised on April 9, 1963, that on April 7, 1963, at a meeting of the District Committee of the Communist Party, United States of America (CPUSA), of New England, held in Boston, Massachusetts, HERBERT APTHEKER stated he was developing an organization called American Institute for Marxist Studies (AIMS), which would eventually legalize the CP. He stated AIMS would publish literature on History, Science, Physics, Archeology and other subjects which would be put out quarterly with various supplements.
 

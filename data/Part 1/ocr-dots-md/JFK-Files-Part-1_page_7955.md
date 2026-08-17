@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7955.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: MARTIN LUTHER KING, JR.
 

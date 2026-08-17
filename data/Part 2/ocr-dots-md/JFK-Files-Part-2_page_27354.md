@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27354.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A - Ltr from Knoche to Belin - 30 May 75
 

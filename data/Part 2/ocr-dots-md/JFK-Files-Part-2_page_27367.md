@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27367.png
-
-Convert to MarkdownA - Ltr from Knoche to Gray - 30 Apr 75
+A - Ltr from Knoche to Gray - 30 Apr 75
 
 B - Requirements 1 - 4 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10497.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CORPORATE COVER
 

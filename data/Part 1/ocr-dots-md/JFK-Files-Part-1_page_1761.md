@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1761.png
-
-Convert to Markdown15 November 1956 and on 19 September 1958 he received another covert security clearance to permit his use as a Lessee Cut-Out in the procurement of domestic safetouses.
+15 November 1956 and on 19 September 1958 he received another covert security clearance to permit his use as a Lessee Cut-Out in the procurement of domestic safetouses.
 
 # World Confederation of Organizations of the Teaching Professions
 ## (Funded by the Vernon Fund)

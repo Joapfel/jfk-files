@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3256.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>✓</td>
         <td>I CERTIFY, BY way of statement in writing, that I have read and understand the information set forth herein. In particular, but not limited to, the part concerning medical benefits and insurance available under the contract. I also acknowledge that I have read and understood the information set forth in the contract, particularly with respect to my rights as a consumer of health care services under Medicare and Medicaid, and further acknowledge that I have read and understood the terms and conditions of this policy. I also acknowledge that I have read and understood the disclosure statements set forth herein.</td>

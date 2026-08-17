@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9820.png
-
-Convert to Markdown62-116395
+62-116395
 
 2 - Mr. J. A. Mintz (1 - J. B. Hotis)
 1 - Mr. W. R. Wannall

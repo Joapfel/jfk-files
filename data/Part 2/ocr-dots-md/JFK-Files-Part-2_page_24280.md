@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24280.png
-
-Convert to Markdownthat all CIA proprietaries have an operational charter approved by Congress which forbids launching activities by proprietaries or using their funds which are contrary to the charter. This internal CIA standard would probably strengthen the existing requirement that covert action projects be certified by the President and flagged to Congressional Committees. At present, MIMUTUAL has such a charter (not reviewed or set by Congress) which restricts MUTUAL to insurance operations. This charter was established in 1974 (called an "Administrative Plan") and must be formally amended before the Chief of Cover Staff will authorize use of MUTUAL resources for other missions.
+that all CIA proprietaries have an operational charter approved by Congress which forbids launching activities by proprietaries or using their funds which are contrary to the charter. This internal CIA standard would probably strengthen the existing requirement that covert action projects be certified by the President and flagged to Congressional Committees. At present, MIMUTUAL has such a charter (not reviewed or set by Congress) which restricts MUTUAL to insurance operations. This charter was established in 1974 (called an "Administrative Plan") and must be formally amended before the Chief of Cover Staff will authorize use of MUTUAL resources for other missions.
 
 D. Private Investment by CIA.
 

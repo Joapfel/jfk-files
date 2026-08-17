@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31594.png
-
-Convert to Markdown4. The operation took place between 0800 Monday, July 13, 1953 and 2400, Friday, July 17. Balloons were in the air 15 working days after conception of the idea, and 3 working days after final approval. The third (Berlin-Feris) message was sent to the printer on Saturday; on Monday 2,000,000 copies were at the site and on the way to their destination.
+4. The operation took place between 0800 Monday, July 13, 1953 and 2400, Friday, July 17. Balloons were in the air 15 working days after conception of the idea, and 3 working days after final approval. The third (Berlin-Feris) message was sent to the printer on Saturday; on Monday 2,000,000 copies were at the site and on the way to their destination.
 
 5. A crew of 22 workmen was transported from Munich to the site. Including guards, drivers, and supervisory personnel, the total payroll for the operation was approximately 40%. The crew was billeted in a small hotel in the nearby village of Tirsohenrouth and was fed in a Gasthof at the site. Working time totalled approximately 3000 man hours. The operation entailed the use of 7058 cubic meters of hydrogen, representing 17900 lbs. of lift. The weight of the hydrogen cylinders was 102 tons.
 

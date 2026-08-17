@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1504.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. In the late afternoon of 30 October 1973 Mr. Franklin and I saw Mr. Warner, reported the foregoing facts to him, showed him the documents, and agreed that we would ask Mr. Johnson to check the Passport Office files once more to confirm that no U.S. passport in the name of Edward Joseph Hamilton had ever been issued to Mr. Hunt. The result of Mr. Johnson's check is still outstanding at the time of this writing.
 

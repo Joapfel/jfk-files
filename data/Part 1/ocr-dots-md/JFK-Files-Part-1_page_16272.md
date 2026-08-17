@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16272.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="6">20 March 1957</td>

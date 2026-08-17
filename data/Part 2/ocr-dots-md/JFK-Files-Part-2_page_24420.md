@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24420.png
-
-Convert to Markdownalthough they subsequently developed a close friendship.
+although they subsequently developed a close friendship.
 
 (O'Connell, p. 52).
 

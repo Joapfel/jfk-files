@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11060.png
-
-Convert to MarkdownEl C.N.C., tiene un plan de becas en el exterior cada año.
+El C.N.C., tiene un plan de becas en el exterior cada año.
 
 El Dept. de Enseñanza Especiales (Pérez Ponsset) 2.86.67
 recibe las necesidades de becas de C.N.C. las cuales se

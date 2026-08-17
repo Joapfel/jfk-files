@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6505.png
-
-Convert to Markdown13-00000
+13-00000
 
 TOP SECRET SPECIAL HANDLING NOFORM
 

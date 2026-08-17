@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14255.png
-
-Convert to Markdown--Congress has provided that meetings of the Senate Committee on the Budget may be closed to the public if it is determined by a record vote of a majority of the members that the matter to be discussed
+--Congress has provided that meetings of the Senate Committee on the Budget may be closed to the public if it is determined by a record vote of a majority of the members that the matter to be discussed
 
 ...will disclose matters necessary to be kept secret in the interest of national defense or the confidential conduct of the foreign relations of the United States. 2 U.S.C.A. 190a-3.
 

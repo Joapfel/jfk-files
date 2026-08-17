@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_911.png
-
-Convert to MarkdownASSIFIED MESSAGE
+ASSIFIED MESSAGE
 
 IN 1973, PAGE 2
 

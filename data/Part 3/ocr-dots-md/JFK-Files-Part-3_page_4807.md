@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4807.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 HENRIETTE ROTHMAN, 98-25 64th Road,
 Rego Park, New York

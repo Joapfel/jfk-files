@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28412.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="3">NOTIFICATION OF ESTABLISHMENT<br>OF MILITARY COVER BACKSTOP</th><th>DATE<br>19 August 1965</th></tr></thead><tbody><tr><td rowspan="2">TO:<br>(Check)<hr>CHIEF, PERSONNEL OPERATIONS DIVISION</td><td>X</td><td>TSD</td><td>ZAMBERNARDI, Robert M.</td></tr><tr><td>X CHIEF, OPERATING COMPONENT (For action)</td><td></td><td>FILE NO.<br>4954</td></tr><tr><td>ATTN:</td><td colspan="2">Personnel</td><td>ID CARD NO.</td></tr><tr><td>REF:</td><td colspan="2">Resignee Backstop debriefing</td><td>EMPLOYEE NO.</td></tr><tr><td>MILITARY COVER BACKSTOP ESTABLISHED</td><td colspan="3">Technical Services Group, Provisional</td></tr></tbody></table>
 

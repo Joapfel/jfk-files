@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3271.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 On 20 June 1960 at the request of General Cushman, Jake Esterline joined him for lunch, the purpose being to provide the General with sufficient information on the state of the anti-Castro program so that he could bring the Vice President up to date from the time of the Miami meeting that had taken place at William Pawley's house.* Among the points covered were the developments related to the organization of the FRD and the fact that Mr. William Pawley's candidate, Señor Rubio, had decided not to join the Frente. According to Esterline's memorandum:
 

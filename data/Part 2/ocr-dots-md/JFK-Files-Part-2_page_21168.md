@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21168.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 in the successful recruitment of an employee of the American Embassy. (It should be noted that when GOLITZYN was interviewed by FBI concerning this matter GOLITZYN related that he had inquired concerning his possible use of PREISFREUND but had been denied permission because he had been used in another operation.
 

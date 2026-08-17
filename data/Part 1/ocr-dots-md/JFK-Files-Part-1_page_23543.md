@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23543.png
-
-Convert to Markdown9 December 1953
+9 December 1953
 
 I hereby request claim for per diem for the period October 5, 1953 through 25 November 1953 at the rate of $9.00 per day. This period covers the time spent by me in Covert Training.
 

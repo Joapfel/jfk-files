@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22407.png
-
-Convert to MarkdownSECRET
+SECRET
 
 frequently -- they would either approve the operation or say no. These operations had to be planned well in advance because the tides had to be right, the moon had to be in the proper phase for communications and this type of thing. And these things, all these were coordinated with the Joint Chiefs of Staff, the Navy, the Coast Guard, the FBI. If we were exfiltrating people, the Immigration and Naturalization Service.
 

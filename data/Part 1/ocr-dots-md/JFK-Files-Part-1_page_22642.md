@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22642.png
-
-Convert to Markdown10. February 1960
+10. February 1960
 
 NOTE FOR THE RECORD:
 

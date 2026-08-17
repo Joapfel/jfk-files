@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31564.png
-
-Convert to Markdownin the National Liberation Front, the rebel government. Yet most of the people support the NLF. Why? Many of the same people who now lead the NLF led the Vietnamese independence movement against the Japanese during World War II, and then went on to fight against French colonial rule. Most Vietnamese think of the NLF leaders as their country's outstanding patriots. In fact, many anti-Communists have joined the guerrilla forces in the belief that the most important thing is to get rid of foreign domination and military dictators. On the other hand, very few Vietnamese support the official government of General Ky. His army has low morale and a high desertion rate.
+in the National Liberation Front, the rebel government. Yet most of the people support the NLF. Why? Many of the same people who now lead the NLF led the Vietnamese independence movement against the Japanese during World War II, and then went on to fight against French colonial rule. Most Vietnamese think of the NLF leaders as their country's outstanding patriots. In fact, many anti-Communists have joined the guerrilla forces in the belief that the most important thing is to get rid of foreign domination and military dictators. On the other hand, very few Vietnamese support the official government of General Ky. His army has low morale and a high desertion rate.
 
 ## THE GUERRILLAS
 

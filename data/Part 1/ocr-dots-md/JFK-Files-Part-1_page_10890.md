@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10890.png
-
-Convert to Markdown<table><tr><td>PROJECT</td><td>No Project</td></tr><tr><td>SOURCE</td><td>L1541-D-2</td></tr><tr><td>SUBJECT</td><td>Mexican Cultural Movement, Pro-Cuban Mexican Youth Organization</td></tr></table>
+<table><tr><td>PROJECT</td><td>No Project</td></tr><tr><td>SOURCE</td><td>L1541-D-2</td></tr><tr><td>SUBJECT</td><td>Mexican Cultural Movement, Pro-Cuban Mexican Youth Organization</td></tr></table>
 
 <table><tbody><tr><td colspan="2">DATE OF INFORMATION</td><td>FIELD NO.</td></tr><tr><td>Jan 64</td><td>REPORT</td><td>2MM-8431</td></tr><tr><td>DATE ACQUIRED</td><td>CABLE</td><td></td></tr><tr><td>Jan 64</td><td>IN</td><td></td></tr><tr><td colspan="2">FIELD DISTRIBUTION</td><td>RI NO.</td></tr><tr><td>DATE</td><td>13 Feb 64</td><td></td></tr><tr><td>GRADE</td><td>B-2</td><td></td></tr><tr><td>TO</td><td>XOXYX</td><td>REPORTS OFFICER</td></tr><tr><td colspan="2">WASH. DISTRIBUTION</td><td>CS/PLS/jct</td></tr><tr><td>DATE</td><td>K.D.</td><td>EVAL. REQUESTED</td></tr><tr><td>GRADE</td><td></td><td></td></tr><tr><td>TO</td><td></td><td>AREA/Mexico/Cuba</td></tr></tbody></table>
 

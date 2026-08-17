@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9916.png
-
-Convert to Markdown1. A memorandum of materials referred under item 1:
+1. A memorandum of materials referred under item 1:
 
 2. A study on Subversion and FBI Jurisdiction which were prepared for Director Gray. See Hearings before the Committee on the Judiciary, United States Senate, Ninety-Third Congress (First Session) on the Nomination of Louis Patrick Gray III. of Connecticut. To be Director, Federal Judicial of Investigator (1975), pp. 7 and 14.
 

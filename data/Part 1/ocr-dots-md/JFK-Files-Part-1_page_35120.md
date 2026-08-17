@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35120.png
-
-Convert to MarkdownESTADO DE INGRESOS Y Gastos
+ESTADO DE INGRESOS Y Gastos
 
 Octubre 1 al 31 de 1960
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7996.png
-
-Convert to MarkdownCaption on Folder or File: (Print)
+Caption on Folder or File: (Print)
 
 POSSIBLE TESTIMONY, U. S. SENATE COMMITTEE ON THE JUDICIARY, SUBCOMMITTEE ON ADM.
 

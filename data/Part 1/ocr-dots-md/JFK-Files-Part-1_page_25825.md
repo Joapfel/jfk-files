@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25825.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Chief, WH/3
 ATTN : Mr. Larry Sule

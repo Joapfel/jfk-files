@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7028.png
-
-Convert to Markdown* there were two major releases of Agency records (August 1993 and August 1994) of approximately 227,000 pages;
+* there were two major releases of Agency records (August 1993 and August 1994) of approximately 227,000 pages;
 
 * joint HRG/DO teams reviewed additional assassination related collections at National Archives (Warren Commission), the SSCI (Church Committee and the Ford Presidential Library (Rockefeller Commission) plus numerous referrals from other federal agencies (FBI, State, Army, etc.).
 

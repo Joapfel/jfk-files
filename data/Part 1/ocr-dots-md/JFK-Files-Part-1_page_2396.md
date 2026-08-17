@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2396.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of American counter-intelligence to determine the identity of and take appropriate action against KGB penetrations of the United States Government. The only answer to this question seems to be that there would be little consolation or assurance to American intelligence even if every statement by NOSENKO was accepted at face value.
 

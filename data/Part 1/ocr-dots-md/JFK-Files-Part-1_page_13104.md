@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13104.png
-
-Convert to MarkdownAB Memo No. 9605
+AB Memo No. 9605
 24 April 1968
 
 MEMORANDUM FOR: DDP/CI

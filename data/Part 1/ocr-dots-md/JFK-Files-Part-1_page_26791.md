@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26791.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>FOR</td><td colspan="3">CLASSIFIED MESSAGE TOTAL COPY 22</td></tr><tr><td>FILE NO</td><td colspan="3">SAND 51903</td></tr><tr><td>DESTROY</td><td colspan="3">[X] TO BE DESTROYED [ ] BY THE OFFICER</td></tr><tr><td rowspan="2">FROM</td><td colspan="3">MEXICO CITY</td></tr><tr><td>ACTION</td><td>WH 8</td><td>VR. FILE</td><td>DOP, CLOP, F, FILM, WHL 8</td></tr><tr><td>COPY</td><td colspan="3"></td></tr></table>
 

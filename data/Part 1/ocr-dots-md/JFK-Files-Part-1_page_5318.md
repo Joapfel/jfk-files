@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5318.png
-
-Convert to Markdown15 July 1968
+15 July 1968
 
 ATTN : Operational Support Staff (Musulin)
 Chief, New York Field Office

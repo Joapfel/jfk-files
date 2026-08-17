@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29580.png
-
-Convert to MarkdownMILITARY SERVICE
+MILITARY SERVICE
 
 Grayston L. Lynoh
 

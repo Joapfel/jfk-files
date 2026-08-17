@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20002.png
-
-Convert to Markdown# WITHOUT WOMEN
+# WITHOUT WOMEN
 
 Women must use their minds, their voices, and
 their bodies to stop the killing in Vietnam; to do

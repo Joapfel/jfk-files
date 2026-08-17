@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15310.png
-
-Convert to Markdown91146
+91146
 
 Honorable J. Edgar Hoover
 Director, Federal Bureau of Investigation

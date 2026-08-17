@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9993.png
-
-Convert to MarkdownPersonas que están enteradas de mis actividades en forma general:
+Personas que están enteradas de mis actividades en forma general:
 
 Arnold Rodifuez NO CONOCE SU NOMBRE sabe que estoy relacionado con Griegos
 Osmani Cienfuegos NO CONOCE SU NOMBRE " " " " " "

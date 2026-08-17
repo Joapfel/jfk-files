@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14889.png
-
-Convert to Markdowndefinitely out of place. Consequently, the Subject does not think he will
+definitely out of place. Consequently, the Subject does not think he will
 be a very different person in the future from what he is now. However,
 he hopes that his material situation will have improved not necessarily
 financially, but socially. He also naively hopes that the world will

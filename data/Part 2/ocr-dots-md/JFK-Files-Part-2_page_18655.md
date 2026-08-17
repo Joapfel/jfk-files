@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18655.png
-
-Convert to Markdown# The Attorney General
+# The Attorney General
 
 With the exceptions as noted above, the FBI has adhered to a policy that when information is given to the White House the Attorney General is given the same information contemporaneously. Most of this information relates to current matters pertaining to the national security. This dissemination to the White House is sometimes based on requests from the White House but more frequently on the initiative of the FBI.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10330.png
-
-Convert to Markdown8 May 1973
+8 May 1973
 
 MEMORANDUM FOR: Deputy Director for Science & Technology
 SUBJECT : TSD Support to Other Agencies

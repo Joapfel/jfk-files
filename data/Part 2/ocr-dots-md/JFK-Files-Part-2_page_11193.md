@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11193.png
-
-Convert to Markdownagency responsible for such action. Forward such data to Bureau and incorporate in next report submitted concerning individual in question. Where no investigation has been conducted by Bureau and there is no case on individual being denied clearance, give consideration to opening a security investigation if information received from intelligence agency warrants such action.
+agency responsible for such action. Forward such data to Bureau and incorporate in next report submitted concerning individual in question. Where no investigation has been conducted by Bureau and there is no case on individual being denied clearance, give consideration to opening a security investigation if information received from intelligence agency warrants such action.
 
 (2) Inclusion in security index
 

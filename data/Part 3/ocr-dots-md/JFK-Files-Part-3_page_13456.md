@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13456.png
-
-Convert to Markdownamt 19
+amt 19
 
 TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_120.png
-
-Convert to MarkdownSECURITY INFORMATION.
+SECURITY INFORMATION.
 CONFIDENTIAL
 
 **From:** BOGOTA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33043.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECTION VIII
 

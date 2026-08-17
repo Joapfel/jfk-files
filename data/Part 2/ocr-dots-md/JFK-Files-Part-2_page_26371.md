@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26371.png
-
-Convert to MarkdownSF1010
+SF1010
 
 1963 OCT 9 15 33
 

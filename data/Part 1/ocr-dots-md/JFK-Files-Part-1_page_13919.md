@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13919.png
-
-Convert to MarkdownDIS
+DIS
 
 ACTION:
 

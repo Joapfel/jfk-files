@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13573.png
-
-Convert to Markdown2362
+2362
 
 TOP SECRET
 

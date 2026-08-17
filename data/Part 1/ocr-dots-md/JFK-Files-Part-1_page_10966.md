@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10966.png
-
-Convert to MarkdownTranslation of a post card from Kira KOSEVSKA to LITAN'IL-9.
+Translation of a post card from Kira KOSEVSKA to LITAN'IL-9.
 Kira is the wife of Anquel KOSEVSKI, who was a Second Secretary
 in the Bulgarian Embassy in Havana as of October 1965. They
 are now back in Sofia, Bulgaria. The card was mailed from

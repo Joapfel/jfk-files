@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22117.png
-
-Convert to MarkdownBecause NOSENKO's true name and photographs had been submitted to the U.S. Embassy in Moscow in connection with this visa request, NOSENKO added, it was henceforth necessary for him to use his true name for all travel abroad.
+Because NOSENKO's true name and photographs had been submitted to the U.S. Embassy in Moscow in connection with this visa request, NOSENKO added, it was henceforth necessary for him to use his true name for all travel abroad.
 
 c. The Cuba TDY (1960)
 

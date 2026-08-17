@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4218.png
-
-Convert to Markdownde todo el mundo, y más capazmente por latinórabios.
+de todo el mundo, y más capazmente por latinórabios.
 
 6. Se iniciará en (crescendo) la Constitución del distrito cuyo de Llateída y de la Escuela técnica para enseñar de las inicios de maestría, electricidad y soldadura y sancejo de Equipos pesados.
 

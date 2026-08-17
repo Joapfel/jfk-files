@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23405.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">CLASSIFIED WES AGD</td></tr><tr><td>No.</td><td>CIAF 589 F.Y. 3</td></tr><tr><td>1. Ref.</td><td>2445</td></tr><tr><td>1. Date</td><td>19 September 1960</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3388.png
-
-Convert to Markdownconceivably crystallize opposition to his person and sink the ship. Since I did not interpose an outright veto (of dubious efficacy at best), he will undoubtedly profess to have convinced me of the soundness of his headlong rush toward matrimony and all that could entail for our program. Short of making a mockery of autonomy, I could not tell him any more than I did.
+conceivably crystallize opposition to his person and sink the ship. Since I did not interpose an outright veto (of dubious efficacy at best), he will undoubtedly profess to have convinced me of the soundness of his headlong rush toward matrimony and all that could entail for our program. Short of making a mockery of autonomy, I could not tell him any more than I did.
 
 Henry D. Hecksher
 VA/SA/SO/HH

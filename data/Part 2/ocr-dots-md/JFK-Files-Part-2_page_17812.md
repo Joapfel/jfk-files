@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17812.png
-
-Convert to Markdown--investigation of employees and other
+--investigation of employees and other
 individuals to be granted access to sensitive
 information;
 

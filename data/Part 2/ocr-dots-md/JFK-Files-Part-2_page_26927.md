@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26927.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q I see. So some of these boats and personnel were
 actually stationed full-time in the Keys.

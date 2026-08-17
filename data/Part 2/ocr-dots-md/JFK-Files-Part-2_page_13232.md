@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13232.png
-
-Convert to Markdown1 - Mr. J. B. Adams
+1 - Mr. J. B. Adams
 1 - Mr. J. A. Mintz
 1 - Mr. W. R. Wannall
 

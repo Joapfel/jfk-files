@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15180.png
-
-Convert to Markdownmost notably at Brandeis University where two professors from San Francisco State College allegedly contributed to the seizing of the Administration Building on January 8, 1969, and American University, Washington, D. C., where members of the Students for a Democratic Society allegedly traveled to Washington, D. C., and participated in seizing a building on the campus on April 23, 1969.
+most notably at Brandeis University where two professors from San Francisco State College allegedly contributed to the seizing of the Administration Building on January 8, 1969, and American University, Washington, D. C., where members of the Students for a Democratic Society allegedly traveled to Washington, D. C., and participated in seizing a building on the campus on April 23, 1969.
 
 # INTERSTATE TRANSPORTATION
 OF-STOLEN MOTOR VEHICLE

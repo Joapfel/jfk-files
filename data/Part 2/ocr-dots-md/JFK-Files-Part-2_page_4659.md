@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4659.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the Senate to look into intelligence across the board. CIA was just one of
 the targets, I guess one of the main targets, but not the only one. And it

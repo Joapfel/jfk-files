@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7441.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CSHB 43-1-1
 CHAPTER III, ANNEX B

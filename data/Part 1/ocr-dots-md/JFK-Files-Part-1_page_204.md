@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_204.png
-
-Convert to MarkdownC.
+C.
 
 Three Legitimate Donors to Suspect Organizations
 

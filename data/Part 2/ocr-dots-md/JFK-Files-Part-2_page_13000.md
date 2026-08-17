@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13000.png
-
-Convert to MarkdownDecember 2, 1975
+December 2, 1975
 
 Mr. Al Vecchione
 Executive Director

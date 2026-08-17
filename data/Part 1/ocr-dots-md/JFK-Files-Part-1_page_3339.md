@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3339.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMWORLD Meeting in Miami, 28 June 1964
 

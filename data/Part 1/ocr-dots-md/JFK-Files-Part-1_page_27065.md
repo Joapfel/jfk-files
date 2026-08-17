@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27065.png
-
-Convert to Markdown#242 369
+#242 369
 
 POLICE (CRIMINAL, TRAFFIC, AND SUBVERSIVE)
 

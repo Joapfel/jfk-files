@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7298.png
-
-Convert to MarkdownOFFICE OF THE
+OFFICE OF THE
 DEPUTY ATTORNEY GENERAL
 
 January 30, 1975

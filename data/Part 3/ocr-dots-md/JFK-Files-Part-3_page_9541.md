@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9541.png
-
-Convert to MarkdownThe purpose of Mr. Todorovich's conference with the District Attorney of Denver was to solicit his good offices to remove pressures and the possible serving of a subpoena on Dr. Joseph Smiley. He also sought to orient the District Attorney properly so that he would not continue to have an erroneous impression of the roles of the CIA and the FBI, thereby eliminating further adverse publicity.
+The purpose of Mr. Todorovich's conference with the District Attorney of Denver was to solicit his good offices to remove pressures and the possible serving of a subpoena on Dr. Joseph Smiley. He also sought to orient the District Attorney properly so that he would not continue to have an erroneous impression of the roles of the CIA and the FBI, thereby eliminating further adverse publicity.
 
 Mr. Todorovich affirms that before going to District Attorney McKevitt he called upon the FBI Special Agent in Charge, Mr. Scott Werner, and sought to coordinate with him our respective interests. He also solicited Mr. Werner to accompany him to the District Attorney.
 

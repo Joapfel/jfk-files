@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21784.png
-
-Convert to Markdown1 a file of them, and when Cuban refugees would come in, they
+1 a file of them, and when Cuban refugees would come in, they
 2 would receive lists of, names to check in their files, and if
 3 they suspected one, then they would gather all of the
 4 information possible on this individual, prepare a report,

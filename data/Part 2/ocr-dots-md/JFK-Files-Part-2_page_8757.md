@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8757.png
-
-Convert to Markdown13-00000
+13-00000
 
 controlled on-island CA asset. We provided financial
 and other support for on-island operations. [Comment: if brought to the attention of the GOC, such activities might have prompted the GOC to consider retaliatory action against the U.S. Government.]/

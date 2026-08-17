@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34993.png
-
-Convert to Markdown# PAYROLL
+# PAYROLL
 
 ANNEX III-8
 Page No. 3

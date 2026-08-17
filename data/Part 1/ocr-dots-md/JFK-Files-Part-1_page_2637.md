@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2637.png
-
-Convert to Markdown(PRE-KGB BIOGRAPHY)
+(PRE-KGB BIOGRAPHY)
 
 The significance of NOSENKO's RU service is the fact that he claims it launched his intelligence career and served as the means through which he secured appointment to the KGB after once having been rejected. The two or more years he claimed to have served in the RU represent a significant period of his adult life for which he should have no difficulty accounting. Finally, the date of his actual transfer from the Naval RU to the KGB is critical to determining the time from which his claims about KGB service can be judged credible.
 

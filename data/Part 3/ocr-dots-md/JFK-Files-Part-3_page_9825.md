@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9825.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 Based on this study, we believe that had there never been a single one of the Presidential directives in question the FBI would have conducted and will, through necessity, continue to conduct the same intelligence-type investigations as were conducted from 1939 to the present date. We also believe, however, that in order to counter the criticism and skepticism of such individuals as Professor Elliff and Senator Sam J. Ervin that an up-to-date Executive order should be issued clearly establishing a need for intelligence-type investigations and delineating a clear authority for the FBI to conduct such investigations based on guidelines established by the Attorney General and adhering to constitutional principles.
 

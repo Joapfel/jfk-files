@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5615.png
-
-Convert to Markdown13-00000
+13-00000
 
 was already in effect, so why would it have been necessary
 for the Mexican officer in charge to ask the American officer

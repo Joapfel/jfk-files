@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_661.png
-
-Convert to Markdown21 January 1992
+21 January 1992
 
 Washington
 

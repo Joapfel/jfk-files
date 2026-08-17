@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24429.png
-
-Convert to Markdowntaken in Cuba" (Case Officer 2, p. 61).
+taken in Cuba" (Case Officer 2, p. 61).
 
 AMLASH-1 also requested high-powered rifles and grenades (Case Officer 2, p. 77). A memorandum by Case Officer 2, dated November 18, 1963, states:
 

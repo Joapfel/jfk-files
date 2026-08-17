@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23341.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1 perfectly natural follow-up to my discussion with Bissell. It
 2 is conceivable that this went out before I talked to Bissell,

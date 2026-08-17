@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27231.png
-
-Convert to MarkdownA - Ltr from Belin to Mrs. Willie J. Hardy - 18 June 75 w/attachment.
+A - Ltr from Belin to Mrs. Willie J. Hardy - 18 June 75 w/attachment.
 
 B - Ltr from Lyle L. Miller to Mr. Belin - 5 June 75
 

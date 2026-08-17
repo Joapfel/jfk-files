@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16242.png
-
-Convert to Markdown14-00690
+14-00690
 
 <table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES: 27</th></tr></thead><tbody><tr><td>SECRET</td><td>[Signature]<br>G. E. Ewell, D.D.][Signature]<br>C. H. Cuyler, F.I.</td></tr></tbody></table>
 

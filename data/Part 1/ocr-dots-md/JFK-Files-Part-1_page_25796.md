@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25796.png
-
-Convert to MarkdownSECRET
+SECRET
 
 foot surveillance to follow individuals leaving the LIMERICK installation, LIPSTICK-14 receives a monthly salary of $1,800.00 (MN) and free rent and utilities at the LIMITED Base. His wife (LIPSTICK-27) and son (LIPSTICK-28) live with him at the LIMITED Base.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20281.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="12">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>LVL 17 MAR 58.</td><td>1. Signal No.</td><td>2. Name (Last-First-Middle)</td><td>BALMES N. HIDALGO</td><td>3. Date Of Birth</td><td>4. Vot. Prof</td><td>5. Sex</td><td>6. CS-EOD</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td>127630</td><td></td><td>HIDALGO BALMES N.</td><td>Mo. Da. Yr.<br/>05 27 19</td><td>None-0<br/>5 Pt-1<br/>10 Pt-2</td><td>Code 1</td><td>Mo. Da. Yr.<br/>03 17 58</td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td rowspan="2">7. SCD</td><td>8. CSC Retrn.</td><td>9. CSC Or Other Legal Authority</td><td></td><td>10. Aptm. Affldav.</td><td>11. FEGLI</td><td>12 LCD</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>Mo. Da. Yr.<br/>07 16 46</td><td>Yes-1 No-2 Code<br/>1 50 USCA 403 J</td><td>Mo. Da. Yr.<br/>03 13 53</td><td>Yes-1 No-2 Code<br/>1 03 17 53</td><td>Mo. Da. Yr.<br/>03 17 53</td><td>Yes-1 No-2 Code<br/>1 03 17 53</td><td>Yes-1 No-2 Code<br/>1 03 17 53</td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>

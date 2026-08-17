@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27252.png
-
-Convert to MarkdownNotes from Helms' Chronological Files:
+Notes from Helms' Chronological Files:
 
 A. Chairman Mehon - 29 Nov 72 SECRET
 

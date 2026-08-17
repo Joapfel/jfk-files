@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7693.png
-
-Convert to MarkdownOn 29 Jun 1966 HERNANDEZ told Subject that his class would be postponed for a week because Sarita (LNU) was sick (1).
+On 29 Jun 1966 HERNANDEZ told Subject that his class would be postponed for a week because Sarita (LNU) was sick (1).
 
 27. Lee HIGGINS, male, no traces.
 

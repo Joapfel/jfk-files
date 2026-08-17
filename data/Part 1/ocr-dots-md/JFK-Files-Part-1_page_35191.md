@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35191.png
-
-Convert to MarkdownSTATEMENT OF EXPENSES
+STATEMENT OF EXPENSES
 
 ANEXZ "A"
 Page No.24

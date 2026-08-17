@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7105.png
-
-Convert to MarkdownENCLUSURE
+ENCLUSURE
 
 62-116395-43
 

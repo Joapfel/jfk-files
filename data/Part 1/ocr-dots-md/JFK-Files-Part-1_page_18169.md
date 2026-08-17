@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18169.png
-
-Convert to Markdown<table><tr><td>ORIG: C. Bostos - Videla</td></tr><tr><td>UNIT : WH/1</td></tr><tr><td>EXT : 4507</td></tr><tr><td>DATE : 10 March 65</td></tr></table>
+<table><tr><td>ORIG: C. Bostos - Videla</td></tr><tr><td>UNIT : WH/1</td></tr><tr><td>EXT : 4507</td></tr><tr><td>DATE : 10 March 65</td></tr></table>
 
 ☐ INDEX
 

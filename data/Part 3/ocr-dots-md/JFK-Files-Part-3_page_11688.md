@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11688.png
-
-Convert to MarkdownKEY BLACK EXTREMIST PROGRAM
+KEY BLACK EXTREMIST PROGRAM
 
 4-H
 

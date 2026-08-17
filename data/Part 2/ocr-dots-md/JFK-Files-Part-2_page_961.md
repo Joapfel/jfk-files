@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_961.png
-
-Convert to Markdown# BÁN CHIẾU. ĐỒNG CÔNG TRUNG
+# BÁN CHIẾU. ĐỒNG CÔNG TRUNG
 
 và Cng. Jeromo Fox, Phối-trí-vốn h口a-ý cạnh Chối
 Cánh-sát Lác-Dột Tông Ma Cánh-Sát Quốc-Gia được

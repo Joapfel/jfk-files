@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24837.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA/PEG Project Record Sheet
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29930.png
-
-Convert to Markdown# MEMORANDUM IN LIEU OF FITNESS REPORT
+# MEMORANDUM IN LIEU OF FITNESS REPORT
 
 **SUBJECT:** David E. Murphy, GS-18, Employee
 Number 056700. DOB: 23 June 21;

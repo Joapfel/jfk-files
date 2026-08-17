@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5508.png
-
-Convert to MarkdownNY-419-67
+NY-419-67
 
 5. Veriquin, who was in charge of the TIN in the Potionville section of Port-au-Prince, was dismissed by Duvalier because the President suspected him of aiding with the Dominique clique. Dominique, an Army officer and son-in-law of Duvalier, was offered a military attaché position either in Spain or Italy, which he refused to accept as his wife is reluctant to leave Haiti at this time. This situation is complicated by the decision of Duvalier's wife to side with her daughter. The rift in his own family as well as the attempt of his enemies to disrupt the celebration of his 60th birthday and the 10th anniversary of his taking office prompted Duvalier to remark that the only man he trusts is Gracia Jacques, commander of the Presidential Guard. This statement antagonized even those who have hitherto been loyal to Duvalier. Moreover, even the most faithful Duvalier supporters now fear for their lives. Colonel Gallard, who is in charge of the Coast Guard, bitterly complained to Charles about Duvalier's remark and reassured the banker that he and his friends were ready to set up a military junta.
 

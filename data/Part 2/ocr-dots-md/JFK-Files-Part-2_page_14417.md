@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14417.png
-
-Convert to Markdown# 6. Intelligence Estimates
+# 6. Intelligence Estimates
 
 Finished intelligence reports and estimates do not usually contain source identifications and will not normally require paraphrasing. However, departments and agencies should review such publications to ensure deletion of sensitive source identities and details of collection systems.
 

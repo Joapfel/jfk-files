@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5822.png
-
-Convert to Markdownlikely to be many requests from the Board for information..." the Agency Executive Director asked each directorate and the DCI Administrative Officer to appoint a focal point officer for the JFK Assassination review. (Tab 2)
+likely to be many requests from the Board for information..." the Agency Executive Director asked each directorate and the DCI Administrative Officer to appoint a focal point officer for the JFK Assassination review. (Tab 2)
 
 In the spring and summer of 1997, the Agency arranged for the Board staff to receive a series of briefings by representatives of each directorate on the files kept within the records systems of each directorate. These briefings covered aspects of the records systems, such as how the records are organized, maintained, searched and retrieved, as well as how they had been previously searched for assassination-related materials.
 

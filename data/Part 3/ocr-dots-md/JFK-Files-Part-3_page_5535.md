@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5535.png
-
-Convert to MarkdownThe following are questions which cannot be discussed in
+The following are questions which cannot be discussed in
 public hearings because of this agreement. They should be
 raised at this executive session:
 

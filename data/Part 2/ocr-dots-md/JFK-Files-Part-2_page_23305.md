@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23305.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 that you had been advised in May that certain weapons had been transferred to certain dissident groups who at least had expressed an interest in assassinating Trujillo.
 

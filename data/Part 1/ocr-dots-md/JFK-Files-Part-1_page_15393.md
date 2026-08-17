@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15393.png
-
-Convert to Markdownof his death by accidental means while aboard a tested aircraft while operating in a non war risk area and engaged in the performance of services under this agreement PROVIDED death occurs within 90 days of the accident.
+of his death by accidental means while aboard a tested aircraft while operating in a non war risk area and engaged in the performance of services under this agreement PROVIDED death occurs within 90 days of the accident.
 
 c. An additional monetary benefit of $30,000 in the event of his death by accidental means while engaged in the performance of services under this agreement aboard an aircraft being tested as to its airworthiness or when the aircraft is operating in a war risk area, PROVIDED death occurs within 90 days of the accident.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21464.png
-
-Convert to MarkdownSECRET
+SECRET
 KAPOK
 
 Page 2 of Attachment to

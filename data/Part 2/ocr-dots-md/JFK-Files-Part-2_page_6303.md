@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6303.png
-
-Convert to Markdowne. Intelligence information often looks sensitive to the layman or generalist when the expert will tell you it is innocuous. And conversely, what seems innocuous to the layman can be quite sensitive. Our job is to help you distinguish the one from the other.
+e. Intelligence information often looks sensitive to the layman or generalist when the expert will tell you it is innocuous. And conversely, what seems innocuous to the layman can be quite sensitive. Our job is to help you distinguish the one from the other.
 
 f. We rely on you to help us figure out ways to ensure your job is done and the American people are informed without doing damage to intelligence equities.
 

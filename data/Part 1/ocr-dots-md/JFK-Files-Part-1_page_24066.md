@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24066.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 6 Aug 68 (Ny)
 Re: The "Guardian", Formerly Known
 as "Natural Guardian", Weekly

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26727.png
-
-Convert to MarkdownFrom 0700 to 2330, 1 May (Saturday) 1965
+From 0700 to 2330, 1 May (Saturday) 1965
 
 2.0 Out to 23-88-20. Sra. Diener asks Josefina (said), who answers, if the young girl is up yet. Thinks no. Out to 23-88-20. Busy.
 

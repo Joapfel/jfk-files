@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22353.png
-
-Convert to MarkdownMr. Osborn also thought that continuation of the program was too risky in the light of public and Congressional attitude toward the CIA. He thinks that the program originated while Allen Dulles was DCI and that it was undertaken with the knowledge and consent of the Postmaster General. However, this is hearsay, according to Mr. Osborn.
+Mr. Osborn also thought that continuation of the program was too risky in the light of public and Congressional attitude toward the CIA. He thinks that the program originated while Allen Dulles was DCI and that it was undertaken with the knowledge and consent of the Postmaster General. However, this is hearsay, according to Mr. Osborn.
 
 Mr. Osborn is also acquainted with the fact that from 1969 to 1971 the project of mail surveillance occurred from time to time in San Francisco. The Office of Security made the arrangements with the Post Office Department for this program, but it was carried out by the Far East Division and the Technical Services of the Directorate of Operations. The Technical Services Division at that time was headed by Rod M. Kenner, who is now retired and living in Florida.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22428.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q. How large was that particular group?
 

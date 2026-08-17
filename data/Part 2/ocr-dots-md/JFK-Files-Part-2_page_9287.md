@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9287.png
-
-Convert to MarkdownV. EVIDENCE OF NATIONAL UNITY
+V. EVIDENCE OF NATIONAL UNITY
 
 SF T-16 advised on April 17, 1971, that KENNETH HORSTON, leader of the Detroit NCCF, was in California, and talked with Minister of Defense, HUEY NEWTON, on April 16, 1971.
 

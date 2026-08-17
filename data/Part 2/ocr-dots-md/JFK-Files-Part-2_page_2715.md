@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2715.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filled In)
 
 Date 5 Oct 1956

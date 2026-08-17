@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6150.png
-
-Convert to Markdownf. Dispatch dated 15 November 1965; excised portions exempt under FOIA (b)(1) and (b)(3).
+f. Dispatch dated 15 November 1965; excised portions exempt under FOIA (b)(1) and (b)(3).
 
 S. Attached are copies of three documents which may be used in obtaining reviews by the originating agencies:
 

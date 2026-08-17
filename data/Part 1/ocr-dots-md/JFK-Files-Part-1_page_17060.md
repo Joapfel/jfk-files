@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17060.png
-
-Convert to Markdown4. **Foreign Currency:** There is no special need for foreign currency. No non-CIA funds are used.
+4. **Foreign Currency:** There is no special need for foreign currency. No non-CIA funds are used.
 
 5. **Commitments:** Christmas bonuses to all agents totaling $2,354 for FY 1971, and termination pay in an amount to be determined by the agents record and length of service.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33905.png
-
-Convert to Markdown31 March 1952
+31 March 1952
 
 Dear Franks
 

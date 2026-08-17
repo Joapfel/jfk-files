@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1361.png
-
-Convert to MarkdownSECRET / SENSITIVE
+SECRET / SENSITIVE
 
 on-island anti-Castro forces, and tying up CIA time, money,
 and manpower for an operation of their own creation. Following

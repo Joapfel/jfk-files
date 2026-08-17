@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32721.png
-
-Convert to MarkdownAssuming work ceased on offensive missile bases in Cuba and all weapons systems in Cuba capable of offensive use were rendered inoperable, under effective UN arrangements, the President was prepared to have representatives in New York work out an arrangement in cooperation with the Secretary-General for a permanent solution along the lines suggested in Chairman Khrushchev's letter of October 26.
+Assuming work ceased on offensive missile bases in Cuba and all weapons systems in Cuba capable of offensive use were rendered inoperable, under effective UN arrangements, the President was prepared to have representatives in New York work out an arrangement in cooperation with the Secretary-General for a permanent solution along the lines suggested in Chairman Khrushchev's letter of October 26.
 
 On Sunday, October 28 -- Chairman Khrushchev broadcast the text of his reply. In addition to earlier instructions to discontinue further work on weapons construction sites, he said, the Soviet Government "has given a new order to dismantle the arms which you described as offensive, and to crate and return them to the Soviet Union." The letter stated:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21812.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 origins of the picketing? How would it come about?
 

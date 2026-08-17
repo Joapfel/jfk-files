@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24894.png
-
-Convert to MarkdownFROM: Tichborn
+FROM: Tichborn
 IN RE: Necessity of moving from Mexico City
 
 1. For several years my wife has suffered in varying degrees from the high altitude of Mexico City; but we had xkzys always been hoping she would eventually adjust. On the occasions we went to Acapulco and even Cuernavaca, she has felt much better. But each time she came back to Mexico City she again felt as if her head were stuffed with cotton. This whole business came to crisis-point recently when she went back to Kentucky for a visit while I was in Santo Domingo. While in Lexington she had a long consultation with a family friend who teaches at the Univ. of Kentucky medical school, and he frankly informed her that she was one of those persons who would never adjust to the Mexico City altitude. Knowing that I wish to stay in Mexico (particularly because my son by my ex-wife lives here permanently), she agreed to investigate the possibility of our moving to Cuernavaca - but we have both reached the conclusion that the Cuernavaca has very inadequate school facilities for our two children, aged 9 and 11. Moreover, the sanitation situation in Cuernavaca is notoriously bad, and our children have already had difficulties with amoebas here in Mexico City. Thus, reluctantly, I have decided that we must move to the United States. Aside from her physical condition, I'm afraid Millie's increasing nervous tension will make it impossible for her to stay here.

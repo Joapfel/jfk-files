@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6533.png
-
-Convert to MarkdownUnited States Senate Select Committee to Study Governmental Operations with Respect to Intelligence Activities (SSC)
+United States Senate Select Committee to Study Governmental Operations with Respect to Intelligence Activities (SSC)
 
 4) National Mobilization Committee to End the War in Vietnam (NMC)
 

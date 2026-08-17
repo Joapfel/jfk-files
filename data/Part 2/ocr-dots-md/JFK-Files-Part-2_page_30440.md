@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30440.png
-
-Convert to Markdown1-15
+1-15
 
 case officers wrote -- after station meetings, and it would
 have been normal for me, for example, to see any information

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_2125.png
-
 to a traffic manager.
 
 5. Not necessary for cover development.

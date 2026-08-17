@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31955.png
-
-Convert to Markdown<table><tr><td>FOR AGENCY USE ONLY</td></tr><tr><td>AGENT REFERENCE (AR 381-130; FM 30-17)</td></tr></table>
+<table><tr><td>FOR AGENCY USE ONLY</td></tr><tr><td>AGENT REFERENCE (AR 381-130; FM 30-17)</td></tr></table>
 
 amr
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_907.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 As a matter of historical fact, President Roosevelt in August, 1936, did request former Director J. Edgar Hoover to conduct investigations of subversive activities in this country, including communism and fascism. This request, however, was a confidential oral request and there is doubt that any record of it was made outside the FBI. This request, or Presidential mandate, was based, incidentally, on the fact that the law provided that the FBI could conduct such investigations if the Secretary of State should so request.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11652.png
-
-Convert to Markdown140000
+140000
 
 - [ ] UNCLASSIFIED
 - [ ] CIA INTERNAL - SE ONLY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32182.png
-
-Convert to Markdown23. If you have ever used any names other than your true name, during what period, and under what circumstances, were these names used? none
+23. If you have ever used any names other than your true name, during what period, and under what circumstances, were these names used? none
 
 24. Have you ever legally changed your name? 25. Date: none a) Place: none b) Court: none
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26953.png
-
-Convert to Markdown10 March 1971
+10 March 1971
 
 **Director, Domestic Contact Service**
 

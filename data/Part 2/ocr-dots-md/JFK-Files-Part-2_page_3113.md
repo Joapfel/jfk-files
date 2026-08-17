@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3113.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 planned program for paramilitary training and opera-
 tions under the aegis of CIA. Insofar as can be

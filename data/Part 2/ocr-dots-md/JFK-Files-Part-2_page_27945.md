@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27945.png
-
-Convert to MarkdownWACHTELL, LIPTON, ROSEN & KATZ
+WACHTELL, LIPTON, ROSEN & KATZ
 
 Richard A. Sprague, Esq.
 

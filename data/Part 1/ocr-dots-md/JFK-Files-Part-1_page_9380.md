@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9380.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 press releases, for instance, could be accomplished through a resident member of either the Executive Committee or the International Committee.
 

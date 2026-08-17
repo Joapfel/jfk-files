@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33701.png
-
-Convert to Markdown# CZEO LOVAK AFFAIRS
+# CZEO LOVAK AFFAIRS
 
 Miss Augustine reported that the Council of Free Czechoslovakia and the National Committee of Free Czechoslovakia, composed of 17 and 13 persons respectively, had signed an agreement in New York City on January 15, 1952, which bear the signature of Modar. Modarich, Mileok, Letzarch, and Tenkl.
 

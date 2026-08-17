@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26960.png
-
-Convert to Markdown1 published materials that he was the person who was in charge of
+1 published materials that he was the person who was in charge of
 2 organizing a political unit among Cubans in this country which
 3 would constitute the Cuban government in exile. Do you recall
 4 where that was?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34374.png
-
-Convert to MarkdownASSIFIED MESSAGE TOTAL COPIES
+ASSIFIED MESSAGE TOTAL COPIES
 
 <table>
    <tr>

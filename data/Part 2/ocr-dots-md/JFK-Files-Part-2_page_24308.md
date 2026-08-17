@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24308.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 IIHB 230-1
 4b(2)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8335.png
-
-Convert to MarkdownAvoids "hurtling" his friends. Gloria then told me that Val never accepted an invitation to have coffee with her or Pepe or to dine out. He explained to her that it could hurt her to be seen with him. She gave an example of when she was invited to the ballet with Val and a group of friends.
+Avoids "hurtling" his friends. Gloria then told me that Val never accepted an invitation to have coffee with her or Pepe or to dine out. He explained to her that it could hurt her to be seen with him. She gave an example of when she was invited to the ballet with Val and a group of friends.
 
 After the ballet, Pepe and Gloria invited Val to join them for dinner. Val declined. Pepe and Gloria went to the Hoyo 19. Shortly after they arrived, Val and a large number of embassy officers also arrived. Val steered them away from Pepe and Gloria. Shortly afterwards a man arrived, sat at a remote table and took notes while watching the Soviets.
 

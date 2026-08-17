@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21621.png
-
-Convert to Markdown90. **Helfwirkener Service** - a chief of staff in command-in-command of the military intelligence service of the Reich in 1936-38.
+90. **Helfwirkener Service** - a chief of staff in command-in-command of the military intelligence service of the Reich in 1936-38.
 
 47. **Marangapardoje** - a general, a chief of staff in command-in-command at Black sea, 1917-1920
 

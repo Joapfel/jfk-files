@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22656.png
-
-Convert to MarkdownSHELBY:ms1
+SHELBY:ms1
 fls nash
 
 (7)

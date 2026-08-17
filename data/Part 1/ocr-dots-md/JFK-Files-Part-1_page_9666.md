@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9666.png
-
-Convert to MarkdownC. Bustos
+C. Bustos
 WH/1
 4506
 AUGUST 1964

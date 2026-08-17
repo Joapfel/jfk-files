@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5754.png
-
-Convert to MarkdownTO: Mr. Cregar
+TO: Mr. Cregar
 RE: SENSTUDY '75
 
 Re formal request dated 8/4/75 from Senate Select Committee Item III (1) "The Handbook of Technical Equipment".

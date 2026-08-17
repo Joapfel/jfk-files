@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32539.png
-
-Convert to Markdownwho has spared no effort to expand and improve the Agency's coverage in his area of assignment. We Division and WII Division, where Mr. Williamson will be reassigned, foresee no difficulty, adverse effect in future usefulness or mobility as a result of this marriage.
+who has spared no effort to expand and improve the Agency's coverage in his area of assignment. We Division and WII Division, where Mr. Williamson will be reassigned, foresee no difficulty, adverse effect in future usefulness or mobility as a result of this marriage.
 
 6. I have reviewed Mr. Williamson's employment record and consider him an able and valuable member of the Clandestine Services. He has consistently performed his duties well, has strong to outstanding Fitness Reports, and is a definite asset to the Agency. I believe that the proposed marriage will not detract from his long term use by the Clandestine Services.
 

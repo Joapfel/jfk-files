@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3403.png
-
-Convert to MarkdownIDIU was not perfect. Under Attorney General John Mitchell it supplied a list of names of American dissidents to the CIA. (Tab J) It also was used in conjunction with grand jury proceedings inquiring into terrorist bombings.
+IDIU was not perfect. Under Attorney General John Mitchell it supplied a list of names of American dissidents to the CIA. (Tab J) It also was used in conjunction with grand jury proceedings inquiring into terrorist bombings.
 
 Both of these activities should be forbidden by the statute authorizing the Justice Department to evaluate civil disturbance information.
 

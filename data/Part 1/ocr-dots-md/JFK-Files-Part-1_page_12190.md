@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12190.png
-
-Convert to Markdown# PISTOLEROS Y TERRORISTAS HAN SIDO NACIONALIZADOS
+# PISTOLEROS Y TERRORISTAS HAN SIDO NACIONALIZADOS
 
 Junto con Ricardo Morales Navarrete, alto funcionario en la Oficina de Fronteras (inada menos!) se nacionalizó y trabaja Antonio Ignacio Bustillo Pérez, conocido pistolero traído de Miami por el gang mercenario de Orlando García. "ministro consejero", según el pasaporte con el que hace frecuentes viajes al Caribe, México y Estados Unidos con pasajes y viáticos oficiales.
 

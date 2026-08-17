@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_514.png
-
-Convert to MarkdownSECRET
+SECRET
 
 260crs:25352
 

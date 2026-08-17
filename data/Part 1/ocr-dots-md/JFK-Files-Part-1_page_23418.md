@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23418.png
-
-Convert to Markdown29 September 1949
+29 September 1949
 
 **Communist Organizers**
 

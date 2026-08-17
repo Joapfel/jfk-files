@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18999.png
-
-Convert to MarkdownJUNE 8, 1974.
+JUNE 8, 1974.
 
 which, after some initial successes, took cover in the hardly inhospitable Christian Democratic and Christian Social Unions but has recently announced its determination to purge itself of this 'taint.' In addition in spite of the constitutional ban (Article 18) on any use of civil liberties to endanger the undetermined 'free democratic basic order,' the state of Lower Saxony alone has 34 active Fascist and Nazi organizations, publishing houses, and mail-order book distributors. No one knows how many members and customers they have because they operate furtively, as the rather stupid law compels them to do. Mit (Courage), a monthly magazine addressing a frankly Fascist if not Nazi program to the young in that state, has a circulation of 10,000 and is regarded by the Lower Saxon Minister of the Interior as potentially or latently dangerous.
 

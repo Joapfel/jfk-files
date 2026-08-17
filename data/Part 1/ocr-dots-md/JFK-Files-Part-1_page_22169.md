@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22169.png
-
-Convert to Markdown# H. NOSENKO's Relationship with GRIBANOV
+# H. NOSENKO's Relationship with GRIBANOV
 
 ## 1. Information from NOSENKO
 

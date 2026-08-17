@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15630.png
-
-Convert to MarkdownFred Hampton
+Fred Hampton
 
 Mother (obscene) know he gonna die before this
 trial is over. Yea. A little mother (obscene) (inaudible)

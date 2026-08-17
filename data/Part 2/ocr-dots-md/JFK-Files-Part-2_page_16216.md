@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16216.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 APPENDIX
 
 2

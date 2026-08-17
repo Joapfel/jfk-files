@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15353.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 Re: Intelligence Coverage of Diplomatic Representatives of Friendly Foreign Nations
 
 65-63113

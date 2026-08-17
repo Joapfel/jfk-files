@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20096.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 In view of instructions set forth in Bureau memorandum 10-73, dated 3/6/73, paragraph G, wherein the Bureau reiterated its policy that the FBI has no interest in individuals and organizations involved in legitimate dissent and the recent United States Supreme Court decision upholding the right to abortion, it appears continued investigation of WONAAC as such is not justified.
 

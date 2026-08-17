@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_383.png
-
-Convert to Markdown14-00000
+14-00000
 
 CONFIDENTIAL
 17. Smith, Joseph. Burkholder net: 6-30-73

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23319.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. position."
 2. Now I would read those words as meaning that Mr. Dearborn anticipated at least the real possibility of assassination attempts in the immediate future and that he was recommending that those CIA officers that had been connected with having supplied weapons should be taken out of the Dominican Republic right away.

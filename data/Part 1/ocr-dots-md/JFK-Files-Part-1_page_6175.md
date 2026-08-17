@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6175.png
-
-Convert to MarkdownChief, Contact Division
+Chief, Contact Division
 
 -2-
 

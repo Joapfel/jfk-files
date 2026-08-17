@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23667.png
-
-Convert to MarkdownE. Clothing
+E. Clothing
 
 1. 5 Sets Fatigue Uniforms, HBT Shirts and Trousers
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20745.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CLASSIFICATION</td></tr><tr><td>NARRATIVE COMMENTS</td></tr></table>
 

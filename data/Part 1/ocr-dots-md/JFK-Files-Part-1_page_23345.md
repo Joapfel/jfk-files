@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23345.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HRJ-4-2092
 Page Two

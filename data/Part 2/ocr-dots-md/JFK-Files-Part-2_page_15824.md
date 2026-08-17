@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15824.png
-
-Convert to Markdown publicly stated they support the program of the Black Panther Party and want Huey Newton released from jail.
+publicly stated they support the program of the Black Panther Party and want Huey Newton released from jail.
 
 PROGRAM OF THE BLACK PANTHER PARTY
 (WHAT WE WANT AND WHAT WE BELIEVE)

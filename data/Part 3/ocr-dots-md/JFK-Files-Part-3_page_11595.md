@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11595.png
-
-Convert to Markdown4-E
+4-E
 
 I. Defectors-in-Place (DIP)
 

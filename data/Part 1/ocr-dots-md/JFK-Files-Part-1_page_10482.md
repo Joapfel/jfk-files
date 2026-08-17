@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10482.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Washington Field Office
 

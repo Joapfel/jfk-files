@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11370.png
-
-Convert to MarkdownTENETEIWED
+TENETEIWED
 TELETYPE UNIT
 
 MAR 27 9 34 AM '75

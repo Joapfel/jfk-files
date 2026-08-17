@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24213.png
-
-Convert to Markdown1974, the arbitrator ruled in favor of Air America. This decision caused an additional $1,304,243 to accrue to the Agency from the SAT sale. This was the sum of the $1.2 million under arbitration plus accrued interest, less the Agency's share of arbitration costs.
+1974, the arbitrator ruled in favor of Air America. This decision caused an additional $1,304,243 to accrue to the Agency from the SAT sale. This was the sum of the $1.2 million under arbitration plus accrued interest, less the Agency's share of arbitration costs.
 
 ## DECLASSIFICATION OF RELATIONSHIP WITH CIA
 

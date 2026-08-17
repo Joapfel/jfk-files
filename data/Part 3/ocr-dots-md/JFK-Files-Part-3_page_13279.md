@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13279.png
-
-Convert to MarkdownMr. Rankin - Page 3
+Mr. Rankin - Page 3
 
 collections in Texas applicable to the maintenance of its police force, etc., were unusually low as contrasted with other states. I doubt whether this was a correct judgment as I do not think that one can segregate in Texas or elsewhere the tax collections for police as against other public services.
 

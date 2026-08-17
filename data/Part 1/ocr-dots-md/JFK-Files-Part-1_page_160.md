@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_160.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0009 DAVIS, HOWARD THURMAN SMUT
 

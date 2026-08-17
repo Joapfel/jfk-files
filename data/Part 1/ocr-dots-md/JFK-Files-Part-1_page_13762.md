@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13762.png
-
-Convert to Markdownfeel that FONTS Sanchez was deliberately creative, difficult and putting up roadblocks in connection with Cuban plans to put on an art exhibit in Mexico City. (Perhaps this falling out may be attributable in the current campaign to discreet APARICIO)
+feel that FONTS Sanchez was deliberately creative, difficult and putting up roadblocks in connection with Cuban plans to put on an art exhibit in Mexico City. (Perhaps this falling out may be attributable in the current campaign to discreet APARICIO)
 
 6. On 5 June Hernández Gutiérrez and Angel GÓMEZ Díaz arrived from Cuba to attend some sort of UNESCO meeting. Starting at the Hotel Nacional, Gutiérrez met his wife, MIRANDA, of the Embassy, L-2 here, that both of them have Spanish names. They are scheduled to return to Cuba about 5 July. GÓMEZ Díaz' trip was paid for by UNESCO, not so much Gutiérrez. GUTIÉRREZ remarked that in Cuba he recently met one of the ranking Mexican chess players chided him by asking why two millionaires guarded all the buses in town.
 

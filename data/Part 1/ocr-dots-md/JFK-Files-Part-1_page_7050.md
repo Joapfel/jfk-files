@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7050.png
-
-Convert to MarkdownSECRET
+SECRET
 
 assessment as valid and in keeping with her own thoughts. She was told that final guidance on this matter would be given her at a subsequent meeting to be held in the afternoon after DORANOSK had received the Headquarters traces. The discussion then went to the communications.
 

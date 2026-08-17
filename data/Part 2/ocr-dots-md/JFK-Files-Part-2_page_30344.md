@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30344.png
-
-Convert to Markdown1 sending me the last few years abroad to talk with friendly
+1 sending me the last few years abroad to talk with friendly
 2 intelligence services. I am also working at home on my own.
 3 I am studying Soviet periodicals, Soviet magazines, Soviet
 4 newspapers. I am making certain researches, I am trying not to

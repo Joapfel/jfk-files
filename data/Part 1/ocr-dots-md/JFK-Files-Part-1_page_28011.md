@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28011.png
-
-Convert to Markdown# COTR. AL
+# COTR. AL
 
 ## DEPT OF LABOR
 

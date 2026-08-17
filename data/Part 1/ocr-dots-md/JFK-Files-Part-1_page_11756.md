@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11756.png
-
-Convert to MarkdownJOHN HARDBOTTOM
+JOHN HARDBOTTOM
 
 (Singed in the Great San Francisco fire)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25147.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th></tr></thead><tbody><tr><td>BUNDY, MC GEORGE, TAYLOR, MAXWELL<br/>BALL, GEORGE<br/>FORRESTAL, MICHAEL<br/>HILLSMAN, ROGER; AMBASSADOR NOLTING<br/>MC CONE, JOHN, MC NAMARA, ROBERT<br/>GILPATRIC, ROSWELL</td><td>1963</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th></tr></thead><tbody><tr><td>BUNDY, MC GEORGE, TAYLOR, MAXWELL<br/>BALL, GEORGE<br/>FORRESTAL, MICHAEL<br/>HILLSMAN, ROGER; AMBASSADOR NOLTING<br/>MC CONE, JOHN, MC NAMARA, ROBERT<br/>GILPATRIC, ROSWELL</td><td>1963</td></tr></tbody></table>
 
 TOP SECRET
 

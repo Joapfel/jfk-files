@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25803.png
-
-Convert to Markdownonce more on Kennedy, and each time I eulogized the intellectual qualities of the assassinated President, I awakened the keenest interest in him.
+once more on Kennedy, and each time I eulogized the intellectual qualities of the assassinated President, I awakened the keenest interest in him.
 
 The Cubans have lived with the United States in that cruel intimacy so familiar to me of the colonized with their colonizers. Nevertheless, it was an intimacy. In that very sensitive city of Havana to which we returned in the evening, where the luminous signboards with Marxist slogans have replaced the Coca Cola and toothpaste billboards, in the midst of Soviet exhibits
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10178.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2"> c69<br /> 6 OCT 62 </td>
     <td rowspan="4">

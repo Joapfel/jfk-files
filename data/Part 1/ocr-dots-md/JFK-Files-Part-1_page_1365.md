@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1365.png
-
-Convert to MarkdownSECRET
+SECRET
 
 has never been adequately explained and was apparently never
 reported in full to London by the British representative in

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21956.png
-
-Convert to MarkdownAlthough Colonel Wimert was instructed not to involve himself with
+Although Colonel Wimert was instructed not to involve himself with
 Viaux because of the high risk involved (Santiago 461, 5 October), he
 served initially as a contact to Viaux through an Argentine military
 Attache. The Argentine reported on October 5 that Viaux wanted several

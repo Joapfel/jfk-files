@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24366.png
-
-Convert to MarkdownSimilarly, each activity is placed on a separate page so that the Deputy Director concerned may most easily forward it to the office or offices directly concerned without distributing it more broadly.
+Similarly, each activity is placed on a separate page so that the Deputy Director concerned may most easily forward it to the office or offices directly concerned without distributing it more broadly.
 
 3. In the event that these instructions raise substantial difficulties of implementation or compliance, I would appreciate your raising such cases with me directly, with whatever recommendations you may have for modification to carry out the spirit of the action undertaken here but to avoid undue disruption of legitimate activities. In the absence of such notice, I will expect full compliance with the instructions outlined herein.
 

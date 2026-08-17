@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4200.png
-
-Convert to MarkdownNovember 25, 1975
+November 25, 1975
 
 8. With respect to a memorandum with enclosure, from G. C. Moore to Mr. Sullivan, dated 3/28/68, captioned "Sanitation Workers Strike, Memphis, Tennessee, Racial Matters," please provide the access and/or materials requested in a, b, c, and d of Item 6 above.
 

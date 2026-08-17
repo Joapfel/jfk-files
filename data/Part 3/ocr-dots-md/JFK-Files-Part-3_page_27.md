@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_27.png
-
-Convert to MarkdownLate in July 1966 Bromley Smith said that he had some ideas about the PDB and would like to get together with all the writers. He met with ~~The DDT leadership~~ them and the OCI/in the Langley building on 3 August. He prefaced his
+Late in July 1966 Bromley Smith said that he had some ideas about the PDB and would like to get together with all the writers. He met with ~~The DDT leadership~~ them and the OCI/in the Langley building on 3 August. He prefaced his
 
 thoughty remarks by saying that he thought expressing his satisfaction with the way
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4620.png
-
-Convert to MarkdownVSI LOGS
+VSI LOGS
 
 DATE: 17 DECEMBER 1945
 CLASSIFICATION: SECRET

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25305.png
-
-Convert to MarkdownFrom: Mexico
+From: Mexico
 No. of pages: 1
 Report Made By: Howard G. Mossman/Doe
 Approved By: Peter R. Aaront/RSF

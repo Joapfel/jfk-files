@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25497.png
-
-Convert to MarkdownML: A federal narcotics informant...
+ML: A federal narcotics informant...
 
 FS: Undercover agent, right?
 

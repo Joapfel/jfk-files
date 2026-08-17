@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3969.png
-
-Convert to MarkdownSTATE DEPT <TELEGRAMS> RE: Richard Nagell
+STATE DEPT <TELEGRAMS> RE: Richard Nagell
 
 **D. DATED:**
 

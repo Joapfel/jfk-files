@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4912.png
-
-Convert to MarkdownOUTGOING . MESSAGE
+OUTGOING . MESSAGE
 
 14-001900
 

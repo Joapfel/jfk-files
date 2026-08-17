@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10101.png
-
-Convert to MarkdownHMRA-34623
+HMRA-34623
 
 10 May 1968
 

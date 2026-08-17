@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4732.png
-
-Convert to Markdown2/00[CUG]R07-71
+2/00[CUG]R07-71
 31 AUG 71 1935Z
 
 NSA /WR (NS)

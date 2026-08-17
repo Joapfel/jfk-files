@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33558.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CABLE SEC DISSEM BY 28 PDR</td>
     <td>TOTAL COPIES</td>

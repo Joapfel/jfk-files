@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11117.png
-
-Convert to MarkdownSenate CIA Committee Says
+Senate CIA Committee Says
 White House Stalls on Data
 
 By George Lardner Jr.

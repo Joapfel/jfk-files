@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32295.png
-
-Convert to MarkdownDLB: 9 FEB 65
+DLB: 9 FEB 65
 
 SECRET
 (When Filled In)

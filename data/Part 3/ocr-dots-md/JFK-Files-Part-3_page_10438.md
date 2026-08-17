@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10438.png
-
-Convert to MarkdownNR006 AX CODE
+NR006 AX CODE
 
 MAR 2 6 1975
 

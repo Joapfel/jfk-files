@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3369.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 12. MR [no author], 27 Jan 61, sub: WHD Reporting on the Cuban Revolution and the Rise of Fidel Castro to Power, p. 6. S.
 

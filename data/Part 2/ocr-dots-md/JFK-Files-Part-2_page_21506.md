@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21506.png
-
-Convert to MarkdownHW 50955 DocId:32281896 Page 4
+HW 50955 DocId:32281896 Page 4
 
 (One other 8200 are presumably under military or other non-State official cover). Originally the use of State Department cover for CIA personnel was supposed to be strictly limited and temporary. The Bullo-Correa-Jackeen report stated in 1948, "The CIA should not use outside Department cover as a simple answer to all its problems, but should proceed to develop its own outside cover and eventually in this way and through increased efficiency of its overseas personnel, find a way to compensate its demands upon the State Department." None-the-less CIA has steadily increased its regulations for official cover.
 

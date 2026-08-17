@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21049.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (4) You will initially report to this organization, upon assumption of cover status and thereafter on an annual basis, your rate of cover compensation. Any changes during the year will also be reported. This organization will pay your basic contractual salary (initially $33,260) until such time as reports indicate cover income in excess of that set out in sub-paragraph two (2) above. You will thereafter be paid at your full rate of compensation less anticipated earned cover income based on the last report. Adjustments, if any, will be made following receipt of the yearend report. Failure to timely submit reports may result in a delay or suspension of contractual payments due you hereunder.
 

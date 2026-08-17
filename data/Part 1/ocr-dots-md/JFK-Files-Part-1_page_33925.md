@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33925.png
-
-Convert to MarkdownBEAVER, OKLAHOMA
+BEAVER, OKLAHOMA
 
 "Thanks for promoting this thought."
 

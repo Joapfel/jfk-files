@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2514.png
-
-Convert to Markdownwas to discuss the possibility of temporarily discontinuing certain
+was to discuss the possibility of temporarily discontinuing certain
 Embassy "points" controlled by the First Section, and permitting
 PETROV to use these "points" against targets of his section.
 

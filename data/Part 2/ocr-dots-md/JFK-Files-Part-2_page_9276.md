@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9276.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 LOUIS TOLBERT JOHNSON has been an active member of the BPP, Detroit.
 

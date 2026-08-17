@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23948.png
-
-Convert to Markdown14-00000
+14-00000
 
 (Curious mix-up - this religion and politics.)
 ---

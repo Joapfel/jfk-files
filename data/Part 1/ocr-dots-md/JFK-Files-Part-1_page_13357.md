@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13357.png
-
-Convert to MarkdownDIR 15805 (para 3)
+DIR 15805 (para 3)
 
 Justice Department has suggested possibility use AMC LEV/15 to assist Rosenthal obtain additional material as basis for arrest of Rosenthal for having possession of such materials.
 

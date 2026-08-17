@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20503.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>NAME OF EMPLOYEE (Last-First-Middle)</td><td>NAME AND RELATIONSHIP TO DEPENDENT</td><td>CLAIM NUMBER</td></tr><tr><td>Hunt, R. Howard</td><td>Self</td><td>65-607</td></tr></table>

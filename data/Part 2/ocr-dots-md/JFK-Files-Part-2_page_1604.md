@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1604.png
-
-Convert to Markdown18 August 1978
+18 August 1978
 
 Mr. James S. Woods
 304 Meadow Hall Dr.

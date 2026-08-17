@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12391.png
-
-Convert to Markdown(2) When the Committee contacts a witness, it will explain the security and other arrangements between the Committee and the agency, as well as these ground rules. If the witness wishes to consult with the agency prior to his appearance, the Committee will not discourage or seek to interfere with that desire in any way and will help the witness contact the agency representative.
+(2) When the Committee contacts a witness, it will explain the security and other arrangements between the Committee and the agency, as well as these ground rules. If the witness wishes to consult with the agency prior to his appearance, the Committee will not discourage or seek to interfere with that desire in any way and will help the witness contact the agency representative.
 
 (3) Whenever they are not present at interviews or the taking of sworn statements, agency representatives will be available for consultations regarding the handling of special security matters.
 

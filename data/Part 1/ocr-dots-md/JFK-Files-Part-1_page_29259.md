@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29259.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="4">SECTION VII<br/>GEOGRAPHIC AREA KNOWLEDGE AND FOREIGN TRAVEL</td>
    </tr>

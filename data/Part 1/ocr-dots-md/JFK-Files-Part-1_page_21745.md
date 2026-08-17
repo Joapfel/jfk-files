@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21745.png
-
-Convert to Markdownduring 1960 - mid-1961 when he was forced into retirement from the
+during 1960 - mid-1961 when he was forced into retirement from the
 KGB. During the above period of time, NOSENKO claims to have
 been Deputy Chief, First Section, although he does not claim to have
 had a direct supervisory responsibility over CHEREPANOV except

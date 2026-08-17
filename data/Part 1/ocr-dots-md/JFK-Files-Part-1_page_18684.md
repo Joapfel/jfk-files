@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18684.png
-
-Convert to Markdown14-0000
+14-0000
 
 JUN 27 1975
 

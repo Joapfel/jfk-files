@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11075.png
-
-Convert to Markdown<table><tr><td colspan="2">SECRET FORM<br>TOTAL COPY:</td></tr><tr><td>OFFICE:</td><td>SECRET</td></tr><tr><td>VIRTUE:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr><tr><td>CARD SECRETARY DESEEDEDATION</td><td></td></tr><tr><td>BY______________________ FOR _________________________________</td><td></td></tr><tr><td>COMP:</td><td>ID COPY</td></tr><tr><td></td><td>SIDE A</td></tr><tr><td>(Date and time limited)</td><td></td></tr></table>
+<table><tr><td colspan="2">SECRET FORM<br>TOTAL COPY:</td></tr><tr><td>OFFICE:</td><td>SECRET</td></tr><tr><td>VIRTUE:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr><tr><td>CARD SECRETARY DESEEDEDATION</td><td></td></tr><tr><td>BY______________________ FOR _________________________________</td><td></td></tr><tr><td>COMP:</td><td>ID COPY</td></tr><tr><td></td><td>SIDE A</td></tr><tr><td>(Date and time limited)</td><td></td></tr></table>
 
 SECRET
 

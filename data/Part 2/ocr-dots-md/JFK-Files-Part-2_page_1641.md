@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1641.png
-
-Convert to MarkdownName: WOODS, James B.
+Name: WOODS, James B.
 
 CS Designation: DI
 

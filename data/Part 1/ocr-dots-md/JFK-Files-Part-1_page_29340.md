@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29340.png
-
-Convert to MarkdownPlease place an "X" next to those items which in your judgment describe or usually apply to this person. It is not necessary to check any given number of items. You may be able to pick out one or more that are completely pertinent.
+Please place an "X" next to those items which in your judgment describe or usually apply to this person. It is not necessary to check any given number of items. You may be able to pick out one or more that are completely pertinent.
 
 (✓) Good personal appearance
 

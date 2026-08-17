@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1467.png
-
-Convert to MarkdownSUBJECT: Robert Wheeler (P)
+SUBJECT: Robert Wheeler (P)
 
 Comments of Reviewing Official:
 

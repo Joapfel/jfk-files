@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6528.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Case SS-150
 

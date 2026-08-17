@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24037.png
-
-Convert to Markdownagainst a coup, but suggested that alternative leadership should be identified and cultivated. The recommendations were promptly approved by the President. (Pentagon Papers, pp.215-216)
+against a coup, but suggested that alternative leadership should be identified and cultivated. The recommendations were promptly approved by the President. (Pentagon Papers, pp.215-216)
 
 On October 3 Conein contacted Minh. Minh explained that a coup was being planned, and requested assurances of American support if it were successful. Minh outlined three courses of action, one of which was the assassination of Dien's brothers, Nhu and Can (Conein, p.25; cable, Saigon to Director, 10/5/63). * The Acting Chief of the CIA Station, David R. Smith, cabled on October 5 that he had recommended to Lodge that "we do not set ourselves irrevocably against the assassination plot, since the other two alternatives mean either a blood bath in Saigon or a protracted struggle" (Cable, Saigon to Director, 10/5/63).
 

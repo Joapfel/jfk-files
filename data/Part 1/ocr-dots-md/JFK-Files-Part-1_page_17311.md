@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17311.png
-
-Convert to MarkdownCommittee), the MLN (National Liberation Movement), and the CEM (Circle of Mexican Studies). He has been in contact with several leftist figures of various echelon, including Gen. Lazaro CARDENAS, the Cuban Ambassador to Mexico, and Polish, Soviet, and Chinese Communist officials. TAMAYO's son has studied in Warsaw and travelled to the USSR and Communist China.
+Committee), the MLN (National Liberation Movement), and the CEM (Circle of Mexican Studies). He has been in contact with several leftist figures of various echelon, including Gen. Lazaro CARDENAS, the Cuban Ambassador to Mexico, and Polish, Soviet, and Chinese Communist officials. TAMAYO's son has studied in Warsaw and travelled to the USSR and Communist China.
 
 5. Jose David ALFARO Siqueiros
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3647.png
-
-Convert to Markdown13-00000
+13-00000
 
 PARTY STRENGTHS IN TURKISH ELECTIONS
 (%, of total vote)

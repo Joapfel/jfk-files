@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24479.png
-
-Convert to MarkdownCOMMITT
+COMMITT
 
 that Asilomar Caesarea - Venaumala - Is not indicated and may
 are the members not listed on the French Board -

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1780.png
-
-Convert to Markdown3. National Board of Estimates should be reviewed and improved where necessary and consideration given to formation of a special group within O/NE to analyze on a continuing basis objectives of Soviet/Sino Bloc, international communism and their pursuit of their cold war activities and in their efforts to establish world domination. Note: This office previously existed directly under DD/I but was abandoned a few months ago.
+3. National Board of Estimates should be reviewed and improved where necessary and consideration given to formation of a special group within O/NE to analyze on a continuing basis objectives of Soviet/Sino Bloc, international communism and their pursuit of their cold war activities and in their efforts to establish world domination. Note: This office previously existed directly under DD/I but was abandoned a few months ago.
 
 4. Proper liaison with finance, State Department, and agreed methods for DCI to brief NSC as provided by law should be worked out.
 

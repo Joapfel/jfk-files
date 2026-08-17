@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15655.png
-
-Convert to MarkdownV. EVIDENCE OF
+V. EVIDENCE OF
 NATIONAL UNITY
 
 advised on November 15, 1969,

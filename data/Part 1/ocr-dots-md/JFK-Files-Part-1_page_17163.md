@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17163.png
-
-Convert to MarkdownSECRET
+SECRET
 
 assisted the Station in its MIRAVEL program. As a part of the
 Station's effort to broaden GEREÑO'S horizons and to take better

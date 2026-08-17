@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4035.png
-
-Convert to MarkdownPlan of Production Costs for the Second and Third Year of Operation.
+Plan of Production Costs for the Second and Third Year of Operation.
 
 (See the following statement.)
 

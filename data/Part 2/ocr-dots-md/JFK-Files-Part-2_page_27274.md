@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27274.png
-
-Convert to MarkdownA - Defense Against Soviet Medical Interrogation and Espionage
+A - Defense Against Soviet Medical Interrogation and Espionage
 Techniques SECRET
 
 B - Organization of a Special Defense Interrogation Program SECRET

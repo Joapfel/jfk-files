@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26710.png
-
-Convert to MarkdownKool 72-WICO-22
+Kool 72-WICO-22
 29 April 1963
 
 14.2 Out to 12-08-53, three times. No rings, complete. Marcio

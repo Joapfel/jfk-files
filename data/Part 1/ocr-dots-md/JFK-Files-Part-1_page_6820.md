@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6820.png
-
-Convert to MarkdownJNDAY, JULY 1
+JNDAY, JULY 1
 
 HOLIDAY
 THRILLERS

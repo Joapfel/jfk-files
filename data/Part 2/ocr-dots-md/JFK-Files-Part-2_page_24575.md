@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24575.png
-
-Convert to Markdown-64-
+-64-
 
 attendance a larger number of officials than usually participated in Special Group Augmented meetings. The Meeting was chaired by Secretary of State Rusk (and held in his office), and attended by a total of 15 officials, including the principals of the agencies taking part in Mongoose, i.e., Secretary Rusk, Secretary McNamara, CIA Director McCone, and USIA Director Murrow.
 

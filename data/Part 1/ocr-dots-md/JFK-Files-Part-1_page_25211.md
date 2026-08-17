@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25211.png
-
-Convert to MarkdownNEW YORK HERALD TRIBUNE
+NEW YORK HERALD TRIBUNE
 
 Mr. Stuart H. LOORY
 

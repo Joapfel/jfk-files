@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8742.png
-
-Convert to MarkdownNotes from the Debriefing of AEMIDRIFF - 20 to 23 February 1970
+Notes from the Debriefing of AEMIDRIFF - 20 to 23 February 1970
 
 10) Valentin Seregeevich LOCINOV: He left on the 6th of October for Moscow, six months before the completion of his tour. He was head of the consular section and the lover of Raya. Apparently the causes for his sudden return were 1) having been Raya's lover; and 2) not having had good results from his work and, according to Raya, some kind of failure. He was in Mexico on two different occasions.
 

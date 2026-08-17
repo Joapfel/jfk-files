@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23108.png
-
-Convert to MarkdownDecember 14, 1966
+December 14, 1966
 
 P. C. Redlich, M.D.
 Professor of Psychiatry

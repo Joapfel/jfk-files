@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18376.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">BROWN</th><th>NEW YORK UNIVERSITY</th><th>BOSTON UNIVERSITY</th></tr></thead><tbody><tr><td>CATION</td><td>MILITARY SERVICE</td><td>NATIONALITY</td><td>OFFICE OF CIVILIANITY</td></tr><tr><td>STATUS</td><td>ACTIVE</td><td>CLASS</td><td>PROFESSIONAL STATUS</td></tr><tr><td>DATE OF ENLISTMENT</td><td>JULY 1954</td><td>DATE OF RELEASE</td><td>TERMINATION DATE</td></tr><tr><td>GRADE</td><td></td><td>STATUS</td><td></td></tr><tr><td>ACTIONABLE</td><td>SERVICES</td><td>WITHIN CIRCUMSTANCES</td><td>EXPERIENCE (Circumstances)</td></tr><tr><td>ASSESSMENT DATE</td><td>PROFESSIONAL TEST DATE</td><td>LONG TERM ACHIEVEMENTS</td><td>TEST DATE</td></tr><tr><td>HONORS</td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20523.png
-
-Convert to Markdown7 March 1969
+7 March 1969
 
 MEMORANDUM FOR: E. Howard Hunt, DEP/EUR/CA
 SUBJECT: Service Computation Date

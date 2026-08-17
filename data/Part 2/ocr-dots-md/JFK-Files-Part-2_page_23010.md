@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23010.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 about $5,000 worth of arms and equipment to be left in a parking lot and picked up there by a contact of Harvey's? And this would be in approximately April of 1962.
 

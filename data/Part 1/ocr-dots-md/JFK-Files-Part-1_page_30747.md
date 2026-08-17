@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30747.png
-
-Convert to MarkdownDEPARTMENT OF STATE
+DEPARTMENT OF STATE
 
 Jul 26 1968
 

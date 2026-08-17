@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22876.png
-
-Convert to Markdowncb 37
+cb 37
 
 91
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_869.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NO FOREIGN DISSEMINATION/NO DISSEMINATION ABROAD
 

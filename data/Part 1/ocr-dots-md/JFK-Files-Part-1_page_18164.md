@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18164.png
-
-Convert to Markdown6 September 1966
+6 September 1966
 
 MEMORANDUM FOR: Chief, CCS
 FROM : WH Division

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25040.png
-
-Convert to Markdown4. Problems
+4. Problems
 
 There are no problems connected with this Project.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31317.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>21. DATES OF MILITARY SERVICE OF SPOUSE (FROM AND TO) 30 MONTHS AND YEAR</td></tr><tr><td>22. BRANCH OF SERVICE A</td><td>23. COUNTRY WITH WHICH MILITARY SERVICE AFFILIATED A</td></tr><tr><td>24. DETAILS OF OTHER GOVERNMENT SERVICE, U.S. OR FOREIGN</td><td>N/A</td></tr></table>
 

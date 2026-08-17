@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3188.png
-
-Convert to Markdown1800
+1800
 
 these type of techniques were used, it seemed to indicate a lack of confidence or faith in the American people to believe that they could not hear ideas that might be contrary to their own without being serious damaged.
 

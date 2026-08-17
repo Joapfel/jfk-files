@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21506.png
-
-Convert to Markdownavailable information, the remaining work will materially affect
+available information, the remaining work will materially affect
 the conclusions drawn in this summary.
 
 The polygraph interview of NOSENKO was initiated on

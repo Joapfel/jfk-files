@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15050.png
-
-Convert to MarkdownA conference planned for February, 1969, at McGill University is designed to influence President Nixon's Administration to vote for United Nations admission of Communist China and to recognize it diplomatically. Canadian and U. S. participants will include LIN and Sorensen. If initially successful, a follow-up conference to include Chinese Communist representatives is planned.
+A conference planned for February, 1969, at McGill University is designed to influence President Nixon's Administration to vote for United Nations admission of Communist China and to recognize it diplomatically. Canadian and U. S. participants will include LIN and Sorensen. If initially successful, a follow-up conference to include Chinese Communist representatives is planned.
 
 We are targeting a top-level informant against LIN to develop further information.
 

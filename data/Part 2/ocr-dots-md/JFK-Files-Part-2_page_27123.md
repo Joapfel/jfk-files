@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27123.png
-
-Convert to Markdownstatic defenses erected against the clandestine activities of adversaries of the U.S., whereas counterespionage is aggressive activity of engaging the adversary clandestinely.
+static defenses erected against the clandestine activities of adversaries of the U.S., whereas counterespionage is aggressive activity of engaging the adversary clandestinely.
 
 NSCID/5 stipulates that the Director of Central Intelligence shall undertake specified actions in order to ensure centralized direction of all clandestine activities within the scope of the Directive. It also charges CIA with primary responsibility for U.S. clandestine activities abroad and permits other departments and agencies to conduct such foreign clandestine activities as are supplementary or are necessary to their security. Departmental counterintelligence is brought together through two Director of Central Intelligence Directives, one which requires coordination in advance with CIA on clandestine counterintelligence operations abroad, and the other which stipulates that CIA shall serve as a central repository of foreign counterintelligence data to the Intelligence Community.
 

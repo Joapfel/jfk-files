@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8112.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 ab# F-53 contains CABLE IN 90561 JMWAVE 2022 dated 12 Apr 1968.
 

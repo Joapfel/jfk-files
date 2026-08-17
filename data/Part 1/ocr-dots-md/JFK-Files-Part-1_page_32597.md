@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32597.png
-
-Convert to MarkdownPSC: 14 SEPT 82
+PSC: 14 SEPT 82
 
 SECRET
 (Written In)

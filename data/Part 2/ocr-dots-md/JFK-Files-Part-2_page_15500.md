@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15500.png
-
-Convert to MarkdownMemorandum for Mr. W. C. Sullivan
+Memorandum for Mr. W. C. Sullivan
 
 RE: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES (ANNUAL EVALUATION)
 

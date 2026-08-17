@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30266.png
-
-Convert to Markdown24 APR 1970
+24 APR 1970
 
 MEMORANDUM FOR: Director of Security
 

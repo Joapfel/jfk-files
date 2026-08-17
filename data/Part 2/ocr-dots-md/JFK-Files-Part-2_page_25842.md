@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25842.png
-
-Convert to MarkdownRocca referred to an SB study, directed by Lee Wigren and conducted by Virginia Valpi which compared the Oswald case to other U.S. defectors and their wives. SB concluded Oswald was not given special handling by the KGB. Rocca maintains Oswald was given special treatment. He believes Oswald's relationship with the "Red Cross" (from which Oswald received financial assistance) and the Red Cross' relationship with the KGB should be clarified.
+Rocca referred to an SB study, directed by Lee Wigren and conducted by Virginia Valpi which compared the Oswald case to other U.S. defectors and their wives. SB concluded Oswald was not given special handling by the KGB. Rocca maintains Oswald was given special treatment. He believes Oswald's relationship with the "Red Cross" (from which Oswald received financial assistance) and the Red Cross' relationship with the KGB should be clarified.
 
 Rocca also finds it peculiar that Marina married Oswald since Marina's uncle was KGB. Rocca said that Oswald was the only defector who married someone with a KGB connection of that kind. Rocca said that the CIA developed this information after the assassination.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12191.png
-
-Convert to Markdown# ETA OFICIAL
+# ETA OFICIAL
 REPÚBLICA DE VENEZUELA
 
 Caracas: viernes 25 de junio de 1976 Número 31.010

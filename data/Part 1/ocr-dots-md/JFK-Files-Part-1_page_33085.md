@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33085.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ORIG:</td><td>Larry Sternfield,jls</td></tr><tr><td>UNITE:</td><td>WH/COG</td></tr><tr><td>EAT:</td><td>7451/1948</td></tr><tr><td>DATER:</td><td>December 1969</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10734.png
-
-Convert to Markdown2010-106-03
+2010-106-03
 
 UNITED STATES GOVERNMENT
 Memorandum

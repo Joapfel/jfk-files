@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14250.png
-
-Convert to MarkdownAlso, U. S. forces would have to be extensively deployed to meet any reaction, and the American people would have to be prepared for the situation. Mr. McCone feels that U. S. public opinion could best be prepared by the adoption of a Congressional resolution, which would also serve as a meaningful signal to the Chinese.
+Also, U. S. forces would have to be extensively deployed to meet any reaction, and the American people would have to be prepared for the situation. Mr. McCone feels that U. S. public opinion could best be prepared by the adoption of a Congressional resolution, which would also serve as a meaningful signal to the Chinese.
 
 In answer to Dr. Langer's question, Mr. McCone thought it unlikely that Khahn would be unseated by a military coup in South Vietnam, although there are disgruntled factions for him to contend with.
 

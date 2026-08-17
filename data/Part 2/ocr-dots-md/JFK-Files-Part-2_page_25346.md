@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25346.png
-
-Convert to MarkdownConf. Tom More
+Conf. Tom More
 
 Ed. Gr. - A.M. H. - R.Z. (AC)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13578.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 sometimes in conjunction with the Agency, attempting to have the
 Agency analyze a particular aspect of its program or activity,

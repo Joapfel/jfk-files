@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2200.png
-
-Convert to Markdown14-0000
+14-0000
 
 Mr. Birch D. O'Neal
 5704 Ridgefield Road

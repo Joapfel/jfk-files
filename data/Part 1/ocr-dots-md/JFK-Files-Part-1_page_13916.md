@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13916.png
-
-Convert to MarkdownEXCERPTS
+EXCERPTS
 
 From Attachment to HMA-23018
 

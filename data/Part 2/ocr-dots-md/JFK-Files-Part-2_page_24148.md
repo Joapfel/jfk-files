@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24148.png
-
-Convert to Markdown74. LPBANGO
+74. LPBANGO
 
 A Liechtenstein foundation used to give ostensible grants-in-aid to field agents as a source of their livelihood; assets of $165; no employees.
 

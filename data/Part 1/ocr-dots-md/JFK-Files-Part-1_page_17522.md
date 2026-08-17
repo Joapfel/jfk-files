@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17522.png
-
-Convert to Markdown- 21 -
+- 21 -
 
 f. Local purchase of replacement parts, wire, expendable supplies (as paper, paper tape, carbon paper, typewriter ribbons, wrapping paper, manila envelopes) and emergency and special equipment 800 $13,050
 

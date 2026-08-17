@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22090.png
-
-Convert to Markdownsystem varied from very clear to zero; he said in 1964 that the quality was deteriorating and that "in a year or two they [the microphones] will be completely inoperative."* Although the microphones produced a great deal of political intelligence, NOSENKO said, he found nothing worthwhile for use against U.S. code clerks or others of operational interest to him.** All pertinent details from NOSENKO and other sources on the microphone system in the chancery building is presented in the following portions of this paper.
+system varied from very clear to zero; he said in 1964 that the quality was deteriorating and that "in a year or two they [the microphones] will be completely inoperative."* Although the microphones produced a great deal of political intelligence, NOSENKO said, he found nothing worthwhile for use against U.S. code clerks or others of operational interest to him.** All pertinent details from NOSENKO and other sources on the microphone system in the chancery building is presented in the following portions of this paper.
 
 (a) **NOSENKO'S SOURCES**
 

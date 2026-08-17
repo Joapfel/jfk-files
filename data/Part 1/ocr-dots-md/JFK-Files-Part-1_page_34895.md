@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34895.png
-
-Convert to Markdown---SANTOS: In order that said proxy receive from Mr. Raul Santa- Venia Lopez the furniture, chattels, documents, and cash that the latter deliver him, with the faculty to sign and subscribe the -- public or private document that Mr. Santovenia may ask of him as security.
+---SANTOS: In order that said proxy receive from Mr. Raul Santa- Venia Lopez the furniture, chattels, documents, and cash that the latter deliver him, with the faculty to sign and subscribe the -- public or private document that Mr. Santovenia may ask of him as security.
 
 ---THIRD: That they revoke, cancel, &c. invalid Power No. 2 dated January 6, 1964 granted before Notary Public of Martí, Matanzas - province, Cuba, Doctor Antonio Solares Santa Maria, in behalf of Mr. Raul Santovenia Lopez.
 

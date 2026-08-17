@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4474.png
-
-Convert to MarkdownWH/C 68-499
+WH/C 68-499
 
 9 November 1965
 

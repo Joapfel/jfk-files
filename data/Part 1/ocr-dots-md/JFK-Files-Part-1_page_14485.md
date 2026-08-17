@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14485.png
-
-Convert to Markdown14-09-00
+14-09-00
 
 Report No. 2533.
 

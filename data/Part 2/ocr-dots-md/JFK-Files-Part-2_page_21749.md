@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21749.png
-
-Convert to Markdown# THE NEW YORK TIMES. THURSDAY, JANUARY 8, 1976
+# THE NEW YORK TIMES. THURSDAY, JANUARY 8, 1976
 
 ## Retired Colonel Denies Heading C.I.A. Unit for Assassinations
 

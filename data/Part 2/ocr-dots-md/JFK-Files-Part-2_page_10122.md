@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10122.png
-
-Convert to Markdownwhat, if anything, TANNENBAUM actually did in connection with his being admitted to the United States, as the matter, to his knowledge, was handled by a Czechoslovakian Refugee Committee in New York City.
+what, if anything, TANNENBAUM actually did in connection with his being admitted to the United States, as the matter, to his knowledge, was handled by a Czechoslovakian Refugee Committee in New York City.
 
 CERVENY went on to state that after he moved to Denver he did not see TANNENBAUM again until March 13, 1969, when she called him on the telephone and suggested he come to her residence at 248 Logan Street, where his uncle was also visiting her. He stated when he arrived at her house, his uncle seemed depressed and upset over the fact that he was having marital difficulties with HANA, and that the marriage would probably terminate in divorce. He stated the purpose of his being invited to TANNENBAUM's residence appeared to emanate from a desire of his uncle to see him, but that nothing of importance occurred during the visit.
 

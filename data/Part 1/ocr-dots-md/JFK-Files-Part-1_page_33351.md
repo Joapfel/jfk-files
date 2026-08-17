@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33351.png
-
-Convert to Markdownpotatoes, a few chickens, or even a side of beef, could make a good living on the black market even if his official wages remained stationary while inflation roared ahead. The factory worker who was entitled to buy a proportion of his factory's output at official fixed prices could (and did) sell that at six or ten times what he had paid as soon as he left the factory gate. That miners could hardly find ready buyers for a stolen truck-load of copper ore.⁸
+potatoes, a few chickens, or even a side of beef, could make a good living on the black market even if his official wages remained stationary while inflation roared ahead. The factory worker who was entitled to buy a proportion of his factory's output at official fixed prices could (and did) sell that at six or ten times what he had paid as soon as he left the factory gate. That miners could hardly find ready buyers for a stolen truck-load of copper ore.⁸
 
 Thus the copper-miners were thrust, in effect, into the same position as the lorry-men, the shopkeepers, and virtually all of Chile's salaried professional men and women: they were left more or less defenceless against the most vicious inflation the country had ever experienced.
 

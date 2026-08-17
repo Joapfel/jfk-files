@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7341.png
-
-Convert to Markdown1 - D. W. Moore
+1 - D. W. Moore
 (Attn: J.M. Murphy)
 
 1 - J. A. Mintz

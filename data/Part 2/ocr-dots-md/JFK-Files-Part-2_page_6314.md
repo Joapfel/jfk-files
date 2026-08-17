@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6314.png
-
-Convert to MarkdownSUBJECT: DCI Sources and Methods Authority w/Respect to JFK Assassination Records
+SUBJECT: DCI Sources and Methods Authority w/Respect to JFK Assassination Records
 
 OGC-94-52916
 

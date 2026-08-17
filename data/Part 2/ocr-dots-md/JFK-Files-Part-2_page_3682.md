@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3682.png
-
-Convert to Markdownc. Papadakis is probably asking the same price for its action as Basil Mavrolean did recently--removal of its ships from the US blacklist. Papadakis operates 19 ships totalling more than 200,000 tons.
+c. Papadakis is probably asking the same price for its action as Basil Mavrolean did recently--removal of its ships from the US blacklist. Papadakis operates 19 ships totalling more than 200,000 tons.
 
 d. Mavrolean's vessels account for almost half the present British tonnage calling at Cuban ports and are the largest single element of free world shipping to Cuba.
 

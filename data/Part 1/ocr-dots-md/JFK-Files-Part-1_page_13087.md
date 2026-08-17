@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13087.png
-
-Convert to Markdown<table><tr><td colspan="2">SECRET</td></tr><tr><td>to:</td><td>Chief, Western Hemisphere Division</td></tr><tr><td>from:</td><td>Chief of Station, London</td></tr><tr><td>to:</td><td>Chief, Personal Division</td></tr><tr><td>from:</td><td>Chief of Station, JINOVE</td></tr></table>
+<table><tr><td colspan="2">SECRET</td></tr><tr><td>to:</td><td>Chief, Western Hemisphere Division</td></tr><tr><td>from:</td><td>Chief of Station, London</td></tr><tr><td>to:</td><td>Chief, Personal Division</td></tr><tr><td>from:</td><td>Chief of Station, JINOVE</td></tr></table>
 
 During JUNAVE debriefing on 11 April 1967, AURIVER-1 provided the following information on the above subject:
 

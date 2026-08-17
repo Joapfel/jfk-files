@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33331.png
-
-Convert to MarkdownSymptomatic of leftist attacks on Chilean institutions, a Santiago wall poster denounces the country's Supreme Court as "Protectors of Fascist Sedition."
+Symptomatic of leftist attacks on Chilean institutions, a Santiago wall poster denounces the country's Supreme Court as "Protectors of Fascist Sedition."
 
 —Photo by Juan de Onis for The New York Times.
 

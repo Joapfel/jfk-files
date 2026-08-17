@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17443.png
-
-Convert to Markdown**Informant advised on 3/28:**
+**Informant advised on 3/28:**
 
 MARVIN CARTER is a member of the EPP. He does not make all the meetings because of his job at International Harvester but he comes to the meetings whenever he isn't working.
 

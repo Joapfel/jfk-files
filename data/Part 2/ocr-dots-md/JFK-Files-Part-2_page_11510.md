@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11510.png
-
-Convert to Markdown(c) In the case of an individual previously the subject of investigation, the case should be brought up to date by the prompt submission of a report in the event there is unreported information contained in the file. If reports have not previously been submitted in the case, a letterhead memorandum summarizing the available subversive data should accompany the initial letter advising the Bureau of the proposed travel.
+(c) In the case of an individual previously the subject of investigation, the case should be brought up to date by the prompt submission of a report in the event there is unreported information contained in the file. If reports have not previously been submitted in the case, a letterhead memorandum summarizing the available subversive data should accompany the initial letter advising the Bureau of the proposed travel.
 
 (d) Information concerning these subjects' proposed travel abroad, including information concerning their subversive activities, is furnished by the Bureau to the Department of State, Central Intelligence Agency, and legal attaches if the proposed travel is in areas covered by such and, frequently, requests are made of one or all of the above to place stops with appropriate security services abroad to be advised of the activities of these subjects.
 

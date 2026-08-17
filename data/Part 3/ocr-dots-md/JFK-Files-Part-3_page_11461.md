@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11461.png
-
-Convert to Markdown1 - Mr. Mintz
+1 - Mr. Mintz
 1 - Mr. Wannall
 
 PLAINTEXT

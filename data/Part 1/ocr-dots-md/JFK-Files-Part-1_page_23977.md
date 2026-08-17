@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23977.png
-
-Convert to Markdown14-0000
+14-0000
 
 His group at the university of G instant, whie no longer exists, so fgm I'm
 told.

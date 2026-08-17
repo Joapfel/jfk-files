@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21351.png
-
-Convert to MarkdownDirector
+Director
 Central Intelligence Agency (R) SECRET
 
 12328

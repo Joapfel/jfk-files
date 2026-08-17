@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9523.png
-
-Convert to Markdownof freedom running through it all the time. Contributions coming from separate DPs individually, and from special fund-raising events in DP camps, would have an obvious dramatic value.
+of freedom running through it all the time. Contributions coming from separate DPs individually, and from special fund-raising events in DP camps, would have an obvious dramatic value.
 
 5. As the structure begins to become unstable, it should feature all the type activities that make Europe and European civilization worth saving. The emphasis should be on things of lasting value rather than refrigerators, Coca Cola and such. In other words, the best in European films—whether these be American French, German, Italian, etc. Some of the old Soviet films, like withdrawal from circulation because they don't fit the line, should also be shown. The best (or worst) in American pictures could also be shown. By best is meant that which Europeans would respect for its artiste or spiritual content, not those whom make the most money—they can be seen elsewhere in Berlin.
 

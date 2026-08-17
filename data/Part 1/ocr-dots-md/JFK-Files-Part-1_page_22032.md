@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22032.png
-
-Convert to Markdown**NOSENKO:** He went to Copenhagen to meet this couple [the YOUNGERS] and was in the United States at one of the General Assemblies. That's all. That was in the '50's. No others.
+**NOSENKO:** He went to Copenhagen to meet this couple [the YOUNGERS] and was in the United States at one of the General Assemblies. That's all. That was in the '50's. No others.
 
 **Question:** Did KOSOLAPOV personally meet JENNER?
 

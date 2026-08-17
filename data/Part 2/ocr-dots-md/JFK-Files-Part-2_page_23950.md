@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23950.png
-
-Convert to Markdownfurther advised Dearborn to continue to hold open offers of material assistance to the dissidents and to advise them of U.S. support for them if they were successful in overthrowing the Trujillo government. The cable also reconfirmed the decision not to pass the machine guns.
+further advised Dearborn to continue to hold open offers of material assistance to the dissidents and to advise them of U.S. support for them if they were successful in overthrowing the Trujillo government. The cable also reconfirmed the decision not to pass the machine guns.
 
 A. Decision Not to Pass the Machine Guns and Unsuccessful U.S. Attempt to Stop Assassination Effort
 

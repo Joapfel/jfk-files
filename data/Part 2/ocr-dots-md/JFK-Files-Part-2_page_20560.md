@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20560.png
-
-Convert to MarkdownWFO 174-0
+WFO 174-0
 
 The attention of the Bureau is directed to re WFO
 airtel and LHW, 11/12/71, captioned "Woman's National Abortion

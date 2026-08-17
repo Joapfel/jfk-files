@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5993.png
-
-Convert to Markdown# S.B.(A.5) LOWU BRIDGE INCOMING DAILY REPORT
+# S.B.(A.5) LOWU BRIDGE INCOMING DAILY REPORT
 
 DATE 31-10-97.
 

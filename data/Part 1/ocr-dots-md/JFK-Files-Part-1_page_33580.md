@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33580.png
-
-Convert to MarkdownC-22
+C-22
 
 CRIT - CITY INFORMATION
 STANDARD FORM NO. 84

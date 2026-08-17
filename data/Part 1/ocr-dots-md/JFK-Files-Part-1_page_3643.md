@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3643.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">ROUTING AND RECORD SHEET</td>
    </tr>

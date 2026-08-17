@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1095.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>19. ACTION (OCT)</td>

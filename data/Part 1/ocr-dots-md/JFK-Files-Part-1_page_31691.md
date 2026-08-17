@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31691.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. Dr. Ion Claudian is reportedly engaged at the present time in omيزre Iron Guard activities in Europe.
 

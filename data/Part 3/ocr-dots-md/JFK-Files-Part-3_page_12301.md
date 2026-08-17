@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12301.png
-
-Convert to Markdown"Revolutionary Art"
+"Revolutionary Art"
 
 The most prominent artist on *The Black Panther* staff is Minister of Culture Emory Douglas. Although he prepares a large number of cartoons, other Panther artists are also represented. These cartoons characterize the Government and local law enforcement as "pigs" and call for the overthrow of the Government and the killing of Government officials, as well as police officers.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31562.png
-
-Convert to Markdown25 September 1953
+25 September 1953
 
 MEMORANDUM FOR: ASSISTANT TO DCI
 

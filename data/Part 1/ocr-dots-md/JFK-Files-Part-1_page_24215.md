@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24215.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Mr. DeBow, a lawyer, is an Administrative Assistant to the Mayor of Chicago as well as a long time, if casual, contact of Domestic Contacts Service. His background includes assignment to the Intelligence Division of the Chicago police and cooperation with CIA in the course of a trip to Africa in 1961. Mr. DeBow also is part owner and in effective control of a very small feature syndicate in Chicago, the Negro Press International, Inc., which distributes rewritten news to Negro newspapers in the United States on a subscription basis.
 

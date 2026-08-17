@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15742.png
-
-Convert to Markdown3. innate sense of locational direction
+3. innate sense of locational direction
 
 4. superior intelligence and reasoning power
 

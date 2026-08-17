@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31645.png
-
-Convert to Markdowndeeper and hit harder on religion and philosophy.
+deeper and hit harder on religion and philosophy.
 
 6. While Congressman Kersten is aware that many of the captive population are not interested in rightest movements, it is his opinion that RFE cannot beat communism with socialism. In particular, he felt (and Scott bore this out in their conversation) that we were making too much use of Czech socialists, and we were using socialists from the Bene Government which had sought to compromise with the communists. While he recognizes the popu- larity of Bene and Masaryk in Czechia, he feels they are not ef- fective in Slovakia, where there is a heavy Catholic population.
 

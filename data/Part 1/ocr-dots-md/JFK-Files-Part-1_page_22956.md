@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22956.png
-
-Convert to Markdown(4)
+(4)
 
 OCCUPATION ______ Housewife LAST EMPLOYER ______ Unknown
 EMPLOYER'S OR OWN BUSINESS ADDRESS ______ Unknown

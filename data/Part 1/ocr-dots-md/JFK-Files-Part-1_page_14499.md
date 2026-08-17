@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14499.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 OSMA - 26061
 

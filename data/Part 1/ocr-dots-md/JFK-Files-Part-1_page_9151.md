@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9151.png
-
-Convert to MarkdownJuly 15
+July 15
 
 Breakfast & Trip               1.90
 Hotel room                     23.00

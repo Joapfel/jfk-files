@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3835.png
-
-Convert to MarkdownSECRET
+SECRET
 (classification) (disarm controls)
 
 OF ACTION FURTHER.

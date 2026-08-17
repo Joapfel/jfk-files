@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7552.png
-
-Convert to MarkdownPRCG:
+PRCG:
 
 1
 AU - Moskalov YI

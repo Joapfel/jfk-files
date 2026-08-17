@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_450.png
-
-Convert to Markdown(2) They had the right to a private counsel and that Mr. Lansdale and I would sit in with them during the session and that our principal role would be to assure that the questioning did not get into sensitive areas unrelated to "Watergate."
+(2) They had the right to a private counsel and that Mr. Lansdale and I would sit in with them during the session and that our principal role would be to assure that the questioning did not get into sensitive areas unrelated to "Watergate."
 
 c. Early in the hearing of 4 February 1974 it became clear that the Committee could in no way handle the five witnesses scheduled for the day, and that the Committee counsels had not had sufficient time to absorb the voluminous written material that we had provided them earlier in the week. As a result, with the agreement of Committee counsel we unplugged for now Messrs. Isenstead, Angleton, and O'Malley. Also, following the day's testimony which ended in the late afternoon, I stayed on into the evening to review all of the material that we had provided to the counsels to make sure that they would make better use of the time of all involved.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6022.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 B. A "book cable," DIR 85133, dated 26 Nov. 1963 (date/time group 262319Z) was sent. This message was sent "routine" but with ten addressees on a "prior-ity basis." The ten "priority" addressees were: Paris, Rome, Madrid, Copenhagen, Oslo, Helsinki, Brussels, The Hague, London, and Ottawa. This cable advised all stations and bases of the identity of the alleged assassin by name of Lee Harvey Oswald. This cable can be found in Oswald's 201 file, Box 1, Volume 4.
 

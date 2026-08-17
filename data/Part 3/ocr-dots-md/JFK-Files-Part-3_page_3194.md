@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3194.png
-
-Convert to Markdown1806
+1806
 
 that the Bureau in March of 1968 developed information to be given to the press criticizing Dr. King for staying in a white-owned and operated hotel, the Holiday Inn in Memphis, instead of the Lorraine.
 

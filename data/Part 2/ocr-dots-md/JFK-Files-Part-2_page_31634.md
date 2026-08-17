@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31634.png
-
-Convert to MarkdownThe following is proposed text for a 4 page S1 x 11 leaflet. The leaflet will also include pictures, and at least 2 informational boxes. One of these will be divided into 2 columns. The left giving definitions of war crimes and the right giving examples of war crimes.
+The following is proposed text for a 4 page S1 x 11 leaflet. The leaflet will also include pictures, and at least 2 informational boxes. One of these will be divided into 2 columns. The left giving definitions of war crimes and the right giving examples of war crimes.
 
 The other box will give information on the soldiers who have already refused to fight in Vietnam. Other material will be added if space permits. The layout will be large print - 2 columns with frequent subtitles.
 

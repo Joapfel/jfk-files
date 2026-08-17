@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26413.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr><tr><td>DESTROY BY: 1/25</td></tr></table>
+<table><tr><td>SECRET</td></tr><tr><td>DESTROY BY: 1/25</td></tr></table>
 
 CENTRAL INTELLIGENCE AGENCY
 

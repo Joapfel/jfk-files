@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30405.png
-
-Convert to Markdownapplicates for employment and then left.
+applicates for employment and then left.
 
 Mr. Goldsmith. Is the Office of Security interested in
 maintaining information so that if in the future an individual

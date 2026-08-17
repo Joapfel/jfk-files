@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23295.png
-
-Convert to MarkdownHHT-H-2268
+HHT-H-2268
 Page Two
 
 presently covered by another agency, so as to minimize the possibility of

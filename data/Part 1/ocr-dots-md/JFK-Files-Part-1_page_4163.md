@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4163.png
-
-Convert to MarkdownSECRET/RYBAT
+SECRET/RYBAT
 
 -3-
 

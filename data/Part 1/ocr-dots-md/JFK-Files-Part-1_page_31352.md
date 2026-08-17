@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31352.png
-
-Convert to MarkdownPERSONAL HISTORY STATEMENT
+PERSONAL HISTORY STATEMENT
 
 Instructions:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12530.png
-
-Convert to MarkdownORIG: MScger:ocw
+ORIG: MScger:ocw
 UNIT: il/3/V
 DT: R1535
 DATE: 6 March 1970

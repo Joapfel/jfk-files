@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_1801.png
-
 s provide good staff work in this review, but we did observe that a considerable amount of the intelligence produced in the DD/I area is reviewed at no higher a level than office chief, if that.
 
 We recommend that the DD/I establish in his office a focal point through which all intelligence, processed or unevaluated, going to the White House must flow. If for reasons of urgency a report is sent to the White House prior to evaluation, we recommend that a special notice to the effect that it is unevaluated be attached to the report and that an evaluation follow the report at the earliest possible moment.

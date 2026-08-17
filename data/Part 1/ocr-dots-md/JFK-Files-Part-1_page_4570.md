@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4570.png
-
-Convert to Markdown(2) $40,000 payable in the event of the employee's death from an accident arising out of and in the course of his employment, provided death occurs within one (1) year from the date of the accident. This benefit is in lieu of (1) above and is also reduced by any payments made under (3) below for the same accident.
+(2) $40,000 payable in the event of the employee's death from an accident arising out of and in the course of his employment, provided death occurs within one (1) year from the date of the accident. This benefit is in lieu of (1) above and is also reduced by any payments made under (3) below for the same accident.
 
 (3) Temporary and permanent total and permanent partial disability benefits plus medical expenses for injuries or disablement to the employee arising out of and in the course of his employment. Said benefits are paid in accordance with the terms and limits of said insurance coverage and the maximum payable thereunder is $40,000 for the same injury or disablement.
 

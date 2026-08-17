@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13661.png
-
-Convert to MarkdownJune 2, 1975
+June 2, 1975
 
 2 - Mr.S.F.Phills
 

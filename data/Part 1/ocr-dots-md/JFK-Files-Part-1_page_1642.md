@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1642.png
-
-Convert to Markdown13. At 1350 hours on 1 July 1963, Mr. Cryer telephoned Head- quarter to announce that one SRT-7 transmitter had been installed in the ceiling over the bar and telephone, in the basement of the safehouse, and that the SKR-1 receiver was picking up the trans- missions satisfactorily. In Mr Thomas's basement, The QBC-2' voice-operated relay was also satisfactorily actuating the Annex tape recorder when conversations began to take place in the safehouse. The AC-powered FM transmitter is crystal controlled to operate at a frequency of 157.4 megacycles in the VHF Band. Its operating range is supposed to be approximately one mile.
+13. At 1350 hours on 1 July 1963, Mr. Cryer telephoned Head- quarter to announce that one SRT-7 transmitter had been installed in the ceiling over the bar and telephone, in the basement of the safehouse, and that the SKR-1 receiver was picking up the trans- missions satisfactorily. In Mr Thomas's basement, The QBC-2' voice-operated relay was also satisfactorily actuating the Annex tape recorder when conversations began to take place in the safehouse. The AC-powered FM transmitter is crystal controlled to operate at a frequency of 157.4 megacycles in the VHF Band. Its operating range is supposed to be approximately one mile.
 
 14. The DFO agents also fitted the transmitter with a hidden switch which would enable the case officers to turn the transmitter off when they are present at the house holding the sensitive dis- cussions and to turn it on when they leave.
 

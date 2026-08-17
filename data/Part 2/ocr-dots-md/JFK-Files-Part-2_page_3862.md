@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3862.png
-
-Convert to MarkdownAPR 25 1967
+APR 25 1967
 
 Novel Says Munitions Theft Set Up by Agency
 

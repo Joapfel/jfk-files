@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12071.png
-
-Convert to Markdown5. Since last inspection we have reduced one Agent from the complement of the Racial Reporting Unit as a result of various streamlining measures adopted relative to reporting requirements. This streamlining involved the elimination of a substantial number of letterhead memoranda and airtels previously required from each field office with regard to racial conditions and the elimination of daily cover memorandum to our outgoing racial teletype to the White House.
+5. Since last inspection we have reduced one Agent from the complement of the Racial Reporting Unit as a result of various streamlining measures adopted relative to reporting requirements. This streamlining involved the elimination of a substantial number of letterhead memoranda and airtels previously required from each field office with regard to racial conditions and the elimination of daily cover memorandum to our outgoing racial teletype to the White House.
 
 6. The authorized Agent complement for Section is considered adequate but not excessive at this time.
 

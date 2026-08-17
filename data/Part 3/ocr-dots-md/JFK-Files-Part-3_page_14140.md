@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14140.png
-
-Convert to Markdownthe memorandum to the President was as follows:
+the memorandum to the President was as follows:
 
 In the Special Group we are aware that we have been proceeding on a day-by-day basis in requesting authority for overflight reconnaissance. At our meeting yesterday, we took a long look ahead at the estimated requirements for the next few months and agreed that the following program is the minimum which meets military requirements . . . . Cuba: Two flights monthly . . . . all U-2 flights with CIA civilian pilots . . . . We would like to get your approval in principle of the foregoing program with the understanding that on the first of each month you will be presented with the specific flights recommended for that month.
 

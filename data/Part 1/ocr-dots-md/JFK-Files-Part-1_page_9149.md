@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9149.png
-
-Convert to MarkdownJuly 11, 1967
+July 11, 1967
 
 Breakfast & trip..................    1.50
 Hotel room........................   15.00

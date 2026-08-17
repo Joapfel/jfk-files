@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24727.png
-
-Convert to Markdownbeen on the minds of some people when they used
+been on the minds of some people when they used
 these words 'eliminate' or 'get rid of'. . . I
 am just trying to say that it was not seriously
 considered as a program of action by the Presi-

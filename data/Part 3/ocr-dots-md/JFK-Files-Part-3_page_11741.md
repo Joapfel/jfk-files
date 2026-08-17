@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11741.png
-
-Convert to Markdownwill be admitted to UN membership and that its representatives will appear in New York City between October, 1971, and September, 1972. When this almost certain development takes place, we will be faced with grave internal security/intelligence problems.
+will be admitted to UN membership and that its representatives will appear in New York City between October, 1971, and September, 1972. When this almost certain development takes place, we will be faced with grave internal security/intelligence problems.
 
 In appraising the above situation and noting that the Chicomms, should they gain UN membership, would be entitled to the largest delegation and largest percentage of UN Secretariat employees of any member nation, we would clearly require a substantial increase in the number of Agents handling Chinese work in the New York Office. Such an increase would include assignments to that office of as many Chinese-speaking Special Agent personnel as may be available and examination of the need to train additional Agents in the Chinese language. Dependent on the size of a Chicom UN delegation, it might be necessary to establish a Chinese Section in New York Office. Should a substantial increase in case load in the Chicom field come about as a result of Chicom entry into the UN, it would also suggest an increase in the number of Supervisors in this field at the Seat of Government.
 

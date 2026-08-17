@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 January 1965
 

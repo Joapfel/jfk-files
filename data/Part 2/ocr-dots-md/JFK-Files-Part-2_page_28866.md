@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28866.png
-
-Convert to MarkdownJune 16, 1977
+June 16, 1977
 
 Miss Patricia Price
 4605 Mayhunt Court

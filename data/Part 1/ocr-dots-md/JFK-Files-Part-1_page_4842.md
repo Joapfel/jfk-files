@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4842.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CABLE BE COME BY P. N° 106</th><td>Handwritten: 8/5-2/6<br/>SECRET</td></tr></thead><tbody><tr><td colspan="2">PERMIT NOTED</td><td>Handwritten: S</td></tr><tr><td colspan="3"><table><tbody><tr><td>ADVANCE COPY</td><td>FOR NOTER AD 105, BY J. AL 105.</td></tr><tr><td>ACTION UNIT</td><td>FILE VR</td></tr><tr><td>JFCT'S</td><td>flying fowls</td></tr><tr><td>FCHNG #</td><td>DVD</td></tr></tbody></table></td></tr><tr><td colspan="3"><table><tbody><tr><td>STAFF'S</td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table></td></tr><tr><td>T 696468</td><td>EIA963</td><td>PAGE 81</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CABLE BE COME BY P. N° 106</th><td>Handwritten: 8/5-2/6<br/>SECRET</td></tr></thead><tbody><tr><td colspan="2">PERMIT NOTED</td><td>Handwritten: S</td></tr><tr><td colspan="3"><table><tbody><tr><td>ADVANCE COPY</td><td>FOR NOTER AD 105, BY J. AL 105.</td></tr><tr><td>ACTION UNIT</td><td>FILE VR</td></tr><tr><td>JFCT'S</td><td>flying fowls</td></tr><tr><td>FCHNG #</td><td>DVD</td></tr></tbody></table></td></tr><tr><td colspan="3"><table><tbody><tr><td>STAFF'S</td><td></td></tr><tr><td></td><td></td></tr><tr><td></td><td></td></tr></tbody></table></td></tr><tr><td>T 696468</td><td>EIA963</td><td>PAGE 81</td></tr></tbody></table>
 
 RECORDS OFFICE
 

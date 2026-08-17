@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12670.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. SOURCE SAN JOSE 19215 WAS HUCOD-1.
 

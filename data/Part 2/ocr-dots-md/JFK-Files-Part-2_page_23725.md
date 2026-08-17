@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23725.png
-
-Convert to Markdownrecords on paper. It tries to get at the problem of what are the programs and are they doing their job?
+records on paper. It tries to get at the problem of what are the programs and are they doing their job?
 
 Mr. diGenova. Who do they make the recommendations to?
 

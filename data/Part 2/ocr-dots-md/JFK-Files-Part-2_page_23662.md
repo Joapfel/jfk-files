@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23662.png
-
-Convert to Markdown1 gravity that that gave him. then he would be a disembodied
+1 gravity that that gave him. then he would be a disembodied
 2 spirit. But we're talking about a somewhat different situation
 3 now where he has real authority over the budget.
 4

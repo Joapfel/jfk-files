@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18006.png
-
-Convert to Markdown8 June 1960
+8 June 1960
 
 HONORARY FOR: C/W/3/Mexico
 SUBJECT: LIFEAT

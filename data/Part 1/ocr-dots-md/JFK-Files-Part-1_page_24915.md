@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24915.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 19
 
 <table><tr><td>ORIG : P. KITTREDGE</td></tr><tr><td>UNIT : WH/1</td></tr><tr><td>EXT : 4523</td></tr><tr><td>DATE : 31 MAR 66</td></tr></table>

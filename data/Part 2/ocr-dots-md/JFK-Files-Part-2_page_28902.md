@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28902.png
-
-Convert to MarkdownMarriage Certificate
+Marriage Certificate
 
 СВИДЕТЕЛЬСТВО О БРАКЕ
 

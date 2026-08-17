@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31439.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/row
 
 revolution and the 75th birthday of the Secretary of the ARI. One of the speakers at this meeting told of his trip to New Delhi and the Soviet Union. He said the Soviet Union, Cuba, and China have been accused of suppressing rights, freedom, religion and speech. He said that this was not true. These countries do not want any box criticisms but they respect the broader right of the majority and sometimes individual rights have to give way to the rights of the majority.

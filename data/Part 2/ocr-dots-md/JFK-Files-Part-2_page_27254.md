@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27254.png
-
-Convert to MarkdownNemo - U.S. Citizens Allegedly Involved in Narcotics Trafficking
+Nemo - U.S. Citizens Allegedly Involved in Narcotics Trafficking
 Abroad - SECRET
 
 With Tabs -

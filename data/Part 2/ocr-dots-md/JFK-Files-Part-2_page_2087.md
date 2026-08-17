@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2087.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>STANDARD FORM 57 NOV 1947<br/>U S CIVIL SERVICE COMMISSION</td>

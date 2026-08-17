@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33512.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 SECRET
 STAFF

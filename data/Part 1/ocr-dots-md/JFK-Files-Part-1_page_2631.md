@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2631.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ## (EXAMINATION OF NOSENKO'S BONA FIDES)
 

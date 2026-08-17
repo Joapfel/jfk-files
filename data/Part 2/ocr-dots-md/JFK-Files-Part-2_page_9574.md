@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9574.png
-
-Convert to MarkdownA shipment consisting of seven boxes of newspapers contracted to NORMAN/MC KEE, NCCF, 2219 Indiandale, Detroit, shipper as above, arrived Detroit 5:10 p.m., November 26, 1970, via United Airlines, with instructions to hold at
+A shipment consisting of seven boxes of newspapers contracted to NORMAN/MC KEE, NCCF, 2219 Indiandale, Detroit, shipper as above, arrived Detroit 5:10 p.m., November 26, 1970, via United Airlines, with instructions to hold at
 
 DE T-18
 November 30, 1970

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29307.png
-
-Convert to Markdown09 September 1971
+09 September 1971
 
 Lynch, Grayston L.
 

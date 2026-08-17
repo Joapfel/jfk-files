@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9305.png
-
-Convert to MarkdownCOPY
+COPY
 
 30 August 1950
 

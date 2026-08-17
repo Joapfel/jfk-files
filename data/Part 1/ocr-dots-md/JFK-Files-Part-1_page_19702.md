@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19702.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 24 April 1972

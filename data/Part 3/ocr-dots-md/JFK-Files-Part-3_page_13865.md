@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13865.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NO FOREIGN DISSEM
 

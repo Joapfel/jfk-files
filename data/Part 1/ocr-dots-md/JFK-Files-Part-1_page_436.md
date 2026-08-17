@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_436.png
-
-Convert to Markdowndraft
+draft
 
 MEMORANDUM FOR OLC/C&R *
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28441.png
-
-Convert to Markdown3 October 1966
+3 October 1966
 
 MEMORANDUM FOR: Mr. Robert N. Sheay
 Secretary

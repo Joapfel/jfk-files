@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22156.png
-
-Convert to Markdownc. NOSENKO'S Statements on BOLSHAKOV
+c. NOSENKO'S Statements on BOLSHAKOV
 
 NOSENKO repeatedly emphasized BOLSHAKOV's GRU affiliation and the fact that the KGB was in no way involved in this channel to the U.S. Government via Robert Kennedy. He first volunteered BOLSHAKOV's name during a discussion of the use of Novosti as a cover organization for Soviet Intelligence officers. "Yuriy BOLSHAKOV of the GRU also sits there," he said. "He is a colonel and a friend of mine." Two days later, out of context with the preceding discussion, he introduced the name again: "Then there is this BOLSHAKOV. He is from GRU who was in the United States." NOSENKO then commented that this was "a very interesting case" and added: "We shall talk about it later." When his case officer thereafter turned to another topic, NOSENKO immediately interrupted to say: "I know BOLSHAKOV very well. He is my old friend...I met him through Yuriy GUK...[who] was with him in the United States...and we are now very good friends. He calls me up and consults me for advice..." On 1 February 1964 NOSENKO said he thought the Kennedy family knew BOLSHAKOV to be a military intelligence officer; "yet for some reason they chose him" as a channel between the U.S. and Soviet Governments. BOLSHAKOV, NOSENKO added, "reported directly" to the Chief of the GRU concerning his exchanges with Robert Kennedy.
 

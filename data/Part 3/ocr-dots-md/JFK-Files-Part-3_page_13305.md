@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13305.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 Does CIA have files with references to Oswald or his family
 other than CD692?

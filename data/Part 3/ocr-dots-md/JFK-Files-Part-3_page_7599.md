@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7599.png
-
-Convert to MarkdownJune 17, 1975
+June 17, 1975
 
 1 - Mr. K. A. Mendenhall
 

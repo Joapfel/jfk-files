@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3256.png
-
-Convert to MarkdownIDIU was not perfect. Under Attorney General John Mitchell it supplied a list of names of American dissidents to the CIA. (Tab J) It also was used in conjunction with grand jury proceedings inquiring into terrorist bombings. Both of these activities should be forbidden by the statute authorizing the Justice Department to evaluate civil disturbance information.
+IDIU was not perfect. Under Attorney General John Mitchell it supplied a list of names of American dissidents to the CIA. (Tab J) It also was used in conjunction with grand jury proceedings inquiring into terrorist bombings. Both of these activities should be forbidden by the statute authorizing the Justice Department to evaluate civil disturbance information.
 
 Finally, legislation may be needed to make clear that the FBI is not authorized to conduct investigations of organizations or individuals for the specific purpose of compiling a body of data to be used in connection with name checks under the Federal Employee Security Program. The same principle applies to FBI "assistance" to the Secret Service, under the present FBI-Secret Service agreement.
 

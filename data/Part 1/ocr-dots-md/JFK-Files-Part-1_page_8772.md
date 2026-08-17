@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8772.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>APELLIDO</td>
         <td>NOMBRE</td>

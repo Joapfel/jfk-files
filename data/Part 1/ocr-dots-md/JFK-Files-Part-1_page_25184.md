@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25184.png
-
-Convert to MarkdownSource: AWIGWAG/2
+Source: AWIGWAG/2
 
 Date acquired: September 1966
 

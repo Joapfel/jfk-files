@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9123.png
-
-Convert to MarkdownPX, 157-NEW
+PX, 157-NEW
 CLC/jsh
 
 Source made reference to the opening paragraph in

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19900.png
-
-Convert to MarkdownSIGNATURE
+SIGNATURE
 
 Miss Anna A. Taraseoff
 

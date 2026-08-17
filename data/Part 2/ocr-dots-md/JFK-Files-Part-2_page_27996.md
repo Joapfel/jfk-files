@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27996.png
-
 in the Budget Office at an annual salary of $13,000.00 starting September 27, 1977.
 
 NW 88326

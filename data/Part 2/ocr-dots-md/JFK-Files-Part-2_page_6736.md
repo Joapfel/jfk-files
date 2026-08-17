@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6736.png
-
-Convert to Markdown104-10337-10001
+104-10337-10001
 
 Central Intelligence Agency
 

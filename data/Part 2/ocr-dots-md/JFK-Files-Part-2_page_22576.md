@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22576.png
-
-Convert to Markdown"4. I explained to Wiley that his interest was well motivated but under no circumstances would we permit an expenditure of any funds in this regard. I also told him it would be extremely awkward for us to approach General Eisenhower or Mr. Truman in his behalf.
+"4. I explained to Wiley that his interest was well motivated but under no circumstances would we permit an expenditure of any funds in this regard. I also told him it would be extremely awkward for us to approach General Eisenhower or Mr. Truman in his behalf.
 
 "5. There is a strong possibility he may call you thinking that you may give him authority for financial assistance. Let me know if I should continue to discourage Wiley in his efforts, particularly when it's going to cost us money."
 

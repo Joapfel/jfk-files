@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11823.png
-
-Convert to MarkdownApril 15, 1971
+April 15, 1971
 
 # CASE LOAD REDUCTION
 ## NATIONALITIES INTELLIGENCE SECTION

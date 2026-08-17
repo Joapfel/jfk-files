@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4647.png
-
-Convert to MarkdownSECRET
+SECRET
 
 had Art Maloney as head of the PM Branch. Hal Swensen
 as head of the CI Branch. These were all very senior

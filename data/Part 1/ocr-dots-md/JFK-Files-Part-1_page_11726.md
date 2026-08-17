@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11726.png
-
-Convert to Markdown40. With what agencies and files has subject's name been checked? When?
+40. With what agencies and files has subject's name been checked? When?
 Result? What else has been done to verify biographical information
 furnished by subject? Local agency and police records.
 

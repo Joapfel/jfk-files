@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13081.png
-
-Convert to Markdown10. 15 wants Station assistance in doing a disappearing act.
+10. 15 wants Station assistance in doing a disappearing act.
 
 11. 15's FBI contact now in Washington for discussions re this case.
 

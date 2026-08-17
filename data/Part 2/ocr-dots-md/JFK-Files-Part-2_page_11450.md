@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11450.png
-
-Convert to Markdownof the source, date of activity, date received, and name
+of the source, date of activity, date received, and name
 of the Agent receiving the information are known, it is
 not necessary to request the office originally obtaining
 the information to document it further by furnishing

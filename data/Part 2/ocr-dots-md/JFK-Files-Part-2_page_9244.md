@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9244.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 Survival Day refers to a program implemented by the BPP with purpose of giving away bags of groceries to oppressed families living in the inner city of Detroit.
 

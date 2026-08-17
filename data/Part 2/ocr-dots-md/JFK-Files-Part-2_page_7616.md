@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7616.png
-
-Convert to Markdown6. Samuel WISE, "Consult in the American Embassy in Moscow" who is referred to above, may will be Samuel Griffin WISE Jr., #74574, as a SD, who apparently was one a contract employee on ACTIVE.
+6. Samuel WISE, "Consult in the American Embassy in Moscow" who is referred to above, may will be Samuel Griffin WISE Jr., #74574, as a SD, who apparently was one a contract employee on ACTIVE.
 
 The State Department forwarded WISE's file on 2 June 1954; and as of September 1953 a Samuel G. WISE was Second Secretary of the American Embassy in Moscow. At that time WISE advised in a cable to the State Department that it appeared that Bruce Frederick DAVIS, #332267, who defected from the United States Army in Germany on 18 August 1948, had not expatriated himself. DAVIS' case is very similar to that of COMMI, and he, like OSHEM, lived in the Soviet Union for two years after his defection and prior to making application for return to the United States.
 

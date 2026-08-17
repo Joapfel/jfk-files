@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22132.png
-
-Convert to Markdown291.
+291.
 
 JOHNSON became acquainted with VOLKOV and YEFREMOV at the Metropol Hotel. They told JOHNSON that they had recently arrived in Moscow and invited JOHNSON to visit their hotel room. JOHNSON agreed because "they understood each other right away. They knew they were the same (i.e., homosexuals) and so he came, and when they were engaged in their business, our people walked in on them under the disguise of the hotel administrator and one militiaman." Photographs of the incident had been taken, but these had not been developed at the time of this, the first confrontation of JOHNSON. A report describing the circumstances (an _akt_) was prepared, and JOHNSON was then transferred to another room. By this time, NOSENKO had arrived at the hotel from his office, and he went into the room where JOHNSON was waiting in accordance with KGB orders. NOSENKO discussed the situation with JOHNSON, then asked him to type and sign a statement that he would "not say anything derogatory about the Soviet Union." JOHNSON did as he was told.
 

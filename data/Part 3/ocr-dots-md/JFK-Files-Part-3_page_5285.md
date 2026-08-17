@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5285.png
-
-Convert to MarkdownII. Newly requested materials; delivery requested by Friday, August 13, 1975:
+II. Newly requested materials; delivery requested by Friday, August 13, 1975:
 
 A. All of Section 8 of the Manual of Instructions.
 

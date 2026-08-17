@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12110.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION<br/>SECRET</th><th colspan="2">PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO<br/>Chief, SB</td><td>X</td><td colspan="2">NO INDEXING REQUIRED</td></tr><tr><td>INFO<br/>Chief, NE</td><td colspan="3">ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, Tehran</td><td colspan="3">MICROFILM</td></tr><tr><td>SUBJECT<br/>REDTOP AEKICK<br/>PCS Departure - Ivan Dmitriyevich OBYEDKOV</td><td colspan="3"></td></tr></tbody></table>
 

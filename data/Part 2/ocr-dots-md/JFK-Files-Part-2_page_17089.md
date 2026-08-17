@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17089.png
-
-Convert to Markdownindicted for criminal trespass in violation of Antiriot
+indicted for criminal trespass in violation of Antiriot
 Laws statute as a result of activities that occurred
 during the 1968 Democratic National Convention in
 Chicago.

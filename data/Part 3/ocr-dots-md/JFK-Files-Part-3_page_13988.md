@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13988.png
-
-Convert to Markdownaspects involving France in the Vietnam situation, asked whether CIA had received advance intelligence from French sources concerning involvement of the French Government in Vietnam. General Carter said that none had been received, despite good CIA penetrations in Paris. Mr. Murphy found it difficult to understand why there had been no hard intelligence on this matter, particularly when there had been public statements by the French concerning France's neutralist objectives in Southeast Asia. General Carter said that effort there had been no evidence of a covert French/aginst the Vietnam regime.
+aspects involving France in the Vietnam situation, asked whether CIA had received advance intelligence from French sources concerning involvement of the French Government in Vietnam. General Carter said that none had been received, despite good CIA penetrations in Paris. Mr. Murphy found it difficult to understand why there had been no hard intelligence on this matter, particularly when there had been public statements by the French concerning France's neutralist objectives in Southeast Asia. General Carter said that effort there had been no evidence of a covert French/aginst the Vietnam regime.
 
 Chairman Clifford asked whether there had been an improvement in the
 Vietnam situation. following the previous coup which overthrew the Diem regime.

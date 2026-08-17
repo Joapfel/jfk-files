@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34190.png
-
-Convert to MarkdownUFGA-25198
+UFGA-25198
 
 IDENTITY
 

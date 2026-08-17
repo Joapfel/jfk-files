@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5824.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="5">104-10166-10120</td></tr><tr><td colspan="5">2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992</td></tr><tr><td>28/08/75</td><td>PAGE</td><td>1944</td><td></td><td>316781</td></tr><tr><td></td><td></td><td></td><td>SECRET/HOFORN</td><td>EZ IMPD ET CL BY 063729</td></tr></table>
 

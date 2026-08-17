@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26243.png
-
-Convert to Markdownemphatically that "violent revolution" throughout Latin America was "indispensable" because the peaceful road to necessary change was "blocked everywhere". He saw revolutionary movements on the rise everywhere in Latin America. I asked for the ideological nature and affiliations of these revolutionary movements. He replied that they are Marxist, but with liberal tendencies, not as rigid as the International communist revolutionary line.
+emphatically that "violent revolution" throughout Latin America was "indispensable" because the peaceful road to necessary change was "blocked everywhere". He saw revolutionary movements on the rise everywhere in Latin America. I asked for the ideological nature and affiliations of these revolutionary movements. He replied that they are Marxist, but with liberal tendencies, not as rigid as the International communist revolutionary line.
 
 6. I asked In which countries the revolutionary movements were most advanced. He named Guatemala and Venezuela in a category by themselves; there the revolutions were certain to win power. Then he gave me a general briefing on these two countries.
 

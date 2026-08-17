@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2972.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Everyone breathed easier, and the Chief, WH
 Division, described the operation as "one of the

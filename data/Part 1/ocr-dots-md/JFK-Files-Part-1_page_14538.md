@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14538.png
-
-Convert to MarkdownNILDA: But, who called you, miss?
+NILDA: But, who called you, miss?
 
 MATOS: Whoever it was said "I am the Cuban Ambassador," so then it all seems to have been a plot, or something of the sort.
 

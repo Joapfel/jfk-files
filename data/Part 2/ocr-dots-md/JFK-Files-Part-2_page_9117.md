@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9117.png
-
-Convert to MarkdownRe: Black Panther Party
+Re: Black Panther Party
 Detroit Division
 
 Leonard Brown mentioned the fact that the white policemen must realize that the black people are not afraid of them and will defend themselves in any critical situation. Brown mentioned the fact that a good example of the white police officer is the incident that occurred in New York City where 200 white off-duty policemen attacked innocent members of the BPP. Brown further stated that the black political leaders in the country are nothing but "phonies" and "Uncle Toms". He further stated it is time for the white power structure to realize that it is impossible to dictate to the black people as they have been doing for years and that the black people only want a chance to govern their community as they see fit.

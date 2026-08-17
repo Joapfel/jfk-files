@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22486.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="5">OUTGOING TELEPHONE</td></tr><tr><td colspan="5">SIGNAL CENTER USE ONLY</td></tr><tr><td>ARE</td><td>CO.</td><td>AF</td><td>TU</td><td>DR.</td></tr></table>
 

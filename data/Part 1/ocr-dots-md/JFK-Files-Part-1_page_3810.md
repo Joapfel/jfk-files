@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3810.png
-
-Convert to Markdownvuelta de las Puerzas Armadas.
+vuelta de las Puerzas Armadas.
 
 No hay duda de que Fidel está poniendo en los puestos claves a hombres y mujeres, que buenos o malos comunistas, son amigos personales de él, y es- to le va a traer problemas con la vieja guardia del Partido Comunista y con la nueva guardia que por encima de Fidelista, ha recibido un indoc- trinamiento COMUNISTA (muchos de ellos simpatizan con Raul).
 

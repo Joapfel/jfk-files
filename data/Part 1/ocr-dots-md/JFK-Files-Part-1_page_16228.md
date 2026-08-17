@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16228.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>FORM 867</td></tr><tr><td>0-68 ABSOLUTE PREVIOUS EDITIONS</td></tr></table>
 

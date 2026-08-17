@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33327.png
-
-Convert to MarkdownAllende in Retrospect
+Allende in Retrospect
 
 PR policy resolution which the dissidents described as "completely removed from the characteristic and distinctive ideology of our party" and opposed to "the interest of the middle social strata" whom the party had always represented." For a time, the PIR continued to support the Allende government, but within a year it had entered the ranks of the opposition.
 

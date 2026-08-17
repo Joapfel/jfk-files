@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4906.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On November 15, 1966, MM T-6 advised he was told that NORMAN ROTHMAN, MAX EDER and PATTY ERRA promote or put up money for Latin individuals in and out of the United States.
 

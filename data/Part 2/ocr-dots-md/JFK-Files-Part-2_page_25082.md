@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25082.png
-
-Convert to MarkdownTOP SECRET - EYES ONLY
+TOP SECRET - EYES ONLY
 
 WASHINGTON
 

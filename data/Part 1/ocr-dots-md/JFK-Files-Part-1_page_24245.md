@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24245.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 Description, access, hours of availability, the opposition, pros and cons as to suitability — it was all there. He just didn't like to write out that upon which he could report orally.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7044.png
-
-Convert to MarkdownOIM 99-0282
+OIM 99-0282
 
 29 October 1999
 

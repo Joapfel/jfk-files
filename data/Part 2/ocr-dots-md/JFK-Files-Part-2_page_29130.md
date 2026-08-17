@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29130.png
-
-Convert to Markdown# CALIFORNIA
+# CALIFORNIA
 ## PROFIT (OR LOSS) FROM BUSINESS OR PROFESSION
 (Sole Proprietorships)
 

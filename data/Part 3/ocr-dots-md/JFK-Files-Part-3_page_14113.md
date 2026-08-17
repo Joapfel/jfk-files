@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14113.png
-
-Convert to Markdown- 23 -
+- 23 -
 
 could be reintroduced into Cuba as below-deck cargoes. Mr. Clifford thought that it would be a good idea to continue our surveillance in order to ascertain the destination of these ships and the disposition made of the missiles, and Mr. McCone said that we can probably track the ships into the Black Sea and the Baltic, but that we would not be able to cover the unloading and transshipment of missiles into Soviet ports.
 

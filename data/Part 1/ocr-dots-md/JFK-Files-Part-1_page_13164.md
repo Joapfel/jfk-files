@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13164.png
-
-Convert to Markdown<table><tr><td>MESSAGE PAPER<br>TOTAL COPIES</td></tr><tr><td>SECRET</td></tr></table>
+<table><tr><td>MESSAGE PAPER<br>TOTAL COPIES</td></tr><tr><td>SECRET</td></tr></table>
 
 <table><thead><tr><th colspan="2">SOUTING AND/OF DETAIL - SEE BY</th></tr></thead><tbody><tr><td>1</td><td>8</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>9</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></tbody></table>
 

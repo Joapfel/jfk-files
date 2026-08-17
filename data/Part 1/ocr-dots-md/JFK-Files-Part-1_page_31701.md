@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31701.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. As written, this communication or brochure has every appearance of offering a new international news service to American editors. It is called "The RFE News and Information Service". Is it not indicated whether this will be charged for or furnished free of charge to the proposed newspaper recipients -- but in either case it would be almost sure to bring down upon the head of J. F. Stowe the wrath, indignation and hostility of all the major news services who are extremely jealous and sensitive about competition of any kind, but particularly Government competition. The news services and newspapers have played ball pretty well in covering up our dark secrets, but I suspect that anything of this kind would make enemies out of friends and set the news services upon a course of deliberate exposure.
 

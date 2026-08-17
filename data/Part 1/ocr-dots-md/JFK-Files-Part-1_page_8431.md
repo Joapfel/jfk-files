@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8431.png
-
-Convert to Markdownpurpose, we would sooner or later find that we had a genuine
+purpose, we would sooner or later find that we had a genuine
 Mexican tigra by the tail.
 
 L

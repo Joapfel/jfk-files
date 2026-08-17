@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14386.png
-
-Convert to MarkdownReport 351 (continued)
+Report 351 (continued)
 
 Royalties from the song throughout the world, which have been calculated at between £750,000 and £1,000,000, and although this amount will have to be divided among many thinrs, something would fall to them.
 

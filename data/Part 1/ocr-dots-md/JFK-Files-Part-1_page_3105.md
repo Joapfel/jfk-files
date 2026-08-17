@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3105.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="3">7-71 MR. ...</td>
     <td rowspan="3">APPROVED FOR RELEASE BY: [Handwritten: JPR S0111] PERSON UNCLASSIFIED.</td>

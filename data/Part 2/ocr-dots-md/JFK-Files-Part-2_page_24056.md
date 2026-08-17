@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24056.png
-
-Convert to MarkdownWe do not think that traditional American notions of fair play need be abandoned when dealing with our adversaries. It may well be ourselves that we injure most if we adopt tactics "more ruthless than the enemy".
+We do not think that traditional American notions of fair play need be abandoned when dealing with our adversaries. It may well be ourselves that we injure most if we adopt tactics "more ruthless than the enemy".
 
 A second document which represents an attitude which we find improper was sent to the Congo in the fall of 1960 when the assassination of Patrice Lumumba was being considered. The chief of CIA's Africa Division recommended a particular agent -- WIROGUE -- because
 

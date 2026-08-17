@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8008.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Report No: EER-1716, Page 3
 Date 24 February 1958

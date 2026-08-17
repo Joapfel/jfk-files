@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25482.png
-
-Convert to Markdownpeddlers coming out of the laundry room. It was, it
+peddlers coming out of the laundry room. It was, it
 was a merry-go-round.
 
 FS: In other words,

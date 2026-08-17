@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16264.png
-
-Convert to Markdownbecause DAVIS had understood that COOK was very upset about the Panthers not being included in a delegation going to Hanoi, North Viet Nam, to seek the release of three American pilots. DAVIS stated that DAVE DILLINGER wanted a Panther representative, but was refused by the North Vietnamese. (Sourceshaving knowledge of SDS matters have advised this information was false and DAVIS merely said this to the Panthers to appease them).
+because DAVIS had understood that COOK was very upset about the Panthers not being included in a delegation going to Hanoi, North Viet Nam, to seek the release of three American pilots. DAVIS stated that DAVE DILLINGER wanted a Panther representative, but was refused by the North Vietnamese. (Sourceshaving knowledge of SDS matters have advised this information was false and DAVIS merely said this to the Panthers to appease them).
 
 7/15/69)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 D. THREE shifts cover lines 24 hours a day. All coverage taken by recorders; no live listening.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8349.png
-
-Convert to Markdown21 January 1952
+21 January 1952
 
 MEMORANDUM FOR: THE RECORD
 

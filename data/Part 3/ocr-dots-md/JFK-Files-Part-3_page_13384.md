@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13384.png
-
-Convert to Markdownsupposed with the assistance of this ship -- was supposed to hijack
+supposed with the assistance of this ship -- was supposed to hijack
 a Russian vessel, and in hijacking this Russian vessel, I was supposed
 to go off the coast of Venezuela, receive assistance from the local
 Cuban colony there, plus the officials that I was in touch with of

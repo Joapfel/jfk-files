@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25843.png
-
-Convert to Markdown6. Possible Oswald-Cuban Connections
+6. Possible Oswald-Cuban Connections
 
 Rocca described document gaps in the materials that the Russian and Cuban governments forwarded to the WC via diplomatic channels. He described these areas as "open and relevant."
 

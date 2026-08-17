@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27580.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECURITY INFORMATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6284.png
-
-Convert to MarkdownChief, Los Angeles Field Office
+Chief, Los Angeles Field Office
 
 23 October 1970
 

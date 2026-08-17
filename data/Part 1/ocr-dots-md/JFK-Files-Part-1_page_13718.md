@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13718.png
-
-Convert to MarkdownEl Ministero de Relaciones Exteriores, cuyo Vicealmirante Diplomático a favor de
+El Ministero de Relaciones Exteriores, cuyo Vicealmirante Diplomático a favor de
 
 Sr. Rogelio Rodríguez Fopez
 

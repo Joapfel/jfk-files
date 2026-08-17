@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8838.png
-
-Convert to MarkdownRE: INTERVIEW OF FORMER FBI EMPLOYEE BY SSC
+RE: INTERVIEW OF FORMER FBI EMPLOYEE BY SSC
 
 permanent Director of the Bureau had been confirmed. Mr. Armstrong advised that to the best of his knowledge the document was not given to the Department of Justice while Mr. Gray and his staff were in the Bureau.
 

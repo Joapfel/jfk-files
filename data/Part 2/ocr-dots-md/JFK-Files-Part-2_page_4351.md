@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4351.png
-
-Convert to Markdown13-00000
+13-00000
 
 Box 3
 Folder 42

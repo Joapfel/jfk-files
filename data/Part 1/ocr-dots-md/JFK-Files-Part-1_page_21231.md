@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21231.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="10">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><td colspan="3">MCM28 APRIL 50</td><td colspan="4"></td><td colspan="3"></td></tr><tr><th>1. Serial No.</th><th>8. Name (Last-First-Middle)</th><th>3 Date Of Birth</th><th>4. Net Prof.</th><th>5. Sex</th><th colspan="3">6. CS: EOD</th></tr><tr><td>125798</td><td>WILCOTT, JAMES B JR</td><td>Mo., Da., Yr.<br/>09 27 31</td><td>No.-0<br/>5 P-1<br/>10 P-2</td><td>Code<br/>1</td><td>M</td><td>1</td><td>Mo., Da., Yr.<br/>03 04 57</td></tr><tr><th>7. SCD</th><th>8. CSC Retmt.</th><th>9. CSC Or Other Legal Authority</th><th>10. Appmt. Affidav.</th><th>11. FEGLI</th><th>12. LCD</th><th colspan="3"></th></tr><tr><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes - 1<br/>No - 2</th><th>Code<br/>1</th><th>Mo.</th><th>Da.</th><th>Yr.</th></tr></thead><tbody><tr><td>06</td><td>26</td><td>53</td><td>SF</td><td>50 USCA 403 J</td><td>Yes - 1<br/>No - 2</td><td>Code<br/>03 04 57</td><td>Yes - 1<br/>No - 2</td><td>Code<br/>2</td></tr></tbody></table>

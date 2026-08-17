@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9555.png
-
-Convert to Markdownpeople, of whom the Palestinians are an integral part, have not known racism throughout their long history.
+people, of whom the Palestinians are an integral part, have not known racism throughout their long history.
 
 2. Likewise, the Palestinian Revolution is not an anti-semitic movement, for "anti-semitism" is a Western concept alien to the Arab past.
 

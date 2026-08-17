@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2427.png
-
-Convert to MarkdownUNITED STATE
+UNITED STATE
 # Memorandum
 
 TO : Mr. C. D. DeLoach

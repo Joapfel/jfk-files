@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22092.png
-
-Convert to Markdown251.
+251.
 
 **NOSENKO:** Yes. Or maybe it was at a meeting. It is difficult to say. Maybe we went to report to KOVSHUK in his room or maybe KOVSHUK was writing in KLYPIN's study room. I don't remember.
 

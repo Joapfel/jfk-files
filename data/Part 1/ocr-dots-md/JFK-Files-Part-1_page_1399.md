@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1399.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that he was a CASTRO agent from the beginning. The question
 that must remain unanswered is whether he betrayed the AMTRUNK

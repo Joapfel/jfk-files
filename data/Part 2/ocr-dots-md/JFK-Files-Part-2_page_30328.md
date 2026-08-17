@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30328.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 in Moscow on New Year on a short leave, I was in company where it was one of my friends with whom I studied at the Institute.
 

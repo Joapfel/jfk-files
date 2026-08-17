@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29199.png
-
-Convert to MarkdownC of D-15-DIT[J. Rev. 8-74]
+C of D-15-DIT[J. Rev. 8-74]
 
 <table>
    <tr>

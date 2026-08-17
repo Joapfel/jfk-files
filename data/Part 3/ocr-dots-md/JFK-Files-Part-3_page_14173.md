@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14173.png
-
-Convert to Markdown95. 9/10/62 - Senator Thomas J. Dodd stated in the Senate:
+95. 9/10/62 - Senator Thomas J. Dodd stated in the Senate:
 
 "I have reason to believe, on the basis of information from reliable sources, that the situation in Cuba is even more grave than has yet been indicated to the American public . . .
 

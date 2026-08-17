@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_186.png
-
-Convert to Markdown-5-
+-5-
 
 Mr. [Travis L. Fletcher (T), ARCI] field representative
 [10 in [Hong Kong], was reportedly a witting U.S. Army intel-

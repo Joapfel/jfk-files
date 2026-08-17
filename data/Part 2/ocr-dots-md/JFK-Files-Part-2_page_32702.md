@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32702.png
-
-Convert to Markdownto refrain from his aggressive actions against us and seek to enforce upon him its decisions. Meanwhile, without awaiting the outcome of the United Nations approach, we must ensure that our hemisphere is effectively quarantined against any further addition to Soviet offensive nuclear military power in our midst."
+to refrain from his aggressive actions against us and seek to enforce upon him its decisions. Meanwhile, without awaiting the outcome of the United Nations approach, we must ensure that our hemisphere is effectively quarantined against any further addition to Soviet offensive nuclear military power in our midst."
 
 Following a general discussion of the danger confronting the hemisphere the Council voted 19 to 0 (Bolivia abstained for lack of instructions) to constitute itself provisionally as the Organ of Consultation (C.O.A.S./O.C.). Then, at the suggestion of the U.S. Representative, the Organ of Consultation adjourned for several hours to permit a number of delegations to consult their governments and receive instructions on the draft resolution presented by the United States to deal with the threat confronting the hemisphere.
 

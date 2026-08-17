@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28099.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM IN LIEU OF FITNESS REPORT - Frederick Randall
 

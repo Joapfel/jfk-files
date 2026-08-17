@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15021.png
-
-Convert to MarkdownRE: LUNCHEON WITH ATTORNEY GENERAL
+RE: LUNCHEON WITH ATTORNEY GENERAL
 
 At the present time the Bureau has the following electronic
 surveillances in operation: (1) In Bureau cases, 31 telephone surveillances;

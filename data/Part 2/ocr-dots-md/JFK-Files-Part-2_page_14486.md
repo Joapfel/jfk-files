@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14486.png
-
-Convert to MarkdownProject Hunter
+Project Hunter
 
 comments indicating your Agency's Watch List shows
 the person is a suspected intelligence agent or that

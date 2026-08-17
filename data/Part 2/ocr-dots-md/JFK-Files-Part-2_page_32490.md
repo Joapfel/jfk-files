@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32490.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>TELEGRAM</td><td>INFORMATION REPORT</td></tr></table>
 

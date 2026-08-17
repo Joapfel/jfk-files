@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25214.png
-
 's office in downtown Saigon.
 
 SOURCE: Hearings, S.S.C.I., June 20, 1975, Conein, Exhibit one

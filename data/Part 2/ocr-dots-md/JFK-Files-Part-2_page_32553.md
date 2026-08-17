@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32553.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Craft Inspection and Training Team (SCIATT). Members of the SCIATT accompanied by a representative from the staff of Commander U. S. Naval Forces, Southern Command (COMUSNAVSO) have completed an in-country evaluation of 40-foot Coast Guard Utility Boats (CGUBs) in five Central American countries and a detailed program through mid-November has been prepared for improving the material readiness and handling of the CGUBs provided by MAP. Action is underway to expedite delivery of spare parts required for maintenance of the boats.
 

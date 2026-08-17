@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31483.png
-
-Convert to Markdownhas used as its basic instrument the National Councils and Committees which have their headquarters in the U.S. NCFE's experience over the past three years has served conclusively to modify the initial view of the National Councils as suitable instruments for the creation not only of an atmosphere of positive and constructive cooperation, but even for the effective implementation of NCFE policy and purpose.
+has used as its basic instrument the National Councils and Committees which have their headquarters in the U.S. NCFE's experience over the past three years has served conclusively to modify the initial view of the National Councils as suitable instruments for the creation not only of an atmosphere of positive and constructive cooperation, but even for the effective implementation of NCFE policy and purpose.
 
 The divisive factors of exile have resulted in:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10982.png
-
-Convert to MarkdownTranslation of a post card from Kira KOSOVSKA to LITANIL-9.
+Translation of a post card from Kira KOSOVSKA to LITANIL-9.
 
 Kira is the wife of Angel KOSEVSKI, who was a Second Secretary in the Bulgarian Embassy in Havana as of October 1963. They are now back in Sofia, Bulgaria. The card was mailed from Bulgaria to Cuba.
 

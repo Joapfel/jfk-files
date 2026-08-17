@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20573.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 JOIN US ON NOVEMBER 20!
 

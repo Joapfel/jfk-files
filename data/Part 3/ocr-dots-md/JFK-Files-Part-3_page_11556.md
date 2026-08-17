@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11556.png
-
-Convert to Markdownassists in preparation of daily summary memorandum; and assists in prepara-
+assists in preparation of daily summary memorandum; and assists in prepara-
 tion of weekly White House summary.
 
 H. J. Morgan, as case Agent, has primary responsibility for

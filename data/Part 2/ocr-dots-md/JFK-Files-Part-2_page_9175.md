@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9175.png
-
-Convert to Markdownthat guards at the United Nations facilities did not wear, amid others, but merely contained a canister of paste on their belts. One of three photographs was of a group of people outside the United Nations building and STAFFORD advised that it appeared that this photograph was made of a tour group. Also explained one photograph as being taken inside the United Nations facilities and related to the fact that a police camera, not in the location- graph, would appear adjacent to the upper right hand corner of this photograph, if it encompassed a greater area of the facilities.
+that guards at the United Nations facilities did not wear, amid others, but merely contained a canister of paste on their belts. One of three photographs was of a group of people outside the United Nations building and STAFFORD advised that it appeared that this photograph was made of a tour group. Also explained one photograph as being taken inside the United Nations facilities and related to the fact that a police camera, not in the location- graph, would appear adjacent to the upper right hand corner of this photograph, if it encompassed a greater area of the facilities.
 
 BROWN advised JAY and his brother LARRY, that he was at one time in the United States military and that he had been a paratrooper during his enlistment.
 

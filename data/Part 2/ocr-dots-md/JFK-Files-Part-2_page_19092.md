@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19092.png
-
-Convert to Markdown"They asked me what they could do for me. I answered that I wanted to go to Red China. They told me to wait because they weren't ready yet."
+"They asked me what they could do for me. I answered that I wanted to go to Red China. They told me to wait because they weren't ready yet."
 
 Sam Jaffe joined ABC in September, 1961, and was appointed Moscow correspondent in November of that year.
 

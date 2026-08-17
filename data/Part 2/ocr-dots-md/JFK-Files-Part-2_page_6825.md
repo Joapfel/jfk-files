@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6825.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 
 Justice Fortas spoke of the Black case. He stated that after Solicitor General Thurgood Marshall had ineptly and inadequately presented the matter of electronic devices to the Supreme Court, the Supreme Court had held a confidential meeting among themselves. Although Justice Fortas and Justice White disqualified themselves, they still attended the meeting. At the meeting it was decided among the Justices that rather than remand the Black case to a lower court, the Supreme Court would set itself up as a tribunal to gather further information concerning the usage of electronic devices and afterwards make a decision. The Justices, with the exception of Byron White, felt that if the case was immediately remanded to a lower court Attorney General Katzenbach would, in order to win the case, pick his own Judge and thereby attain victory. Justice Fortas stated that some of the Justices in the Supreme Court were somewhat belligerent in their attitude towards Kennedy and Katzenbach. He stated these men would not be "pushed around" regardless of the politics involved.
 

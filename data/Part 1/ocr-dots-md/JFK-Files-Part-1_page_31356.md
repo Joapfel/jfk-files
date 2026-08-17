@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31356.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW NOT APPLICABLE
+SEC. 9. MOTHER-IN-LAW NOT APPLICABLE
 
 FULL NAME First Middle Last
 LIVING OR DECEASED __________ DATE OF DECEASE __________ CAUSE __________

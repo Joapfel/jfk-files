@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15080.png
-
-Convert to Markdown-5-
+-5-
 
 ICEM is responsible for the immigration processing, it is determined to pass only high level types and, therefore, conducts stiff security investigations and gives detailed interviews and job testing to all prospective immigrants.
 

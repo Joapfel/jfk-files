@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27065.png
-
-Convert to MarkdownTHE WHITE TO Play
+THE WHITE TO Play
 
 TOP SECRET DINAR CHESS RUFF IDEALIST
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9860.png
-
-Convert to Markdown2.
+2.
 
 San Juan Batrán and Madero at which time he would try to arrange a meeting with his co-conspirator.
 

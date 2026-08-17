@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5727.png
-
-Convert to Markdown04/16/97
+04/16/97
 
 Mr. J. Barry Harrelson
 

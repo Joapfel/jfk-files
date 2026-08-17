@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19380.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">SUBMIT: IN DUPLICATE<br/>WHEN MATERIAL AVAILABLE</td>
         <td colspan="2">REQUEST FOR PICK-UP AND DELIVERY -<br/>CIPARATORY FOR OVERSEAS SHIPMENT</td>

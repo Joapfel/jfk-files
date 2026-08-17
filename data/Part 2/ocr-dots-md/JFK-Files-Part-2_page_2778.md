@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2778.png
-
-Convert to Markdown5 OCT 1966
+5 OCT 1966
 
 MEMORANDUM FOR: Secretary, CS/CS Panel (Section A)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17293.png
-
-Convert to MarkdownHMM-A-11257
+HMM-A-11257
 
 KAPOK-1472
 

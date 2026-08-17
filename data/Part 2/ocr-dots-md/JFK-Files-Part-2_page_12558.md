@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12558.png
-
-Convert to Markdown5. Other statutes
+5. Other statutes
 
 Following statutes should also be considered in security investigations.
 

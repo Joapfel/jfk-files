@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33914.png
-
-Convert to Markdown# EASY BAKER BUDGET
+# EASY BAKER BUDGET
 
 Cash balance as of March 21, 1952 1,431.91
  Paid expenses as of March 21 50,068.09

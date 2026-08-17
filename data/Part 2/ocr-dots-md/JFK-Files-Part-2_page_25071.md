@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25071.png
-
-Convert to MarkdownJUL 14 1975
+JUL 14 1975
 
 CIA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31872.png
-
-Convert to Markdown14 December 1959
+14 December 1959
 
 MEMORANDUM FOR: Chief, WH Personnel
 

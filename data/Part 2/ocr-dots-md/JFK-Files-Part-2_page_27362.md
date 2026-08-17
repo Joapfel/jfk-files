@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27362.png
-
-Convert to MarkdownY - Memo to File from Cargill - Subj - Justice Dept Documents
+Y - Memo to File from Cargill - Subj - Justice Dept Documents
 dtd 21 May 75 CONFIDENTIAL
 w/attachments
 

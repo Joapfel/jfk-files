@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12436.png
-
-Convert to Markdown133.- Precios
+133.- Precios
 
 1331.- Precio del diamante en la cima
 

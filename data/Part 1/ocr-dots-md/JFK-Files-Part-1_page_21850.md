@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21850.png
-
-Convert to Markdown# III. OPERATIONAL CIRCUMSTANCES
+# III. OPERATIONAL CIRCUMSTANCES
 
 ## A. Earlier Information on NOSENKO in Geneva
 

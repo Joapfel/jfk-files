@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17678.png
-
-Convert to MarkdownDESENSITIZED
+DESENSITIZED
 
 VIA: AIR
 (SPECIFY AIR OR SEA POUCH)

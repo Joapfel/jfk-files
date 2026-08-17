@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24912.png
-
-Convert to MarkdownSECRET 132330Z
+SECRET 132330Z
 
 MEXI INFO DIR CITE SDOM 0326
 

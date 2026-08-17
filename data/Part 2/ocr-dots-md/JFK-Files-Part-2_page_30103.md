@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30103.png
-
-Convert to MarkdownMr. G. Robert Blakey
+Mr. G. Robert Blakey
 
 July 14, 1978
 

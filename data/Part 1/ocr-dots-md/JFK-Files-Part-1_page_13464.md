@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13464.png
-
-Convert to MarkdownUS Embassy in Bonn informed them on Sunday Jan.16th in the morning about all important topics discussed, resolutions etc. adopted in Medellin. While impressed by the fast work and correct reporting of Norden expressed his curiosity as to how it was possible that the embassy in Bonn was so fast informed (NOTE: I am surprised even more that a blubber-mouth like Norden was informed about such report!). The general consensus of the present was that CIA must have few men infiltrated among the delegates....
+US Embassy in Bonn informed them on Sunday Jan.16th in the morning about all important topics discussed, resolutions etc. adopted in Medellin. While impressed by the fast work and correct reporting of Norden expressed his curiosity as to how it was possible that the embassy in Bonn was so fast informed (NOTE: I am surprised even more that a blubber-mouth like Norden was informed about such report!). The general consensus of the present was that CIA must have few men infiltrated among the delegates....
 
 3. According to the new by-laws Pico's Transport Federation (in formation) will have 3 votes during the next Congress, equal to other L.A. Federations and national delegations. Therefore it is important for us that we continue to work with Pico.
 

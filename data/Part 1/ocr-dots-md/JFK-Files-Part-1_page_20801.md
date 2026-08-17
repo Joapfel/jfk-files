@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20801.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECTION V: TEST DESCRIPTION
 

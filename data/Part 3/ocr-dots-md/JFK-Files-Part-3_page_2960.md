@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2960.png
-
-Convert to Markdown0-7 (Rev. 7-11-78)
+0-7 (Rev. 7-11-78)
 
 TO: SAC:
 

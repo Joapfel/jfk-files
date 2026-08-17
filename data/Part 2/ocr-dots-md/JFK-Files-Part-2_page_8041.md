@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8041.png
-
-Convert to Markdown13-00000
+13-00000
 
 Fox, Sylvan. "Uncovered Questions About President Kennedy's Assassination." *National Review*, 11 January 1966, pp. 34-37.
 

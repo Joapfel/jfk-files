@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31672.png
-
-Convert to MarkdownW. E. B. DU BOIS CLUBS OF AMERICA (DCA)
+W. E. B. DU BOIS CLUBS OF AMERICA (DCA)
 
 A source has advised that on October 26-27, 1963, a conference of members of the Communist Party (CP), including national functionaries, met in Chicago, Illinois, for the purpose of setting in motion forces for the establishment of a new national Marxist-oriented youth organization which would hunt for the most peaceful transition to socialism. The delegates to this meeting were cautioned against the germ of anti-Soviet and anti-CP ideologies. These delegates were also told that it would be reasonable to assume that the young socialists attracted into this new organization would eventually pass into the CP itself.
 

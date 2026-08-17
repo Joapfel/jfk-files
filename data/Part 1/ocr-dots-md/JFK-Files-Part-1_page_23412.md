@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23412.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, San Jose
 Chief, Foreign Division?

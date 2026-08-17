@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32655.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERIM REPORT ON CUBAN MILITARY BUILDUP
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13746.png
-
-Convert to MarkdownSECRET
+SECRET
 
 mCarter #16 March 8 DDO
 

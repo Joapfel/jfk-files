@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20124.png
-
-Convert to MarkdownJUL. 27 1972
+JUL. 27 1972
 
 TO : ACTING DIRECTOR, FBI (100-468406)
 

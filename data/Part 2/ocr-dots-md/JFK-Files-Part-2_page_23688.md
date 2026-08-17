@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23688.png
-
-Convert to Markdownat the question of duplication with overt reporting by the
+at the question of duplication with overt reporting by the
 military attaches or by the foreign service or whomever.
 
 In other words, it's trying to establish a standard.

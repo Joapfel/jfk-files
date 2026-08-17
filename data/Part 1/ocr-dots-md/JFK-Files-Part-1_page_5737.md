@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5737.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="3">CABLE SEE DSSN BY ______ FOR ______ TOTAL COPIES ______ R. OF ______</td>
     <td rowspan="2" style="vertical-align: top;">REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED.</td>

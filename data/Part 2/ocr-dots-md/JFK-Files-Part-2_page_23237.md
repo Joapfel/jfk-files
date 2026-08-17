@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23237.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of the exercise was that he wanted to meet a large number of
 our new Chiefs of Stations in Africa and rather than make a trip

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32772.png
-
-Convert to Markdown18. April 1964
+18. April 1964
 
 Memo for the Record.
 

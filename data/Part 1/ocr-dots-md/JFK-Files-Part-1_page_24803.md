@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24803.png
-
-Convert to Markdown-2-
+-2-
 
 the PRI study as a result of this trip. He was told that lacking clear signs of progress, we would not consider sending him down again. He will be staying at the Hotel Del Paseo and will arrive the afternoon of 24 April for a week's stay. He will call Stan Watson when he arrives.
 

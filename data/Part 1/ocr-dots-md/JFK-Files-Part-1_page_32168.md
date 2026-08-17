@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32168.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 59<br/>SEPTEMBER 1954<br/>U.S. CIVIL SERVICE COMMISSION<br/>CHAPTER 13 F.P.M.</td>
     <td><strong>NOTICE OF CONVERSION PRIVILEGE</strong><br/>Federal Employees' Group Life Insurance Act of 1954</td>

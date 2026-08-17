@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25009.png
-
-Convert to MarkdownATTACHMENT TO HMA-41,070, 27 September 1971
+ATTACHMENT TO HMA-41,070, 27 September 1971
 
 TO : Chief, Soviet Bloc Division
 

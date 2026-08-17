@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21206.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 was a Section 2 case, but as a part of his duties in Geneva
 as a counterintelligence officer he was to direct BELITSKIY

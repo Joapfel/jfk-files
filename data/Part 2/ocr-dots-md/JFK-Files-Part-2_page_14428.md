@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14428.png
-
-Convert to Markdown4. The number of surveillances installed during each period which continued for each of the following time categories: under one week, one week to one month, one month to six months, over six months.
+4. The number of surveillances installed during each period which continued for each of the following time categories: under one week, one week to one month, one month to six months, over six months.
 
 5. The numbers of electronic surveillances in which:
 

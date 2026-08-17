@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9443.png
-
-Convert to Markdown# Donate & Support
+# Donate & Support
 ## The Children's Free Breakfast Program
 
 **Days: mon - fri**

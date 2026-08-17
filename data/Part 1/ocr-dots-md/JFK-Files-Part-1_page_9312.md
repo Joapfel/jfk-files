@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9312.png
-
-Convert to Markdownthe weird photo of
+the weird photo of
 LEIN'S FIGURE SILENTLY DROPPED
 OVER THE RUSSIAN LANDSCAPE
 

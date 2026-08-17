@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1818.png
-
-Convert to MarkdownWatch Committee report, circulate it to all agencies for consideration prior to discussion at the Watch Committee meeting when it could be decided upon in final form and reproduced and disseminated.
+Watch Committee report, circulate it to all agencies for consideration prior to discussion at the Watch Committee meeting when it could be decided upon in final form and reproduced and disseminated.
 
 Related to the Watch Committee -- but also an important aspect of all coordinated intelligence community reports -- we believe that substantive disagreements should be encouraged and even spelled out in Watch Committee reports; that NIEs and SNIEs rather than being suppressed or covered by watered down language as is sometimes the case today, in all cases should reflect the consensus of views of the intelligence community. If there are differing minority views on the part of one or more agencies, including CIA, these should be spelled out in appropriate footnotes.
 

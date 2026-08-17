@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1358.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 AMTRUNK Operation
 

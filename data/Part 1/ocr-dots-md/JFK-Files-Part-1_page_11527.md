@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11527.png
-
-Convert to Markdown1 January, 1969
+1 January, 1969
 
 Subject: LIRING/3 Report of Meeting at PAM Safehouse.
 

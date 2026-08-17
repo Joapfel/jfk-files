@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26871.png
-
-Convert to Markdown<table><tr><td>ORIG: L. MURPHY:kas</td></tr><tr><td>UNIT: SOD/AB/OPS/3</td></tr><tr><td>EXT : 4475</td></tr><tr><td>DATE, 20 May 1965</td></tr></table>
+<table><tr><td>ORIG: L. MURPHY:kas</td></tr><tr><td>UNIT: SOD/AB/OPS/3</td></tr><tr><td>EXT : 4475</td></tr><tr><td>DATE, 20 May 1965</td></tr></table>
 
 MESSAGE FORM
 

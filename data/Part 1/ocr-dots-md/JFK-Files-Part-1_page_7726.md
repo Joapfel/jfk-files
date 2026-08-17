@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7726.png
-
-Convert to Markdown4.13.03 When he gestures, the motion is
+4.13.03 When he gestures, the motion is
 Graceful ______ Average ______ Mechanical ______
 
 4.13.04 When engaged in conversation, does he tense up

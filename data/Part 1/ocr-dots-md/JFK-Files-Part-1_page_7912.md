@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7912.png
-
-Convert to Markdown3.
+3.
 
 On 13 December, Logvinov came unannounced to Subject's office and proposed a talk on Jewish radiochemistry with him immediately. The Soviet presented Subject with four bottles of radon for Christmas, and began to ask Subject a series of personal questions: "How had Subject left Poland for Paris after WWI - had his documentation been legal or illegal? Subject answered that it was illegal." "How was he able to enter Paris - did he have a證ed French visa?" Subject said he did. "How long did he stay in Paris?" Subject said a few months. "Was he released from service until the Polish US?" Subject said yes. Where are any conditions to this release? Subject said no. Was he supposed to be contacted by theoles? Subject said yes, and related the story of how he was contacted in Mexico (in March 1954) by a Polish diplomatic courier who brought a letter from Subject's old boss in the US, and now Subject answered that letter. Had Subject's response to the Polans teen positive or negative? Subject said neutral. Asked why, Subject replied that he believed that eighty percent of the Polans were anti-Soviets. Logvinov said "you are right."
 

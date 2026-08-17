@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6165.png
-
-Convert to Markdown56 Md. L. Rev. 1, *34
+56 Md. L. Rev. 1, *34
 
 n201. See, e.g., Harrison E. Livingstone, Killing Kennedy 282-334 (1995) (arguing that Posner's book tricked the public with false scholarship); G. Robert Blakey, Murdered by the Mob?: 30 Years After the Kennedy Assassination, This Case Isn't Closed, Wash. Post, Nov. 7, 1993, at C1, available in LEXIS, News Library, Wpost File (arguing that credible scientific and other evidence points to a conspiracy); Jeffrey A. Frank, Who Shot JFK? The 30-Year Mystery, Wash. Post, Oct. 21, 1993, Book World, at X4, available in LEXIS, News Library, Wpost File (arguing that Posner "rarely strays from paths staked out by the Warren Commission" and that the "book ultimately becomes an all-too-transparent brief for the prosecution"); Jonathan Kwitny, Bad News: Your Mother Killed JFK, L.A. Times, Nov. 7, 1993, at 1, available in LEXIS, News Library, Lat File (contending that Posner "presents only the evidence that supports the case he is trying to build").
 

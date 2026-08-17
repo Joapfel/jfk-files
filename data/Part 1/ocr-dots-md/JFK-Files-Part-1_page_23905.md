@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23905.png
-
-Convert to Markdown(Let me see what I can find out. . soon as I can. . . now questions and answers. Who invited Verges to Algeria in 63)
+(Let me see what I can find out. . soon as I can. . . now questions and answers. Who invited Verges to Algeria in 63)
 
 He didn't go to Algeria in 63. He went to China. He was already in Algiers. He was in Algiers from the point of independence, that was with the clandestine group, that is, in July of 62. And Verges arrived there — clandestinely — that is, # Ben Bella, Khider, Bitat, I suppose in October or November of 62. He was invited
 

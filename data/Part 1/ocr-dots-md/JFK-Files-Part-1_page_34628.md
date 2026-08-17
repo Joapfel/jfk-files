@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34628.png
-
-Convert to Markdownsecrecy may, subject to your prior prohibition under the above laws,
+secrecy may, subject to your prior prohibition under the above laws,
 as amended, and other applicable laws and regulations. Your relationship
 with the CENTRAL INTELLIGENCE AGENCY and this contract must be
 kept secret and you may not discuss any aspect of this relationship and

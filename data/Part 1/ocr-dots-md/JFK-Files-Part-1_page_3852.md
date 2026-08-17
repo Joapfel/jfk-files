@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3852.png
-
-Convert to Markdown<table><tr><td>MICROFILMED</td></tr><tr><td>Feb. 13 1967</td></tr><tr><td>DOC. MICRO. SET.</td></tr></table>
+<table><tr><td>MICROFILMED</td></tr><tr><td>Feb. 13 1967</td></tr><tr><td>DOC. MICRO. SET.</td></tr></table>
 
 MEMORANDUM FOR THE RECORD
 

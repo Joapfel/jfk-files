@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21031.png
-
-Convert to Markdown1 August 1972
+1 August 1972
 
 MEMORANDUM FOR: Chief, Insurance Branch/BSD/OP
 

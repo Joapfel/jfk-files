@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13028.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>TO BE DEEPARED</td></tr><tr><td>CLASSIFIED MESSAGE TOTAL COPY: 23</td></tr></table>
 

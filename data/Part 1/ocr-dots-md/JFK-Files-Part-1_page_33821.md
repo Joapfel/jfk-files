@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33821.png
-
-Convert to Markdownand the proven advantages of the democratic way of life for the worker,
+and the proven advantages of the democratic way of life for the worker,
 and the peasant, the administrator, and the business and professional
 strata of society.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28779.png
-
-Convert to MarkdownDATE: 05/31/70
+DATE: 05/31/70
 OPERATED BY: DATA AS OF: 04/25/70
 
 | NAME | EMPLOYEE # | SCC # | SER. # | RATE | NEXT PSL | OLD SALARY | NEW SALARY |

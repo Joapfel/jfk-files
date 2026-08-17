@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16326.png
-
-Convert to MarkdownAt approximately 5:00 a.m., June 4, 1969, Special Agents (SA) of the Federal Bureau of Investigation (FBI), Chicago Office surrounded the premises of Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois. SA R. B. YADON, JR., telephonically informed a person answering the telephone at Chicago BPP Headquarters, 2350 West Madison Street, that a warrant was outstanding for the arrest of GEORGE SAMS, JR., and three other individuals. SA YADON attempted to elicit cooperation of those within BPP Headquarters, without success.
+At approximately 5:00 a.m., June 4, 1969, Special Agents (SA) of the Federal Bureau of Investigation (FBI), Chicago Office surrounded the premises of Chicago BPP Headquarters, 2350 West Madison Street, Chicago, Illinois. SA R. B. YADON, JR., telephonically informed a person answering the telephone at Chicago BPP Headquarters, 2350 West Madison Street, that a warrant was outstanding for the arrest of GEORGE SAMS, JR., and three other individuals. SA YADON attempted to elicit cooperation of those within BPP Headquarters, without success.
 
 After approximately 30 minutes, the occupants of Chicago BPP Headquarters were ordered out on the street and were placed under arrest. Eight individuals from BPP Headquarters were arrested.
 

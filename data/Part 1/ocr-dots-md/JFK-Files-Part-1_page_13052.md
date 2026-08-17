@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13052.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td colspan="2">INSTRUCTION SHEET</td><td></td><td>4 JUN 1964</td><td>C-55445</td></tr><tr><td>SET UP FOR POA</td><td>X<br/>EXECUTIVE INDICERS</td><td>DATE</td><td></td><td>C-55445</td></tr><tr><td>SET UP FOR POA</td><td>SPECIAL INQUIRY</td><td>EXECUTIVE FBI INDICERS</td><td>AREA</td><td>Miami Beach</td></tr><tr><td></td><td></td><td>CLIENT NAME CHECK</td><td></td><td></td></tr></table>
 

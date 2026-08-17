@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20153.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>1. In accordance with the policy of the Central Intelligence Agency, I agree to serve outside the continental United States a minimum tour of 2½ months from the date of my arrival at my permanent post of duty, unless said tour is sooner terminated by the Government for its convenience, or it is terminated by the Agency for circumstances that are considered by it to be beyond my control.<br/><br/>2. It is understood and agreed that if I terminate for reasons within my control in less than 12 months from the date of arrival at said post, I shall reimburse CIA for all travel expenses, including storage and per diem, incurred in the transporting of myself, my dependents, my household and personal effects and my automobile to my permanent post of duty, and shall pay all return travel and transportation expenses to the United States.<br/><br/>3. It is further understood and agreed that if I terminate for reasons within my control subsequent to the twelfth month but prior to the completion of my tour of duty, I shall pay all return expenses for the travel and transportation of myself, my dependents, my household and personal effects and my automobile to the United States.</td></tr><tr><td>WITNESS:<br/><br/>Lorene E. Norbeck<br/><br/>Office of Personnel<br/>Lorene E. Norbeck</td></tr></table>
 

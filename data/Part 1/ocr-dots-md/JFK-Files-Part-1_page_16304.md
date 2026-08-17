@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16304.png
-
-Convert to MarkdownC.3.1.
+C.3.1.
 
 Date : dimanche 21 janvier 1935
 

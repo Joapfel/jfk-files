@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16143.png
-
-Convert to Markdown24 March 1975
+24 March 1975
 
 MEMORANDUM FOR THE RECORD
 

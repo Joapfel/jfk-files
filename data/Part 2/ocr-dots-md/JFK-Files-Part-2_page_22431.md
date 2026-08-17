@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22431.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A. Yes.
 

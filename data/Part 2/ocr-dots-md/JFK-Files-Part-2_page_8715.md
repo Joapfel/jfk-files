@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8715.png
-
-Convert to MarkdownCachita : Said yes, that they were just giving it on the radio.
+Cachita : Said yes, that they were just giving it on the radio.
 
 ROJAS : Said what a dreadful thing.
 

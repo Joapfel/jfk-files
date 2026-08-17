@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23534.png
-
-Convert to Markdown10. Timetable: HUMANOID was engaged by this Station effective 1 June 1969 and has been functioning satisfactorily every since. HUMANOID is interested in making a career in the intelligence field, and has proved of inestimable value to the San Jose Station. We attach a memorandum, relative to the merits and contributions of Project HUMANOID to the activities of the San Jose Station.
+10. Timetable: HUMANOID was engaged by this Station effective 1 June 1969 and has been functioning satisfactorily every since. HUMANOID is interested in making a career in the intelligence field, and has proved of inestimable value to the San Jose Station. We attach a memorandum, relative to the merits and contributions of Project HUMANOID to the activities of the San Jose Station.
 
 ## 11. Estimated Cost:
 

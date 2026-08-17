@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14657.png
-
-Convert to MarkdownFRANK DE NIRO, JR.
+FRANK DE NIRO, JR.
 MICHAEL DE NIRO
 LOUIS DE NIRO
 

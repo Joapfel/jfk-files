@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21536.png
-
-Convert to Markdownhis KGB career today is not significantly different from the fragmentary version he gave in June 1962.
+his KGB career today is not significantly different from the fragmentary version he gave in June 1962.
 
 Basically the following is now considered to have been the KGB career of NOSENKO:
 

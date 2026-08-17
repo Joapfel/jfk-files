@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26718.png
-
-Convert to MarkdownReel 72-RICO-23
+Reel 72-RICO-23
 
 29 April 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19007.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 This material contains information affecting the National Defense of the United States within the meaning of the Espionage Law. Its release, if any, would not be authorized by law.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30974.png
-
-Convert to Markdowntaken home leave in 1962, 1964 and 1966, in accordance with regulations. In line with what appeared to be Agency policy as of November, 1968, writer has made plans for home leave from 5 August to 15 September, 1969. Writer feels most strongly that he and his family should be allowed to take this leave at government expense.
+taken home leave in 1962, 1964 and 1966, in accordance with regulations. In line with what appeared to be Agency policy as of November, 1968, writer has made plans for home leave from 5 August to 15 September, 1969. Writer feels most strongly that he and his family should be allowed to take this leave at government expense.
 
 7. Future of Project: Writer would be less than candid if he did not point out that the present success of the project is owing in large measure to contacts which writer has developed over an eighteen year period. The precipitous forced retirement of writer will preclude an orderly and intelligent period of transition, with a concomitant loss of effectiveness. Even though he is being retired, writer is still interested in preserving the results of his work in Mexico, which writer regards as being of continuing importance to our country.
 

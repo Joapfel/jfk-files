@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31150.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The genesis of the situation of the United States criminal syndicate of the CIA and the Attorney General in charge of the National Intelligence Service, as well as of the Deputy Director of Plans, Richard Bissell, and the Director of the Office of Security, Colonel Sheffield Edwards.
 

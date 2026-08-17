@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15509.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ORIG</td><td>Marx M. Holder</td></tr><tr><td>UNIT</td><td>OS/OSD/SD/1</td></tr><tr><td>EXT</td><td>r-1283</td></tr><tr><td>DATE</td><td>7 September 1961</td></tr><tr><td colspan="2">1613</td></tr></table>
 

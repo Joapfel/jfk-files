@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15406.png
-
-Convert to MarkdownMemo Donahoe to Belmont
+Memo Donahoe to Belmont
 Re: INTELLIGENCE COVERAGE OF FRIENDLY FOREIGN COUNTRIES (SEMIANNUAL EVALUATION)
 
 Costs of this phase of our program are principally those arising from field investigations of potential sources and Agents' time in handling producing sources. Costs are considered fully justified since sound counterintelligence coverage requires sources which can produce not only investigative data but also intelligence information of value to us and other agencies in guiding policy and making decisions.

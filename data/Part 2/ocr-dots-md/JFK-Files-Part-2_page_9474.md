@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9474.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 On July 18, 1970, a Detroit Police Officer was walking to a call box at the intersection of Woodward and State Streets, Detroit, when he was pushed off the curb and down into the street and continued to be assaulted by LARRY POWELL, member of the Detroit NCCF. Witnesses indicated that the attack was completely unprovoked. POWELL was arrested and charged with Assault and Battery on a police officer.
 

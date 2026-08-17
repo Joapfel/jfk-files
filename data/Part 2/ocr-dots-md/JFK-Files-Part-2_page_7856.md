@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7856.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (j) Director-93264, dated 20 April 1968; concerns one Edwin Mason.
 

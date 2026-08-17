@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15543.png
-
-Convert to MarkdownCAMPBELL was not certain where the headquarters for the Joliet Black Panthers would be located. But organizationally, as is Panther procedure, local officers would be under State Chapters and Section Leader Direction.
+CAMPBELL was not certain where the headquarters for the Joliet Black Panthers would be located. But organizationally, as is Panther procedure, local officers would be under State Chapters and Section Leader Direction.
 
 Asked if the Black Panthers would try to obtain their objectives to political action, CAMPBELL answered that they did not intend to work at local levels but rather through top level political figures in achieving their goals."
 

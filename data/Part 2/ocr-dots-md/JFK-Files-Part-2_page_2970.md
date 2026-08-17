@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2970.png
-
-Convert to MarkdownSECRET
+SECRET
 
 parent WH Division. In that year total obligations
 for Cuban operations were $41,498,743, or almost

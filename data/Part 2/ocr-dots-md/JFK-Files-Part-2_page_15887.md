@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15887.png
-
-Convert to Markdown**King, Yvonne A.**
+**King, Yvonne A.**
 
 Arrested: 6/9/69
 Charge: Kidnapping and Conspiracy in an Attempt to commit murder

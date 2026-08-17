@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5926.png
-
-Convert to Markdown26 FEB 1996
+26 FEB 1996
 
 MEMORANDUM FOR: Barry Harrelson
 Historical Review Group

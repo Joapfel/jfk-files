@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [URBAN, (Colonel)](Urbana) - IV, E, 24, 25
 VASSALL, William - III, E, 9; III, G, 5; IV, D, 9

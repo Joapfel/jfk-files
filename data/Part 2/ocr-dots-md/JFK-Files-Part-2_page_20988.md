@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20988.png
-
-Convert to Markdown# Intelligence Agency File
+# Intelligence Agency File
 
 CENTRAL INTELLIGENCE AGENCY
 ## C.I.A.

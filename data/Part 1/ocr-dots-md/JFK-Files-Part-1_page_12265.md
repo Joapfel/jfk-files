@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12265.png
-
-Convert to MarkdownCABLE SECRETARIAT DISSEMINATION. CLASSIFIED MESSAGE TOTAL COPIES / - ? DOURING AND/OR INITIALS SEEN BY
+CABLE SECRETARIAT DISSEMINATION. CLASSIFIED MESSAGE TOTAL COPIES / - ? DOURING AND/OR INITIALS SEEN BY
 
 <table><tbody><tr><td colspan="2">SECRET</td></tr><tr><td>ADVANCE COPY ☐</td><td>☑ S/SH (W/MIAMI INFO DIRECTOR)</td></tr><tr><td colspan="2">ACTION UNIT WH8</td></tr><tr><td>ACTION NO 446</td><td>FILE, VIEJO C/OPS, CI</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19121.png
-
-Convert to Markdown- 4.
+- 4.
 
 # DIVISION OF THE STATE OF NEW YORK
 ## IN TWO PORTION, EACH CONTAINING TWO QUARTERS

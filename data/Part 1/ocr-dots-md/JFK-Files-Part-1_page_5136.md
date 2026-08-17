@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5136.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STATION PASSAGE OF XEROX TO LOCAL LIAISON.
 

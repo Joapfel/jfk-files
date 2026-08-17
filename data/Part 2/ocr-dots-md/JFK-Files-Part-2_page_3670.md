@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3670.png
-
-Convert to Markdownb. His party does not have a parliamentary majority, so he needs support from either Karamanlis' party on the right or from the Communists. The military has apparently been pressing Karamanlis to withhold that support. He does not need much urging.
+b. His party does not have a parliamentary majority, so he needs support from either Karamanlis' party on the right or from the Communists. The military has apparently been pressing Karamanlis to withhold that support. He does not need much urging.
 
 c. The military has also let it be known that it would consider Papandreou's acceptance of Communist support as sufficient reason for a coup d'état.
 

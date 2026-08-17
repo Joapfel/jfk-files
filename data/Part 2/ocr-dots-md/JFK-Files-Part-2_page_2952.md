@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2952.png
-
-Convert to MarkdownSECRET
+SECRET
 
 18 May 1963
 McCone develops position paper on Haiti.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17031.png
-
-Convert to MarkdownThese photographs and reports have contributed operational support to the Station's Soviet operations which is not attainable elsewhere. For example, whenever the Soviets change all their license numbers the Station is able to compile a new, complete roster within a matter of weeks.
+These photographs and reports have contributed operational support to the Station's Soviet operations which is not attainable elsewhere. For example, whenever the Soviets change all their license numbers the Station is able to compile a new, complete roster within a matter of weeks.
 
 **Costs:**
 

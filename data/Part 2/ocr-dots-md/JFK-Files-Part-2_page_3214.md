@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3214.png
-
-Convert to MarkdownOFFICIAL HISTORY
+OFFICIAL HISTORY
 OF THE
 BAY OF PIGS OPERATION
 

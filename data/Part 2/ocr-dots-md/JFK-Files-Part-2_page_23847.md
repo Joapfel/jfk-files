@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23847.png
-
-Convert to Markdown1. is that some of the profits are reinvested. It is not that they take everything over or break even.
+1. is that some of the profits are reinvested. It is not that they take everything over or break even.
 2.
 3. Senator Huddleston. Well, I didn't say that. I said all funds not needed in the operation.
 4.

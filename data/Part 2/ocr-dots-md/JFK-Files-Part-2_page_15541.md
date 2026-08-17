@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15541.png
-
-Convert to Markdownstatements by ELDRIDGE CLEAVER, Minister of Defense, BPP as contained in CLEAVER's book, "Soul on Ice." HAMPTON stated the killing of one brother by the "pig" police would not stop the revolution. HAMPTON did not become specific but did say that forces were at work attempting to divide the party (BPP). HAMPTON's remarks also referred to the fact that the death of ROBERSON would not stop the work of the party.
+statements by ELDRIDGE CLEAVER, Minister of Defense, BPP as contained in CLEAVER's book, "Soul on Ice." HAMPTON stated the killing of one brother by the "pig" police would not stop the revolution. HAMPTON did not become specific but did say that forces were at work attempting to divide the party (BPP). HAMPTON's remarks also referred to the fact that the death of ROBERSON would not stop the work of the party.
 
 Following HAMPTON, BOB RUSH, Deputy Minister of Defense, Illinois BPP, spoke saying that he was glad that DIRKSEN (Senator EVERETT DIRKSEN) was dead. He stated that the pigs (meaning the police) would have to be dealt with by actions that they are familiar with in order to insure the fair treatment of the oppressed people. The source felt that RUSH was saying that force was needed to be used against police, although he did not say it.
 

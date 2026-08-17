@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5331.png
-
-Convert to Markdown# Letter from Louis A. Brun to Clemard Joseph Charles (to be Forwarded Via Robert C. Felder, United States Embassy, Port-au-Prince, Haiti)
+# Letter from Louis A. Brun to Clemard Joseph Charles (to be Forwarded Via Robert C. Felder, United States Embassy, Port-au-Prince, Haiti)
 
 ## ATTN : Operational Support Staff (Musulin)
 Chief, New York Field Office

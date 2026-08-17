@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34091.png
-
-Convert to Markdowndifficulties we must overcome in this respect when, for example, an aptitude
+difficulties we must overcome in this respect when, for example, an aptitude
 test carried out in over 2,000 state farms two years ago revealed that 60 per-
 cent of the heads of farms and 80 percent of the heads of work brigades did not
 even have three years of elementary schooling."

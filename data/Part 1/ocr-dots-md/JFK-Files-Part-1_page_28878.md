@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28878.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 DO 71 - 353
 

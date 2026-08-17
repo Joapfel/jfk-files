@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21747.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FROM : MADRY
 ACTION: DC/WH/SA 3

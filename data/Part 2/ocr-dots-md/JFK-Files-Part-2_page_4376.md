@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4376.png
-
-Convert to MarkdownWEDNESDI
+WEDNESDI
 
 12
 

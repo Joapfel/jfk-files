@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8601.png
-
-Convert to Markdown(d) This Agreement to the extent it contravenes any national or local government laws, ordinances or regulations of Switzerland or the United States of America, shall be deemed null and void.
+(d) This Agreement to the extent it contravenes any national or local government laws, ordinances or regulations of Switzerland or the United States of America, shall be deemed null and void.
 
 (e) Performance under this Agreement shall be excused for and so long as forces majeure, acts of God, strikes, war in which either country is involved, or any similar force majeure cause which may interfere with the performance beyond the control of the parties hereto. ...
 

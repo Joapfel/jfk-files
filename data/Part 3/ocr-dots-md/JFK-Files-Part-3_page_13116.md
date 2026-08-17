@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13116.png
-
-Convert to MarkdownS. RES. 165
+S. RES. 165
 
 [Report No. 94-181]
 

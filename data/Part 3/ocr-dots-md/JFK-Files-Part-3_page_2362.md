@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2362.png
-
-Convert to Markdown10. World Congress of Women and World Peace Council Conferences
+10. World Congress of Women and World Peace Council Conferences
 
 In June, 1969, delegations from the United States attended conferences of the World Congress of Women in Helsinki; Finland, and the World Peace Council in East Berlin, Germany. Both of these are international front groups controlled by the Soviet Union. These conferences served as forums for propaganda against the United States' position in Vietnam.
 

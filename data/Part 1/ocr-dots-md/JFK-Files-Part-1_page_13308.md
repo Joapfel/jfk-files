@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13308.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9 HAND GRENADES
 GT G TYPE.

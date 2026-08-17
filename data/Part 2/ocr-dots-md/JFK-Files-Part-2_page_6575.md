@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6575.png
-
-Convert to Markdown13-00000
+13-00000
 
 to balance possibly conflicting interests and to determine which, in any given circumstance, shall have priority.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6156.png
-
-Convert to Markdown02 December 1977
+02 December 1977
 
 MEMORANDUM FOR: Chairman, Information Review Committee (J)
 ATTENTION : Mr. R. G. Pean, Assistant for Information (J)

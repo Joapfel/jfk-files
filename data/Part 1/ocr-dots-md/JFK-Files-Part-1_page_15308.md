@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15308.png
-
-Convert to Markdownclothes. He had but 32 German marks left. He asked the barber how much the railroad ticket and-raris would cost, and asked also to exchange his German money. He got the information and the money exchanged. He had just enough for the ticket with a few remaining for something to eat.
+clothes. He had but 32 German marks left. He asked the barber how much the railroad ticket and-raris would cost, and asked also to exchange his German money. He got the information and the money exchanged. He had just enough for the ticket with a few remaining for something to eat.
 
 15. David bought the ticket and borded the train. He asked other travelers about the controls. He was told that the German military personnel is performing the control at the Belgian-French border. He thought to leave the train before the border, to cross the border clandestinely, and then return to the train, but it was too late, he could not leave the car any more, the control-team, a Lieutenant, a W.C.O. and two men, was there already. The officer marched up to David, looked him into the eyes, then turned his back to David and shouted the W.C.O. to hurry up. David had luck: he had no documents, and nobody asked him for those: the W.C.O. probably thought that the Lieutenant had checked his documents.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1585.png
-
-Convert to Markdown12 December 1967
+12 December 1967
 
 SUBJECT: SCHLUMBERGER WELL SURVEYING CORPORATION
 (See Houma Munitions Bunker - Leased by Subject firm)

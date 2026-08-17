@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32240.png
-
-Convert to Markdown26 January 1962
+26 January 1962
 
 Mr. Daniel Flores
 Apartment 203

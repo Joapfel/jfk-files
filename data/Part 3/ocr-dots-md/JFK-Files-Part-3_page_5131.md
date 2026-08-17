@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5131.png
-
-Convert to Markdownh. Airtel dated 5/13/70 instructing each office to submit monthly reports on informant coverage used against communes;
+h. Airtel dated 5/13/70 instructing each office to submit monthly reports on informant coverage used against communes;
 
 i. Airtel dated 5/15/70 forwarding copy of departmental letter concerning campus disorders;
 

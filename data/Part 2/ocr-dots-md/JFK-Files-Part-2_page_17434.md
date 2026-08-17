@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17434.png
-
-Convert to MarkdownBPP meetings will be held at ROBERT BRUCE's house, 28 South 15th Avenue, Maywood, on Monday, Wednesday and Friday nights from now on. HAMPTON met with BPP members G. PERKINS, BRUCE, WALTER ALLEN, PETE HAMMACK, T. GLADNEY, MATTHEW and WILMA ANGRUM (previously thought to be INGRAM) at BRUCE's house, 3/3/69. They discussed a rally to be held in the near future.
+BPP meetings will be held at ROBERT BRUCE's house, 28 South 15th Avenue, Maywood, on Monday, Wednesday and Friday nights from now on. HAMPTON met with BPP members G. PERKINS, BRUCE, WALTER ALLEN, PETE HAMMACK, T. GLADNEY, MATTHEW and WILMA ANGRUM (previously thought to be INGRAM) at BRUCE's house, 3/3/69. They discussed a rally to be held in the near future.
 
 Informant advised on 3/5/69:
 

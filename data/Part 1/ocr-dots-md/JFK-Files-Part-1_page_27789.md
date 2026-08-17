@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27789.png
-
-Convert to Markdown<html><body><table><tr><td>CLASSIFICATION</td></tr><tr><td>NARRATIVE COMMENTS</td></tr></table></body></html>
+<html><body><table><tr><td>CLASSIFICATION</td></tr><tr><td>NARRATIVE COMMENTS</td></tr></table></body></html>
 
 <html><body><table><tr><td colspan="2">SECTION-D</td></tr><tr><td colspan="2">Indicate significant strengths or weaknesses demonstrated in current position keeping in mind perspective their relationship to overall performance. State suggestions made for improvement of work performance. Give recommendations for training. Comment on foreign language competence, if required for current position. Allow time forplate given in Section C to provide best basis for determining future personnel action. Manner of performance of managed or supervisory duties and result consciousness in the use of personnel space, equipment and tools must be commented on, if applicable. If extra space is needed to complete Section D, attach a separate sheet of paper.</td></tr><tr><td colspan="2">SEE MEMORANDUM IN LIEU OF FITNESS REPORT.</td></tr></table></body></html>
 

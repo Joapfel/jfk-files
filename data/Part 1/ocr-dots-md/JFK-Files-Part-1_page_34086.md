@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34086.png
-
-Convert to MarkdownMatanzas Province: Malanga fields were covered with water which will rot most of the plant root. Complete loss of corn crops were observed in the Malanga area.
+Matanzas Province: Malanga fields were covered with water which will rot most of the plant root. Complete loss of corn crops were observed in the Malanga area.
 
 Las Villas Province: 'Viands' crops were destroyed.
 

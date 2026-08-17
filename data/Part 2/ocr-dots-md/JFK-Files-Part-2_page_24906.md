@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24906.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 4. The Failure In Communication Between Agency Officials
 In Charge Of The Assassination Operations And Their Superiors

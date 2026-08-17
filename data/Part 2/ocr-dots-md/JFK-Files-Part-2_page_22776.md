@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22776.png
-
-Convert to MarkdownWARD & PAUL
+WARD & PAUL
 
 760
 

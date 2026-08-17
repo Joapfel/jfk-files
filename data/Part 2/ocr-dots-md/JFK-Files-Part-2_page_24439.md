@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24439.png
-
-Convert to MarkdownThe Executive Officer to the Chief of the Cuba
+The Executive Officer to the Chief of the Cuba
 
 court action project, who had sent the cables testified that
 he had "heard" that Dulles had countermanded Barnes' plan and

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8298.png
-
-Convert to MarkdownSECRET
+SECRET
 CONTROL
 U.S. OFFICIALS ONLY
 

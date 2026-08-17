@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21901.png
-
-Convert to Markdown(Bissell, 9/10/75, pp. 54-57; Tweedy, 9/9/75, pp. 54, 61).
+(Bissell, 9/10/75, pp. 54-57; Tweedy, 9/9/75, pp. 54, 61).
 
 William Harvey, from whose division QJWIN was on loan for his Congo assignment, had no specific knowledge of WIN's activities in the Congo:
 

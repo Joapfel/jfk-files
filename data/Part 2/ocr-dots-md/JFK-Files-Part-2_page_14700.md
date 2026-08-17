@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14700.png
-
-Convert to Markdownexhaustive FBI investigation. Broken malingerings "hands" off"
+exhaustive FBI investigation. Broken malingerings "hands" off"
 policy regarding Garrison investigation. Garrison mental
 stability is questionable. He received medical discharge from
 U. S. Army in 1951 for an unspecified illness. Admitted to

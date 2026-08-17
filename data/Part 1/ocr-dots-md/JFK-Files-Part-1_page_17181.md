@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17181.png
-
-Convert to Markdown# B. Summary of Fixed Basehouse Effectiveness
+# B. Summary of Fixed Basehouse Effectiveness
 
 The fixed LIEMPTY basehouses (LIMITED, LICALLA and LILYRIC) provided approximately 18,888 individual frames of operational photographs during the 12-month period of the past project year. This photographic coverage, linked with the physical surveillance reports prepared by each basehouse, has proven to be a most reliable and viable tool for:
 

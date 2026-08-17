@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29576.png
-
-Convert to Markdown<table><tr><td>19. ASK AND ANSWER (List, type of knowledge, how acquired, etc.)<br/>Germany - 3 years<br/>Japan - 8 months<br/>Korea - 4 months<br/>Panama - 2 months</td><td>JAN 29 4:17 PM '60</td></tr></table>
+<table><tr><td>19. ASK AND ANSWER (List, type of knowledge, how acquired, etc.)<br/>Germany - 3 years<br/>Japan - 8 months<br/>Korea - 4 months<br/>Panama - 2 months</td><td>JAN 29 4:17 PM '60</td></tr></table>
 
 <table><thead><tr><th colspan="9">20. LANGUAGE FACILITY (Give tests when still warrants and rate below)</th></tr><tr><th>LANGUAGES</th><th>NATIVE FLUENCY</th><th>PATIENT BUT FOREIGN</th><th>ASCIQUATE FOR TRANSLATION</th><th>ASCIQUATE FOR RESEARCH</th><th>ASCIQUATE FOR TRAVEL</th><th>LIMITED</th><th>ACQUIRED BY</th></tr></thead><tbody><tr><td>German</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>This & Laotian</td><td>introducer</td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

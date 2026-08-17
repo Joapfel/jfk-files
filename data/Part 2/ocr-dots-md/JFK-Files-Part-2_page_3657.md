@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3657.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. **South Korea** With 85 percent of the vote in, Pak Chong-hui's Democratic Republican Party has already won an absolute majority in the National Assembly elections held yesterday.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25965.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>17 MAR 69 IN 15450</td>
   </tr>

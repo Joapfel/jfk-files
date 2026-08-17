@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13719.png
-
-Convert to MarkdownMemo from Legal Counsel to J. B. Adams
+Memo from Legal Counsel to J. B. Adams
 ISSUE PAPER ON INTELLIGENCE FILES AND PRIVACY
 
 RECOMMENDATION:

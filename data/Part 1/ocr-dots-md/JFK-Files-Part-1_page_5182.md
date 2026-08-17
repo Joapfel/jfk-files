@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5182.png
-
-Convert to Markdown4.- El Gobierno de Costa Rica estudia la posibilidad de empulgarlo, pero no existe un paie interesado en darle asilo.
+4.- El Gobierno de Costa Rica estudia la posibilidad de empulgarlo, pero no existe un paie interesado en darle asilo.
 
 5.- Al aer dotenido BOSCH AVILA portaba la siguiente do cumentación:
 

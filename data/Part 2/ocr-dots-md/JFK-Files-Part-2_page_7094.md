@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7094.png
-
-Convert to Markdown13-00000
+13-00000
 
 a. [SHAMROCK'S] real name, [Nikolay Romanovich MAKAREVICH] may not be released. His identity has remained a secret for [30] years. We do not know if [MAKAREVICH] is alive or dead, and believe that exposure could damage him and his family.
 

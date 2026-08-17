@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22030.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 DATES:
 

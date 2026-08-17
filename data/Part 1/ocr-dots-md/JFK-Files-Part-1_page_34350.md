@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34350.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">INDY ☐ YES ☐ NO</td>
         <td>CLASSIFIED MESSAGE</td>

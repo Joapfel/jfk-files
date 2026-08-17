@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7736.png
-
-Convert to MarkdownSECRET
+SECRET
 
 21 MAY
 1982

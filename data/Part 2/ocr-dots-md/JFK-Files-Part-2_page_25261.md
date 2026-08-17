@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25261.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>AMBASSADOR LODGE</td><td>11/2/63<br/>1000 hours</td><td>DIEM</td></tr><tr><td>OCCURRENCE:</td><td colspan="2">TOP SECRET</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>AMBASSADOR LODGE</td><td>11/2/63<br/>1000 hours</td><td>DIEM</td></tr><tr><td>OCCURRENCE:</td><td colspan="2">TOP SECRET</td></tr></table>
 
 Ambassador Lodge showed appreciation to the Chinese.
 

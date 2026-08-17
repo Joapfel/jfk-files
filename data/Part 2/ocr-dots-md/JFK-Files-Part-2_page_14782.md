@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14782.png
-
-Convert to MarkdownEXHIBIT NO. 2
+EXHIBIT NO. 2
 
 # FBI FOREIGN LAISON OPERATIONS
 

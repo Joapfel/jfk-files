@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23371.png
-
-Convert to Markdown1 Mr. Baron. Does that indicate to you that on the list of priorities, priority A would have been considered by the Chief of Station to be his top priority?
+1 Mr. Baron. Does that indicate to you that on the list of priorities, priority A would have been considered by the Chief of Station to be his top priority?
 
 2
 

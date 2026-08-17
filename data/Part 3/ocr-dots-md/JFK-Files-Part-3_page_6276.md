@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6276.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 with representatives of (the Atlanta) Office and the
 New York Office," as indicated in the second paragraph of the

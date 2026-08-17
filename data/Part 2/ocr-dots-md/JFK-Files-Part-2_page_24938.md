@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24938.png
-
-Convert to MarkdownOf course, whatever the extent of the President's own constitutional
+Of course, whatever the extent of the President's own constitutional
 powers," it is a fundamental principle of our constitutional system that these
 powers are checked and limited by the Congress, including the Congress' power
 of impeachment. As a necessary corollary, any action taken by a President pur-

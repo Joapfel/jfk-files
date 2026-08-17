@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18696.png
-
-Convert to Markdown31 AUG 1967
+31 AUG 1967
 
 RECONCILIATION F.O.B: Deputy Director for Jans
 

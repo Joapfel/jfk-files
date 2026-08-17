@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28958.png
-
-Convert to MarkdownForm 5329 (1976)
+Form 5329 (1976)
 
 This Page Is Not Open to Public Inspection
 

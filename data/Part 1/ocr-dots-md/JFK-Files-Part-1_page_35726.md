@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35726.png
-
-Convert to Markdown**2. Interprogres**
+**2. Interprogres**
 
 Interprogres is a new subsidiary of the Mullen Company formed in 1971, as a result of contacts developed at the Zagreb Trade Fair in Yugoslavia. It is a pilot operation aimed at expanding East-West commercial relationships. At least two (Agency overseas assets) have tangential tasks of promoting the acceptance of this company as a Mullen subsidiary. The Federal Bureau of Investigation was advised of the Agency connection by memorandum dated 21 June 1972, which covered Robert R. Mullen and Company.
 

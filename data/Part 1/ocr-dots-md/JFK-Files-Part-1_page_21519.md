@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21519.png
-
-Convert to MarkdownSECRET
+SECRET
 
 little or no value in assessing the bona fides or non-bona fides of NOSENKO. An expose of his youthful indiscretions, of which he has admitted a number, is of no import in a discussion of whether NOSENKO was or was not dispatched by the KGB. Obtaining any collateral first-hand information in regard to NOSENKO before 1945 would be of negligible value, but there actually is supporting information from Nikolay ARTAMONOV, a defector from the Soviet Navy, concerning the claimed attendance by NOSENKO at a military-naval preparatory school in Leningrad.
 

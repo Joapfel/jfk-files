@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19292.png
-
-Convert to MarkdownTO: Medical Division
+TO: Medical Division
 FROM: Transactions & Records (1st)
 SUBJECT: James H. Moore
 

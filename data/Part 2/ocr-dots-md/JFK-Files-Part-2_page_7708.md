@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7708.png
-
-Convert to MarkdownPolitburo of the Minister of War, the Head of the K.G.B. and of the Foreign
+Politburo of the Minister of War, the Head of the K.G.B. and of the Foreign
 Minister, has a special significance; it is an indication that BREZHNEV is
 about to make most important decisions and needs the support of the Armed
 forces, the K.G.B. and of the Foreign Office.

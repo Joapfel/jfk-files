@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24322.png
-
-Convert to Markdownthat Rodigast was under some suspicion. QRPHONE has
+that Rodigast was under some suspicion. QRPHONE has
 been refused entrance at the border by the Swiss
 authorities. Does anyone doubt that in view of the
 groups and individuals he contacts on his travels he

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23392.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Tweedy. We read that that time, which is my only recollection of it. That is the person I am sure.
 

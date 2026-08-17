@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12796.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="4">CABLE NO. DESIGN BY: J.W. PER</td>
     <td rowspan="3" style="vertical-align: top; text-align: center;">

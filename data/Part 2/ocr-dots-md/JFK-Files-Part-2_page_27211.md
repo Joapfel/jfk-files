@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27211.png
-
-Convert to Markdown# G-C-H Files
+# G-C-H Files
 
 ## BB. FBI Materials
 1. From CFR

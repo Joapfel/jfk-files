@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16426.png
-
-Convert to Markdownfield. Through Mr. Ellis, Chief of the Ground Branch of SCA, and Mr. Wall, of the same branch, one-half day orientation course was given to the first trainees who suggested that a full day would be sufficient due to the level of the above trainees and the experience they have in this field.
+field. Through Mr. Ellis, Chief of the Ground Branch of SCA, and Mr. Wall, of the same branch, one-half day orientation course was given to the first trainees who suggested that a full day would be sufficient due to the level of the above trainees and the experience they have in this field.
 
 9. Arrangements have been made with Mr. Luria and Mr. Fritz Nekou of TSO/Training to provide Major Luis Alfonso Oehon with a Flaps and Seals course for the period of 19-30 April at a TSO Safe House. It is believed the Flaps and Seals course will benefit CIA because it will offer HURSCHWOOD the opportunity to maintain closer contact with Oehon who will be responsible for this type activity in SIFA. SIFA proposes to make a concerted effort in the letter intercept field to keep better informed of the extreme loftist efforts to overthrow the Venezuelan government, and it is felt that HURSCHWOOD can keep abreast of the operation. Because of SIFA's responsibilities, it is believed that the more efficient effort that SIFA can make in this field will result to the benefit of CIA. Major Oehon would take the first six weeks of the covert training course then devote the last two weeks to the Flaps and Seals course.
 

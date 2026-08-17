@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30071.png
-
-Convert to MarkdownDecember 11, 1916
+December 11, 1916
 
 I. DUTIES AND RESPONSIBILITIES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20146.png
-
-Convert to MarkdownNR 011 CV CODE
+NR 011 CV CODE
 9:20 PM URGENT 8-25-72 SLO.
 
 TO ACTING DIRECTOR

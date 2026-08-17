@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6155.png
-
-Convert to MarkdownApril 11, 1975
+April 11, 1975
 
 12 Arnold Circle
 Cambridge, Mass. 02139

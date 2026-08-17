@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5928.png
-
-Convert to MarkdownNew Memo\Standard
+New Memo\Standard
 
 CL BY: 0000000
 CL REASON: Section 1.5 C

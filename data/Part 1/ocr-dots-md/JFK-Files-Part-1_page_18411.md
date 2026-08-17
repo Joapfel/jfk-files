@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18411.png
-
-Convert to Markdown9 December 1958
+9 December 1958
 
 MEMORANDUM FOR: Secretary, CS/CSB
 

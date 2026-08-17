@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19560.png
-
-Convert to Markdown(Form No.205a)
+(Form No.205a)
 
 APPLICATION FOR APPOINTMENT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12643.png
-
-Convert to Markdown(2) Position and importance of subject in subversive movement
+(2) Position and importance of subject in subversive movement
 
 (3) Pertinent background information
 Include only information pertinent to determining whether or not subject is engaged in subversive activities. Set out date or period to which it pertains; e.g., John Doe advised on January 15, 1970, that subject attended CP meetings in January, 1965, in Syracuse, New York.

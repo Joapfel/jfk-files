@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9742.png
-
-Convert to MarkdownSEC. 12. (a) Executive Order No. 9835 of March 21, 1947, as amended is hereby revoked.
+SEC. 12. (a) Executive Order No. 9835 of March 21, 1947, as amended is hereby revoked.
 
 (b) The head of each department and agency shall be furnished by the Attorney General with the name of each organization which shall be or has been heretofore designated under this order. Except as specifically provided hereafter, nothing contained herein shall be construed in any way to affect previous designations made pursuant to Executive Order No. 10450, as amended.
 

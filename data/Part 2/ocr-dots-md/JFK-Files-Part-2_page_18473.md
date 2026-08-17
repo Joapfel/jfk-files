@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18473.png
-
-Convert to Markdownj. What techniques did the informants employ to gather the information?
+j. What techniques did the informants employ to gather the information?
 
 k. Were the techniques used by the informants all approved and monitored by the FBI? If not, which were not so approved?
 

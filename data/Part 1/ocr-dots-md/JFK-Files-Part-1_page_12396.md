@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_12396.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="2">DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td><td colspan="3">PROCESSING ACTION</td></tr></thead><tbody><tr><td>TO</td><td colspan="2">Chief, Western Hemisphere Division</td><td colspan="3"></td></tr><tr><td>INSIDE</td><td colspan="3"></td><td colspan="2">NO PAPERBACK REQUIRED</td></tr><tr><td>FROM</td><td colspan="2">Chief of Station, Caracas</td><td colspan="3"></td></tr><tr><td>SUBJECT</td><td colspan="5">WKSCARLET-3: New Memorandum of Oral Commitments</td></tr><tr><td>ACTION REQUIRED - REFERENCES</td><td colspan="5"></td></tr><tr><td colspan="6">Forwarded herewith are three copies of the new MOC for WKSCARLET-3, effective 1 January 1973.</td></tr><tr><td colspan="6">Nora W., COBEAGA</td></tr><tr><td colspan="6">Attachment:<br/>MOC, 3 copies<br/><br/>Distribution:<br/>3 - C/WHD w/ att. h/w</td></tr><tr><td colspan="4">LATT<br/>CS COPY, REVISED IN 10 MAR 1973</td><td colspan="2"></td></tr><tr><td>CROSS REFERENCE TO</td><td>DISPATCH STAGE AND NUMBER<br/>HVCA-19182</td><td>DATE<br/>JAN 31 1973</td><td>MOS FILE NUMBER<br/>201-300985</td><td colspan="2"></td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td colspan="4"></td></tr></tbody></table>

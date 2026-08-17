@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24327.png
-
-Convert to MarkdownATTACHMENT TO DISPATCH NO. O1L4-26059
+ATTACHMENT TO DISPATCH NO. O1L4-26059
 
 ZIBET would appreciate receiving from JACOBSON any current material on the activities and contacts of the following, Africans who either reside in London or who visit there frequently. These targets have been selected according to the criteria outlined in paragraph 8 of the referenced dispatch.
 

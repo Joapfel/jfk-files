@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19092.png
-
-Convert to Markdown14-00000
+14-00000
 
 The president and the secretary are authorized by the order of the board to select the candidates for election, with the exception of the president, who is elected by a majority of two. The number to be elected shall be at least one third, and in case of tie, it shall be elected by a majority of two.
 

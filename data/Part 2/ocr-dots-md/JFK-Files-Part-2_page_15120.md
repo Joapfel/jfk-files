@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15120.png
-
-Convert to MarkdownIII. STATISTICS RE HIJACKINGS
+III. STATISTICS RE HIJACKINGS
 SINCE JANUARY 1, 1968
 
 A. Hijackings

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27636.png
-
-Convert to MarkdownSTANDARD FORM 83-65
+STANDARD FORM 83-65
 
 CONFIDENTIAL
 Office Memorandum • UNITED STATES GOVERNMENT

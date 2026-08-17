@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33800.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 Ltr 25 Apr wth
 Exhibits from HCFC

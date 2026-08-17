@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18501.png
-
-Convert to Markdown24. With respect to electronic surveillance directed at encoded, non-conversational communications conducted in the interests of national security and foreign intelligence, the following questions are asked:
+24. With respect to electronic surveillance directed at encoded, non-conversational communications conducted in the interests of national security and foreign intelligence, the following questions are asked:
 
 a. What were the total number of such surveillances for each year from 1966 to 1968?
 

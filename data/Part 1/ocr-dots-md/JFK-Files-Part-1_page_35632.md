@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35632.png
-
-Convert to MarkdownProyección Radial "El Medico y Ud."
+Proyección Radial "El Medico y Ud."
 Enero 1965
 
 <table>

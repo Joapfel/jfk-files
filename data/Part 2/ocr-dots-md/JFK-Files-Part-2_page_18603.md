@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18603.png
-
-Convert to MarkdownAny leads for purpose of checking background of potential sources for Santo Domingo must receive priority attention and results submitted by teletype.
+Any leads for purpose of checking background of potential sources for Santo Domingo must receive priority attention and results submitted by teletype.
 
 In addition to the Dominican requirements placed upon the Bureau, your attention is directed to over-all need for additional informants and sources in the Latin-American field. The reputation the Bureau has gained during recent Dominican crisis is due in large part to the results achieved in developing Dominican sources through a concentrated informant development program over the past several years.
 

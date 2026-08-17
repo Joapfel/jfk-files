@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4941.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MHFNO: 96-5536596</td></tr></table>
 

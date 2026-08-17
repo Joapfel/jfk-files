@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33787.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In reply refer to: L-2062
 8

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6754.png
-
-Convert to Markdown63-64-037-1-1
+63-64-037-1-1
 63-73-022-1-1
 
 receipts and invoices; (4) there is no indication of income being received by the KLAN and not posted to their books; (5) controversial receipts by SHELTON from DELIN ENGINEERING are offset by his exemptions and allowable depreciation on his automobile; (6) allegations that SHELTON purchased a diamond ring and a Cadillac automobile with KLAW funds are negated by available evidence, and (7) failure to file 1961 and 1963 returns by the KLAN resulted in no injury to the government.

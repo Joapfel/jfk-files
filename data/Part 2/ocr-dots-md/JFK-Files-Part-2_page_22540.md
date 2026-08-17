@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22540.png
-
-Convert to Markdownwould be a U.S.O. for foreign military personnel stationed
+would be a U.S.O. for foreign military personnel stationed
 in the U.S. Wiley contended it would build up good will and
 friendship. Wiley was told we have no interest in such a
 project.

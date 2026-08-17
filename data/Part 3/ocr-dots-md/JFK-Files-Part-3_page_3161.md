@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3161.png
-
-Convert to Markdown1773
+1773
 
 Senator Mondale. That's right. Or that he was about to
 or had committed acts of violence?

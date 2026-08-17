@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4295.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 It is felt a telephone surveillance at [Jackson's residence, 865 Amsterdam Avenue, New York City] will provide vital information in our efforts to effect a solution of this murder case as well as information of intelligence value regarding black extremist activities. It is anticipated results of this telephone surveillance will be introduced in court or that leads to evidence may be obtained; therefore, this request is being made not only for the purpose of obtaining intelligence information but also on the basis that evidence may be obtained which will be used in court. In line with instructions on page five of your referenced letter the following information is set forth:
 

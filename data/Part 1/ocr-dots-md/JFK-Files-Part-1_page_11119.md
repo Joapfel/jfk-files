@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11119.png
-
-Convert to Markdown- to Mexico City (he did not say why) ahead of the other
+- to Mexico City (he did not say why) ahead of the other
 
 - Cuban delegates who were returning by road later that day.
 

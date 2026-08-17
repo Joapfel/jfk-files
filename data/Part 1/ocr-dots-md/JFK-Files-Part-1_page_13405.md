@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13405.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 MAY 68 # 08272
 

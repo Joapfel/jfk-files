@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7736.png
-
-Convert to MarkdownThe last paragraph of this particular directive, which was actually a request of all local law enforcement agencies, used the words "counterespionage" and "subversive activities." However, the context of the statement appears to merely be designed to broadly define activities which might touch on the national security so that all such matters, irrespective of the legal definition or name, would be turned over to the FBI.
+The last paragraph of this particular directive, which was actually a request of all local law enforcement agencies, used the words "counterespionage" and "subversive activities." However, the context of the statement appears to merely be designed to broadly define activities which might touch on the national security so that all such matters, irrespective of the legal definition or name, would be turned over to the FBI.
 
 A logical conclusion, based purely on examination of the language used in the September, 1939, directive, is that the directive merely put everyone on notice that the FBI had the responsibility to investigate the statutory crimes named; that it provided no so-called "constitutional" or "executive authority" for the FBI to investigate matters not covered by legislative enactment. This is not to say that the President has no such constitutional authority (he has), but only that it was not exercised here.
 

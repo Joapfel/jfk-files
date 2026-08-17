@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17172.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>CROSS REFERENCE TO</th>

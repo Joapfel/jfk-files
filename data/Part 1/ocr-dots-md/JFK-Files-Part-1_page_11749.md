@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11749.png
-
-Convert to MarkdownMr. Ann Medical and his associate Mr. and Mrs. Dornan, are by air for San Diego Airs on the 18th September, from whence they left by the "Fruit Plane" for New Zealand. They expect to be absent from Punta Arenas for about six months.
+Mr. Ann Medical and his associate Mr. and Mrs. Dornan, are by air for San Diego Airs on the 18th September, from whence they left by the "Fruit Plane" for New Zealand. They expect to be absent from Punta Arenas for about six months.
 
 We deeply regret to record the death which took place recently in Santiago, of Mrs Kenneth Cargill, an old resident of Punta Arenas, and take this opportunity of expressing our sympathy with Mr Cargill in his sad loss.
 

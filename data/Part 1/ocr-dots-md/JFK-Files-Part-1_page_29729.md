@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_29729.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="3">ARMY ASSISTANCE</th></tr><tr><th>1950</th><th>1953</th><th>E7</th></tr></thead><tbody><tr><td>5200</td><td>ammun</td><td rowspan="2">London, England<br/>33 Technicians, Photography</td></tr><tr><td>6000</td><td>ammun</td></tr><tr><td colspan="3">BRIG. GEN. R. E. Williamson, USA (Office of the Army Assistant) - American Embassy, London, England<br/>Military Assignment<br/>See Enclosure No. 4</td></tr><tr><td>S.</td><td>1941</td><td>1949</td><td>Photographer</td></tr><tr><td></td><td>1300</td><td>ammun</td><td rowspan="2">Various</td><td>Photography</td></tr><tr><td></td><td>4000</td><td>ammun</td><td></td></tr><tr><td colspan="2">Commanding Officer</td><td colspan="3">Department of the Army, G-2 Intelligence<br/>Washington 25, D. C.</td></tr><tr><td colspan="5">Military Assignments<br/>Served as an Intelligence and Investigative Photographer throughout the South Pacific, Far East, New South Wales, Africa, Europe, and the Continental United States.</td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24400.png
-
-Convert to Markdownpursue ref. Would like to drop matter." (Cable, Director to
+pursue ref. Would like to drop matter." (Cable, Director to
 Havana, 7/22/60; Memo to I.G., 1/17/75)* It was, of course, too
 late to "drop the matter" since the plane had already departed.
 When the Cuban pilot returned, he told the case officer that he

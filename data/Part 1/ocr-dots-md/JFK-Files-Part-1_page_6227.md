@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6227.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="2">84 SECRET</td></tr><tr><td colspan="2">PERFORM/UNIT NOTIFIED</td></tr><tr><td colspan="2">16-120-26</td></tr><tr><td>ADVANCE COPY</td><td>UNIT TIME BY</td></tr><tr><td>☐ (00:00)</td><td>☐ FILMED</td><td>☐</td><td></td></tr><tr><td colspan="3">ACTION</td><td>WHIC</td></tr><tr><td colspan="4">INFO<br/>VR. FILE W-17, CF/07, PGZ</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="2">84 SECRET</td></tr><tr><td colspan="2">PERFORM/UNIT NOTIFIED</td></tr><tr><td colspan="2">16-120-26</td></tr><tr><td>ADVANCE COPY</td><td>UNIT TIME BY</td></tr><tr><td>☐ (00:00)</td><td>☐ FILMED</td><td>☐</td><td></td></tr><tr><td colspan="3">ACTION</td><td>WHIC</td></tr><tr><td colspan="4">INFO<br/>VR. FILE W-17, CF/07, PGZ</td></tr></tbody></table>
 
 **SECRET** 222047Z
 

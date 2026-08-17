@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2219.png
-
-Convert to MarkdownSECRET
+SECRET
 (when filled in)
 
 23 September 1966

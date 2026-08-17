@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27635.png
-
-Convert to MarkdownJONES, Diana
+JONES, Diana
 
 Name of Employee
 ***

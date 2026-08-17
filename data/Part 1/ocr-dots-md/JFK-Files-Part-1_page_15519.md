@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15519.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE 296<br/>08 JULY 61</td><td>296</td></tr><tr><td colspan="2">TO DIRECTOR<br/>FROM BRAZZAVILLE</td></tr><tr><td>ACTION: C/AF 3 (TEMPO COPY ISSUED MR. DUNBAR, AF AT 1605 8 JUL)</td><td rowspan="2">S E C R E T<br/><br/>(MR. DUNBAR NOTIFIED AT 1525 8 JUL)<br/><br/>*COP, C/CI, C/WE 2, D/OS 2, S/C 2</td></tr><tr><td>INFO</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE 296<br/>08 JULY 61</td><td>296</td></tr><tr><td colspan="2">TO DIRECTOR<br/>FROM BRAZZAVILLE</td></tr><tr><td>ACTION: C/AF 3 (TEMPO COPY ISSUED MR. DUNBAR, AF AT 1605 8 JUL)</td><td rowspan="2">S E C R E T<br/><br/>(MR. DUNBAR NOTIFIED AT 1525 8 JUL)<br/><br/>*COP, C/CI, C/WE 2, D/OS 2, S/C 2</td></tr><tr><td>INFO</td></tr></tbody></table>
 
 <html><body><table><tr><td>OUTGOING ROUTINGS</td><td>INCOMING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></body></html>
 

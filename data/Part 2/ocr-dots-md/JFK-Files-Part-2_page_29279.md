@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29279.png
-
-Convert to MarkdownINS File Reviews...page 7
+INS File Reviews...page 7
 
 F. Milton Jaffe
 

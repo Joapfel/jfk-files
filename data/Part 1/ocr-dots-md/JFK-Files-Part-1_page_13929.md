@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13929.png
-
-Convert to MarkdownTO : DIRECTOR
+TO : DIRECTOR
 
 FROM : PANAMA CITY
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26776.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CLARK FIELD MESSAGE</td>
     <td>TOTAL COPIES 51</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20607.png
-
-Convert to Markdown3. **Execution of Documents.** If, in the performance of services under this contract, you assume the custody of Government funds or take title of record to property of any nature whatsoever and wherever situate, which property has in fact been purchased with monies of the U. S. Government, you hereby recognise and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
+3. **Execution of Documents.** If, in the performance of services under this contract, you assume the custody of Government funds or take title of record to property of any nature whatsoever and wherever situate, which property has in fact been purchased with monies of the U. S. Government, you hereby recognise and acknowledge the existence of a trust relationship, either express or constructive, and you agree to execute whatever documents may be required by the Government to evidence this relationship.
 
 9. **Secrecy.** You will be required to keep forever secret this contract and all information which you may obtain by reason hereof (unless released in writing by the Government from such obligation), with full knowledge that violation of such secrecy may subject you to criminal prosecution under the Espionage Laws, dated 25 June 1948, as amended, and other applicable laws and regulations.
 

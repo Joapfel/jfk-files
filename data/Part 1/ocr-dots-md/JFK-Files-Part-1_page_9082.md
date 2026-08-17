@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9082.png
-
-Convert to MarkdownEXPENSE REPORT
+EXPENSE REPORT
 
 | Date | Description | Amount |
 |:---|:---|---:|

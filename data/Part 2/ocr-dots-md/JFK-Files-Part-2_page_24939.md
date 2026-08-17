@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24939.png
-
-Convert to MarkdownApproved by Drafting
+Approved by Drafting
 Subcommittee on 9/9/75
 
 EPILOGUE

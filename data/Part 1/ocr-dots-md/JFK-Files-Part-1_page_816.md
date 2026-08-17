@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_816.png
-
-Convert to Markdown4. AMFAUNA-14 tried to dispose of the letter she had just received from AMFAUNA-1 by leaving it on the desk of a fellow employee together with some potatoes and a carrot for cover, but the men would not let her. She did, however, manage to destroy a page from her notebook containing telephone numbers.
+4. AMFAUNA-14 tried to dispose of the letter she had just received from AMFAUNA-1 by leaving it on the desk of a fellow employee together with some potatoes and a carrot for cover, but the men would not let her. She did, however, manage to destroy a page from her notebook containing telephone numbers.
 
 5. At the DSE headquarters in Villa Maristas, AMFAUNA-14 was turned over to a militiaman who had her strip and performed a body search on her. She was fingerprinted and photographed and her biographical data were taken down, after which she was locked in a cell which had an adjoining private bath. Nothing else of importance happened for the rest of the day.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5362.png
-
-Convert to MarkdownX 172-2845
+X 172-2845
 
 EX 00 A(8) 322/17056-69
 

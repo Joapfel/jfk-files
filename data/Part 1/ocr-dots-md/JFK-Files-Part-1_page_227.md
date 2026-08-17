@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_227.png
-
-Convert to Markdown106 Chung Shan Road, North, 2nd Section
+106 Chung Shan Road, North, 2nd Section
 Taipei, Taiwan
 
 REC'D WAS OCT 4 1966

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2700.png
-
-Convert to Markdown<table><thead><tr><th>NAME OF AGENCY</th><th>SIGNATURE AND OFFICIAL TITLE</th><th>DATE</th></tr></thead><tbody><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th>NAME OF AGENCY</th><th>SIGNATURE AND OFFICIAL TITLE</th><th>DATE</th></tr></thead><tbody><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></tbody></table>
 
 ## PART IV.—DETERMINATION OF CREDITABLE SERVICE AND SERVICE COMPUTATION DATE FOR LEAVE PURPOSES
 

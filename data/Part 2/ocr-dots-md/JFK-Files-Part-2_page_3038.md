@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3038.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 6 November 1959 and "would remain in effect until further notice." The RMD stated in part as follows:
 

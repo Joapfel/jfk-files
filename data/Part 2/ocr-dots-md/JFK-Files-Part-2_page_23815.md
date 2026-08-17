@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23815.png
-
-Convert to Markdown1 Chairman, has been that the work involving the relationship of
+1 Chairman, has been that the work involving the relationship of
 2 the Central Intelligence Agency with American business companies
 3 was severed off from the proprietary work for the simple
 4 reason that they are not the same thing.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11312.png
-
-Convert to MarkdownNRO04 KX CODE
+NRO04 KX CODE
 
 8:10 PM NITEL MARCH 25, 1975 WEH
 

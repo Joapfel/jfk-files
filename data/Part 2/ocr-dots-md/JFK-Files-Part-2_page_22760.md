@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22760.png
-
-Convert to MarkdownHW
+HW
 
 410 Fort Street, S.E., Washington, D.C. 20003
 

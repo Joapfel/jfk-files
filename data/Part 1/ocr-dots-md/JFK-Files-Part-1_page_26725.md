@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26725.png
-
-Convert to Markdown**Agel 73-AICO-24**
+**Agel 73-AICO-24**
 
 **30 Apr il 1965**
 

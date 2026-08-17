@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5026.png
-
-Convert to MarkdownBy internal Bureau memorandum dated 5/13/61, it
+By internal Bureau memorandum dated 5/13/61, it
 was noted that information from a confidential in-
 formant (Rowe) was received concerning the pos-
 sibility that local authorities may allow dis-

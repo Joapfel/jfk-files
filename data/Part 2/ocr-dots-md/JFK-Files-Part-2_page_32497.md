@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32497.png
-
-Convert to MarkdownSECRET-NO FOREIGN DISSEM
+SECRET-NO FOREIGN DISSEM
 
 Venezuelan Communists Plan to Increase Violence
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6681.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>FORM G-329 A REV. 6-1-87</td></tr><tr><td>BIOGRAPHIC INFORMATION</td></tr></table>
 

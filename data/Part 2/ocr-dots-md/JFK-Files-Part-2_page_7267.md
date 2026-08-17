@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7267.png
-
-Convert to MarkdownCABLE SEC DISSEM BY ______ PER ______ TOTAL COPIES ______ N BY ______
+CABLE SEC DISSEM BY ______ PER ______ TOTAL COPIES ______ N BY ______
 
 <table><thead><tr><td>ACTION UNIT</td><td>RF. FILE</td><td>VR.</td></tr></thead><tbody><tr><td>INFORMATION</td><td></td><td></td></tr></tbody></table>
 

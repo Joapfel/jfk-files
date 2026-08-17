@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5305.png
-
-Convert to MarkdownSecret
+Secret
 
 5 March 1997
 

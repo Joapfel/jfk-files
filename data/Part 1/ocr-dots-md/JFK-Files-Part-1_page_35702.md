@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35702.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Deputy Chief, Special Security Division
 

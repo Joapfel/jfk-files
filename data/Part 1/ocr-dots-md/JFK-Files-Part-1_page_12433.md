@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12433.png
-
-Convert to MarkdownLos manifestos de Exportación Especiales por la Administración de Aduana en Maquatofta, Ciudad Ecliven y Santa Elena de Guirón sefisan los destinatarios siguientes:
+Los manifestos de Exportación Especiales por la Administración de Aduana en Maquatofta, Ciudad Ecliven y Santa Elena de Guirón sefisan los destinatarios siguientes:
 
 | Destinatario | Expedidor | Licencia |
 |---|---|---|

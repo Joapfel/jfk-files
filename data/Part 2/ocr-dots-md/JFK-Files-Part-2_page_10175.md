@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10175.png
-
-Convert to MarkdownH. RES. 1074
+H. RES. 1074
 
 IN THE HOUSE OF REPRESENTATIVES
 

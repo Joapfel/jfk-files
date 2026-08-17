@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_29264.png
-
 agent in charge of the Dallas Field Office for the F.B.I. He stated that he has not seen or had contact with Andrews in quite some time, for over a year, but that he has seen Norma Holiman recently. Mr. Taylor stated that he had worked for Sellers Company or Sellers T.V. Studio at 2102 Johnson Street in Dallas, Texas. in 1963 and 1966. He stated that he worked as a sound engineer and that there were only
 
 NW 88326 DocID:32256841 Page 9

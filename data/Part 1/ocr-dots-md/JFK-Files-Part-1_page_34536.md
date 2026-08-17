@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34536.png
-
-Convert to MarkdownA person's national passport should act as evidence of the date of his departure from the U.S.S.R.
+A person's national passport should act as evidence of the date of his departure from the U.S.S.R.
 
 A Soviet tourist visa is valid for entry into the U.S.S.R. and exit during the time specified and is valid during the cities enumerated in the Visa. A tourist in and leaves the U.S.S.R. only through the border point indicated in his Soviet visa.
 

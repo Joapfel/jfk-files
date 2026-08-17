@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15608.png
-
-Convert to MarkdownAttachment A
+Attachment A
 
 NAME: David TITANOVILI
 PLACE OF BIRTH: Corinor Tiflis, Georgia, USSR

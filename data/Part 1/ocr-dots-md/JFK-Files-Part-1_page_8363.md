@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8363.png
-
-Convert to MarkdownSOURCE: (18-325)
+SOURCE: (18-325)
 DATE: Jueves 9 de enero de 1969.
 PARTICIPANTS: 1,2,4,5,10,14.
 FILE:

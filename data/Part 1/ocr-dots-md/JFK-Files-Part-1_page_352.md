@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_352.png
-
-Convert to Markdown14-00000
+14-00000
 
 YAMADA, SHIZUO
 1131 University Blvd. West

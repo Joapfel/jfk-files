@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31086.png
-
-Convert to Markdown② State Cables - Nov, Dec. 1977 - Visas for wife & child of Orlando Bosch
+② State Cables - Nov, Dec. 1977 - Visas for wife & child of Orlando Bosch
 
 ③ State Cables - bombings - July 12-13, 1976
 

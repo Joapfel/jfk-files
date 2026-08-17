@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18269.png
-
-Convert to MarkdownMarch 30, 1965
+March 30, 1965
 
 MEMORANDUM FOR THE ATTORNEY GENERAL
 

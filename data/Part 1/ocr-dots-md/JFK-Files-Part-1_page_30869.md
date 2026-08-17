@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30869.png
-
-Convert to MarkdownSECRET
+SECRET
 
 17 OCTOBER 1970
 

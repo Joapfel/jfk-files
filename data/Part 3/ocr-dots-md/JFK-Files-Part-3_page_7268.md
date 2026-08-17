@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7268.png
-
-Convert to MarkdownE-16 Interrelationship of Arab Terrorist Groups and U. S. Black Militants
+E-16 Interrelationship of Arab Terrorist Groups and U. S. Black Militants
 
 E-17 Jewish Defense League; An Assessment
 

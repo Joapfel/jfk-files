@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9611.png
-
-Convert to Markdown# National Committee to Combat Fascism
+# National Committee to Combat Fascism
 
 Set up to coexist with Black Panther Party branches in various cities in the United States are chapters of another organization called National Committee to Combat Fascism. In actuality, there is little difference between the two. This group, a Panther Party front, was set up as the result of a revolutionary conference, called National Conference for a United Front Against Fascism, held in Oakland, California, in July, 1969. The conference, sponsored by the Black Panther Party and assisted by the anarchist Students for a Democratic Society and the Communist Party, USA, was called to form a coalition of black and white radicals, described as "oppressed people."
 

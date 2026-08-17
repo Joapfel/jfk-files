@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24187.png
-
-Convert to MarkdownTAB D
+TAB D
 Page 2
 
 IUQUEST/IUABATE/IUPAGAN - Substantial assets of these two IUQUEST air proprietary entities were sold in 1975 to a bona fide aviation company which was made witting for purposes of the sale. No agreement was nego- tiated or implied at the time of sale for Agency use or purchase of goods or services from the company which purchased the assets. To date, no goods or services have been purchased from the buyer. The entities were subsequently liquidated.

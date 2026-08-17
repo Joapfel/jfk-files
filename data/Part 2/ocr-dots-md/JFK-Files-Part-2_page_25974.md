@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25974.png
-
-Convert to Markdown-6-
+-6-
 
 LANSDALE: He was one of a planning group who were
 planning the operation, but he wasn't a chief,

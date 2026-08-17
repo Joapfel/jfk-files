@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12965.png
-
-Convert to MarkdownThe following is a summary of a two page report,
+The following is a summary of a two page report,
 dated 10/2/74, furnished by Mary Jo Cook, former FBI
 inform·nt.
 

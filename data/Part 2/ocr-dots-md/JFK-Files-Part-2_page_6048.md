@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6048.png
-
-Convert to MarkdownHENRY F. GRAFF cont'd
+HENRY F. GRAFF cont'd
 
 **ARTICLES:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8602.png
-
-Convert to Markdowndifficult phase of the operation -- installing the machine on the mountain top.
+difficult phase of the operation -- installing the machine on the mountain top.
 
 The first thing that had to be done was to gain the permission of the Indian government to implement the scheme, not a large problem in view of the CIA's close relations with the Indian intelligence service. The Indians not only agreed but, surprisingly, insisted on full participation in the project. Next, the Agency recruited a group of experienced mountain climbers to carry the device, complete with its nuclear powerpack, pp the mountain and put it into operation. A well-known American mountaineer who had previously conquered Mt. Everest, Barry Bishop, was contacted and convinced to lead the climb. Overall control of the operation, however, was placed in the hands of an experienced CIA case officer.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21952.png
-
-Convert to MarkdownIV. CIA Efforts to Promote a Coup
+IV. CIA Efforts to Promote a Coup
 
 A. The Chilean Conspirators
 

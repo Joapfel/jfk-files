@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34461.png
-
-Convert to MarkdownEMERGENCY INSTRUCTIONS
+EMERGENCY INSTRUCTIONS
 
 Instructions and procedures are set forth below for the handling of emergency situations such as fire, the escape or attempted escape of SUBJECT, and the sudden illness or serious injury to the SUBJECT. Should such situations arise, it might be necessary to call on the Police, the Fire Department, or outside medical facilities for assistance. It is possible that in such an event representatives of the press or curiosity-seekers in the local community might be attracted to the site, thereby creating security problems with respect to the custody and protection of the SUBJECT from a publicity standpoint.
 

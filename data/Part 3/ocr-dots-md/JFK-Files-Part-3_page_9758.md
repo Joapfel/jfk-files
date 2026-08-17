@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9758.png
-
-Convert to Markdown1 - Mr. J. B. Adams
+1 - Mr. J. B. Adams
 
 1 - Mr. J. A. Mintz
 

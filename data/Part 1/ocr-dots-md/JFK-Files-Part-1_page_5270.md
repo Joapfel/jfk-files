@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5270.png
-
-Convert to MarkdownS-C-F-18
+S-C-F-18
 
 CONTROLLED DISSEM
 

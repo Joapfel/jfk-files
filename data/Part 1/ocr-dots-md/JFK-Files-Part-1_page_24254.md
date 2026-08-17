@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24254.png
-
-Convert to MarkdownWOGEAR Review of African Liberation Movements
+WOGEAR Review of African Liberation Movements
 
 In general, the author has done a reasonably good job describing the historical development of the various African liberation movements, especially when one considers the complexity and number of splits and mergers that have occurred within and among the movements over the years. There are several glaring inaccuracies, however, in the author's conclusions about the current position and effectiveness of the several Portuguese African liberation movements.
 

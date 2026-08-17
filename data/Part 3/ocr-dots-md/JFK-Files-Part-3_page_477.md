@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_477.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 In July, 1964, an anonymous letter was sent to a number of individuals in the Superior, Wisconsin, area who advertised in "Tyomies-Eteempain," a Finnish language newspaper published in Wisconsin noting the similarity of editorials in "The Worker," published by the Communist Party, USA, to alert these advertisers to the communist nature of this newspaper so they might withdraw their support.
 

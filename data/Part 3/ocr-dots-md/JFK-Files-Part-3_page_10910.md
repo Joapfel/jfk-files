@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10910.png
-
-Convert to Markdownd. Dulles Committee, 1949
+d. Dulles Committee, 1949
 
 The Dulles Committee was appointed February 3, 1948, by the National Security Council (NSC) to make a "comprehensive, impartial and objective survey of the organization, activities and personnel of the Central Intelligence Agency (CIA)." The Committee was instructed to report its findings and recommendations on the following matters:
 

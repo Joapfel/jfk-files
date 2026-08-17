@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24774.png
-
-Convert to Markdown30 June 1967
+30 June 1967
 
 MEMORANDUM FOR THE RECORD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15673.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 APPENDIX
 

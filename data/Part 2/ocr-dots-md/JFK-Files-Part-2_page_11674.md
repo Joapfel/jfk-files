@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11674.png
-
-Convert to MarkdownRE: REVISED PAGES
+RE: REVISED PAGES
 
 There are enumerated below pages of the Manual of Rules and Regulations, enclosed herewith, which have been revised. Revisions appearing on these pages are identified by brackets. The date appearing at the bottom of the page's indicates the date of revision. The new pages should be inserted immediately in the appropriate section and the old corresponding pages should be removed and turned over to the Special Agent in Charge who has the responsibility for the appropriate destruction of these old pages.
 

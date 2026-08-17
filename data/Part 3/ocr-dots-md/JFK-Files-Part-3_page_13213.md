@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13213.png
-
-Convert to Markdown- Rome Raily American - a cover operation
+- Rome Raily American - a cover operation
 
 - Fodor's Travel Guides - Hunt questioned whether it had any use. Had been set up in 1946 as cover.
 

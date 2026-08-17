@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7145.png
-
-Convert to Markdown14 February 1966
+14 February 1966
 
 MEMORANDUM FOR THE RECORD:
 

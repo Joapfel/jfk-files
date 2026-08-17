@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1714.png
-
-Convert to MarkdownTo: Mr. Jack Kennedy
+To: Mr. Jack Kennedy
 WH/L/Security
 
 Mr. Kennedy,

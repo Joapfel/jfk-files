@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21630.png
-
-Convert to Markdown1. it pixie-like.
+1. it pixie-like.
 
 2 Mr. Phillips. But many times the cryptonums mean ab-
 solutely nothing, they have no meaning at all.

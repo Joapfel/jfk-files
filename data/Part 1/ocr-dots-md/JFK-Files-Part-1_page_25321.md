@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25321.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Phone - None Known
 Arrived in Mexico 8 July 1955, accompanied by wife Lyudzilla, and daughter Lsatalia, age unknown.

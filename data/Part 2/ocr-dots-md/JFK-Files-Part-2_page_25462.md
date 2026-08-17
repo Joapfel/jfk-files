@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25462.png
-
-Convert to MarkdownML: Yeah I saw him give money to some Cubans. I was with him at the time.
+ML: Yeah I saw him give money to some Cubans. I was with him at the time.
 
 FS: Now you got very friendly with Petty Humanez, isn't that correct?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21187.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 She told him she was pregnant about May 1, 1962, and he was transferred from Moscow during that month. NOSENKO transferred from the American Embassy Section in early January, 1962, and thus would logically not have knowledge of [GAFFEY'S] (S) intimacy with IVANOVA.
 

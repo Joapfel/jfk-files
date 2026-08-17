@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5008.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (Secret/Top secret)
 

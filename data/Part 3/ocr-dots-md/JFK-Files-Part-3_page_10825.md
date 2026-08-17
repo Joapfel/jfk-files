@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10825.png
-
-Convert to Markdown# e. The Director's Stand Over the Years
+# e. The Director's Stand Over the Years
 
 The Director's stand over the years with respect to jurisdiction concerning foreign intelligence matters within the United States is reflected in numerous comments he has made dating back to the days when the Central Intelligence Group (CIG) was being formed.
 

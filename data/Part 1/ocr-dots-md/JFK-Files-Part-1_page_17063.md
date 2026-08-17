@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17063.png
-
-Convert to Markdown2. LILYRIC (MEXI-132) is a basehouse located near the front of the Soviet Embassy. This house has been in operation since October 1956. It is rented through LIMOUSINE (201-5762), a cleared American businessman. He is the ostensible owner of record and, as the landlord, collects rent from the tenants and then passes it to the station case officer. LIEMPTY-13 and his family (see paragraph 3 below) live in the LILYRIC house and conduct their surveillance operation from it during daylight hours (0800-1800).
+2. LILYRIC (MEXI-132) is a basehouse located near the front of the Soviet Embassy. This house has been in operation since October 1956. It is rented through LIMOUSINE (201-5762), a cleared American businessman. He is the ostensible owner of record and, as the landlord, collects rent from the tenants and then passes it to the station case officer. LIEMPTY-13 and his family (see paragraph 3 below) live in the LILYRIC house and conduct their surveillance operation from it during daylight hours (0800-1800).
 
 3. LIEMPTY-13 (201-119961) is the key member of the LILYRIC basehouse team. He maintains contact with the principal agent and does some photographic work. However, because LIEMPTY-13 is employed outside as an industrial engineer, he is unable to spend much time operating the LILYRIC photographic equipment, and most of this work is done by his wife, LIEMPTY-14, and their sons, LIEMPTY-28 and LIEMPTY-27 (see paragraphs 4, 5 and 6 below).
 

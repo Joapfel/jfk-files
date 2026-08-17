@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34623.png
-
-Convert to MarkdownUNDERTAKING REGARDING OBLIGATIONS AND SECRECY
+UNDERTAKING REGARDING OBLIGATIONS AND SECRECY
 
 In consideration of arrangements being made by the CENTRAL INTELLIGENCE AGENCY for my future employment and welfare, I freely acknowledge that I have no outstanding claims of any nature against the CENTRAL INTELLIGENCE AGENCY. Further acknowledge that there are no commitments to me on the part of the CENTRAL INTELLIGENCE AGENCY which remain unsatisfied arising out of any of my prior associations with the Agency. I fully understand that the current arrangements between myself and the CENTRAL INTELLIGENCE AGENCY are intended to completely encompass all obligations of any nature whatsoever made to me by the CENTRAL INTELLIGENCE AGENCY.
 

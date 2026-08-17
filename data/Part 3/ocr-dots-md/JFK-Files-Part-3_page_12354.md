@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12354.png
-
-Convert to Markdown# UNITED STATES GOVERNMENT
+# UNITED STATES GOVERNMENT
 Memorandum
 
 TO : Mr. Adams

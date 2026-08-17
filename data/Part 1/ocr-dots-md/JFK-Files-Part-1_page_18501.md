@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18501.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Pilled In)
 
 <table><tr><td>NAME OF EMPLOYEE (Last, First, Middle)</td><td>NAML AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr><tr><td>Harvey, William</td><td>Self</td><td>68-0533</td></tr></table>

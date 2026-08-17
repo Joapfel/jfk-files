@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21727.png
-
-Convert to Markdown1. Mr. Baron. It appears to me that the Bandoeng Conference took place, according to Article Lazarus's testimony, in 1955 and that the incident he was describing was either in '55 or late in '54.
+1. Mr. Baron. It appears to me that the Bandoeng Conference took place, according to Article Lazarus's testimony, in 1955 and that the incident he was describing was either in '55 or late in '54.
 2. Mr. Hunt. I had no recollection of it whatever. Article is not suggesting that some basis for personal animosity, I trust.
 3. Mr. Baron. No. He did say, though, that you might have had knowledge of that suggestion, although he wasn't sure of it. He said you were involved at that time in a place where you might have seen cable traffic like that.
 4. Mr. Hunt. That's quite right, but I never saw that traffic.

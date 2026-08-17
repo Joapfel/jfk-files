@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9283.png
-
-Convert to MarkdownDE T-1 advised on April 21, 1971, that the Free
+DE T-1 advised on April 21, 1971, that the Free
 Breakfast for School Children Program is currently operating
 five days a week at the following locations:
 

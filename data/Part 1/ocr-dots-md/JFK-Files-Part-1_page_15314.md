@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15314.png
-
-Convert to Markdown53. During those three months of "surgical operation" David get in contact with Irakli LARDIPANIDZE, a boyfriend of his sister Helen who worked with the East- Inistry (Ost-Ministriium). Irakly, who worked with the "SD" (Sicherheitsdienst, Security Service), and who later married Helen, had just received order to go to Paris.
+53. During those three months of "surgical operation" David get in contact with Irakli LARDIPANIDZE, a boyfriend of his sister Helen who worked with the East- Inistry (Ost-Ministriium). Irakly, who worked with the "SD" (Sicherheitsdienst, Security Service), and who later married Helen, had just received order to go to Paris.
 
 54. David asked Irakli to give his travel document or order for a short time to him, so he could show those to his superior and to ask for similar ones. Irakli obliged. David photographed the documents - he had no intention to show those to his boss, he was going to make his own documents.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3614.png
-
-Convert to Markdown13-00000
+13-00000
 
 e. Sihanouk's actions toward the US have not been universally popular. This is particularly true among government officials, the business community (who have reason to fear stepped-up nationalization), and the military, where the US retains a considerable reservoir of goodwill.
 

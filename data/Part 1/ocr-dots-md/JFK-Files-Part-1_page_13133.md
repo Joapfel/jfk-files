@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13133.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IRD #72501
 

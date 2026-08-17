@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23687.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL<br>Copies.</th></tr></thead><tbody><tr><td>104 MAR 28 P W H S F I</td><td>2</td></tr><tr><td>ADVANCE COPY</td><td>I</td></tr><tr><td>ISSUED</td><td>SLOTTED</td></tr><tr><td></td><td>TUNED</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL<br>Copies.</th></tr></thead><tbody><tr><td>104 MAR 28 P W H S F I</td><td>2</td></tr><tr><td>ADVANCE COPY</td><td>I</td></tr><tr><td>ISSUED</td><td>SLOTTED</td></tr><tr><td></td><td>TUNED</td></tr></tbody></table>
 
 S E C R E T 281046Z
 

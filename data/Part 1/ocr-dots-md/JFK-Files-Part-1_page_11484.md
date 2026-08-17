@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11484.png
-
-Convert to Markdown2.
+2.
 
 probably does not want L/3 to help his ("Rónulo's") faction and have done
 everything possible to isolate L/3 from his normal social contacts. Rónulo

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30933.png
-
-Convert to Markdown# PERSONALLY-OWNED QUARTERS
+# PERSONALLY-OWNED QUARTERS
 
 Because of the number of inquiries received regarding personally-owned quarters, the following memorandum which has been sent to a number of posts may be useful as a guide to our policy on the subject:
 

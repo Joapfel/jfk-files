@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26621.png
-
-Convert to MarkdownIN 76854
+IN 76854
 
 TDCS-314/10347-66
 PAGE 4 OF 5 PAGES

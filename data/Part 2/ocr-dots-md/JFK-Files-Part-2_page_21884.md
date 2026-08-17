@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21884.png
-
-Convert to Markdown(Gottlieb) was a CIA scientist who was at that time the Science Advisor to Bissell (Bissell, 9/10/75, p. 14).
+(Gottlieb) was a CIA scientist who was at that time the Science Advisor to Bissell (Bissell, 9/10/75, p. 14).
 
 (O'Donnell) said it was "inconceivable that Bissell would direct such a mission without the personal permission of Allen Dulles" (O'Donnell, 9/11/75, p. 44). But the question of authorization was never raised by Bissell:
 

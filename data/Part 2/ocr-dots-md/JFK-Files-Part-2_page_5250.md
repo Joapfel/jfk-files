@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5250.png
-
-Convert to MarkdownSUBJECT: Response to Questions Posed by the John F. Kennedy Assassination Review Board
+SUBJECT: Response to Questions Posed by the John F. Kennedy Assassination Review Board
 
 c. Could a copy of the secrecy agreement which is signed by company officials participating in the commercial cover program be made available, and has it changed since the 1960s? Response: Attached is a copy of the secrecy agreement used from 1955 to 1988 and a copy of the agreement used from 1988 to the present. The only difference is an addendum on the reverse which was added in 1991 pursuant to the Treasury, Postal Service and General Government Appropriations Act of 1991.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24443.png
-
-Convert to Markdownsuch conversations occurred ... I do believe they did occur is that during the entire autumn I suppose I must have spoken to Mr. Dulles practically daily about some aspect of the whole Cuban operation and I am virtually certain that he would in one or another of those conversations and probably more than once have asked if there was anything to report about the Sheffield Edwards' operation. He also may have been in direct contact with Edwards at that time." (Bissell Tr. 6/9/75, pp. 24-26)
+such conversations occurred ... I do believe they did occur is that during the entire autumn I suppose I must have spoken to Mr. Dulles practically daily about some aspect of the whole Cuban operation and I am virtually certain that he would in one or another of those conversations and probably more than once have asked if there was anything to report about the Sheffield Edwards' operation. He also may have been in direct contact with Edwards at that time." (Bissell Tr. 6/9/75, pp. 24-26)
 
 When asked by the Chairman why, in this context,
 persons within the Agency talked "in riddles to one another",

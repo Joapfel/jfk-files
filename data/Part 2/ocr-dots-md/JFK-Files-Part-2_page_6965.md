@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6965.png
-
-Convert to MarkdownFederal News Service, JUNE 4, 1997
+Federal News Service, JUNE 4, 1997
 
 lawyer or not, Mr. Chairman, but I found out that Congressman Stokes -- well, you're lucky you're not a lawyer, but I am, and I'm proud to be a lawyer.
 I found out that Congressman Stokes was responsible for a ruling called Terry versus Ohio, and you might have heard of a "Terry Frisk and Search," and I didn't know that till the other day, that Congressman Stokes had a hand in that, and so, again, we find Congressman Stokes showing up again, sharing his expertise with the country.

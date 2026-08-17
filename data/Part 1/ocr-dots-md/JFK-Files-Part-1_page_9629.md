@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9629.png
-
-Convert to MarkdownYAGUAZA
+YAGUAZA
 
 Fucama
 

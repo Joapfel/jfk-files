@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26101.png
-
-Convert to Markdownstage. I remember General [Lyman L.]
+stage. I remember General [Lyman L.]
 
 Lemnitzer was sitting in the meeting
 

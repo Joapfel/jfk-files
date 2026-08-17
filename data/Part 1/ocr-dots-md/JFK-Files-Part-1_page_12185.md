@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12185.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 WARNING NOTICE
 SENSITIVE INTELLIGENCE SOURCES AND METHODS INVOLVED

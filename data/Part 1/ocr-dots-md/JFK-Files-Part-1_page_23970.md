@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23970.png
-
-Convert to Markdown(I'll be away. . closed on Monday. Washington's birthday)
+(I'll be away. . closed on Monday. Washington's birthday)
 
 Oh, my God, is it?
 

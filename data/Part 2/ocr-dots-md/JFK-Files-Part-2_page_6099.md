@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6099.png
-
-Convert to MarkdownFirst, since 1976, when I became a staff member of the Public Documents Commission, I have been engaged in studies of public records and have become knowledgeable about government recordkeeping and archival practices. I also have been a consistent supporter of the preservation of records and timely access for historical research. Between 1980 and 1988, I participated as a speaker on 15-16 programs having to do with public records, archives or government information policy.
+First, since 1976, when I became a staff member of the Public Documents Commission, I have been engaged in studies of public records and have become knowledgeable about government recordkeeping and archival practices. I also have been a consistent supporter of the preservation of records and timely access for historical research. Between 1980 and 1988, I participated as a speaker on 15-16 programs having to do with public records, archives or government information policy.
 
 Second, as an active researcher in foreign policy records as well as congressional records during the initial stages of the Cold War era, I also have an understanding of the nature of research and the kind of documentation required for such research.
 

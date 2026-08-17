@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31289.png
-
-Convert to MarkdownThe HSCA requested files on twenty-nine individuals who fit the above-mentioned criteria and the CIA provided files on twenty-right individuals in whom they maintained records. Both 201 files were reviewed as well as any writing Domestic Contact Division files regarding those persons.
+The HSCA requested files on twenty-nine individuals who fit the above-mentioned criteria and the CIA provided files on twenty-right individuals in whom they maintained records. Both 201 files were reviewed as well as any writing Domestic Contact Division files regarding those persons.
 
 The HSCA file review revealed that, in the case of six of the individuals, there is no indication that they were attached to the United States. In some cases, the files contained a report from a source who observed or spoke with the subject and then reported the contact to the CIA, but then it was no longer direct contact with any of these persons in the part of the CIA shown here.
 

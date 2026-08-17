@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33071.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Staff, W/SHS
 Chief, MIG; Chief, EUR

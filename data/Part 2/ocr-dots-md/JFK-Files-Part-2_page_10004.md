@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10004.png
-
-Convert to MarkdownPersonal interviews are scheduled with employers, supervisors, and work associates to verify and obtain pertinent details for all employments in the investigative period. Particular care is taken also to verify the fact of unemployment or self-employment claimed by the subject of investigation.
+Personal interviews are scheduled with employers, supervisors, and work associates to verify and obtain pertinent details for all employments in the investigative period. Particular care is taken also to verify the fact of unemployment or self-employment claimed by the subject of investigation.
 
 The last period of education at a college level is always verified by a check of the school records. Secondary education is investigated when the subject is young and has had no subsequent schooling. Personal interviews are conducted with witnesses such as professors and former students who were associated with the subject during recent schooling.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17531.png
-
-Convert to MarkdownSECRET / KAPOK
+SECRET / KAPOK
 
 12 June 1961
 

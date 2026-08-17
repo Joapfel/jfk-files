@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4564.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Larry Murphy
 

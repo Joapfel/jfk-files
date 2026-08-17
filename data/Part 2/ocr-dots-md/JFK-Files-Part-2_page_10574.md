@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10574.png
-
-Convert to Markdown(e) In the case of information contained on fingerprint cards, it is sent to the FBI's Identification Division by authorized contributors, including criminal justice agencies throughout the United States.
+(e) In the case of information contained on fingerprint cards, it is sent to the FBI's Identification Division by authorized contributors, including criminal justice agencies throughout the United States.
 
 HOW AND WHERE INFORMATION ABOUT CONGRESSMEN IS MAINTAINED:
 

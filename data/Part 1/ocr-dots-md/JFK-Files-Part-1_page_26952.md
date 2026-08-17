@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26952.png
-
-Convert to MarkdownChief, Personnel Security Division, OS
+Chief, Personnel Security Division, OS
 
 16 March 1973
 

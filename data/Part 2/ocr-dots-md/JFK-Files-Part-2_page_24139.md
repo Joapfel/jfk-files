@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24139.png
-
-Convert to Markdown21. LPREMEDY
+21. LPREMEDY
 
 A one man accounting and management company located in Europe.
 

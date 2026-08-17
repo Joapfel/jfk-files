@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10709.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 PHILIP MORRIS
 

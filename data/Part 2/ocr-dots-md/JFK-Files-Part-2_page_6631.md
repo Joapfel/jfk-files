@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6631.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Distribution:
 

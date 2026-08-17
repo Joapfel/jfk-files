@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2110.png
-
-Convert to MarkdownSLC:05 010195A
+SLC:05 010195A
 
 RR 10
 DE SL

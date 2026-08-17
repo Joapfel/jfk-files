@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25044.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 custody, and place him in the hands of the Congolese Army,
 where the CIA officer's expectation was that Lumumba would

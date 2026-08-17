@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9212.png
-
-Convert to MarkdownA. Location of Detroit BPP Offices
+A. Location of Detroit BPP Offices
 
 The BPP registered its name with the City
 of Detroit and used 2228 Bewick, Detroit, as its

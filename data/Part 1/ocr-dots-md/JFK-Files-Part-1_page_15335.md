@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15335.png
-
-Convert to Markdown# J. SECURITY RISK.
+# J. SECURITY RISK.
 
 1. Whether the story is right or invented, or "beautified", there are points in it which indicate to some security risks connected with this person:
 

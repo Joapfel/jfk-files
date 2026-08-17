@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23293.png
-
-Convert to Markdown1 between these weapons which were to be used for purposes of
+1 between these weapons which were to be used for purposes of
 2 personal type side-arms, the self-defense attendant to any
 3 project and the desire for assassination weapons which would
 4 have consisted of machine guns.

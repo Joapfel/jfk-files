@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9364.png
-
-Convert to MarkdownLieutenant MC COY advised that KENNETH HORSTON was arrested on March 28, 1971, for possession of a stolen airline ticket valued at over $100.00, however, this charge was dismissed at the examination.
+Lieutenant MC COY advised that KENNETH HORSTON was arrested on March 28, 1971, for possession of a stolen airline ticket valued at over $100.00, however, this charge was dismissed at the examination.
 
 Detective Lieutenant LOUIS SZABO, Flint, Michigan, Police Department, advised on March 30, 1971, that the following persons were arrested at 2009 Albert, Flint, Michigan, the Flint office of the Detroit NCCF:
 

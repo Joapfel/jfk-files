@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3178.png
-
-Convert to MarkdownDuring all the shadowings carried out, subject always managed to go ahead on the yellow light, leaving his shadow generally facing the red light.
+During all the shadowings carried out, subject always managed to go ahead on the yellow light, leaving his shadow generally facing the red light.
 
 - On various occasions he went up one way streets.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22511.png
-
-Convert to MarkdownSECRET-ENCS ONLY
+SECRET-ENCS ONLY
 
 gun parts entered the Republic in specially-marked food cans, which were later turned over to the conspirators.
 

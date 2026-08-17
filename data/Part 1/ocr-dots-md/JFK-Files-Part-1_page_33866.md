@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33866.png
-
-Convert to MarkdownSECRET
+SECRET
 
 has not handled his affairs in a secure or professional manner, and is
 not wanted by the field station. The division plans to terminate his,

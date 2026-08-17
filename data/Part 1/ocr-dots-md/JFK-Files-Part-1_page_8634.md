@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8634.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 questions before opening the letter of credit and that it was essential that the person who arrived here see A, because that will strengthen S' position in the deal. I mentioned the platinum deal because it would give some common ground to the new person being introduced on the scene, but some other story might be as good.
 

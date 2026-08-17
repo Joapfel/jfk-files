@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8868.png
-
-Convert to Markdown1389a
+1389a
 
 <table>
    <tr>

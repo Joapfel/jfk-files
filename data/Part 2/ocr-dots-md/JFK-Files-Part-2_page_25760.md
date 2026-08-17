@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25760.png
-
-Convert to MarkdownMaximum effort would be made to increase the countersubversion capabilities of Fidel's foreign target countries.
+Maximum effort would be made to increase the countersubversion capabilities of Fidel's foreign target countries.
 
 ### Advantages
 

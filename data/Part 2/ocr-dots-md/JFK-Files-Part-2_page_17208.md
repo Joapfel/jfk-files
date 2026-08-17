@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_17208.png
-
-Convert to MarkdownCopies of the enclosed LHM are being furnished to the United States Attorney and U. S. Secret Service, Chicago, and to Region I, 113th MI Group, Evanston, Illinois, in view of those agencies' interests in this matter.
+Copies of the enclosed LHM are being furnished to the United States Attorney and U. S. Secret Service, Chicago, and to Region I, 113th MI Group, Evanston, Illinois, in view of those agencies' interests in this matter.
 
 Interested agencies and individuals such as the United States Attorney, U.S. Secret Service, U.S. Marshal, General Services Administration, Chief U.S. District Judge, all of Chicago and Region I, 113th MI Group, Evanston, Illinois, were notified of the events and activities set forth in the enclosed LHM as they occurred.

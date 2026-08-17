@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17300.png
-
-Convert to Markdownthe entire police version be broadcast without inter-
+the entire police version be broadcast without inter-
 ruption." He also reported that "other local TV
 stations reported they had been offered the same story
 possibility, but news directors there say they had re-

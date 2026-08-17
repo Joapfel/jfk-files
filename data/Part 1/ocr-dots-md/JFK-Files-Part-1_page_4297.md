@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4297.png
-
-Convert to Markdown-2-
+-2-
 
 Extra expenses in Panama (taxis, drinks with Major Arauz, aide of the President $ 20.00
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11919.png
-
-Convert to MarkdownFOR CIA OFFICIALS ONLY
+FOR CIA OFFICIALS ONLY
 
 provided on 13 November 1975.
 

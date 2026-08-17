@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25010.png
-
-Convert to MarkdownNo. 247
+No. 247
 
 La Embajada de la Unión de Repúblicas Socin-
 listas Soviéticas saluda muy atentamente a la Em-

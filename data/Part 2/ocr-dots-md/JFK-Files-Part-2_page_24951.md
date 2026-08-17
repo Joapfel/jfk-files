@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24951.png
-
-Convert to Markdown# COS INFORMS DCI SCHLESINGER OF ASSASSINATION PLAN
+# COS INFORMS DCI SCHLESINGER OF ASSASSINATION PLAN
 
 COS said that in response to Schlesinger's request for reports on "questionable activities" within the Agency, COS met with him. COS said that he informed Schlesinger verbally that he had received instructions to try to assassinate Lumumba. COS said that he did not mention a poison virus to Schlesinger. COS said that Schlesinger did not make a response to this information. COS was unaware of any follow-up that was taken due to his briefing of Schlesinger.
 

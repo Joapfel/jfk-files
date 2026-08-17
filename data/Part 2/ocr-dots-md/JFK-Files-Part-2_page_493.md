@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_493.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">PERIODIC NOTIFIED</td>
     <td>ADVANCE COPY ☐ ISSUED ☑ SLotted</td>

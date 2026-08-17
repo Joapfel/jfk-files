@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16305.png
-
-Convert to MarkdownSince being organized by GEARY, the YP has acted as his cheering section at Uptown civic meetings. During the summer of 1969, 40 to 50 would attend these meetings but recently no more than 8 or 10 show up at the meetings.
+Since being organized by GEARY, the YP has acted as his cheering section at Uptown civic meetings. During the summer of 1969, 40 to 50 would attend these meetings but recently no more than 8 or 10 show up at the meetings.
 
 The YP acts as a voting block for GEARY'S programs and attempts to shout down opposition to him.
 

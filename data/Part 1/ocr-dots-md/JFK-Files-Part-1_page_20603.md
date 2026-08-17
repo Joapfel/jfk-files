@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20603.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **IV. Banking Arrangements**
 

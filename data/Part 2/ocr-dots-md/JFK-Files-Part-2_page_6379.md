@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6379.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 27 October 1994
 

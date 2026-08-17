@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3162.png
-
-Convert to MarkdownParty to have a situation where an individual in an organization,
+Party to have a situation where an individual in an organization,
 a leader of an organization, efforts are being made to
 influence him and to achieve control over the organization,
 and it is part of the overall investigation of the Party

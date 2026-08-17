@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18750.png
-
-Convert to MarkdownSTANDARD FORM NO. 88
+STANDARD FORM NO. 88
 
 CONFIDENTIAL
 

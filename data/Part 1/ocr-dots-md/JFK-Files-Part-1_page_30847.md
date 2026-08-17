@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30847.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Jeremy K. BENADUM, Payment of Annuity
 

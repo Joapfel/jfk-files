@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9721.png
-
-Convert to MarkdownSECRET
+SECRET
 
 S E C R E T 232236Z NOV 68 · CITE GUATEMALA CITY 9739
 

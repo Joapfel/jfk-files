@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3428.png
-
-Convert to Markdown# ORGANIZATION
+# ORGANIZATION
 
 HR 1-11e
 

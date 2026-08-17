@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12882.png
-
-Convert to Markdown14-0000C
+14-0000C
 
 SECRET
 

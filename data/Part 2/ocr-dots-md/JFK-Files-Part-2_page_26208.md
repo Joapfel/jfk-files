@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26208.png
-
-Convert to Markdownto carry out essentially political reforms,
+to carry out essentially political reforms,
 and getting some of the just criticism of
 the opposition considered in the governing
 body. Another thing was on the police, of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6434.png
-
-Convert to MarkdownTHE JOINT CHIEFS OF STAFF
+THE JOINT CHIEFS OF STAFF
 WASHINGTON 20, D.C.
 
 2 February 1962

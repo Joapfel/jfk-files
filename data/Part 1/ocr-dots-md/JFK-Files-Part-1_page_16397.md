@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16397.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Dominican Republic
 

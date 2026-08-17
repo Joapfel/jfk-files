@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6128.png
-
-Convert to Markdownp. The National States Rights Party;
+p. The National States Rights Party;
 
 q. California Anti-Communist League;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23804.png
-
-Convert to Markdown1 there more or less under the auspices of the church group.
+1 there more or less under the auspices of the church group.
 
 2 Mr. Kirbow. At least a local church frequently sponsored
 3 them.

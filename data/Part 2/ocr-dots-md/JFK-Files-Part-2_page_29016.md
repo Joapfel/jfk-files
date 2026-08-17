@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29016.png
-
-Convert to MarkdownCapital Loss Carryover
+Capital Loss Carryover
 
 Form 4798
 Department of the Treasury

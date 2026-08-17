@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33420.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>07-18-69</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5930.png
-
-Convert to MarkdownCIA - 105
+CIA - 105
 2 April 1982
 
 Chief, Task Force/U

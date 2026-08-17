@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27042.png
-
-Convert to MarkdownTSD Officers in charge of training and in charge of
+TSD Officers in charge of training and in charge of
 technical assistance for:
 
 (a) Penetration of locks and other security barriers in connection with surreptitious entry;

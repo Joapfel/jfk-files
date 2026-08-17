@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6118.png
-
-Convert to Markdown3. Do you have any plans, commitments or agreements after completing government service to resume employment, affiliation or practice with your previous employer, business firm, association or organization?
+3. Do you have any plans, commitments or agreements after completing government service to resume employment, affiliation or practice with your previous employer, business firm, association or organization?
 
 Yes. Continue my current position.
 

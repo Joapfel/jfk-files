@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11692.png
-
-Convert to MarkdownSince 1967 this program has been significantly
+Since 1967 this program has been significantly
 modified in that this vast network of informants have been
 changed from listening posts to individuals who are actively
 seeking extremist information as well as information concerning

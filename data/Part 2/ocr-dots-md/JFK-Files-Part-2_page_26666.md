@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26666.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1958-04-26
 

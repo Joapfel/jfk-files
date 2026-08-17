@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23493.png
-
-Convert to MarkdownGray said that shortly after the BERLIN TUNNEL, Eisenhower said, "I want the 54/12 committee to consider any action that impinges upon the sovereignty of another country."
+Gray said that shortly after the BERLIN TUNNEL, Eisenhower said, "I want the 54/12 committee to consider any action that impinges upon the sovereignty of another country."
 
 TOP SECRET
 

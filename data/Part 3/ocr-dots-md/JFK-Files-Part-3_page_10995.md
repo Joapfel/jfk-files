@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10995.png
-
-Convert to Markdown7.) Attorney General's file.
+7.) Attorney General's file.
 
 8.) Assistant Attorney General's file.
 

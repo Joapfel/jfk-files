@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28087.png
-
-Convert to Markdownthe tape and distributed it to all radio stations in the Seventh District; wrote and recorded grant announcements in my voice to be broadcast on the radio; wrote and edited statements for presentation to House and Senate Committees; responsible for contact with newspaper, radio and T. V. reporters; read District newspapers and clipped to maintain a knowledge of events in the District.
+the tape and distributed it to all radio stations in the Seventh District; wrote and recorded grant announcements in my voice to be broadcast on the radio; wrote and edited statements for presentation to House and Senate Committees; responsible for contact with newspaper, radio and T. V. reporters; read District newspapers and clipped to maintain a knowledge of events in the District.
 
 Feb. 1963 - Nov. 1967
 Secretary to Mr. John Marshall, Executive Vice President National Association of Dairy Equipment Manufacturers, 1012 14th Street, N. W., Washington, D. C.

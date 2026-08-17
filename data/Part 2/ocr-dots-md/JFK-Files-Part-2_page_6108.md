@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6108.png
-
-Convert to Markdownbeen concerned with the declassification of historically valuable documents. As a result, I am very familiar with FOIA and the Executive Orders that control declassification.
+been concerned with the declassification of historically valuable documents. As a result, I am very familiar with FOIA and the Executive Orders that control declassification.
 
 2. What do you consider to be your primary responsibilities and priorities as an ARRB member?
 

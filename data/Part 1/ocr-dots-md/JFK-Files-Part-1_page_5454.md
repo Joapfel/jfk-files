@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5454.png
-
-Convert to MarkdownSECRET NO FOREIGN DISSEM / CONTROLLED DISSEM
+SECRET NO FOREIGN DISSEM / CONTROLLED DISSEM
 
 (classification) (dissemination)
 

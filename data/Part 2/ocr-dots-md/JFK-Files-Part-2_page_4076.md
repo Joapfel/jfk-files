@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4076.png
-
-Convert to Markdown**Renzel**
+**Renzel**
 
 **Service Status:** Korean War veteran, receiving $150.00 wound disability
 

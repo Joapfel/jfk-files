@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24714.png
-
-Convert to Markdownthat the President expressed himself, we will have
+that the President expressed himself, we will have
 to do whatever is necessary to get rid of him. I
 don't know that I would have taken that as a
 clearcut order as Mr. Johnson apparently did. And

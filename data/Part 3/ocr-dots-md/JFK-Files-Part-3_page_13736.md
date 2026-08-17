@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13736.png
-
-Convert to Markdown110226
+110226
 
 but only served one year
 Granted cover security clearance in

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16801.png
-
-Convert to MarkdownSpecimen Q225 is a distorted brass primer cup that appears to have separated from a cartridge or shotshell, as a result of a primer "blowback". This occurs when the nowcer charge is ignited by some means other than normal firing of a cartridge or shotshell and resulting pressure blows the prizer.
+Specimen Q225 is a distorted brass primer cup that appears to have separated from a cartridge or shotshell, as a result of a primer "blowback". This occurs when the nowcer charge is ignited by some means other than normal firing of a cartridge or shotshell and resulting pressure blows the prizer.
 
 ## EXAMINATION OF DAMAGED BOOKS
 

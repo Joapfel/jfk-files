@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18027.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 
 Re: Legal Advice for Present or Former Bureau Employees
 

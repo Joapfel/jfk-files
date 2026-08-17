@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26861.png
-
-Convert to MarkdownA Well, the membership varied. As I said, we were principally interested in the leadership of the organizations. Once the organization was established and the leadership took over, then they would take care of enlisting the, I guess, getting membership from the Cuban exile community to join.
+A Well, the membership varied. As I said, we were principally interested in the leadership of the organizations. Once the organization was established and the leadership took over, then they would take care of enlisting the, I guess, getting membership from the Cuban exile community to join.
 
 Q What were their functions, the fronts?
 

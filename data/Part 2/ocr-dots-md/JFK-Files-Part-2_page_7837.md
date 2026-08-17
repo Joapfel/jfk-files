@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7837.png
-
-Convert to Markdown13-00000
+13-00000
 
 C/SS
 to

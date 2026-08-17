@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3993.png
-
-Convert to MarkdownSECRET
+SECRET
 
 February 1965 in connection with a visit to a Presidential relocation site.
 

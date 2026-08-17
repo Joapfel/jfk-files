@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4207.png
-
-Convert to MarkdownThe President then said that he supported this, but at the same time he wanted to make it abundantly clear that he did not think we had to reform every Asian into our own image. He said that he felt all too often when we engaged in the affairs of a foreign country we wanted to immediately transform that country into our image and this, in his opinion, was a mistake. He was anxious to get along, win the war - he didn't want as much effort placed on so-called social reforms.
+The President then said that he supported this, but at the same time he wanted to make it abundantly clear that he did not think we had to reform every Asian into our own image. He said that he felt all too often when we engaged in the affairs of a foreign country we wanted to immediately transform that country into our image and this, in his opinion, was a mistake. He was anxious to get along, win the war - he didn't want as much effort placed on so-called social reforms.
 
 Note: I received in this meeting the first "President Johnson tone" for action as contrasted with the "Kennedy tone". Johnson definitely feels that we place too much emphasis on social reforms; he has very little tolerance with our spending so much time being "do-gooders"; and he has no tolerance whatsoever with bickering and quarreling of the type that has gone on in South Vietnam.
 

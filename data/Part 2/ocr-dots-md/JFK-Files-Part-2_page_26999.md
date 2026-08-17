@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26999.png
-
-Convert to MarkdownEYES G.U.
+EYES G.U.
 
 use of Cutan pilots would involve a delay of some months due to the
 precise training required. - General Carter pointed out that we are

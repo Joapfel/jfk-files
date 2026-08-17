@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30969.png
-
-Convert to MarkdownIndex - Star -> documents or files
+Index - Star -> documents or files
 1BM -> 201 or operational activities file
 name-grouping used for storage &
 retrieval

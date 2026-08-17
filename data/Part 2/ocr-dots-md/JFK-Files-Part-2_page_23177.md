@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23177.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. on that, someone who did do some work in the Cuban activities, supposedly on the anti-Castro side.
 

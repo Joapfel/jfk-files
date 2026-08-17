@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24446.png
-
-Convert to Markdownrelied on Edwards) placed the briefing of Dulles in "the latter part of September 1960".
+relied on Edwards) placed the briefing of Dulles in "the latter part of September 1960".
 
 Bissell did not have a clear independent recollection
 of the dates involved, but recalled that discussions concerning

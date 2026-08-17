@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3604.png
-
-Convert to MarkdownNOTES
+NOTES
 
 A. **USSR** New activity involving Soviet range instrumentation ships in the Pacific appears to be forthcoming. Three instrumentation ships left Petropavlovsk 12 days ago and are apparently headed for the more distant Pacific impact area, 6,500 miles from Tyuratam. We are looking for extended range ICBM tests but we do not exclude a space event. There has so far been no announcement closing the area. (INTERCEPTS)
 

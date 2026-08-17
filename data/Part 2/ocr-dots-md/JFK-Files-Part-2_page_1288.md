@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1288.png
-
-Convert to MarkdownSEC. 12. POSITION DATA
+SEC. 12. POSITION DATA
 
 A KIND OF POSITION APPLIED FOR
 Intelligence specialist, Far East,

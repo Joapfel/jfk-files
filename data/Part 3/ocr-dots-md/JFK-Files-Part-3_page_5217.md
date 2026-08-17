@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5217.png
-
-Convert to MarkdownAssociates of LCN Members - 5
+Associates of LCN Members - 5
 
 SF-2656-PC, San Jose
 SF-3123-PC, Oakland

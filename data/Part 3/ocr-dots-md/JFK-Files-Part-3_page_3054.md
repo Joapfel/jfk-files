@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3054.png
-
-Convert to MarkdownPAGE SEVEN
+PAGE SEVEN
 
 SAN DIEGO:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16066.png
-
-Convert to Markdown1. Know Thailand and the considerable Communist threat to its border areas.
+1. Know Thailand and the considerable Communist threat to its border areas.
 
 2. Know the principal personalities in the central Thai government (CTG) concerned with neutralizing the communist threat.
 

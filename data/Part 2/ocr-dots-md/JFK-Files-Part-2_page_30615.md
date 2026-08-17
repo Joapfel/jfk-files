@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30615.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3/10/74 memo Miami DCIS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2281.png
-
-Convert to MarkdownEdwin Warren Bishop
+Edwin Warren Bishop
 037252
 DOB : 29 May 1923
 

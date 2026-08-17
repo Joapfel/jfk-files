@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_909.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 As to the need for an Executive order, we think that two issues are involved. We have statutory authority, but what we need is a definitive requirement from the President as to the nature and type of intelligence data he requires in the pursuit of his responsibilities based on our statutory authority. In other words, there is a need, from our standpoint, for both authoritative and definitive guidelines. The statutes give us the authority. The Executive order would define our national security objectives.
 

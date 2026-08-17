@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24507.png
-
-Convert to MarkdownInfiltración Sóciica
+Infiltración Sóciica
 
 en Sindicatos Peruanos
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30505.png
-
-Convert to MarkdownDaniel A. Parsons
+Daniel A. Parsons
 
 Air Force Cover
 entered 1958 JOT jun. off. training

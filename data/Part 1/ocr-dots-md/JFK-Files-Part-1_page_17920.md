@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17920.png
-
-Convert to Markdown<table><thead><tr><th>REC'D:</th><td>C. LEHRUNG</td></tr></thead><tbody><tr><th>UNIT:</th><td>NHD</td></tr><tr><th>EXT:</th><td>2555</td></tr><tr><th>DATE:</th><td>9 DECEMBER 1957 GCS</td></tr></tbody></table>
+<table><thead><tr><th>REC'D:</th><td>C. LEHRUNG</td></tr></thead><tbody><tr><th>UNIT:</th><td>NHD</td></tr><tr><th>EXT:</th><td>2555</td></tr><tr><th>DATE:</th><td>9 DECEMBER 1957 GCS</td></tr></tbody></table>
 
 CLASSIFIED MESSAGE
 

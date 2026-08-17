@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7853.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 dated 9 June 1968; The Washington Star, dated 9 June
 1968; Washington Post, dated 17 November 1968; Washington

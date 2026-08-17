@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29299.png
-
-Convert to Markdown# FACT SHEET ON LEE HARVEY OSWALD'S SERVICE IN THE MARINE CORPS
+# FACT SHEET ON LEE HARVEY OSWALD'S SERVICE IN THE MARINE CORPS
 
 (requested in undated letter received June 1, 1978)
 

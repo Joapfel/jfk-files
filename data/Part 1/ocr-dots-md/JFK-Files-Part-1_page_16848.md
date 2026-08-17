@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16848.png
-
-Convert to Markdown<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>HMMA-41,734</td></tr></tbody></table>
+<table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>HMMA-41,734</td></tr></tbody></table>
 
 means might be required to continue the KDFACTOR coverage. In February 1972 an apartment became available in the same building complex which houses the KDABSINTHE installation. Through the cooperation of KDABBEY-1, we were able quietly to rent the apartment and install elements of the KDCALVERT team as residents. This location affords as good, if not better, vantage point for continuing photo coverage in the event the present KDABSINTHE location becomes untenable. We are also exploring alternate locations for KDLITERAL to solve the problem we face with this element of KDFACTOR coverage (see below).
 

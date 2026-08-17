@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35130.png
-
-Convert to MarkdownFOMINA
+FOMINA
 
 NEXO "I-E"
 

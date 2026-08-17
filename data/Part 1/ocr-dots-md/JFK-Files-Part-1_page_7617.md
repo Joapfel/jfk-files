@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7617.png
-
-Convert to MarkdownKodak to give English lessons. It was agreed they'd discuss the matter further when Subject (not to be left out of a good thing) visited TROCONIS at Kodak to take advantage of that 30-40% discount. Subject even wanted to get me some film at these fabulous prices, but I said I didn't need any at the moment. I did say, however, that any relationship that developed between TROCONIS and the Soviets would naturally be of interest to us and I'd like to have Subject remain alert to anything he heard from either the Soviets or TROCONIS.
+Kodak to give English lessons. It was agreed they'd discuss the matter further when Subject (not to be left out of a good thing) visited TROCONIS at Kodak to take advantage of that 30-40% discount. Subject even wanted to get me some film at these fabulous prices, but I said I didn't need any at the moment. I did say, however, that any relationship that developed between TROCONIS and the Soviets would naturally be of interest to us and I'd like to have Subject remain alert to anything he heard from either the Soviets or TROCONIS.
 
 Subject said he would.
 

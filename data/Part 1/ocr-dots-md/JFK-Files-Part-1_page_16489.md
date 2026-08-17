@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16489.png
-
-Convert to Markdown29 October 1975
+29 October 1975
 
 SUBJECT: Contact Report on SLANK-1 (S-1)
 

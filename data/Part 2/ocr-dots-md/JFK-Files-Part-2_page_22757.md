@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22757.png
-
-Convert to MarkdownHW 47
+HW 47
 
 TOP SECRET
 

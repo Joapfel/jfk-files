@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15320.png
-
-Convert to MarkdownOffice Memorandum · UNITED STATES GOVERNMENT
+Office Memorandum · UNITED STATES GOVERNMENT
 
 TO : MR. L. V. BOARDMAN
 

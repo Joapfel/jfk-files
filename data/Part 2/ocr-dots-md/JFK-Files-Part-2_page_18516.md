@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18516.png
-
-Convert to MarkdownThese procedures shall apply to all matters covered by para-
+These procedures shall apply to all matters covered by para-
 graph 1. In the event of a specific problem arising with the
 applicability of these procedures to any matters in current litigation
 or any matter to which criminal prosecution is pending, or any matter

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11647.png
-
-Convert to Markdownanalysis of where programs needed shoring up. Those offices
+analysis of where programs needed shoring up. Those offices
 found to be deficient in their coverage were directed to
 submit periodic communications detailing their coverage
 and setting out what steps are being taken to increase the

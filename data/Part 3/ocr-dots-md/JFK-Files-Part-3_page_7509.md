@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7509.png
-
-Convert to MarkdownJune 3, 1975
+June 3, 1975
 
 2 - Mr. S. F. Phillips
 

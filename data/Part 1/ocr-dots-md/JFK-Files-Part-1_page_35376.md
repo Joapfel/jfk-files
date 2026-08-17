@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35376.png
-
-Convert to MarkdownTRANSFERRED TO SAVING ACCOUNTS
+TRANSFERRED TO SAVING ACCOUNTS
 
 "Amex 2"
 

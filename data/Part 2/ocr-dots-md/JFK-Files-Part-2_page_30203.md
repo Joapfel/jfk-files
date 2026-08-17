@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30203.png
-
-Convert to MarkdownFriday 26 May
+Friday 26 May
 
 Sa
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11152.png
-
-Convert to MarkdownC103
+C103
 
 E. BAJADA CUBICA.- 25-07-95.
 10 noviembre 66.- M13-L13.

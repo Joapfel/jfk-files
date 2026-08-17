@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_224.png
-
-Convert to Markdown4 March 1968
+4 March 1968
 
 MEMORANDUM FOR: CI Staff
 

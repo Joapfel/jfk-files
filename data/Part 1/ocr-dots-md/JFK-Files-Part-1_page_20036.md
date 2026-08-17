@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20036.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BEG: 01 JUN 71
 

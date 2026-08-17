@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15334.png
-
-Convert to MarkdownH. RELIABILITY OF THE STORY.
+H. RELIABILITY OF THE STORY.
 
 1. His story gets unbelievable because too often:
 

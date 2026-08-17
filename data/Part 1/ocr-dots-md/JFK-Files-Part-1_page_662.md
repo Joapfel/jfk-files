@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_662.png
-
-Convert to Markdown**Background Information:**
+**Background Information:**
 
 Born April 6, 1921 in Amsterdam, Netherlands
 Single

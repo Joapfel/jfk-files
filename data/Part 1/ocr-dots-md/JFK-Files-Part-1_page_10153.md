@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10153.png
-
-Convert to Markdown14-00000
+14-00000
 
 LIIA.11-7's promotion
 

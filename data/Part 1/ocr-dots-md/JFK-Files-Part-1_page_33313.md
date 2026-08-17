@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33313.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 TABLE 3. IMPORTANT RADIO STATIONS
 

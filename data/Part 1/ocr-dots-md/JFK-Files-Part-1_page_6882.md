@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6882.png
-
-Convert to MarkdownAugust 27th, 1953
+August 27th, 1953
 
 tardy in answering your letter of August returning from Lake Tahoe where I took
 

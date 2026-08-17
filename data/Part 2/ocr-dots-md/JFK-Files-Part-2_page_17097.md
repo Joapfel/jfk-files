@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17097.png
-
-Convert to Markdown1
+1
 
 # BLACK PANTHER PARTY, Also Known As Black Panther Party for Self-Defense
 

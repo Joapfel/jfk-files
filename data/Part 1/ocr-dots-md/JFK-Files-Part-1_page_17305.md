@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17305.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## LIENVOY PRODUCTION - NOVEMBER 1963
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9450.png
-
-Convert to Markdown2 June 1950
+2 June 1950
 
 American Express Company
 65 Broadway

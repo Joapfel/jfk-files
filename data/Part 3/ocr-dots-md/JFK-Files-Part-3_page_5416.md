@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5416.png
-
-Convert to Markdownthe file and send it on up. We have already submitted a great deal of it and intend within the next 10 days to complete the entire matter.
+the file and send it on up. We have already submitted a great deal of it and intend within the next 10 days to complete the entire matter.
 
 **QUESTION:** Is in any of that material now in the Justice Department awaiting approval of the Attorney General?
 

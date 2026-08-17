@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7117.png
-
-Convert to Markdown13-00000
+13-00000
 
 # KNOWN TRAVEL OF LATIN AMERICANS TO AND FROM CUBA - JANUARY 1964
 

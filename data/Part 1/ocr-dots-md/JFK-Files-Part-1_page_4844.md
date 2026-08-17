@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4844.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="6">OUTGOING MESSAGE</td></tr><tr><td>01F</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td colspan="6">SECRET</td></tr><tr><td>STAFF</td><td colspan="5">DIRECTOR</td></tr><tr><td>com/c/2815</td><td>TO: FILE c/o/suas, sec/K 4 close po 0</td><td>809923</td><td>DISTRIBUTION 01-27</td><td></td><td></td></tr><tr><td></td><td></td><td>0</td><td></td><td>PER 1A</td><td></td></tr><tr><td></td><td></td><td>0</td><td></td><td></td><td>06</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29696.png
-
-Convert to MarkdownClassification IUI ULTIMATE
+Classification IUI ULTIMATE
 
 (This form is to be used for material extracted
 from CIA—controlled documents.)

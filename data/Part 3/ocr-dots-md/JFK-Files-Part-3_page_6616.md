@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6616.png
-
-Convert to MarkdownC. EDUCATION
+C. EDUCATION
 
 The 1964 SCLC "yearbook", supra, reflects ABERNATHY is a graduate of Alabama State College, Montgomery, Alabama.
 

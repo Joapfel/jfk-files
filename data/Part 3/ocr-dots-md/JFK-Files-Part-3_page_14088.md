@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14088.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 24-day stay in Cuba, and our Government is equally in the dark about Soviet and Cuban plans for further activities involving other countries in this Hemisphere. Also we are lacking intelligence on Cuba/Communist China discussions. Mr. Murphy reiterated his concern that our lack of information on such matters as these indicates the absence of an adequate intelligence capability to keep our Government informed about developments in Cuba at the present time and in the future.
 

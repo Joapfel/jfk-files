@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9414.png
-
-Convert to MarkdownG E R Y
+G E R Y
 
 June 17, 1950
 

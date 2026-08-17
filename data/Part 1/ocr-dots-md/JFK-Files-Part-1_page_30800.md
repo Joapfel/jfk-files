@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30800.png
-
-Convert to MarkdownSEC. 4. MOTHER (Give the information for step-mother on a separate sheet)
+SEC. 4. MOTHER (Give the information for step-mother on a separate sheet)
 
 FULL NAME: Elizabeth ConRy Miller
 MARITAL STATUS: Single

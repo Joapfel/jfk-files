@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_8039.png
-
 Counsel to the President, also desired a copy, we are enclosing a copy for your forwarding to him.
 
 Enclosure

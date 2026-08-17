@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33220.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION</td><td>SECRET/RYBAT</td><td>NABA-19,520</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION</td><td>SECRET/RYBAT</td><td>NABA-19,520</td></tr></table>
 
 3. As to the length of the cord (your question in Reference A), AMSTALK-1 tells us that the cords are between three and four feet long.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14917.png
-
-Convert to Markdown# PENDING PROSECUTION - CASES DEVELOPED
+# PENDING PROSECUTION - CASES DEVELOPED
 PRIOR TO APRIL 1, 1960
 
 JULIUS G. STAFF, employed by J. G. Shoes, New York, New York, who on June 23, 1958, advised the stewardess aboard a Trans World Airlines plane which had just departed from New York City that a bomb was aboard the plane, was indicted by Federal Grand Jury at Newark, New Jersey, April 17, 1959. Staff entered a plea of not guilty and due to a crowded court calendar, no trial date has been set. This matter has been followed closely with the U. S. Attorney and the Department and the potentially adverse effect of the delay on successful prosecution has been pointed out. At our specific request the Department instructed the U. S. Attorney in late March, 1960, to seek an early trial date in the matter. By letter April 27, 1960, the Newark Office has advised that the U. S. Attorney has been attempting contact with Staff's attorney, Congressman Cornelius E. Gallagher, in order to arrange a trial date.

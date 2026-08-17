@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14511.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>(cato and time filed)</th></tr></thead><tbody><tr><td>SECRET</td><td>I: 16 20 Mar 79</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>(cato and time filed)</th></tr></thead><tbody><tr><td>SECRET</td><td>I: 16 20 Mar 79</td></tr></tbody></table>
 
 CITE DIRECTOR 017236
 

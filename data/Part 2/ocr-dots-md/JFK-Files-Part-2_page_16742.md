@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16742.png
-
-Convert to MarkdownDate 1/32/70
+Date 1/32/70
 
 On the early afternoon of January 28, 1970,
 SA New York FBI Resident

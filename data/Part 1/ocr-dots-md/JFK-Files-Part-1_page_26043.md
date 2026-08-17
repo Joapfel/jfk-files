@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26043.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7 Aug 68 IN66189
 

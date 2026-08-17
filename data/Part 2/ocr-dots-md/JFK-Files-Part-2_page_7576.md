@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7576.png
-
-Convert to MarkdownThe following contains photos and bio information about the delegates to the XI International Congress of Radiology, held in Rome Italy 22-28 Sep 65.
+The following contains photos and bio information about the delegates to the XI International Congress of Radiology, held in Rome Italy 22-28 Sep 65.
 
 SO: 00-3-324/18689-65 Case 46424, UNCL.
 

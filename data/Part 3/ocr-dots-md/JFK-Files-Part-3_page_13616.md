@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13616.png
-
-Convert to MarkdownSerial: N9022
+Serial: N9022
 
 In addition, this Agency is authorized by law to protect certain
 information concerning its activities. Title 5 U.S.C. 552(b)(3), exempts

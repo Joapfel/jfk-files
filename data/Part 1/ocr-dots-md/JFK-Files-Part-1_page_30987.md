@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30987.png
-
-Convert to MarkdownIn addition, the question arises as to whether E. J. MURPHY's
+In addition, the question arises as to whether E. J. MURPHY's
 contract should contain the provision (similar to
 Douglas J. PREAPARE'S contract) that he can retain only
 the first $2,000 a year company profits as provided in

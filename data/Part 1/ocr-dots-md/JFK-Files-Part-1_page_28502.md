@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28502.png
-
-Convert to Markdown6 November 1950
+6 November 1950
 
 TO: SSD
 FROM: FDM

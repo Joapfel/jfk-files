@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6722.png
-
-Convert to Markdown17 September 1998
+17 September 1998
 
 MEMORANDUM FOR: Ms. Laura Denk
 Executive Director, ARRB

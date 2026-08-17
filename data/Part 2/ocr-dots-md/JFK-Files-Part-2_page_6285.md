@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6285.png
-
-Convert to MarkdownB. Upon the termination of the Committee, all materials provided by CIA and examined by the Committee will be kept and preserved within a segregated and secure area within CIA for at least 30 years unless the DCI and the House of Representatives agree to a shorter period of time. All persons having access to such materials must sign an access sheet indicating the date, the name of the person receiving access, the specific documents or materials to which access was granted, and the person who authorized the access.
+B. Upon the termination of the Committee, all materials provided by CIA and examined by the Committee will be kept and preserved within a segregated and secure area within CIA for at least 30 years unless the DCI and the House of Representatives agree to a shorter period of time. All persons having access to such materials must sign an access sheet indicating the date, the name of the person receiving access, the specific documents or materials to which access was granted, and the person who authorized the access.
 
 VII. Disclosure of Information
 

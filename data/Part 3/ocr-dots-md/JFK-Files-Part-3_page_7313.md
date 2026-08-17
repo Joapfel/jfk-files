@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7313.png
-
-Convert to Markdown1 - Mr. N. P. Callahan
+1 - Mr. N. P. Callahan
 1 - Mr. J. B. Adams
 1 - Mr. J. A. Mintz
 1 - Mr. W. R. Wannall

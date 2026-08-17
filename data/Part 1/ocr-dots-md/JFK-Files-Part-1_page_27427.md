@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27427.png
-
-Convert to Markdown14 MAR 1961
+14 MAR 1961
 
 MEMORANDUM FOR: The Director of Intelligence and Security
 Department of State

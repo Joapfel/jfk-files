@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31897.png
-
-Convert to MarkdownSECRET
+SECRET
 (When filled in)
 
 KHF: 22 AUG 75

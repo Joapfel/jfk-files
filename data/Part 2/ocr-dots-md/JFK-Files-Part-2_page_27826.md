@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27826.png
-
-Convert to MarkdownI am not related ✓_________
+I am not related ✓_________
 
 I am related by the following relationship ____________
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2678.png
-
-Convert to MarkdownVZCZCHQO4A1
+VZCZCHQO4A1
 
 PP MM
 

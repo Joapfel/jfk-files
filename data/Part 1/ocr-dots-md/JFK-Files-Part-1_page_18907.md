@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18907.png
-
-Convert to MarkdownIII. Evaluation
+III. Evaluation
 
 A. Two double agent problems requiring case analysis. This analysis involves thorough study of the case:
 

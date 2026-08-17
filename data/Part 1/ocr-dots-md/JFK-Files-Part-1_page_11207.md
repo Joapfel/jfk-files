@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11207.png
-
-Convert to MarkdownMarianao, 8 de Diciembre de 1965
+Marianao, 8 de Diciembre de 1965
 
 "ANO DE LA AGRICULTURA"
 

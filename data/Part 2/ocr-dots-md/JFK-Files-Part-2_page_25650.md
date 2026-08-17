@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25650.png
-
-Convert to MarkdownCaptain Hamilton's letter stated:
+Captain Hamilton's letter stated:
 
 > "This Department has under investigation Arthur Lewis Clark, Sr., FBI 3709258, and a Roger Bauman. These men are representing themselves as officials of the Sunbeam Oil Company, 212 Roosevelt Theater Building, Miami Beach, and both are spending money very lavishly."
 

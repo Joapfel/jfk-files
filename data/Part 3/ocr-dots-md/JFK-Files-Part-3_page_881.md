@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_881.png
-
-Convert to MarkdownAs the case presently stands, therefore, there has been no determination of the issue which the Supreme Court specifically directed to be determined and disclosure is being considered on a misapprehension of the legal necessity for such disclosure.
+As the case presently stands, therefore, there has been no determination of the issue which the Supreme Court specifically directed to be determined and disclosure is being considered on a misapprehension of the legal necessity for such disclosure.
 
 ARGUMENT
 

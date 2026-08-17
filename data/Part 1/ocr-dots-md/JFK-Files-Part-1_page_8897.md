@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8897.png
-
-Convert to MarkdownSeparate Cover Attachment 41 to -
+Separate Cover Attachment 41 to -
 
 HMMA-24457
 

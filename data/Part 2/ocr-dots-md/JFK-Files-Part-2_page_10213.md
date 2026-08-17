@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10213.png
-
-Convert to Markdown11 May 1973
+11 May 1973
 
 MEMORANDUM FOR THE RECORD
 

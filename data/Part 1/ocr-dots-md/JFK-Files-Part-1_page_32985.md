@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32985.png
-
-Convert to Markdown<table><tr><td>CS C021.222... 201-8510126</td></tr></table>
+<table><tr><td>CS C021.222... 201-8510126</td></tr></table>
 
 <table>
    <tbody>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1813.png
-
-Convert to MarkdownBHQ043 0131931
+BHQ043 0131931
 
 PP HQ
 DE BH

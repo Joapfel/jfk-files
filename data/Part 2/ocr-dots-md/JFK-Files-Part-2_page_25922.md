@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25922.png
-
-Convert to MarkdownThe Committee is also concerned about the safety of several other possible witnesses. Therefore, we request 24-hour-a-day protection by the United States Marshall Service for the following witnesses which the Committee has subpoenaed, intends to subpoena, has interviewed, or intends to interview:
+The Committee is also concerned about the safety of several other possible witnesses. Therefore, we request 24-hour-a-day protection by the United States Marshall Service for the following witnesses which the Committee has subpoenaed, intends to subpoena, has interviewed, or intends to interview:
 
 (Alternative paragraph:
 

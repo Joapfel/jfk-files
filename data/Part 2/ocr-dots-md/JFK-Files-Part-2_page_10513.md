@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10513.png
-
-Convert to MarkdownThe ICDP commentary on the PCPJ calendar urges demonstrations in support of some of the dates listed but does not specifically call for actions in connection with the Republican Convention.
+The ICDP commentary on the PCPJ calendar urges demonstrations in support of some of the dates listed but does not specifically call for actions in connection with the Republican Convention.
 
 00558
 

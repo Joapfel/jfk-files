@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23265.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 that could possibly be used if we ever wanted to use something.
 

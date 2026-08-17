@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4814.png
-
-Convert to MarkdownTelephone number 339-9371 is for SAUL SILVERMAN.
+Telephone number 339-9371 is for SAUL SILVERMAN.
 Pittsburgh indices are negative regarding SILVERMAN.
 
 Records of the New Kensington Credit Bureau, as furnished by Mrs. BARBARA GROSS, show that SILVERMAN, of 1133 5th Avenue, New Kensington, has been self-employed as an attorney since 1931. His business address is 2879 Leechburg Road, Lower Burrell, Pennsylvania, and he is the proprietor of the Stewart Plaza Shopping Center in Lower Burrell. He has a good credit record.

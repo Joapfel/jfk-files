@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22348.png
-
-Convert to Markdownreactions seem purposeful in light of the approach in Paris
+reactions seem purposeful in light of the approach in Paris
 in 1966 of a Soviet photographer to Paris Match; the photo-
 grapher passed photographs of NOSENKO's wife and children
 as part of a proposed story to dramatize the abandoned

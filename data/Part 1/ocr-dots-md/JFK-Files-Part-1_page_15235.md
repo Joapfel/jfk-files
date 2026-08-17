@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15235.png
-
-Convert to Markdown21 September 1959
+21 September 1959
 
 MEMORANDUM FOR THE RECORD
 

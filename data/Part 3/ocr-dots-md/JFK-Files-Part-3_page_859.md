@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_859.png
-
-Convert to Markdown430 F.2d 165 (1970) and the United States District Court, Central District of California in United States versus Smith, 321 F. Supp. 424 (1971)) have held that "warrantless surveillance... may be constitutional where foreign powers are involved."
+430 F.2d 165 (1970) and the United States District Court, Central District of California in United States versus Smith, 321 F. Supp. 424 (1971)) have held that "warrantless surveillance... may be constitutional where foreign powers are involved."
 
 The argument that even foreign related electronic surveillances should be subject to initial judicial review is based on the argument that this is the only guaranteed method of protecting the Fourth Amendment rights and right to privacy of aliens, and United States citizens who might be involved. The argument on the other side is that the nature and objective of the activity, viz., foreign intelligence gathering, the needs of security, the many nonprosecutive factors to be considered, and often the time element, do not lend themselves to effective or efficient initial judicial review; consequently, the Government must be granted a measure of confidence to utilize this technique on its own authority, with the safeguards of protection from conviction or the remedies of a civil action available to any target of an electronic surveillance, if the Government abuses this authority.
 

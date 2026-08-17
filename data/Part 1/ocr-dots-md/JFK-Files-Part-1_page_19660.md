@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19660.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 effective supervisor. He brings to the performance of his duties broad knowledge and experience of security procedures and practices. He has been most effective in keeping a close rein on budgetary obligations within his Directorate.

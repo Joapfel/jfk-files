@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2094.png
-
-Convert to MarkdownThe Honorable Griffin B. Bell
+The Honorable Griffin B. Bell
 
 Page Two
 

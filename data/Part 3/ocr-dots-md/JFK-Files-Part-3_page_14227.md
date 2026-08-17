@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14227.png
-
-Convert to Markdownshould a sufficiently suspicious objective of potentially offensive character be reported which cannot be covered by high altitude photography or other sources.
+should a sufficiently suspicious objective of potentially offensive character be reported which cannot be covered by high altitude photography or other sources.
 
 The United States Intelligence Board has approved SIGINT requirements for the use of a drone against Cuba when the circumstances require. A photographic drone capability exists and separate requirements for its use can be generated when necessary. This capability is now on a standby basis and could be activated within 10 days. Present satellite reconnaissance capabilities cannot provide the detailed information necessary for meeting our requirements in Cuba. Even though a decision were made to program a satellite for the southern latitudes, sacrificing the presently achievable resolution over priority targets in the USSR, it is felt that the results would not be satisfactory. The best resolution that might be obtained falls far short of the present requirement. The asset cannot be used on an "on-call" basis either in terms of launching or in terms of insuring that a pass will cover Cuba, and if it does that such pass could occur in satisfactory weather conditions. Whereas improved satellite performance is in the offing, these factors would still apply for the foreseeable future.
 

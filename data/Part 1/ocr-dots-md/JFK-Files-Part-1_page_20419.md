@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20419.png
-
-Convert to Markdown# PERSONAL HISTORY STATEMENT
+# PERSONAL HISTORY STATEMENT
 
 **Instructions:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11777.png
-
-Convert to Markdown28 May 1952
+28 May 1952
 
 MEMORANDUM FOR: OD/CO
 ATTENTION: Mr. William Rowland

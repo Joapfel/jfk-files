@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4017.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 He also mentioned that the Veterans Affairs Attache in the American Embassy had his military record in connection with a request he had previously made to attend Mexico City College on the G.I. Bill, but to do that he would have to enroll first and pay tuition himself which he could not do in view of his financial straits.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15590.png
-
-Convert to Markdown# BLACK PANTHER PARTY, Also Known As Black Panther Party for Self-Defense
+# BLACK PANTHER PARTY, Also Known As Black Panther Party for Self-Defense
 
 According to its official newspaper, the Black Panther Party (BPP) was started during December, 1966, in Oakland, California, to organize black people so they can take control of the life, politics and the destiny of the black community. It was organized by BOBBY SEAL, BPP Chairman, and HUEY P. NEWTON, BPP Minister of Defense. Newton was sentenced in 1968 to serve 2 to 15 years after being convicted of manslaughter in connection with the killing of an Oakland police officer.
 

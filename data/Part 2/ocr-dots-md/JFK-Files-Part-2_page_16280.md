@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16280.png
-
-Convert to MarkdownThe source
+The source
 
 advised the following persons met with Chicago BPP members
 and that they are interested in aligning the youth group

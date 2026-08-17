@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22550.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 Abidjan, Accra, Doula, Leopoldville, Luanda, Brazzaville, Elizabethville, Northern Rhodesia, Johannesburg, Salisbury, Dar es Salaam, Zanzibar, Kenya, Addis Ababa, Athens, Bulgaria, Rumania, Budapest, Prague, Berlin, London and Zurich.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9139.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 I. BACKGROUND
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5283.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: DO Position on Identification of ERTHYROID/3
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8014.png
-
-Convert to Markdown**CONFERENTIAL**
+**CONFERENTIAL**
 
 HCH-1133, page 3
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3049.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Question: Why did you make this decision with regard to Jake, coming directly to you and not going through King? Was it just a matter of great efficiency, or what precipitated that?
 

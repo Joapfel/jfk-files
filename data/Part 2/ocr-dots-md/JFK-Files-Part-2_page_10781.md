@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10781.png
-
-Convert to Markdownrights, declined to execute a waiver portion of the form, and refused to furnish any information on or statement related to this matter or any other matter. An attorney for plaintiff.
+rights, declined to execute a waiver portion of the form, and refused to furnish any information on or statement related to this matter or any other matter. An attorney for plaintiff.
 
 REILLY was then turned over to the U. S. Marshal, (Cameron, N. J.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5614.png
-
-Convert to Markdown1-56
+1-56
 
 (Pause)
 

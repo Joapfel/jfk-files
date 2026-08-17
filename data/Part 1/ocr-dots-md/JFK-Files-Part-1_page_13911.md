@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13911.png
-
-Convert to Markdown301. Salida al 140263.-1336.- BUENAVENTURA solicita a ESTHER por haber cumplido 21 años y pregunta si siempre van hacer la comida mañana y ESTHER después de darle las gracias, dice que lo sabrá hasta que lloque ROGELIO y después lo llamará. BUENAV. acepta.- 361.-
+301. Salida al 140263.-1336.- BUENAVENTURA solicita a ESTHER por haber cumplido 21 años y pregunta si siempre van hacer la comida mañana y ESTHER después de darle las gracias, dice que lo sabrá hasta que lloque ROGELIO y después lo llamará. BUENAV. acepta.- 361.-
 
 585. Salida al 237325.-1635.- J.de parte de ROGELIO pide a- MF kando un arreglo floral a la Sra.,ESTHER DE RODRICUEZ a - Baja California 178-3. MF toma nota y acepta.- 648.-
 

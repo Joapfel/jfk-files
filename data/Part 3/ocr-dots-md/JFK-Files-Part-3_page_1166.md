@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1166.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 Revised 5/22/75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8105.png
-
-Convert to MarkdownRECEIVED BY IP/FILES
+RECEIVED BY IP/FILES
 
 SECRET
 BLACK TAPE DOCUMENT

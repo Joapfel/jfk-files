@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26251.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. According to information dated 5 December 1955 from a usually reliable source, one Carmen H. de MENDIZABAL, probably identical with Subject, was listed as a voting member of the Society de la URSS (SAURSS, Society of Friends of the Soviet Union; a Communist ( front organization).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10263.png
-
-Convert to MarkdownFAR a Cba. en: las problemáticas internas y externas de Guatemala; sindicaux de las fondeos proporcionados, etc. Critica a los enclaves formados en la Habana; remite al oепpoас من integración a la realidad de las FAP.
+FAR a Cba. en: las problemáticas internas y externas de Guatemala; sindicaux de las fondeos proporcionados, etc. Critica a los enclaves formados en la Habana; remite al oепpoас من integración a la realidad de las FAP.
 
 Dinamización actual de FAR.
 

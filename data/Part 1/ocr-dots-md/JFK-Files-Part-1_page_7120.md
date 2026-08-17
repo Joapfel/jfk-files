@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7120.png
-
-Convert to Markdownplace before and asked several questions about it. He said that the owner of the building is Sr. VILLAGRAN and that VILLAGRAN has the reputation of being an anti-Communist and a loyal Mexican citizen. He said that the building would probably be completed by March 1966 and that it will have about six floors. Several Soviets have mentioned to Subject that they would like to rent apartments in the building since it is so close to the Embassy.
+place before and asked several questions about it. He said that the owner of the building is Sr. VILLAGRAN and that VILLAGRAN has the reputation of being an anti-Communist and a loyal Mexican citizen. He said that the building would probably be completed by March 1966 and that it will have about six floors. Several Soviets have mentioned to Subject that they would like to rent apartments in the building since it is so close to the Embassy.
 
 3. Subject said that ISAYEV had been in his store about the last week in September. (As far as I can tell this is ISAYEV's first visit to Subject's store.) ISAYEV made a great many anti-U.S. remarks during his visit to the store and blamed the U.S. for most of the world's troubles. At one point he said that the Soviets made much better cars than the U.S. and that Soviet cars were built like "tanks". Subject laughed at this remark because the thought crossed his mind that only a soldier would like to drive a "tank" and from where Subject was standing at the time he could see the Soviets' new fleet of American Fords and Chevys.
 

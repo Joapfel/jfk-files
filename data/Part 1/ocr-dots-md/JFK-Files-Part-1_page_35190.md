@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35190.png
-
-Convert to MarkdownSTATEMENT OF EXPENSES
+STATEMENT OF EXPENSES
 
 ANNTX "A"
 Page No. 23

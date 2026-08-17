@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_913.png
-
-Convert to MarkdownMr. J. B. Adams
+Mr. J. B. Adams
 
 W. R. Wannall
 

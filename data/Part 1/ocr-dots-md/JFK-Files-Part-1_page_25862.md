@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25862.png
-
-Convert to Markdown14-00000
+14-00000
 
 To be given, indicating who their proficiency (development of skill) or familiarization (briefing) is desired. Training is to take place, if known.
 

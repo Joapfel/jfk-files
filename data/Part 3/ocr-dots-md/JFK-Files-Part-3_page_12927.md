@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12927.png
-
-Convert to MarkdownI cannot be certain — I may have briefly indicated here that it did not appear King was necessarily aware of the past or present C.P. Connections of these persons.
+I cannot be certain — I may have briefly indicated here that it did not appear King was necessarily aware of the past or present C.P. Connections of these persons.
 
 Re page 14 and the Answer you inquired about.
 

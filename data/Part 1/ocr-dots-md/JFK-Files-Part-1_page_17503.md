@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17503.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 HMMA-18058, 27 October 1961 (Satellite Trade in Mexico)
 HMMA-18074, 31 October 1961 (Activities of Polish Embassies

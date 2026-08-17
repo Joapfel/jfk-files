@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7119.png
-
-Convert to Markdown104-10400-10311
+104-10400-10311
 
 FORM 3020b
 7-71 MFG. 2/75

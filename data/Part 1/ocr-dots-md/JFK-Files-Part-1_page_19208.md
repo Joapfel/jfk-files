@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19208.png
-
-Convert to Markdown# Training Report
+# Training Report
 
 ## Spanish Basic Reading, Speaking, Writing
 (900 hours, full time)

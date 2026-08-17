@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6411.png
-
-Convert to MarkdownMessrs. Ály and Moore
+Messrs. Ály and Moore
 
 June 9, 1997
 Page 2

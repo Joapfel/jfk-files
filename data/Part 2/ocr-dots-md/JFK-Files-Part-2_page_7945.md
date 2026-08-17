@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7945.png
-
-Convert to Markdown13-00000
+13-00000
 
 "Yardley on Sirhan," *Newweek*, 28 April 1969, pp. 41+.
 

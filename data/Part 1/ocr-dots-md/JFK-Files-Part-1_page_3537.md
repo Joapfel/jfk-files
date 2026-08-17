@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3537.png
-
-Convert to Markdownin which it professes and will continue to profess and for which
+in which it professes and will continue to profess and for which
 we are prepared to give our lives and in some cases already have.
 I believe it is our duty to mention them here or anywhere else. . .
 

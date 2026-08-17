@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33114.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WII/COG 69-358
 

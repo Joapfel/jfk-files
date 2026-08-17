@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33694.png
-
-Convert to MarkdownExecutive Secretary of the Czechoslovak National Council of Women, she was a member of the International Women's Organization, too. She travelled to many countries representing the Czechoslovakian women. And thus she foresaw the threat of the Hitler dictatorship's greed and power
+Executive Secretary of the Czechoslovak National Council of Women, she was a member of the International Women's Organization, too. She travelled to many countries representing the Czechoslovakian women. And thus she foresaw the threat of the Hitler dictatorship's greed and power
 
 of organized the Women's
 Social Movement Popular with

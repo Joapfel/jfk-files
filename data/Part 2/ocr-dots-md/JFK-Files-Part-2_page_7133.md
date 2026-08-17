@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7133.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><td>CLASSIFICATION</td></tr></thead><tbody><tr><td>SECRET</td></tr></tbody></table>
 

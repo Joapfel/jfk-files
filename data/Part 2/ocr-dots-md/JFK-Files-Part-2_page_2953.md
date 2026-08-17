@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2953.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26 June 1963
 McCone notes Roy Tod's paper on an inventory of intelligence community assets.

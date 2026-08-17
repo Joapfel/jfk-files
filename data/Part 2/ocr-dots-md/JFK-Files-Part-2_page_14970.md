@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14970.png
-
-Convert to MarkdownII. INTELLIGENCE MATTERS (continued)
+II. INTELLIGENCE MATTERS (continued)
 
 Page
 

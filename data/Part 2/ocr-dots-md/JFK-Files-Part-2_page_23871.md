@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23871.png
-
-Convert to Markdown1 particular purpose. If the programs are then used for another
+1 particular purpose. If the programs are then used for another
 2 purpose by the Government, that was considered and suggested
 3 that that second purpose should not be used.
 4 Now, if you want to exempt certain categories here and

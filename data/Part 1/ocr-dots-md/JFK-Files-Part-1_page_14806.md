@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14806.png
-
-Convert to Markdown## HENRY WINSTON
+## HENRY WINSTON
 
 ### A. Birth and Family Background
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_24186.png
-
 at Harvard University for
 the past four years. Professor GALBRAITH said he highly
 recommends the applicant as to character, reputation and

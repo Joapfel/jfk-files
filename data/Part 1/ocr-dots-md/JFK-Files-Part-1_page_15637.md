@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15637.png
-
-Convert to Markdownwould be wise not to approach him as if he were the problem, but to permit
+would be wise not to approach him as if he were the problem, but to permit
 him to maintain his posture that he is right and society is wrong. In
 other words we must avoid doing what his mother did to him.
 

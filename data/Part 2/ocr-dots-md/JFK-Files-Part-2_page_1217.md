@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1217.png
-
-Convert to Markdown# S-R-C-R-L-T
+# S-R-C-R-L-T
 
 ## Security Information
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3852.png
-
-Convert to Markdown2. <u>to conduct full domestic intelligence investigations</u>
+2. <u>to conduct full domestic intelligence investigations</u>
 on the basis of specific and articulable facts justifying the
 <u>conclusion that an individual, or individuals acting in concert,</u>
 are engaged in activities which are likely to involve the use

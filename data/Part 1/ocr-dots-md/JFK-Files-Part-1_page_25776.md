@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25776.png
-
-Convert to MarkdownSECRET/KAPOK
+SECRET/KAPOK
 
 <table><tbody><tr><td>14-0000</td></tr></tbody></table>
 

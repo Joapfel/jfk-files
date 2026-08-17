@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27273.png
-
-Convert to Markdowns. Memo for Record - Subj"Mr. Edward" File - 22 May 74 (SECRET)
+s. Memo for Record - Subj"Mr. Edward" File - 22 May 74 (SECRET)
 
 t. Memo for Record, Subj: Meeting with Chief EEAB/Pers - 19 June 73
 

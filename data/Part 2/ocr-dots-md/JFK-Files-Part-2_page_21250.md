@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21250.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 3. RALPH and EVELYN YOUNGER [x] (S)
 

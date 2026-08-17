@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18029.png
-
-Convert to Markdown2 - Jr. J. A. Mintz (1 - J. B. Hotis) 1 - Mr. W. R. Wannall 1 - Mr. W. O. Cregar
+2 - Jr. J. A. Mintz (1 - J. B. Hotis) 1 - Mr. W. R. Wannall 1 - Mr. W. O. Cregar
 
 (IS-2) 62-116395
 

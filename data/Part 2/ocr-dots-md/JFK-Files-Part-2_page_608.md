@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_608.png
-
-Convert to MarkdownSECRET 250342Z
+SECRET 250342Z
 
 DIP. LFG WAVE CITE MEXI 7234
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10921.png
-
-Convert to Markdownsource by CIA policy. We were of the opinion that CIA's policy could be modified to allow us direct access to the source in the United States when such was necessary.
+source by CIA policy. We were of the opinion that CIA's policy could be modified to allow us direct access to the source in the United States when such was necessary.
 
 As of 1954, CIA had interest in various organizations such as Radio Free Europe and others and from time to time the Bureau would get involved in investigation of organizations only to learn they were being supported or guided by CIA. Our opinion was that if we had been appropriately notified of CIA's interest considerable investigative time and manpower could have been saved and in addition we would have been in a position to notify CIA when anything of interest came to our attention.
 

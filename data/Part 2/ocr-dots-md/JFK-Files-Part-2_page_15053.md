@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15053.png
-
-Convert to Markdown# GENERAL INVESTIGATIVE OPERATIONS: SUGGESTIONS FOR THE REDUCTION OF CRIME IN THE DISTRICT OF COLUMBIA
+# GENERAL INVESTIGATIVE OPERATIONS: SUGGESTIONS FOR THE REDUCTION OF CRIME IN THE DISTRICT OF COLUMBIA
 
 In connection with the juvenile problem in the District of Columbia, it is suggested that an Enabling Statute be passed which would allow juveniles to be handled in the District of Columbia as they are throughout the United States; publicize the names of the juveniles involved in serious crimes and maintain and make available juvenile records to law enforcement agencies. In areas of high crime, improved street lighting should be installed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24144.png
-
-Convert to MarkdownRichard Thomas GIBSON
+Richard Thomas GIBSON
 
 201-306052
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6069.png
-
-Convert to Markdown"The American Citizen: The Developing Legal Concept," in *Foundations of American Citizenship: New Directions for Education* (Washington, D. C.: Council of Chief State School Officers, 1988), pp. 41 - 61.
+"The American Citizen: The Developing Legal Concept," in *Foundations of American Citizenship: New Directions for Education* (Washington, D. C.: Council of Chief State School Officers, 1988), pp. 41 - 61.
 
 "Implementing the Constitution as Law: The Origins of Judicial Review," "Implementing the Constitution as Law: The Establishment of Judicial Sovereignty," and "The Amending Process and Constitutional Change," in *The American Constitution*, ed., Herman Belz (Baltimore: The International University Consortium, 1987), pp. 41 - 61, 62 - 83, and 400 - 30. (not included)
 

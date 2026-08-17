@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27674.png
-
-Convert to MarkdownKILKER, Beth
+KILKER, Beth
 Name of Employee
 Address
 Phone Number

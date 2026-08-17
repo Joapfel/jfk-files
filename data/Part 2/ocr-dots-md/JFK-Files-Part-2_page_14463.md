@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14463.png
-
-Convert to MarkdownSECRET
+SECRET
 
 been for ESTERSON, or R. ESTERSON, or Rose ESTERSON located
 in Chicago, or Illinois, you would initially have received photographed

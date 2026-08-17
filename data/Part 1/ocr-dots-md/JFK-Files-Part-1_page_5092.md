@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5092.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 <table><tr><td>02-4298</td></tr><tr><td style="border-top: 1px solid black;"></td></tr><tr><td style="border-top: 1px solid black;"></td></tr><tr><td style="border-top: 1px solid black;"></td></tr></table>
 

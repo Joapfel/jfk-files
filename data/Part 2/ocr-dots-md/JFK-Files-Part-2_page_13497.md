@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13497.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 9. Copies of a memorandum which set forth the action items resulting from the Policy Steering Group session of last week were provided to the Ad Hoc members for their information.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20604.png
-
-Convert to MarkdownRE: ABORTION PROJECT COALITION
+RE: ABORTION PROJECT COALITION
 CLEVELAND, OHIO
 
 support of a campaign for abortion law reform.

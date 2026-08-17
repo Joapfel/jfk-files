@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33842.png
-
-Convert to MarkdownCOPY
+COPY
 
 March 2, 1952
 

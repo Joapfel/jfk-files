@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7307.png
-
-Convert to Markdown9.04.18 If you have not seen him drunk, would you predict that when drunk he would become Very active_ Very passive _ Never become drunk_ I cannot imagine how he would act when drunk
+9.04.18 If you have not seen him drunk, would you predict that when drunk he would become Very active_ Very passive _ Never become drunk_ I cannot imagine how he would act when drunk
 
 9.04.19 Have you ever seen him with a hang over? No ___ Yes ___ If Yes, is he the kind of person who Obviously looks hung over but functions fairly well Looks somewhat hung over but shows it mainly in his eyes and general manner Obviously looks hung over and is quite vocal about how bad he feels Does not look hung over in spite of what he says
 

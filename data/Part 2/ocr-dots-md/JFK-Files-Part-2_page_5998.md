@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5998.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 * The Helsinki Station, February 1951-February 1964, Volumes I, II, and III, written by Melvin W. Jokinen and Hank Jarvinen in 1967, and controlled by EUR.
 

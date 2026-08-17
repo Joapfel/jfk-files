@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29520.png
-
-Convert to Markdown25 September 1962
+25 September 1962
 
 **APPROVED FOR:** Chief, Contract Personnel Division
 

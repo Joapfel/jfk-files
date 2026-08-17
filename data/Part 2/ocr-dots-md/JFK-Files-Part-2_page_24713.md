@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24713.png
-
-Convert to MarkdownPresident stated, that the Congolese did not want UN support and the maintenance of order. Secretary Dillon reiterated that this was State's feeling about the matter. The situation that would be created by a UN withdrawal was altogether too ghastly to contemplate. (NSC Minutes, 8/18/60)
+President stated, that the Congolese did not want UN support and the maintenance of order. Secretary Dillon reiterated that this was State's feeling about the matter. The situation that would be created by a UN withdrawal was altogether too ghastly to contemplate. (NSC Minutes, 8/18/60)
 
 This is the only statement about Lumumba which the memorandum of the meeting attributed to the President.
 

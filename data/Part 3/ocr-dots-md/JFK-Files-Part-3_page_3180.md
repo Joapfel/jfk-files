@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3180.png
-
-Convert to Markdown1792
+1792
 
 Senator Huddleston. If you found it had been taken improperly or if some improper action had been taken, would it be put in the files?
 

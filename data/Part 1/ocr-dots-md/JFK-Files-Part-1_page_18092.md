@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18092.png
-
-Convert to MarkdownLIONION PROJECT RENEWAL
+LIONION PROJECT RENEWAL
 
 A. **Current Objectives:** This Project is a technical, currently primarily photographic, surveillance operation against the Cuban Embassy and Consulate in Mexico City. Its original objectives, still current, include furnishing photographic coverage during daylight hours of the Embassy and Consulate entrances; furnishing a control point for dispatching physical surveillance teams against persons associated with the target; and furnishing a listening post (LP) in readiness to monitor and record technical audio penetrations of the target. Two new objectives added during the Project year include assisting Station Mexico City to build up individual dossiers on target officials; and affording an observation post for Station activities involving direct contact with the target. These new objectives are in consonance with Priority A, Objective 1 of the current Related Mission Directive for Station Mexico City.
 

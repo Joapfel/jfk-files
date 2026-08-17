@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11811.png
-
-Convert to MarkdownPROJECT OUTLINE
+PROJECT OUTLINE
 
 Project: FURIOSO-C (PFCROVEL) Amendment No.2.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20348.png
-
-Convert to MarkdownSection 1A - While an undercover agent for the Federal Bureau of Investigations from 1946 to 1949 I used the name of Bernard Harris to members of the Communist Party of the United States. This information is already on file in this organization.
+Section 1A - While an undercover agent for the Federal Bureau of Investigations from 1946 to 1949 I used the name of Bernard Harris to members of the Communist Party of the United States. This information is already on file in this organization.
 
 Section 1D - I became an American citizen at birth through the citizenship of my father. This information is already on file in this organization.
 

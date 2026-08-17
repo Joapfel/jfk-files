@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21472.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td rowspan="2"> RITA PERKINS <br> SR/2/CE 706 <br> 8757 <br> 14 November 1960 </td><td colspan="3"> SECRET </td></tr><tr><td colspan="3"></td></tr></table>
 

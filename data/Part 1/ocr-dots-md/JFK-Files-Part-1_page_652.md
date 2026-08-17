@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_652.png
-
-Convert to MarkdownPage : of Separate Cover
+Page : of Separate Cover
 Attachment F to UFGA-4703
 to Chief, TFW
 

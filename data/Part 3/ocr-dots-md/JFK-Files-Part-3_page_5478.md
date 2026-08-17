@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5478.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="4">CLASSIFY AS APPROPRIATE</th>

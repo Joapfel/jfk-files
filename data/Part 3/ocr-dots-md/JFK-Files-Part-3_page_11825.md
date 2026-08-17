@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11825.png
-
-Convert to MarkdownAugust 18, 1971
+August 18, 1971
 
 CHINESE MATTERS
 

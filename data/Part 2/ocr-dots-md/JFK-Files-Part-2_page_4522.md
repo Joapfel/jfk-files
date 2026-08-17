@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4522.png
-
-Convert to Markdownarmed with a letter of introduction from the National Director of the FPCC, Vicent Theodore Lee. On 6 July the 3 pro-Castro organizations named above held a party for Subject and raised $100.00 for his trip.
+armed with a letter of introduction from the National Director of the FPCC, Vicent Theodore Lee. On 6 July the 3 pro-Castro organizations named above held a party for Subject and raised $100.00 for his trip.
 
 ## Informant's Contacts in Cuba
 

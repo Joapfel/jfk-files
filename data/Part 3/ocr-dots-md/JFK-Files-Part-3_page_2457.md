@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2457.png
-
-Convert to MarkdownTHIS TITLE
+THIS TITLE
 WAS CLASSIFIED
 PN 65-67235
 (NOSERIO

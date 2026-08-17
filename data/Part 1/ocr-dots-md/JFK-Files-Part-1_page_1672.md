@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1672.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 # OPERATIONS FAMILIARIZATION COURSE #24
 

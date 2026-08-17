@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16526.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">MESSAGE FOR: ALBERT J. AMORI:GHD</td></tr><tr><td>UNIT: L/M/COG/FI</td><td>SECRET</td></tr><tr><td>LAT: 18175000</td><td></td></tr><tr><td>DATE: 31 MARCH 1972</td><td></td></tr></table>
 

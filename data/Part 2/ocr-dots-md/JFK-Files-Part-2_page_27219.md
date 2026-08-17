@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27219.png
-
-Convert to MarkdownCOLBY STATEMENTS
+COLBY STATEMENTS
 
 A. To Commission: Jan. 13, 1975
 

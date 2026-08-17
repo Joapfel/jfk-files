@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9037.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CLASS: C4-SECRET
 

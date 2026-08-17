@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10076.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 869 PREVIOUS EDITION.
 

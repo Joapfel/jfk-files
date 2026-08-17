@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6527.png
-
-Convert to MarkdownALN-603-72
+ALN-603-72
 
 6 December 1972
 

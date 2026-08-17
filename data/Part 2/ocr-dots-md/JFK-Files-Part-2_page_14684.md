@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14684.png
-
-Convert to MarkdownMARTIN LUTHER KING, JR.
+MARTIN LUTHER KING, JR.
 
 Martin Luther King, Jr., President, Southern Christian Leadership Conference, is currently writing a book to be entitled "Where Do We Go From Here" to be published in the spring. This book allegedly will deal with the resurgence of the "white backlash," "black power," and propose a course of action the Federal Government should take concerning the civil rights movement. King has been counseled by Stanley Levison, his principal advisor and long-time communist, to run for President of the United States in 1968. He has this suggestion under consideration and reportedly has made no decision. We maintain a wire tap on Stanley Levison to determine the degree of communist influence in the racial field.
 

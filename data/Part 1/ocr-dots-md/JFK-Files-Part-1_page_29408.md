@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29408.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG:</td><td>C. DAMMINGER:AM</td></tr><tr><td>UNIT:</td><td>FE/PERS/TBL</td></tr><tr><td>BAT:</td><td>6588</td></tr><tr><td>DATE:</td><td>6 JUNE 1968</td></tr></table>
 

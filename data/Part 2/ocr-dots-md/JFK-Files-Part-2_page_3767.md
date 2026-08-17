@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3767.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Agency with various proposals, none of which have been followed-up by the Agency. Most recently, Mr. Novel was in contact with the Domestic Collection Division (DCD) in New Orleans, Louisiana, in October 1975 and February 1976 to volunteer various proposals. Mr. Novel's proposals were rejected by DCD, and Mr. Novel was requested to refrain from future contact with that office.
 

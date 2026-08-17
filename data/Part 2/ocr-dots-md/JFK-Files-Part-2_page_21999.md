@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21999.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: The Times, a part of State has no objection to the release or do. Notification of this document in full.
 

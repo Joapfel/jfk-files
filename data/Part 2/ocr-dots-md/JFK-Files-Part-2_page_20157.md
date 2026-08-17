@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20157.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>REPORTING OFFICE</td>
     <td>OFFICE OF ORIGIN</td>

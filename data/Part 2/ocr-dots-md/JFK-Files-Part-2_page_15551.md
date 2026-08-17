@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15551.png
-
-Convert to Markdownduring mid-July, 1969, the BPP has begun promoting the formation of national committees to fight Fascism. These committees are to be set up in various large cities throughout the United States. The committees are to consist of both black and white people.
+during mid-July, 1969, the BPP has begun promoting the formation of national committees to fight Fascism. These committees are to be set up in various large cities throughout the United States. The committees are to consist of both black and white people.
 
 ( , /2/69)
 

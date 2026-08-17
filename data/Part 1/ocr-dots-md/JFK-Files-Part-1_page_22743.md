@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22743.png
-
-Convert to Markdown# EMPLOYMENT HISTORY - Ross L. Crozier
+# EMPLOYMENT HISTORY - Ross L. Crozier
 
 10 July 1963
 

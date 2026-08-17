@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12192.png
-
-Convert to MarkdownFBI Told of Chilean Plot to U.
+FBI Told of Chilean Plot to U.
 
 By Joe Crankshaw
 The Miami Herald

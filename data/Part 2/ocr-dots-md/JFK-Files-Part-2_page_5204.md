@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5204.png
-
-Convert to MarkdownMAR 31 '97 12:04PM
+MAR 31 '97 12:04PM
 
 OVERFLYING RUSSIA
 

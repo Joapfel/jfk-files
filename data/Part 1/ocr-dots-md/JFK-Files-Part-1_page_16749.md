@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16749.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE : 034</td>
     <td>S-E-C-R-E-T</td>

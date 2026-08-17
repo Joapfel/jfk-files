@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5025.png
-
-Convert to Markdown## II. BUREAU HANDLING OF INFORMANT
+## II. BUREAU HANDLING OF INFORMANT
 
 On 4/17/64, the Bureau advised SAC, Birmingham, to immediately instruct Rowe to withdraw from his position as squad leader of an "action squad."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33592.png
-
-Convert to Markdown19 March 1952
+19 March 1952
 
 MEMORANDUM FOR: Deputy Director of Central Intelligence
 

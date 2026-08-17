@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29290.png
-
-Convert to MarkdownDate of Request
+Date of Request
 
 4/20/78 (con't)
 

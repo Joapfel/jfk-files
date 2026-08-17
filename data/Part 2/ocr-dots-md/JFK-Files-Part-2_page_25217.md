@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25217.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>HANSEN, BUREAU OF BUDGET<br/>EXECUTIVE DIRECTOR OF CIA<br/>LODGE<br/>RICHARDSON</td><td>Oct 24, 1963</td><td>DIEM</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>HANSEN, BUREAU OF BUDGET<br/>EXECUTIVE DIRECTOR OF CIA<br/>LODGE<br/>RICHARDSON</td><td>Oct 24, 1963</td><td>DIEM</td></tr></table>
 
 ## OCCURRENCE:
 

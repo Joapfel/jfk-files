@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24879.png
-
-Convert to MarkdownApproved, Drafting Subcommittee,
+Approved, Drafting Subcommittee,
 10/8/75 (Lumumba sections open
 to possible reconsideration)
 

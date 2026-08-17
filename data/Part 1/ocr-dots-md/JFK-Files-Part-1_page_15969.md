@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15969.png
-
-Convert to MarkdownAPERTURE CARD REPRODUCTION 96
+APERTURE CARD REPRODUCTION 96
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>DCO</td><td>Chief, III Division</td><td>SECRET / BYRAT</td><td>MARKED FOR SECRET</td></tr><tr><td>CCD</td><td></td><td></td><td>NO OBLIGATION REQUIRED</td></tr><tr><td>SUBMIT</td><td>Chief of Station, U. L.I. J.N.</td><td>JN</td><td>SECRET/QUARANTINE<br>CAN BE OPENED ONLY BY ORDER OF THE PRESIDENT</td></tr><tr><td>REFERENCE</td><td colspan="3">UPT/Possible Illegal Transcripts Shipped to the Caribbean</td></tr><tr><td>ACTION REQUIRED</td><td colspan="3">ACTION: FYI<br>REFERENCE: UTPA-1538, 13 September 1975</td></tr></tbody></table>
 

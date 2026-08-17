@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22184.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 European tourists in Moscow, his last assignment, was that of Deputy to the Chief of the Seventh Department, Second Chief Directorate (ourists). NOSENKO secured this relatively low position because of help he received from Ideologist GRIBANOV, Chief of the Second Directorate. Through-out NOSENKO's career GRIBANOV had always helped him and saw that he was promoted...
 

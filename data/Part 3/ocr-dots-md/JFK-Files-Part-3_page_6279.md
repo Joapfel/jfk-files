@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6279.png
-
-Convert to MarkdownSeptember 8, 1975
+September 8, 1975
 
 DOCUMENT REQUEST
 

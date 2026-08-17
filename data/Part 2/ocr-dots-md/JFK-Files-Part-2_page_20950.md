@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20950.png
-
-Convert to MarkdownCG 100-52994
+CG 100-52994
 
 The "Chicago Sun Times," a daily newspaper in its issue of 11/11/71, described JUDSON H. MINER as president of the Chicago Council of Lawyers (CCL), "a reform-oriented group of 1,300 attorneys."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30778.png
-
-Convert to MarkdownHoward Leap
+Howard Leap
 31 March 1978
 
 James E Wood

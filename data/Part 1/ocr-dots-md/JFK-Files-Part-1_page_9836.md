@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9836.png
-
-Convert to Markdown30 January, 1968
+30 January, 1968
 
 Subject: LIRING/4 Report of letter from Maceiro, Vice Minister of Education.
 

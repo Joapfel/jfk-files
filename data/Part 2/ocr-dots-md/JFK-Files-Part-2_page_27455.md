@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27455.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Bob Lehner
 FROM: Tom Lambeth

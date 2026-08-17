@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5496.png
-
-Convert to Markdown# SAC Menos & Letter
+# SAC Menos & Letter
 
 ## Page 2
 

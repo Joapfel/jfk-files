@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11663.png
-
-Convert to Markdownagencies dependent upon us for information informed of pertinent developments and advance intelligence, including data concerning potential violence.
+agencies dependent upon us for information informed of pertinent developments and advance intelligence, including data concerning potential violence.
 
 Our informant coverage has made it possible for us to keep a constant flow of information going to the White House, the Attorney General and other Government agencies having an interest. Additional information pertaining to black extremist intelligence matters and the survey regarding "Potential for Racial Violence" is set forth under data furnished by the Research Section.
 

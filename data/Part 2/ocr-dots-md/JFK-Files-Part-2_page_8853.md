@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8853.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>B-PC-A-B-T</td></tr><tr><td colspan="2">FOR NEW YORK CITY</td></tr><tr><td>RECEIVED</td><td>APRIL 5, 1936</td></tr></tbody></table>
 

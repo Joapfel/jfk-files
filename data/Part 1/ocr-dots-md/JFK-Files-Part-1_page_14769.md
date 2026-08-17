@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14769.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td colspan="6">SIGNAL CENTER USE ONLY</td></tr><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr><tr><td>CLASSIFICATION</td><td colspan="5">22</td></tr><tr><td>SECRET.</td><td colspan="5"></td></tr><tr><td>MESSAGE TRANSMITTING GROUP</td><td>DATE</td><td>TIME</td><td>GROUP</td><td>CONF</td><td>INFO: FILE</td></tr></table>
 

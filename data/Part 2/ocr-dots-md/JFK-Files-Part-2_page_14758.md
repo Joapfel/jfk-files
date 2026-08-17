@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14758.png
-
-Convert to MarkdownSAC, Washington Field
+SAC, Washington Field
 
 9/30/68
 

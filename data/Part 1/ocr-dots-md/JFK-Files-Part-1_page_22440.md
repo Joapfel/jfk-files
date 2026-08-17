@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22440.png
-
-Convert to Markdowne. Continue CI operations against bico intelligence personnel.
+e. Continue CI operations against bico intelligence personnel.
 
 2. Seek to reduce and, if possible, eliminate Communist and leftist control or influence in key governmental and non-governmental organizations, political parties, mass media outlets, and other elements that influence public or official opinion and policies.
 

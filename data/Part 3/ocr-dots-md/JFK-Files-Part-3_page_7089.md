@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7089.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 DCID No. 1/14
 (New Series)

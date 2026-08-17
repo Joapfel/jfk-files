@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12637.png
-
-Convert to Markdown(a) Complete description
+(a) Complete description
 
 (b) Notation that security index flash notice has been posted in Identification Division
 

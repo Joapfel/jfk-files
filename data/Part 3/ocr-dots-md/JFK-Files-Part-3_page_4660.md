@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4660.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 RANDAZZO planned to open around Thanksgiving, 1962.
 

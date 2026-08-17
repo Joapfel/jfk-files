@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11664.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM 3 DEC 95 610 USE PREVIOUS EDITIONS</td>
     <td>SECRET</td>

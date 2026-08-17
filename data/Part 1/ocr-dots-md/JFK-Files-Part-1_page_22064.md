@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22064.png
-
-Convert to Markdownthat ABIDIAN had recruited a KGB agent for an unspecified intelligence mission in France shortly before he left the Soviet Union in December 1960 and that the KGB's U.S. Embassy Section thereupon turned the case over to the KGB First Chief Directorate.*
+that ABIDIAN had recruited a KGB agent for an unspecified intelligence mission in France shortly before he left the Soviet Union in December 1960 and that the KGB's U.S. Embassy Section thereupon turned the case over to the KGB First Chief Directorate.*
 
 - Two Embassy chauffeurs were to apply NEPTUNE-80 to the floorboards and foot pedals of ABIDIAN's car if necessary.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31607.png
-
-Convert to MarkdownNATIONAL COMMITTEE TO ABOLISH THE HOUSE
+NATIONAL COMMITTEE TO ABOLISH THE HOUSE
 UN-AMERICAN ACTIVITIES COMMITTEE
 
 The "Guide to Subversive Organizations and Publications" issued December 1, 1961, by the House Committee on Un-American Activities, page 115, contains the following citation regarding the National Committee to Abolish the Un-American Activities Committee (NCAUAC).

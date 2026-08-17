@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12043.png
-
-Convert to MarkdownAs a general consideration, it is felt that you have 298 cases pending in what appears on the surface to be an important program but in reality are mere "numbers" from a supervision standpoint.
+As a general consideration, it is felt that you have 298 cases pending in what appears on the surface to be an important program but in reality are mere "numbers" from a supervision standpoint.
 
 You are requested to explain why this condition exists, what is your justification for this type of handling, and what action you anticipate necessary to correct.
 

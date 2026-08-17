@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7517.png
-
-Convert to Markdown24 Aug 71
+24 Aug 71
 
 U.S. Embassy Moscow Airgram
 

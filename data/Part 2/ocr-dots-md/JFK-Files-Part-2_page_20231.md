@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20231.png
-
-Convert to MarkdownBS 100-36173
+BS 100-36173
 
 LEON ENTRAS, Special Agent
 NISO, Newport, R.I.

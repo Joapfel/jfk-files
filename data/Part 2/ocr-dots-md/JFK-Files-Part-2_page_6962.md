@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6962.png
-
-Convert to Markdownthe assassination of their president. And I would urge the support and passage
+the assassination of their president. And I would urge the support and passage
 of this legislation sponsored by Chairman Burton, of which I am one of the
 original co-sponsors.
 

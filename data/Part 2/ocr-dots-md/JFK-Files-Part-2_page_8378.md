@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8378.png
-
-Convert to MarkdownSECRET
+SECRET
 
 each his benefits and tell the General, that his station, which brought him to this situation, is possible to the profession. The general was he did not in getting any benefit from the position. In this case, it was well known at the time, that the military administration of the United States has he was bound to be a democratic partner. In this case, the same would have been the case if the military administration had been supporting it, and there were examples of this and other cases between the days of the War.
 

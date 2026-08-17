@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33765.png
-
-Convert to MarkdownCONFIDENTIAL - State of Liberty Information (Attachment)
+CONFIDENTIAL - State of Liberty Information (Attachment)
 
 June 25, 1992
 

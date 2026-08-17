@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16606.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>DATE:</td><td>SECRET</td></tr><tr><td>TO:</td><td></td></tr><tr><td>FROM:</td><td></td></tr><tr><td>ACTION:</td><td></td></tr><tr><td>INFO:</td><td></td></tr><tr><td>PAGE 2</td><td></td></tr><tr><td colspan="2">IN 35514 WAVE 8143</td></tr></table>
 

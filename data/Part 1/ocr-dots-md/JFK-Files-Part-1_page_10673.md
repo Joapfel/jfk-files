@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10673.png
-
-Convert to MarkdownLIMITED OFFICIAL USE
+LIMITED OFFICIAL USE
 
 -2-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4908.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 On December 20, 1966, MM T-6 advised that he was told that NORMAN ROTHMAN had been on a three-week trip to Las Vegas, Nevada, and Chicago, Illinois, and had returned to Miami on December 5, 1966. On December 10, 1966, ROTHMAN reportedly left Miami, destination unknown, and returned to Miami on December 18, 1966.
 

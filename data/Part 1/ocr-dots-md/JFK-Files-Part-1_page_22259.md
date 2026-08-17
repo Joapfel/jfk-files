@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22259.png
-
-Convert to Markdownb. Compromise of PENKOVSKIY*
+b. Compromise of PENKOVSKIY*
 
 (1) Introduction
 

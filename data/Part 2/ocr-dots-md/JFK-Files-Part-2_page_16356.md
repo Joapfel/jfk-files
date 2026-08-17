@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16356.png
-
-Convert to Markdown1.
+1.
 
 On the following page is a xerox copy of photograph of guns, knives, ammunition, and some posters which were obtained at Chicago Black Panther Party (BPP) Headquarters on June 4, 1969.
 

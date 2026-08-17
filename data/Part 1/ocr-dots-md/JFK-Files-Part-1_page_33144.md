@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33144.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      [RECIPIENT]

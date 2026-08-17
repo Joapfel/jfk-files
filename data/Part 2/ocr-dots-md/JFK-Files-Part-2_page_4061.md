@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4061.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE following has been added to the record: that all statements, theories and assumptions made by or on behalf of each service are correct; and that each service will act in good faith so long as it is satisfied that it is not causing any harm to the others.
 

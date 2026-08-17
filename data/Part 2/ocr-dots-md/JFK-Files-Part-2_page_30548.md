@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30548.png
-
-Convert to Markdown3. SS # 265-72-1345
+3. SS # 265-72-1345
 
 4. US Army # C-2312445
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25932.png
-
-Convert to Markdownin on Trafficante's gambling operations in Cuba. Trafficante, using the alias "B. Hill," stayed with Anastasia in the latter's hotel suite, on the night of October 24, 1957, and moved out approximately 1 hour after Anastasia's murder in a nearby barber shop.
+in on Trafficante's gambling operations in Cuba. Trafficante, using the alias "B. Hill," stayed with Anastasia in the latter's hotel suite, on the night of October 24, 1957, and moved out approximately 1 hour after Anastasia's murder in a nearby barber shop.
 
 The Department's evaluation of Trafficante as the boss of the Mafia organization in Tampa was confirmed, of course, by the positive identification of the "Louis Santos of Havana, Cuba," apprehended at the Apalachin conference in November of 1957, as Santo Trafficante, Jr., of Tampa, Fla.
 

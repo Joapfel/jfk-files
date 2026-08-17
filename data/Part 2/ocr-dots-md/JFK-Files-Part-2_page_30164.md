@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30164.png
-
-Convert to MarkdownSTRI克LAND
+STRI克LAND
 
 ANN
 

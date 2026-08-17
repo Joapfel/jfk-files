@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19799.png
-
-Convert to MarkdownBOSTON WOMEN'S ABORTION
+BOSTON WOMEN'S ABORTION
 ACTION COALITION
 
 A third source who has provided reliable information in the past, on January 17, 1972, advised that Patricia F. Putnam, President of Boston University, Boston, Massachusetts FL, residence 162 Hampshire Street, Cambridge, telephone number 5-47-8557, under the sponsorship of Boston University FL has reserved Hayden Hall, Boston University, and fifty classrooms located in the College of Business Administration College of Liberal Arts, Boston University, also the location of Hayden Hall, for the period February 11-13, 1972, for a "conference open to the public." According to the third source, it was requested that five of the fifty classrooms have a seating capacity of seventy-five or over.

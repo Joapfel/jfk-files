@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17949.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING</th><th></th></tr></thead><tbody><tr><td colspan="2">SECRET/~~S~~~</td><td><table><tr><td>FIL</td><td>PRIOR TO</td><td>ACTION</td><td>ACCOM. PLED</td></tr><tr><td></td><td></td><td>MARKED FOR INDEXING</td><td></td></tr><tr><td></td><td></td><td>NO INDEXING REQUIRED</td><td></td></tr><tr><td rowspan="3"><strong>INFO</strong><br/><strong>FROM</strong><br/>Chief of Station, Mexico City<br/><strong>Subject:</strong> <em>LIFEAT Progress Report for October 1962</em></td><td colspan="2" rowspan="3"><strong>DESENSITIZED</strong><br/>per CSN 43-43</td><td></td></tr><tr><td></td><td>CAN JUDGE INDEXING</td></tr><tr><td></td><td>ABSTRACT</td></tr><tr><td></td><td></td><td>MICROFILM</td></tr><tr><td colspan="3">ACTION REQUiRED REFERENCES</td><td></td></tr><tr><td>Ref: A.</td><td colspan="3">HMMA-20156</td></tr><tr><td>B.</td><td colspan="3">MEXI 2384</td></tr></tbody></table>
 

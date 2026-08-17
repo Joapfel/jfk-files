@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_7020.png
-
 to AMDENIM-1 in the handling of his fishermen and operational candidates.
 
 b. $300. was given to AMDENIM-1 for passage to the widow of AMGLAD-1. He is the channel for this payment until such time as HOS arrives at a settlement figure and this obligation can be disposed of.

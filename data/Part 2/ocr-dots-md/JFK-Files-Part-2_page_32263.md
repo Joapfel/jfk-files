@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32263.png
-
-Convert to Markdown1. Protecting the security of the United States and the other states of the Organization of American States (OAS) by assuring that offensive weapons are not reintroduced into Cuba;
+1. Protecting the security of the United States and the other states of the Organization of American States (OAS) by assuring that offensive weapons are not reintroduced into Cuba;
 
 2. Removal of remaining Soviet forces from Cuba;
 

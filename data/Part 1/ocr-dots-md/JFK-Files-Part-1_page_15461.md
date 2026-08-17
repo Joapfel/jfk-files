@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15461.png
-
-Convert to Markdown<table><tr><td>CONFIDENTIAL</td></tr></table>
+<table><tr><td>CONFIDENTIAL</td></tr></table>
 
 END OF MESSAGE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14509.png
-
-Convert to MarkdownCC' to Messrs: Branigan
+CC' to Messrs: Branigan
 Kurtz
 Lampher
 McCasli

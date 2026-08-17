@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2052.png
-
-Convert to MarkdownHeadquarters
+Headquarters
 
 MEMORANDUM FOR: Special Agent in Charge
 Washington Field Office

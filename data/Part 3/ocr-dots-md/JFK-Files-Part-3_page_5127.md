@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5127.png
-
-Convert to Markdown6. Materials pertaining to the furnishing of information to the White House in February 1970 and March 1970 regarding the role of Klan organizations in mailing letters to the President protesting school desegregation.
+6. Materials pertaining to the furnishing of information to the White House in February 1970 and March 1970 regarding the role of Klan organizations in mailing letters to the President protesting school desegregation.
 
 7. Materials pertaining to the origins, approval, and periodic review of the preparation and dissemination by the Research Section of the Intelligence Division of the following:
 

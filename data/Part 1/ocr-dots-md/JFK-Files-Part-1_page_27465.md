@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27465.png
-
-Convert to Markdown# CIA RESUME - DAVID L. CHRIST
+# CIA RESUME - DAVID L. CHRIST
 
 ## October 1950 - January 1958
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5765.png
-
-Convert to Markdown[DO/IRO to provide input]
+[DO/IRO to provide input]
 
 c.) Explain missing McCone files relating to the time of the assassination.
 

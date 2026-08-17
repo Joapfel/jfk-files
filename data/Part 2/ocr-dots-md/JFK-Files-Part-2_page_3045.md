@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3045.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Pigs activity from its inception until its conclu-
 sion.* 7/

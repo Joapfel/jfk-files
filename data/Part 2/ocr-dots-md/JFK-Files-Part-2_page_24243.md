@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24243.png
-
-Convert to Markdown$31 million, most of which are held outside the U.S. The companies do not write insurance in the United States, but rather reinsure with cooperating companies who then sell the risk to the CIA for a percentage of the premium. The policies are written directly abroad. Each of the U. S. companies pays little tax and a proprietary auditing firm audits the books of MIMUTUAL. This method of self-insurance enables the Agency to funnel money where needed in any of its project categories. Currently, 60 percent of the investments are in Eurobonds, 20 percent in off-shore time deposits in U. S. banks, and the balance is in common stocks, debentures and commercial paper of various types. For example, the current breakdown is:
+$31 million, most of which are held outside the U.S. The companies do not write insurance in the United States, but rather reinsure with cooperating companies who then sell the risk to the CIA for a percentage of the premium. The policies are written directly abroad. Each of the U. S. companies pays little tax and a proprietary auditing firm audits the books of MIMUTUAL. This method of self-insurance enables the Agency to funnel money where needed in any of its project categories. Currently, 60 percent of the investments are in Eurobonds, 20 percent in off-shore time deposits in U. S. banks, and the balance is in common stocks, debentures and commercial paper of various types. For example, the current breakdown is:
 
 - $7 million in time deposits abroad;
 

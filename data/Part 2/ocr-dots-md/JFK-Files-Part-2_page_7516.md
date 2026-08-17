@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7516.png
-
-Convert to Markdown1 Feb 70
+1 Feb 70
 
 1 Jul 70
 

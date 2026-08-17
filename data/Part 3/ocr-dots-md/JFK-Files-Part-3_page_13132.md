@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13132.png
-
-Convert to MarkdownFray Balbino de Ferral of the Capuchinos Convent Plaza de Jesus #2, Madrid, Spain, advised on 8/22/63 that he had been deported from Cuba in September, 1961. Fray Balbino stated that he was a member of the MRR, identified as a counterrevolutionary group which was headed by Manuel Artimes, who was one of the leaders of the 4/17/61 Bay of Pigs invasion (sic). Fray Balbino said that he acted in a sort of liaison capacity between the MRR and other counterrevolutionary groups.
+Fray Balbino de Ferral of the Capuchinos Convent Plaza de Jesus #2, Madrid, Spain, advised on 8/22/63 that he had been deported from Cuba in September, 1961. Fray Balbino stated that he was a member of the MRR, identified as a counterrevolutionary group which was headed by Manuel Artimes, who was one of the leaders of the 4/17/61 Bay of Pigs invasion (sic). Fray Balbino said that he acted in a sort of liaison capacity between the MRR and other counterrevolutionary groups.
 
 SECRET
 

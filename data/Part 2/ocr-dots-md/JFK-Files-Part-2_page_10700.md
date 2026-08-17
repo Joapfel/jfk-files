@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10700.png
-
-Convert to MarkdownPH 52-7164 Sub S
+PH 52-7164 Sub S
 
 Francis Xavier Madden (True Name), Mel Madden; FRANK POMMERSHEIM to FRANK RICHARD POMMERSHEIM; ROSEMARY REILLY to ROSEMARY ELIZABETH REILLY, aka Ro Ro. Fugitive has been deleted following Reverend EDWARD J. MC GOWAN's name since New York advised by teletype on 9/8/71 that MC GOWAN had voluntarily surrendered to the FBI at New York City on that date.
 

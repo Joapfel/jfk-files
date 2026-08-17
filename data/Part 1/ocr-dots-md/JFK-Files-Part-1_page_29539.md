@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29539.png
-
-Convert to MarkdownDear Mr. [REDACTED],
+Dear Mr. [REDACTED],
 
 Reference is made in your contract with the United States Government, as represented by the Contracting Officer, effective 10 February 1961, as amended. Effective [REDACTED], said contract, as amended, is hereby terminated by mutual consent of the parties thereto and in lieu thereof the following agreement is substituted.
 

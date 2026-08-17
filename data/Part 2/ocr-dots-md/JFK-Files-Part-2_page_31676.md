@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31676.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # YOUTH FOR JOBS (YFJ), aka Youth for Jobs Committee
 

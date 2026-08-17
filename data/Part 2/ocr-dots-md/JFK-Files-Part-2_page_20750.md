@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20750.png
-
-Convert to Markdownfollowed the instructions set forth for them at the SWP-YSA Action meeting held before this conference. Five additional resignations followed Rose Weber from WONAAC. They all stressed the fact that they would continue their work in the abortion fight outside of this organization.
+followed the instructions set forth for them at the SWP-YSA Action meeting held before this conference. Five additional resignations followed Rose Weber from WONAAC. They all stressed the fact that they would continue their work in the abortion fight outside of this organization.
 
 In defense of the SWP-YSA position at the conference, Linda Jenness, the SWP Presidential candidate, spoke in behalf of the YSA-SWP. In answer to Rose Weber's accusation, Jenness stated that all members of the YSA-SWP were independent individuals with their own personal ideas and viewpoints.
 

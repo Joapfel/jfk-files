@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2165.png
-
-Convert to Markdown17 April 1962
+17 April 1962
 
 MEMORANDUM FOR: Acting Chief, WE
 SUBJECT : Mr. James A. Noel

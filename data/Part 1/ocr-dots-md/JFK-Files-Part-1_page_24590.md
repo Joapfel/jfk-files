@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24590.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>22 April 1967</td>
     <td>gave Party Labor Leaders information on the PGT plans for May Day celebration and explained that the party will cooperate with the Rebel Armed Forces in a terrorist campaign after 1 May 1967 (14).</td>

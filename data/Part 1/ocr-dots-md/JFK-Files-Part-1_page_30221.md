@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30221.png
-
-Convert to Markdown620 Pacific Avenue
+620 Pacific Avenue
 Alameda, California
 
 April 13, 1951

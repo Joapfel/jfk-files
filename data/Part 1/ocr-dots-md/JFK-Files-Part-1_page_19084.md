@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19084.png
-
-Convert to Markdown# PART A-1
+# PART A-1
 
 Report No. F-189
 Report from France

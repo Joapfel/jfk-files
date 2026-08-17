@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8103.png
-
-Convert to Markdown(b) relate to electronic surveillances of telephones and/or premises at 2414 Atlantic Avenue and/or the Clairidge Hotel in Atlantic City, New Jersey, during August 1964.
+(b) relate to electronic surveillances of telephones and/or premises at 2414 Atlantic Avenue and/or the Clairidge Hotel in Atlantic City, New Jersey, during August 1964.
 
 8. Committee staff access to all memoranda and other materials reflecting the identities of persons monitored, the content of conversations monitored, and/or any information obtained from such conversations monitored on the surveillances described above.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26042.png
-
-Convert to Markdownand he was not to tell on their bosses or
+and he was not to tell on their bosses or
 anything, but usually personal worries, and
 concern that waste or something going
 wrong would affect them. Later they moved

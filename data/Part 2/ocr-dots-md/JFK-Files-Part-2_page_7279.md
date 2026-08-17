@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7279.png
-
-Convert to Markdown13-00000
+13-00000
 
 CABLE SEC DISSEM BY ________ PER ________
 TOTAL COPIES ________

@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_21979.png
-
-Convert to MarkdownSee Part III., which describes KOSCHKO's emphatic refusal during the 1962 meetings to have any contacts with CIA inside the Soviet Union. During the October 1966 interrogaitions, NOSENKO said that in 1962 he had "absolutely no idea" concerning the possibility of CIA using FRIPPEL as an intermediary for contact inside the Soviet Union.
+See Part III., which describes KOSCHKO's emphatic refusal during the 1962 meetings to have any contacts with CIA inside the Soviet Union. During the October 1966 interrogaitions, NOSENKO said that in 1962 he had "absolutely no idea" concerning the possibility of CIA using FRIPPEL as an intermediary for contact inside the Soviet Union.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_872.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **TRAINING REPORT**
 

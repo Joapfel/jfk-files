@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32233.png
-
-Convert to MarkdownSECRET
+SECRET
 (10 lines, 75 columns)
 
 <table><thead><tr><th colspan="6">REQUEST FOR PERSONNEL ACTION</th><th>DATE PREPARED</th></tr><tr><td colspan="6"></td><td>22 July 1964</td></tr></thead><tbody><tr><td colspan="3">1 SERIAL NUMBER<br/>036130</td><td colspan="3">4 NAME (last, first, middle)<br/>FLORES, Daniel</td><td rowspan="5"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td colspan="2">EFFECTIVE DATE REQUESTED</td></tr><tr><td>MONTH</td><td>DAY</td><td>YEAR</td></tr><tr><td>8/25</td><td></td><td>Sat Aug 25</td></tr><tr><td colspan="3">COST CENTER NO CHARGEABLE</td></tr><tr><td colspan="3">5235-1162</td></tr><tr><td colspan="6">LOCATION OF OFFICIAL STATION<br/>Wash., D.C.</td></tr><tr><td>11. POSITION TITLE</td><td>12 POSITION NUMBER</td><td colspan="3"></td><td>13 CAREER SERVICE DESIGNATION</td></tr><tr><td>Intelligence Asst</td><td>1130</td><td colspan="3"></td><td>D</td></tr><tr><td>14. CLASSIFICATION SCHEDULE (GS, L.R. etc.)</td><td>15 OCCUPATIONAL SERIES</td><td colspan="3"></td><td>17 SALARY OR RATE</td></tr><tr><td>GS</td><td>0301.28</td><td colspan="3"></td><td>$ 4850</td></tr><tr><td colspan="6">REMARKS<br/>From: SAB No. 0922 trang 371F</td></tr></tbody></table></td></tr><tr><td colspan="6">Recorded by CSPD</td></tr></tbody></table>

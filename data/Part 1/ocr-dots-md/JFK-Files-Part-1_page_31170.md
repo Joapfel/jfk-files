@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31170.png
-
-Convert to Markdown# SECTION E REVIEWING COMMENTS (continued)
+# SECTION E REVIEWING COMMENTS (continued)
 
 Lee H. Wigren
 

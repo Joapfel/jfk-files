@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10297.png
-
-Convert to MarkdownSensitivity Unknown, but Possibly a Matter for Concern (Continued)
+Sensitivity Unknown, but Possibly a Matter for Concern (Continued)
 
 | OJCS Project Identification | Project Officer Organization, & Telephone | Nature of Project | OJCS Reason for Listing |
 |---|---|---|---|

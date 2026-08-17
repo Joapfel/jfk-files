@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22427.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Of course, if these people went out and did something on their own, they could do things we were not aware of, obviously.
 

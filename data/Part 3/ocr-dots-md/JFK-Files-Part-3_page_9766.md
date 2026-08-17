@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9766.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO: Director, Federal Bureau of Investigation
 

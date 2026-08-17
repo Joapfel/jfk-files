@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16613.png
-
-Convert to Markdown8. 9F #10269 was brought in by Officer Corman and delivered by him to Mr. Smith to Mr. Sadunus to Mr. Zam for micro-analysis of blood stains on stock, then returned and assigned the above number.
+8. 9F #10269 was brought in by Officer Corman and delivered by him to Mr. Smith to Mr. Sadunus to Mr. Zam for micro-analysis of blood stains on stock, then returned and assigned the above number.
 
 9. No copies of bonds are retained in State's Attorney's Office. Information may be obtained from clerks Mr. Marcantelli and Mr. Grassman. Records on indictments 632046, 633037 and 691842 are available in clerk's office at 26th & California.
 

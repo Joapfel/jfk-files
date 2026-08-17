@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29258.png
-
-Convert to Markdown# OUTSIDE CONTACT REPORT
+# OUTSIDE CONTACT REPORT
 
 DATE 6-11-78 TIME 3:00PM
 

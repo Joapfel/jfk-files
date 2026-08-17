@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23610.png
-
-Convert to MarkdownSECRET
+SECRET
 
 mThis document consists of 2 pages
 Copy No. ___ of 9 copies; Series

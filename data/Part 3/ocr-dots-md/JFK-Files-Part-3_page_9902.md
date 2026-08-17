@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9902.png
-
-Convert to Markdowndeletion or sanitization of this type of information, prior to providing the document.
+deletion or sanitization of this type of information, prior to providing the document.
 
 (a) Agent or informant names or operational information revealing them.
 

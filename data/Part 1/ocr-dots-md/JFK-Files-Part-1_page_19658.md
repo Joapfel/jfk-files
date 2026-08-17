@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19658.png
-
-Convert to Markdown4. Mr. O'Connell has seen this Fitness Report.
+4. Mr. O'Connell has seen this Fitness Report.
 
 Ernmal P. Geiss
 Deputy Director of Security

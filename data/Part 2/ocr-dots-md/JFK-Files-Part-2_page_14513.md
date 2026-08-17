@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14513.png
-
-Convert to MarkdownNovember 18, 1954
+November 18, 1954
 
 Assistant Attorney General
 William F. Tomkins

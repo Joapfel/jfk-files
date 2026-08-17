@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3178.png
-
-Convert to Markdown1790
+1790
 
 You say that your informants are not expected to do anything
 that an agent himself could not do, but in the gathering of the

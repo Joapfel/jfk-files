@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24282.png
-
-Convert to Markdownto Executive Branch direction. In this sense, there is no
+to Executive Branch direction. In this sense, there is no
 reason in law, although there may well not be another era or
 set of occasions when CIA will find proprietary expansion to
 be operationally desirable. The Congress should be a partner

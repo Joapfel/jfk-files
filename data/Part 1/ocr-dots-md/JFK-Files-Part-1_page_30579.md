@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30579.png
-
-Convert to MarkdownAPPROVED C.C. DATE: APPROVED --- U. S. OFFICE:
+APPROVED C.C. DATE: APPROVED --- U. S. OFFICE:
 
 (Chairman of Union) Date E. M. Josell 2-17-47
 (Administrative Officer)

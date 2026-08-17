@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9981.png
-
-Convert to Markdown2.
+2.
 
 he was unable to confirm whether the Station had any unilateral assets to assist or in fact was interested in taking over Crozco from L/3 until after 0900 that morning. When Rowton talked to L/3 again on the phone at about 0915, L/3 reported that Crozco had left the apartment at 0830 and proceeded directly via pesero to his mother's house ( Tenis 186,5) in Colima Country Club and that L/3 and sergio Valdez had succeeded in surveilling him there and were at that moment watching the house from near- by. About 20 minutes later L/3 reported that Crozco had left the house and was at that moment in a nearby barbershop. L/3 added that he and Val- dez could not carry on the surveillance much longer since they were be- coming conspicuous ( as later reported, a police car (unmarked) was spot- ted by Valdez in the vicinity and might have approached them if the house was actually under surveillance by the Mexican police).
 

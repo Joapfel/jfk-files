@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30168.png
-
-Convert to Markdown# NW 88326 DocId:32269709 Page 69
+# NW 88326 DocId:32269709 Page 69
 
 ## TYPE OR PRINT ALL INFORMATION IN BLACK
 

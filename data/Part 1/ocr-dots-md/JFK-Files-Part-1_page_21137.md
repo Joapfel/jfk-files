@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21137.png
-
-Convert to MarkdownSECRET
+SECRET
 
 RICHARDSON, Jacques G.
 

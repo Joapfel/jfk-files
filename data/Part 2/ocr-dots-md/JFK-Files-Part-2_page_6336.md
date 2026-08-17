@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6336.png
-
-Convert to Markdown# From the Desk of Robert J. Eatinger
+# From the Desk of Robert J. Eatinger
 
 **NOTE FOR:** J. Barry Harrelson @ DA
 **FROM:** Robert J. Eatinger

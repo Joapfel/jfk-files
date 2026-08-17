@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23790.png
-
-Convert to Markdown possibility of the American press getting discredited, having problems of being able to perform its normal functions in the world and performing in the United States because it is part of a clandestine intelligence organization.
+possibility of the American press getting discredited, having problems of being able to perform its normal functions in the world and performing in the United States because it is part of a clandestine intelligence organization.
 
 Mr. Kirbow. Don't you think that's an individual right that a person has the right to exercise both ways, instead of one way?
 

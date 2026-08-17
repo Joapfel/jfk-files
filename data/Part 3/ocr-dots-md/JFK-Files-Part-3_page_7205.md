@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7205.png
-
-Convert to Markdowncrisis and thus disproving our own predictions. This is a contribution of which we are proud, for our purpose is not merely to record facts pertaining to foreign situations but to help maintain security and peace as well.
+crisis and thus disproving our own predictions. This is a contribution of which we are proud, for our purpose is not merely to record facts pertaining to foreign situations but to help maintain security and peace as well.
 
 Intelligence likewise contributes to our internal secu-
 rity. The efforts of foreign nations to penetrate our society

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33661.png
-
-Convert to MarkdownWID-EUROPEAN STUDIES CENTER
+WID-EUROPEAN STUDIES CENTER
 American Personnel
 
 November 23, 1964

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9616.png
-
-Convert to MarkdownOFFICE MEMORANDUM • UNITED STATES GOVERNMENT
+OFFICE MEMORANDUM • UNITED STATES GOVERNMENT
 
 TO Chief, Registry Division
 FROM Chief, FBT

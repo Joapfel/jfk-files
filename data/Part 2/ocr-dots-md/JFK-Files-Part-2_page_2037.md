@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2037.png
-
-Convert to Markdownof any given situation, evidences sound and objective judgment,
+of any given situation, evidences sound and objective judgment,
 and works well under pressure. He writes lucidly, speaks
 articulately, and exhibits a high degree of cost consciousness
 in the use of government funds and property. His delegation of

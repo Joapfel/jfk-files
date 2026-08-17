@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34509.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this contract and the continuing compliance with the secrecy obligations imposed on you by paragraph 7 of this contract and the provisions of any secrecy agreement which you have signed with the CENTRAL INTELLIGENCE AGENCY
 

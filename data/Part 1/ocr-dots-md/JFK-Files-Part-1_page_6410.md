@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6410.png
-
-Convert to Markdown29 October 1954
+29 October 1954
 
 SUBJECT: Passing of all reports to Brazilian authorities.
 

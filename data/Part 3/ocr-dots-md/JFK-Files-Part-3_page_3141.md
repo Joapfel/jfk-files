@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3141.png
-
-Convert to Markdown1753
+1753
 
 we had men who felt that there was an immediate danger to the country. They felt they had a responsibility to act and having felt this responsibility, did act. And lthis is the whole problem we haven at the present time, because we do have, one, we can see good evidence of their belief there was a threat. We had cities being burned, we had educational institutions being bombed. We had deaths occurring from all of these activities. We had a situation that we didn't know what the end was going to be. We never can look around the corner in intelligence operations. We don't know if ultimately this might bring the destruction of the country. All we know is we had an extremely violent time. So I.don't find any basis in my mind to argue with their good faith belief they were faced with a danger.
 

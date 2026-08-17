@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12872.png
-
-Convert to Markdown14-0000
+14-0000
 
 FORM 38200
 7-11 MPD 3/79

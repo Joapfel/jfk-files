@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12839.png
-
-Convert to Markdowna. If so, specify each such instance, listing the name of the individual, group, or organization whose file was disseminated and the agency at whose request the file was disseminated.
+a. If so, specify each such instance, listing the name of the individual, group, or organization whose file was disseminated and the agency at whose request the file was disseminated.
 
 17. Has the Internal Revenue Service received requests for the dissemination of information contained in IGRS which (a) were politically motivated, or (b) were made by individuals or entities whose normal official duties did not require the use of such information? If so, please furnish the Committee with the following:
 

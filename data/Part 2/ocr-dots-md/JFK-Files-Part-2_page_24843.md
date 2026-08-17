@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24843.png
-
-Convert to Markdownthree 45-caliber machine guns and 500 rounds of ammunition. The Navy
+three 45-caliber machine guns and 500 rounds of ammunition. The Navy
 Captain said he had three machine guns himself "but can be identified
 by serial numbers as having been issued to him. Therefore unable to
 use them." (Santiago 562, 18 October) Colonel Wimert and the Chief

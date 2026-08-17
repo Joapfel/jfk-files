@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32850.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AMENDMENT TO MEMORANDUM OF ORAL COMMITMENT
 ---

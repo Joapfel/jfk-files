@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12293.png
-
-Convert to Markdown3. Persons being considered for use in espionage and foreign nationality cases may be considered for special problems which limit or govern the scope of the initial investigation. (See instructions re contact cases and derecense program, section 105K, 6b and 6h, volume IV, this manual.)
+3. Persons being considered for use in espionage and foreign nationality cases may be considered for special problems which limit or govern the scope of the initial investigation. (See instructions re contact cases and derecense program, section 105K, 6b and 6h, volume IV, this manual.)
 
 However, where practical the above items should be considered.
 

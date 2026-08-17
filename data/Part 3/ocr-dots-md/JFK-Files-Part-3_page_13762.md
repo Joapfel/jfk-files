@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13762.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (4) The Dominican Republic, where the problems of political recon-
 struction after a generation of dictatorship have proved almost

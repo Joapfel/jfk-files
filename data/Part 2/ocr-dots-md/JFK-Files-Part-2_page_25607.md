@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25607.png
-
-Convert to Markdownwant to get involved in any of the gambling businesses and would not therefore want
+want to get involved in any of the gambling businesses and would not therefore want
 to purchase the hotel. It was at this point that Roselli conceived of the idea of
 trying to sell the hotel, and approached Kolod and asked if he would be willing to
 sell it. Kolod replied that if Roselli could make arrangements to sell it he would

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_21746.png
-
 for the special Cuban
 9 Bay of Pigs purposes, for a period of several months prior to,
 10 perhaps six months prior to his eventual retirement.

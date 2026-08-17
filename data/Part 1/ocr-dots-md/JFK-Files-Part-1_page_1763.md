@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1763.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BROWN, George Rufus - 1942-
 

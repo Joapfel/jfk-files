@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12430.png
-
-Convert to MarkdownLa mayoría de los diamantes son colorados
+La mayoría de los diamantes son colorados
 
 Venezuela Blanco amarillento
 Ghana Marrón verdoso muy atractivo

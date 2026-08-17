@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34160.png
-
-Convert to Markdowntonces apareció un buque griego que desembarcó de facilitaries agua y algunos alineamentos lo comunicó al Servicio de Guardacostas de los Estados Unidos y poco después, un avión aterrizó en el lugar y marcaba el sitio para facilitarle la tarea a una de sus unidades navales que ya se encontraba en camino.
+tonces apareció un buque griego que desembarcó de facilitaries agua y algunos alineamentos lo comunicó al Servicio de Guardacostas de los Estados Unidos y poco después, un avión aterrizó en el lugar y marcaba el sitio para facilitarle la tarea a una de sus unidades navales que ya se encontraba en camino.
 
 La llegada del buque del Servicio de Guardacostas Norteamericano fué real -mente providencial, pues mi familia y los otros tripulantes del bote observaban aterrorizados como por la popa se acercaba velozmente una lancha patrullera cubana, que al ver el buque norteamericano viró en redondo y regresó a Cuba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24489.png
-
-Convert to Markdown(DRAFTING SUBCOMMITTEE)
+(DRAFTING SUBCOMMITTEE)
 
 8/29/75
 

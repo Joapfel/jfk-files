@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11588.png
-
-Convert to Markdown# PROTEST AND TROTSKYIST GROUPS UNIT
+# PROTEST AND TROTSKYIST GROUPS UNIT
 
 This Unit is responsible for the investigation of antiwar protest groups and key activists connected therewith, as well as the Eastcon case. Accomplishments of the Unit worthy of note are as follows:
 

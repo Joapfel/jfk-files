@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9455.png
-
-Convert to Markdownis a quality that enables any honorable man because it is an act of a revolutionary engaged in, and struggle against the shameful military dictatorship and its nonstronomics."
+is a quality that enables any honorable man because it is an act of a revolutionary engaged in, and struggle against the shameful military dictatorship and its nonstronomics."
 
 So with that, I say this, all self-dفense groups must strike blows against the slaveMASTER until we have secured our survival as a people and if this takes shooting every pig and blowing up every pig by then let's get on up.
 

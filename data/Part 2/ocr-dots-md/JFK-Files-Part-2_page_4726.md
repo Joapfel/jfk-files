@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4726.png
-
-Convert to MarkdownSECRET
+SECRET
 
 And as I point out in my review of his book, I said, "You don't take an artillery officer and make a submarine captain out of him. Or vice versa. Sure, you can do it over a period of training, but if a guy wants to be a sub captain, he goes into the sub service. He doesn't join the artillery. And vice versa." And I said, "You know, people are not that changeable."
 

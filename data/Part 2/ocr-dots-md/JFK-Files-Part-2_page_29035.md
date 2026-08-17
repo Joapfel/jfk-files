@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29035.png
-
-Convert to MarkdownSUPPLEMENT TO SCHEDULE C
+SUPPLEMENT TO SCHEDULE C
 
 | Description | Amount |
 | :--- | ---: |

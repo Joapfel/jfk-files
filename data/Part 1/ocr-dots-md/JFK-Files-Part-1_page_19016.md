@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19016.png
-
-Convert to Markdown# Intelligence Information Report
+# Intelligence Information Report
 
 This document contains information affecting the National Defense of the United States within the meaning of the intelligence laws, Title 18, U.S.C. Sections 793 and 794, the transmission or dissemination of which is Prohibited by law.
 

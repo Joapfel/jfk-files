@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4761.png
-
-Convert to MarkdownME 92-831
+ME 92-831
 MM 92-1870
 GDO:tjm
 

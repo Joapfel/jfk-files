@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2269.png
-
-Convert to MarkdownHonorable Ike Mansfield
+Honorable Ike Mansfield
 Majority Leader of the Senate
 
 Room S-208

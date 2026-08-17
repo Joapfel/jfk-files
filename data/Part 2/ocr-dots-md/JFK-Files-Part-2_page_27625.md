@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27625.png
-
-Convert to MarkdownLILLIAN BARBARA JOHNSON
+LILLIAN BARBARA JOHNSON
 
 served with distinction on behalf of the
 Armed Forces of the United States

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1631.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>NAME OF EMPLOYEE (Last-First-Middle)</th><th>NAME AND RELATIONSHIP OF DEPENDENT*</th><th>CLAIM NUMBER</th></tr></thead><tbody><tr><td>Woods, James S.</td><td>Louise A. - wife</td><td>66-502</td></tr></tbody></table>
 

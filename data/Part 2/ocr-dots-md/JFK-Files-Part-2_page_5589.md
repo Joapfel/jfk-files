@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5589.png
-
-Convert to Markdown20/20 (ABC), August 27, 1993
+20/20 (ABC), August 27, 1993
 
 Dr. JENKINS: She had such a drawn look. I really feel like she was in shock, and she was just holding her hands, one above the other. And one of the times, she nudged me with her elbow and handed me something in her hand, which is part of his brain that obviously was in her lap- with his head in her lap as the car came to Parkland. Bad moment.
 

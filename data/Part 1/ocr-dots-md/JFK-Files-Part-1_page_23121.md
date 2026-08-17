@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23121.png
-
-Convert to MarkdownStanley Lasse, M.D.
+Stanley Lasse, M.D.
 
 In the afternoons, four different experiments were carried out. The first one on evoked potentials in humans, correlations of same facing luminous stimulations of different colors. Influence of expectancy situations. The second experiment was on learning, observing cats with alimentary reflex. The third one was in influence of specific and unspecific structures of the Central Nervous System on learning. Stimulations of different specific structures and of reticular watching the importance of the facilitation of this mechanism. The fourth experiment was a study with microelectrodes of neuronal activity changes during the learning stage in chronic animals.
 

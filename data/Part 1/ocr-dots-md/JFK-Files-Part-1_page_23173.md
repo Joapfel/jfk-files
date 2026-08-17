@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23173.png
-
-Convert to MarkdownSECRE!
+SECRE!
 
 17 January 1966
 

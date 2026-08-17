@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20794.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO. 45 REPLACES PREVIOUS EDITIONS OF SECRET
 

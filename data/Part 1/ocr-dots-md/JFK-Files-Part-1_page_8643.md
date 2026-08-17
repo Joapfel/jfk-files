@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8643.png
-
-Convert to MarkdownSeptember 9, 1969
+September 9, 1969
 
 Contact Report
 

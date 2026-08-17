@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11925.png
-
-Convert to Markdownb. Symbol number index
+b. Symbol number index
 This index shall contain card for each individual to whom symbol number has been assigned. File cards numerically and any symbols which consist of fictitious names shall be filed alphabetically behind numerical symbol index.
 
 c. Where good reason exists for an Agent to obtain information from either of these indices, it should be furnished by official having custody of cards. These indices should be used as a guide only; informant's file must be reviewed to determine specific nature of activities and type of information he furnishes.

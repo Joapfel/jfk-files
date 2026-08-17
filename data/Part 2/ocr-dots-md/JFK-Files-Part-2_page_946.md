@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_946.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FIELD COMMENTS - continued
 

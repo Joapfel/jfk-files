@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28832.png
-
-Convert to MarkdownATTACH SUPPLEMENTAL SHEETS OR FORMS HERE
+ATTACH SUPPLEMENTAL SHEETS OR FORMS HERE
 
 <table><thead><tr><th colspan="2">Date of employment (Month, day, year)</th></tr></thead><tbody><tr><td>From</td><td>November 1947</td></tr><tr><td>To</td><td>October 1949</td></tr></tbody></table>
 

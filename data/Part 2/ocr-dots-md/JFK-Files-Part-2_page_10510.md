@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10510.png
-
-Convert to MarkdownDEVELOPMENTS:
+DEVELOPMENTS:
 
 The San Diego Convention Coalition (SDCC), one of the domestic action groups targetting on the Republican Con- vention, is planning, in addition to demonstrations, for a "large exposition in the campsights (sic) called Expose 72, which with movies, exhibits, displays will portray the struggles of people all over the world." Plans for activities at Expose 72 are believed to include (a) the use of a special television network to broadcast video-taped messages from other countries, including coverage of sympathetic demon- strations elsewhere; and (b) broadcasts over public address systems of live telephone calls from the Vietnamese in Paris and from the Communist Chinese and others at the United Nations. In addition, the SDCC has suggested that, in order to "outflank NIXON domestically and internationally," international opposition can be expressed "by obtaining the authority of other countries and liberation movements to carry their flags in SDCC demon- strations."
 

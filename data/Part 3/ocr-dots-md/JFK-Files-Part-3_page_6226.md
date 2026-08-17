@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6226.png
-
-Convert to MarkdownLetter to FAC, Los Angeles
+Letter to FAC, Los Angeles
 RE: JANE Fonda
 
 NOTE:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30890.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Mr. Jeremy K. Benadum
 

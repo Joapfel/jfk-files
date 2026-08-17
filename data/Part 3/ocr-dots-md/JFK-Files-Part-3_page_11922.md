@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11922.png
-
-Convert to MarkdownACCOMPLISHMENTS
+ACCOMPLISHMENTS
 
 SABOTAGE
 

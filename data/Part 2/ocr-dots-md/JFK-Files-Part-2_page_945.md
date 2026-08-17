@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_945.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
     <tbody>

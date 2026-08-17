@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_364.png
-
-Convert to MarkdownMEMORANDUM FOR: SA/DO/O
+MEMORANDUM FOR: SA/DO/O
 
 FROM : H. Clark Schor
 Chief, Plans and Review Group

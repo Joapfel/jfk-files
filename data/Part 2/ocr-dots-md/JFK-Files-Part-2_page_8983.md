@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8983.png
-
-Convert to MarkdownSe rumora de que el citado escritor tenía relaciones con Lee Harvey Oswald, y que inclusive cruzaba correspondencia con este, motivo por el cual se le investiga.
+Se rumora de que el citado escritor tenía relaciones con Lee Harvey Oswald, y que inclusive cruzaba correspondencia con este, motivo por el cual se le investiga.
 
 **23 de Noviembre de 1963:**
 

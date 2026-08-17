@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24068.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 plots "were completely authorized at every appropriate level within and beyond the Agency", although he had "no personal knowledge whatever of the individuals' identities, times, exact words, or channels through which such authority may have passed". Harvey stated that he had been told by Richard Bissell that the effort against Castro had been authorized "from the highest level", and that Harvey had discussed the plots with Richard Helms, his immediate superior. Helms testified that although he had never discussed assassination with his superiors, he believed:
 

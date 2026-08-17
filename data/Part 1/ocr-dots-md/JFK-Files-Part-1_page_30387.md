@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30387.png
-
-Convert to MarkdownJAMES W. McOORD, JR.
+JAMES W. McOORD, JR.
 
 27 August 1951
 

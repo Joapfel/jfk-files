@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31315.png
-
-Convert to MarkdownUaleat Intelligentia Melius
+Ualeat Intelligentia Melius
 
 This certifies that
 LEE H. WIGREN

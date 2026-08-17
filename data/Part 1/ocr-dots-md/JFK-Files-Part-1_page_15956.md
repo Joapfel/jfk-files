@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15956.png
-
-Convert to MarkdownFOR:
+FOR:
 
 Action for this cable (TRAN 1467) assumed by this branch.
 

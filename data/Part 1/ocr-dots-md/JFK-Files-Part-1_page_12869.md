@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12869.png
-
-Convert to MarkdownFORM 808
+FORM 808
 7-14MAY 92
 
 CABLE SEC DISSEMIN BY: PLG TOTAL COPY N. D.

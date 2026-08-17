@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7363.png
-
-Convert to Markdown6) Early agreement should be reached on the disposition of classified materials such as storage under seal in the National Archives. The question of access should be determined by the President of the Senate or the Speaker of the House.
+6) Early agreement should be reached on the disposition of classified materials such as storage under seal in the National Archives. The question of access should be determined by the President of the Senate or the Speaker of the House.
 
 ### 3. Compartmented Information
 

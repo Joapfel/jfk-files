@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6243.png
-
-Convert to MarkdownThe Warren commission and Mexico.
+The Warren commission and Mexico.
 
 I don't know from cable chronos, Oswald's
 Mexico file and WX-7241.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8365.png
-
-Convert to MarkdownSECRET
+SECRET
 
 COPY SGR-3830
 

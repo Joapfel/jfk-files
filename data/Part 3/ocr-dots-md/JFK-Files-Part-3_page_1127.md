@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1127.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 On June 22, 1964, the Boston Office made available
 to a confidential source at Harvard University, Cambridge,

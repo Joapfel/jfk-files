@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9454.png
-
-Convert to MarkdownThe use of different types of ammunition and explosives should be considered also.
+The use of different types of ammunition and explosives should be considered also.
 
 PART I. RECIPES
 

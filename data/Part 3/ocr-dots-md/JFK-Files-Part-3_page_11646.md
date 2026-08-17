@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11646.png
-
-Convert to Markdown# New Left Movement - Publications
+# New Left Movement - Publications
 
 By letter dated 11/5/68 to all offices under the caption of "New Left Movement, Publications, Internal Security - Miscellaneous," the field was instructed to cover the principal propaganda mills of the New Left which are described as "underground" newspapers. This survey has been particularly beneficial in view of the fact that the New Left, to a great extent, depends on the written word to spread its propaganda. The survey has disclosed that in excess of 200 papers are published on a regular basis with a central theme being criticism of the "establishment" in general and law enforcement, the draft and the Vietnam War in particular. Youth, particularly students, are the main target of these publications, which are effective vehicles for agitation and recruitment in that they reach a large portion of the student population. Additionally, the survey has revealed the papers are in poor financial condition and often miss publication dates due to lack of funds. Funds are generally received from advertising, subscriptions, donations and benefits. Volunteer labor is used in most instances and many times the staff of the publication resides collectively in a commune.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27776.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="10">NOTIFICATION OF PERSONNEL ACTION</th></tr><tr><th>LVL</th><th>1</th><th>JUNE</th><th>58</th><th colspan="3"></th><th colspan="4"></th></tr><tr><th>1. Serial No.</th><td colspan="6"></td><th colspan="2">3. Date Of Birth</th><th colspan="2">4. Vat. Pbl.</th><th colspan="2">5. Sex</th><th colspan="2">6. CS EOD</th></tr><tr><td colspan="2">126090</td><td colspan="2"></td><td colspan="2"></td><td colspan="2">Mo., Do., Yr.</td><td colspan="2">None-0<br>5 M-1<br>10 N-9</td><td colspan="2">Code</td><td colspan="2">M</td><td colspan="2">1</td></tr><tr><th>7. SCD</th><td colspan="3"></td><th>8. CSC Rmt.</th><td colspan="2"></td><th>Yes - 1<br>No - 2</th><td colspan="2">Code</td><th colspan="3">10. Aptm. Allidav.</th><th colspan="3">11. REGIL</th><th colspan="3">12. LCD</th><th colspan="3">13. Bit Grp. Inv</th></tr><tr><th>Mo.</th><th>Do.</th><th>Yr.</th><th colspan="2"></th><th colspan="2"></th><th colspan="2"></th><th colspan="2"></th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes-1<br>No-2</th><th colspan="2"></th><th>Mo.</th><th>Da.</th><th>Yr.</th><th>Yes - 1<br>No - 2</th><th colspan="2"></th></tr></thead><tbody><tr><td>01</td><td>29</td><td>53</td><td colspan="6"></td><td colspan="2">50 USCA 403 #</td><td colspan="3">1</td><td colspan="2">2</td><td colspan="2"></td><td colspan="2"></td><td colspan="2"></td></tr></tbody></table>

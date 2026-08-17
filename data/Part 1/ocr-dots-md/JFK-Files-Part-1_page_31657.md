@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31657.png
-
-Convert to Markdown23 April 1955
+23 April 1955
 
 MS4051N-PO, SECURITY OFFICER, CIA
 

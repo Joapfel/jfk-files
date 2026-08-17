@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31054.png
-
-Convert to MarkdownMr. Jeremy K. Benadum
+Mr. Jeremy K. Benadum
 
 Dear Mr. Benadum:
 

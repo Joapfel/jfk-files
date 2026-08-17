@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29193.png
-
-Convert to MarkdownHEALTH QUALIFICATION PLACEMENT RECORD
+HEALTH QUALIFICATION PLACEMENT RECORD
 
 (This section is comparable to Standard Form 90 promulgated March 1945 by Bureau of the Budget Circular A-24)
 

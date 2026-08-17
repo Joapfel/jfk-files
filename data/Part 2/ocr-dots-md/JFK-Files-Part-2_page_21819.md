@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21819.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 no cover. I went in as a tourist, a tourist can wear thin so I had to scrounge around in different ways. When a brother-in-law who was a professional gambler. died. He taught me a little about gambling, so I used to go to the black jack tables and I would win money here, there and the other place.
 

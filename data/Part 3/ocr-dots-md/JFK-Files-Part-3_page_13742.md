@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13742.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① PRC Part I - DPOB 20 Aug 1964, Havana
 ② Request for Investigation - 23 March 1964.

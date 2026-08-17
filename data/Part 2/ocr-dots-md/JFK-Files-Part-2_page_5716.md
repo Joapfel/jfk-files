@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5716.png
-
-Convert to MarkdownDavid G. Marwell
+David G. Marwell
 
 DCI/OGC/LD/LCCipriani/76124 (2 Dec 96)
 

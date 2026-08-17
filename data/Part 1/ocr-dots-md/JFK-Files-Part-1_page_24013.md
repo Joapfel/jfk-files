@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24013.png
-
-Convert to Markdown<table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td>CLASSIFICATION<br>SECRET</td><td>DISPATCH SYMBOL AND NO<br>OKLA-42,411</td></tr></table>
+<table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td>CLASSIFICATION<br>SECRET</td><td>DISPATCH SYMBOL AND NO<br>OKLA-42,411</td></tr></table>
 
 person(s) to whom he has written - or, of course, mail of other persons, in which mention is made of GIBSON.
 

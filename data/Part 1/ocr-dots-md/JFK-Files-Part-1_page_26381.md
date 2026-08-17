@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26381.png
-
-Convert to MarkdownPráctica Cualieraria
+Práctica Cualieraria
 del Periodista Victor
 Rico Gallo, en Málvina
 

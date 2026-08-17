@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22969.png
-
-Convert to MarkdownSECRE
+SECRE
 
 Date: 13 December 1956
 

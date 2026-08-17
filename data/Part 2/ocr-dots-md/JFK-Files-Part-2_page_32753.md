@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32753.png
-
-Convert to Markdownc. The extension would permit the fuller use of the two designs and provide the incentive for sharper competition from business and design standpoints.
+c. The extension would permit the fuller use of the two designs and provide the incentive for sharper competition from business and design standpoints.
 
 I approved the recommendations of the Secretaries of the Navy and Air Force, raising particular questions about the realism of the Boeing cost estimates.
 

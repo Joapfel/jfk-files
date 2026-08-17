@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31563.png
-
-Convert to Markdown# ATTENTION ALL MILITARY PERSONNEL
+# ATTENTION ALL MILITARY PERSONNEL
 
 You may soon be sent to Vietnam. You have heard about the war in the news; your officers will give you pep talks about it. But you probably feel as confused and uncertain as most Americans do. Many people will tell you to just follow orders and leave the thinking to others. But you have the right to know as much about this war as anyone. After all, it's you—not your congressman—who might get killed.
 

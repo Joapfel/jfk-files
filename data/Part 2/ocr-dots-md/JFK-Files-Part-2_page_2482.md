@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2482.png
-
-Convert to Markdown<table><tr><td>CONFIDENTIAL</td></tr><tr><td>(if not filled in)</td></tr></table>
+<table><tr><td>CONFIDENTIAL</td></tr><tr><td>(if not filled in)</td></tr></table>
 
 PROCESS SHEET FOR DCD COLLECTIONS
 

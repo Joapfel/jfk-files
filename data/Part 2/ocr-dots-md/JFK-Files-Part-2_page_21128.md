@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21128.png
-
-Convert to Markdown necessary and they were suitable for use in a case.) NOSENKO had files on both of these agents which he turned over to PHILLIP VASILYEVICH KISLITSYN when NOSENKO began work on military attaches. He had no opportunity to use "RAKETA" in 1953.
+necessary and they were suitable for use in a case.) NOSENKO had files on both of these agents which he turned over to PHILLIP VASILYEVICH KISLITSYN when NOSENKO began work on military attaches. He had no opportunity to use "RAKETA" in 1953.
 
 "RAKETA" was an agent for some officer of Section II, 1st Department in 1960 or 1961.
 

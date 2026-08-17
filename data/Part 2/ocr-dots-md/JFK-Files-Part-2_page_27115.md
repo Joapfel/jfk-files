@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27115.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 and we have concluded that ad hoc arrangements are inadequate
 for satisfying those who have a need for the counterintelli-

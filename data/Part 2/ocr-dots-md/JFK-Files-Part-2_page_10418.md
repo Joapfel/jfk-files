@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10418.png
-
-Convert to MarkdownAttachment
+Attachment
 
 23 May 1973
 

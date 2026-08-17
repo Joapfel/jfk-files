@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13345.png
-
-Convert to MarkdownSTURGIS: Well, there is a very thin line here. I have discussed assassinations of several top Cuban political and military leaders with the Havana Station.
+STURGIS: Well, there is a very thin line here. I have discussed assassinations of several top Cuban political and military leaders with the Havana Station.
 
 with
 

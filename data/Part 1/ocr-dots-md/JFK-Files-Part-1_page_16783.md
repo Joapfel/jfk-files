@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16783.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PRITY DIR CITE MEXI 3743
 RYBAT BEDOX

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32717.png
-
-Convert to MarkdownStevenson and Zorin, which exposed the truth beyond doubt.
+Stevenson and Zorin, which exposed the truth beyond doubt.
 
 STEVENSOK: Wall, let me say something to you, Mr. Ambassador: We do
 have the evidence. We have it, and it is clear and incontrovertible. And

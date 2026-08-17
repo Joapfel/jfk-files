@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13515.png
-
-Convert to MarkdownA: Only to the extent that he was in contact with King. There was no tap on Levison per se in Atlanta.
+A: Only to the extent that he was in contact with King. There was no tap on Levison per se in Atlanta.
 
 Q: Was there any physical surveillance of King?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23901.png
-
-Convert to Markdowndescribed executive action as a "general stand-by capability" to carry out assassination when required (I.G., p. 37). The project was given the code name ZR/RIFLE by the CIA.*
+described executive action as a "general stand-by capability" to carry out assassination when required (I.G., p. 37). The project was given the code name ZR/RIFLE by the CIA.*
 
 A single agent ("asset"), given the cryptonym QJ/WIN, was placed under Harvey's supervision for the ZR/RIFLE project, but never used in connection with any actual assassination efforts.
 

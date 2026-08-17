@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8789.png
-
-Convert to MarkdownSECRET
+SECRET
 
 u/s/c Attachment to HMMA-37762, 27 August 1969
 

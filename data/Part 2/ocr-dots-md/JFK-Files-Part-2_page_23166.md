@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23166.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
  pretty well scheduling these ourselves, but then a request came in that we put these in a month in advance. So as I told you before, if I wanted to run a schedule for October, I had to have it in Washington with all of the Ope planes by I think the 15th of September.
 

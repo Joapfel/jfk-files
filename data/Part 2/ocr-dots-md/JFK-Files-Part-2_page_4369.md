@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4369.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="7">MARCH</th>

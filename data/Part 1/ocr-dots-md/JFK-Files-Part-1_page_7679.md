@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7679.png
-
-Convert to Markdown13. INTELLIGENCE ACTIVITIES:
+13. INTELLIGENCE ACTIVITIES:
 
 (Cf. also Information under Contacts, below. Subject has undoubtedly been developing contacts, particularly with American girls, with a view toward Intelligence possibilities.)
 

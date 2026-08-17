@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12047.png
-
-Convert to Markdowndeveloped to the point they are accepted by Soviet-bloc officials and become operational Double-Agents. I am pleased we have increased the number of active Double-Agents since the last inspection and will closely follow our progress in this field.
+developed to the point they are accepted by Soviet-bloc officials and become operational Double-Agents. I am pleased we have increased the number of active Double-Agents since the last inspection and will closely follow our progress in this field.
 
 ASSISTANT DIRECTOR C. D. BRENNAN
 (DEM:ekn 1-24-71)

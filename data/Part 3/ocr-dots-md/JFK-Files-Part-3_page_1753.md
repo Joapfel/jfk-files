@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1753.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NOTE: SL 1495-E (former) (Bureau file 134-19686) was operated from January, 1970, to approximately September, 1971, primarily targeted against White Hate Groups. In 1971, he traveled to Savannah, Georgia, at which time he reported on activities of the National States Rights Party office and that Jerry Ray, brother of James Earl Ray, stated he knew there was another party involved in the killing of King and that his brother was the one who pulled the trigger. This is the apparent HSCA interest in informant.
 

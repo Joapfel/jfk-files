@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31437.png
-
-Convert to MarkdownMEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
+MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
 
 SUBJECT: Request for Budget Revision for NCFE
 

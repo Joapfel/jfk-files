@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17708.png
-
-Convert to Markdown# 17. Estimated Costs
+# 17. Estimated Costs
 
 The following costs are estimated for FY 1953. All figures are in U.S. dollars per year. It will be noted that raises to rises in the cost of living and especially to much higher rents and to intended expansions, limit costs will be higher than in the past.
 

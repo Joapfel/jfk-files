@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5791.png
-
-Convert to Markdown13-00000
+13-00000
 
 # EXECUTIVE SECRETARIAT
 ## ROUTING SLIP

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25938.png
-
-Convert to MarkdownThe latest raid, in July of this year, indicated a gross revenue of $250,000 per week.
+The latest raid, in July of this year, indicated a gross revenue of $250,000 per week.
 
 From those figures—
 The CHAIRMAN. Where was that raid?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33695.png
-
-Convert to MarkdownThe Nazis had long wanted to arrest Milada. Having learned of her work on the new concentration camp at a liberated Czech village, a SS officer suggested to catch her with this technique. One afternoon, in 1945, Gestapo agents brought into her country home and arrested her and her husband.
+The Nazis had long wanted to arrest Milada. Having learned of her work on the new concentration camp at a liberated Czech village, a SS officer suggested to catch her with this technique. One afternoon, in 1945, Gestapo agents brought into her country home and arrested her and her husband.
 
 For Milada had hidden the notes for the proposed constitution in close proximity to her daughter's床. While kissing the child goodbye, she informed the youngster, who later earned the notes,
 

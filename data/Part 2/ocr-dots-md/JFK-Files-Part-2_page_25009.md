@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25009.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 affairs nor kept abreast of developments in the Congo?
 

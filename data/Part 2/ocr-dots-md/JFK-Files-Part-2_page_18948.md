@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18948.png
-
-Convert to MarkdownDIRECTOR, FBI
+DIRECTOR, FBI
 
 10/3/74
 

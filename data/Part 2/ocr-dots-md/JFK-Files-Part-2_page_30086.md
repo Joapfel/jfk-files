@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30086.png
-
-Convert to MarkdownFEBRUARY PAID IN MARCH
+FEBRUARY PAID IN MARCH
 
 DATE: 3-9-77
 OFFICE NAME: Select Comm. on Assassinations PAYROLL CERTIFICATION

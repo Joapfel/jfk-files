@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35017.png
-
-Convert to MarkdownCOMMITTEES
+COMMITTEES
 
 A NEX "I-M" Page No.2
 

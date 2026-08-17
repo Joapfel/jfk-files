@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30176.png
-
-Convert to Markdown31 AUG 1970
+31 AUG 1970
 
 Mr. James W. McCord, Jr.
 7 Kinder Court

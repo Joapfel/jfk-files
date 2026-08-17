@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23237.png
-
-Convert to Markdown# CONFLICT IN CUBA
+# CONFLICT IN CUBA
 ## GAINS IN VIOLENCE
 
 ### Army Reports Widespread Clashes—Thirty Rebels Listed as Captured

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_192.png
-
-Convert to MarkdownReel 84-ES-248
+Reel 84-ES-248
 
 9 June 1966
 

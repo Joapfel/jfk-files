@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24468.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Preparation for November
 Verwoerd's Bantustan Bluff

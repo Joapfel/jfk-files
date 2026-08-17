@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1787.png
-
-Convert to Markdownsuch a committee should be kept fully and currently informed of
+such a committee should be kept fully and currently informed of
 all Agency activities, and in order to be effective should meet
 regularly and submit its reports to the DDCI and DCI.
 

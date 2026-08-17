@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30673.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Jack Kindschi, (June Sworback), Ed Galloway), Leonard McCoy (Reports and Requirements), Pierre de Silva (COS), and someone at the State Department's Office of Security
 

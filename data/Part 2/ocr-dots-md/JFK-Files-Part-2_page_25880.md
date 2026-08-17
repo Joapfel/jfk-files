@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25880.png
-
-Convert to MarkdownSTP
+STP
 
 COMMO
 CHRONO (DUMMY)

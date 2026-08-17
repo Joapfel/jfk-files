@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9412.png
-
-Convert to Markdown# I. ORGANIZATION AND OPERATIONAL DATA
+# I. ORGANIZATION AND OPERATIONAL DATA
 
 A characterization of the Black Panther Party (BPP) is contained in the appendix pages attached hereto.
 

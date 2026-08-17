@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4750.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 On January 10, 1972, Parzow also indicated that he had in his possession Federal Grand Jury transcripts concerning an Eastern Pennsylvania grand jury that was looking into election law violations, which investigation was headed by a Federal Strike Force. He gave no reason for having the transcripts, but reportedly said the case involved one Pat Brown from California, not further identified, and four governors from other states. Parzow claimed to have received these transcripts from a ranking official with the Federal Strike Force. On January 11, 1972, Parzow exhibited certain documents which the informant believed to be question and answer Federal Grand Jury transcripts. They were from the Eastern District of Pennsylvania, and one was dated June 30, 1971.
 

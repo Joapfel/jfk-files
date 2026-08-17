@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18589.png
-
-Convert to MarkdownMemorandum Donahue to Mr. Mintz
+Memorandum Donahue to Mr. Mintz
 
 Re: LEGAL AUTHORITY OF THE FBI TO USE CONFIDENTIAL INFORMANTS AS AN INVESTIGATIVE TECHNIQUE
 

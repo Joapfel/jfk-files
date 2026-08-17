@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9533.png
-
-Convert to Markdown(RMount Clipping in Space Below)
+(RMount Clipping in Space Below)
 
 # Riha case investigators' theories might be altered
 

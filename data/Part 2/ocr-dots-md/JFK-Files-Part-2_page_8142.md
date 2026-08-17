@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8142.png
-
-Convert to MarkdownSUBJECT: Investigation of Death of Martin Luther King, Jr.
+SUBJECT: Investigation of Death of Martin Luther King, Jr.
 
 1. Reference is made to our memorandum of 18 April 1968 which advised that our representative in [REDACTED] had passed through [REDACTED] who visited the [REDACTED].
 

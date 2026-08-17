@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23908.png
-
-Convert to MarkdownIf you don't really need it anyway, just an identification
+If you don't really need it anyway, just an identification
 will take an expired passport as in Common Market countries up to five years.
 
 How he got to Japan I don't know. He may have finally applied for a French passport. I thought that he still wanted to maintain the fiction of his Algerian nationality, by not making any request for FrenchResidence in Japan he was called the Delegate from the Union(?) and no mention was made of Revolution. There has never been, to the best of my knowledge and the knowledge of Andersson any mention in whatsoever any Chinese publication of this or any of the Revolution, and they have mentioned all sorts of two-bit publications that they have financed lock stock and barrel. And yet the Chinese did purchase it. I understand they do not purchase it any longer also had contact with any other group between the Chinese/Embassy- and Verges-in Paris-Geneva(?) (When)

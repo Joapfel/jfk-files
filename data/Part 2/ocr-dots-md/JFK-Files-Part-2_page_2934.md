@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2934.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of the items from the President's checklist, explaining the nature
 of the publication. Johnson asked that, for the next few days,

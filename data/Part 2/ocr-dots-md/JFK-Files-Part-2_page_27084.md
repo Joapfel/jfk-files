@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27084.png
-
-Convert to Markdown# TOP SECRET DINAR CHESS RUFF IDEALIST
+# TOP SECRET DINAR CHESS RUFF IDEALIST
 
 proportion of these dealt with the deployment of defensive missiles and related activities. Knowledge on the part of the analysts that such a deployment was in fact going on, plus the normal difficulties encountered by untrained observers in telling an offensive missile from a defensive one, tended to throw a sort of smoke-screen around the Soviet offensive deployment when it finally began. The CIA analytic apparatus, however, recognized and correlated the first authentic reports of MRBM equipment ever to be received in Washington, and took action upon them. It targeted the San Cristobal area, not as another location where alleged missile activity should be negated by photography, but as a suspect SS-4 site.
 

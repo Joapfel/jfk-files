@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18448.png
-
-Convert to MarkdownMr. William King Harvey
+Mr. William King Harvey
 23 West Irving Street
 Chevy Chase, Maryland 20015
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31665.png
-
-Convert to MarkdownCOSTLY
+COSTLY
 
 Conciel:
 

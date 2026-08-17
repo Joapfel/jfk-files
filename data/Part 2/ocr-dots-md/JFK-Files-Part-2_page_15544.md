@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15544.png
-
-Convert to MarkdownHURST and CLEMENTS didn't show, so GRAHAM led off with a multi-pronged attack on what the federal and local government is and is not doing.
+HURST and CLEMENTS didn't show, so GRAHAM led off with a multi-pronged attack on what the federal and local government is and is not doing.
 
 He blasted the proposed family planning program, saying that the pill, 'which is not yet safe, is going to be shoved down our throats.'
 

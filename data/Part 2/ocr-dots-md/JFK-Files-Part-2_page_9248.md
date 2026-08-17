@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9248.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 Sources further advised that the sandbox and iron mesh grates for fortification also date back to the "old days" of the Party when the Party was "at war" with the establishment and in constant fear of being raided by law enforcement agencies.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15889.png
-
-Convert to Markdown**Reed, Eugenia Louise**
+**Reed, Eugenia Louise**
 
 Arrested: 12/2/69
 Charge: Attempted Murder, Armed Violence, Aggravated Assault, Resisting Arrest

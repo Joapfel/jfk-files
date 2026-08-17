@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7938.png
-
-Convert to MarkdownFidel Castro dijo en la clausura de la Conferencia de la Organización Latinoamericana de Solidaridad, donde Stokely Car- michael representaba a los norteamericanos organizados en el Poder Negro.
+Fidel Castro dijo en la clausura de la Conferencia de la Organización Latinoamericana de Solidaridad, donde Stokely Car- michael representaba a los norteamericanos organizados en el Poder Negro.
 
 Y es que de ese sector negro, por ser el sector más explotado y reprimido, más brutalmente maltratado en Estados Unidos; surgirá la vanguardia revolucionaria en el seno de los Estados Unidos; y alrededor de ese movimiento revolucionario, que no surge en ese sector por problemas de raza, sino que surge por el problema social, por problema de explotación y opresión, y porque constituye ese sector el más sufrido, por la ley de la historia igual que en todas las épocas de la his- toria: como ocurrió con los plebeyos en Roma, con los siervos de la gleba en la Edad Media, con los obreros y los campe- sinos en los tiempos contemporáneos, en la sociedad americana, de ese sector oprimido surgirá el movimiento revolucionario.
 

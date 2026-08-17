@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8266.png
-
-Convert to MarkdownSECRET
+SECRET
 
 d. The ex-Haitian Ambassador, Julio Jean PIERRE-AUDAIN, was seen by the undersigned but left before he could talk to him. In view of the fact that PIERRE-AUDAIN ceased to be Ambassador of Haiti a long time ago, the undersigned feels that his presence at the Polish national day celebrations has some significance. He remembers that PIERRE-AUDAIN was also present at the celebration of the Czech national day this year. In other words, the Communists have made it a point to maintain contact with him, probably in view of the fact that PIERRE-AUDAIN may return to Haiti if something happens to DUVALIER and may secure a position of some importance in his country.
 

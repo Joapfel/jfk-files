@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26180.png
-
-Convert to MarkdownDiem as a man, and I know that Diem recipro-
+Diem as a man, and I know that Diem recipro-
 cated this very much. There was a point
 where the rational thought would end, and
 the feelings of affection and so forth

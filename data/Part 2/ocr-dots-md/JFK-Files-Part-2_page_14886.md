@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14886.png
-
-Convert to Markdownknew the policy and procedure of IRS and avoided those procedures
+knew the policy and procedure of IRS and avoided those procedures
 which might detect Goldfine's delinquencies. In addition, he
 used Goldfine's high-level connections in scaring off IRS
 investigators whenever an inquiry was made concerning Goldfine's

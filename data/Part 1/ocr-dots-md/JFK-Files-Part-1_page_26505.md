@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26505.png
-
-Convert to Markdownthey always maintained was that the fundamental nucleus of the 26 July
+they always maintained was that the fundamental nucleus of the 26 July
 organisation was an agent of cohesion of the revolutionary forces, and they
 succeeded in polarising those revolutionary forces and succeeded in avoiding
 problem, and this in the end led the revolutionary forces to victory.

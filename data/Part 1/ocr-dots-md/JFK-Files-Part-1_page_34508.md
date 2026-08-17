@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34508.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. (1) Subject to the priorities of work you are hereinafter authorized twenty-one (21) work days vacation with pay per contract year to be taken only at times and places approved in advance by the Authorized Government Representative. Vacation time is not accruable and will not be carried-over from year to year. Payment for unused vacation time will not be authorized.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22654.png
-
-Convert to Markdown1 and who weren't in the U.K., were those who were on the Anglo-American Desk, which meant that there was an American whom they had handled in Washington who had been transferred to London where the case officer follows the agent.
+1 and who weren't in the U.K., were those who were on the Anglo-American Desk, which meant that there was an American whom they had handled in Washington who had been transferred to London where the case officer follows the agent.
 
 2
 

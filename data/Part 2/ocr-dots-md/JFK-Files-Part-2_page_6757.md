@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6757.png
-
-Convert to MarkdownDraft 5/6/92
+Draft 5/6/92
 
 CIA SPECIAL COLLECTIONS
 RELEASE IN FULL

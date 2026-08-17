@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14687.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CABLE SECRETARIAT DISSEMINATION
 

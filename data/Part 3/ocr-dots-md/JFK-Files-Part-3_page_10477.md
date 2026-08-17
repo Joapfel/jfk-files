@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10477.png
-
-Convert to MarkdownNRØ32 DE CODE
+NRØ32 DE CODE
 
 5:42 PM NITEL MARCH 25, 1975 WGM
 

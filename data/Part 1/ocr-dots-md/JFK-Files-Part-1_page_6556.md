@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6556.png
-
-Convert to MarkdownStemmer was so
+Stemmer was so
 
 Stemmer, who was a professor at the University of St. Petersburg, Russia, that he became very interested in the war in Czechoslovakia and its effect on his country's interests. In September, however, Stemmer was asked to leave the country because of his anti-communist views. As a result, he went to the United States where he received some training before being assigned to the Czechoslovak intelligence service.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8215.png
-
-Convert to Markdown13-00000
+13-00000
 
 La guerre de guérrilla dans les villes
 

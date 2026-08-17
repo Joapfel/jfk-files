@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31456.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/lr
 
 C. San Francisco Citizens Committee to Preserve American Freedoms (SFCCPAF) (See Appendix Page)

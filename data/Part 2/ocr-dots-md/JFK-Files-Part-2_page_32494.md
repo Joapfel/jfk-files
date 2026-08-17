@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32494.png
-
-Convert to Markdown**Peruvian Junta Makes Firm Anti-Communist Move**
+**Peruvian Junta Makes Firm Anti-Communist Move**
 
 Continued Communist-incited disorders and an alleged
 Havana-Moscow plan to take over the government

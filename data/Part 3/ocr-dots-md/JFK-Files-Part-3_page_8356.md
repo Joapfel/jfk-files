@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8356.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="3">
      Vord after...

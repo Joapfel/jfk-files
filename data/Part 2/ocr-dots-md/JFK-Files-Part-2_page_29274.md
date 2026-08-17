@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29274.png
-
-Convert to MarkdownB. R.D. Matthews
+B. R.D. Matthews
 
 File #A14 529 111
 

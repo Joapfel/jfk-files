@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25281.png
-
-Convert to MarkdownCRETI
+CRETI
 
 E1:2038
 

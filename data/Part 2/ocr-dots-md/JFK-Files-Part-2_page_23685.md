@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23685.png
-
-Convert to MarkdownHW 50955 DocId:32423509 Page 59
+HW 50955 DocId:32423509 Page 59
 
 1. Mr. Aaron. The recommendation that relates to that is where?
 2.

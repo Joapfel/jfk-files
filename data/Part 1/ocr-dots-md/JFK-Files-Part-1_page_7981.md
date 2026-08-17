@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7981.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. A. An article in _Hoy_ of 28 January 1953 reported that Subject was a member for the Juventud Ortodoxa of the presidium of the Congreso Martiano, por los Derechos de la Juventud and published a photograph showing Subject at the speakers' table. Another article in _Hoy_ of 3 March 1953 reported that Subject and several other youth leaders appeared at Hoy offices with a declaration signed by the Consuelo Permanente of the Congreso Martiano. The Congreso was described as Communist-dominated by the writer of the memorandum to the Visa Section dated 9 November 1955.
 

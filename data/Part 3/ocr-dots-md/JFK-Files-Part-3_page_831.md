@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_831.png
-
-Convert to MarkdownAddress Reply to the
+Address Reply to the
 Division Indicated
 and Refer to Initials and Number
 

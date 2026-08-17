@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21525.png
-
-Convert to Markdownafter that I run with a friend (RADCHENKO) home in Moscow (January
+after that I run with a friend (RADCHENKO) home in Moscow (January
 1944). In Moscow I studied at the courses (Russian word), finished
 9th class and was accepted again in the military-navy preparatory
 school, which was located in Leningrad. In August of 1944 I went in

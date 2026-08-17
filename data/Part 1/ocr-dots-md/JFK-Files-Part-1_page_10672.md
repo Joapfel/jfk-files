@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10672.png
-
-Convert to Markdown# LIMITED OFFICIAL USE
+# LIMITED OFFICIAL USE
 
 ## MEMORANDUM OF CONVERSATION
 

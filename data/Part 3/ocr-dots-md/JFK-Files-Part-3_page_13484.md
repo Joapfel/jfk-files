@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13484.png
-
-Convert to Markdownsmn
+smn
 
 1 plot, operational organization that ever came to President
 2 Eisenhower with respect to any assassinations, and specifically

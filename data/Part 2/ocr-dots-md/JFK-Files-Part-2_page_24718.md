@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24718.png
-
-Convert to MarkdownSpecial Group, the subcommittee of the National Security Council responsible for planning covert operations. Thomas Parrott, a CIA officer who served as Secretary to the Group, began the meeting by outlining the CIA operations that had been undertaken in "mounting an anti-Lumumba campaign in the Congo" (Special Group Minutes, 8/25/60). This campaign involved covert operations through certain labor groups and "the planned attempt . . . to arrange a vote of no confidence in Lumumba" in the Congolese Senate (Special Group Minutes, 8/25/60).
+Special Group, the subcommittee of the National Security Council responsible for planning covert operations. Thomas Parrott, a CIA officer who served as Secretary to the Group, began the meeting by outlining the CIA operations that had been undertaken in "mounting an anti-Lumumba campaign in the Congo" (Special Group Minutes, 8/25/60). This campaign involved covert operations through certain labor groups and "the planned attempt . . . to arrange a vote of no confidence in Lumumba" in the Congolese Senate (Special Group Minutes, 8/25/60).
 
 The outline of this campaign evoked the following dialogue:
 

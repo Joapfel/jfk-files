@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31791.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 27 October 1977
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23616.png
-
-Convert to Markdown-2-
+-2-
 
 show that dissidents are favorable to this procedure discuss the specific content of such a request and procedures for handling it. All possible preparations should be made short of actual formulation in writing of a signed request in advance of the event. Underlying this procedure is the policy that, under no circumstances, can we take the chance of a communist type takeover in the Dominican Republic even if we must intervene without a request. This last possibility should not be discussed with the dissidents.
 

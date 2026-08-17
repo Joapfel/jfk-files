@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23615.png
-
-Convert to MarkdownFOR DEARBORN FROM STATE
+FOR DEARBORN FROM STATE
 
 1. President has now approved contingency plans discussed during your stay here with one major exception: You are not to request a pre-signed request for help from Dominican dissident groups.
 

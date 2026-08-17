@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31357.png
-
-Convert to Markdown# REPORT OF INTERVIEW
+# REPORT OF INTERVIEW
 
 With Mitchell L. WerBell III, on September
 16, 1969, at 2:30 p. m., at his residence

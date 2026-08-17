@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13941.png
-
-Convert to MarkdownFBI doc. 21 May 70 (N.Y.) Re: Cuban Mission to the United Nations no Butile given
+FBI doc. 21 May 70 (N.Y.) Re: Cuban Mission to the United Nations no Butile given
 
 FAI doc. 11 May 70 (N.Y.) Re: Rogelio Rodriguez Lopez no Butile given
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28429.png
-
-Convert to Markdown# Lectures and Speeches
+# Lectures and Speeches
 
 New York University Institute of Continuing Professional Education for Law Enforcement Officers -
 Topic: The States Witness - Technique in Effectively Testifying as a Witness for the Prosecution (March 1974)

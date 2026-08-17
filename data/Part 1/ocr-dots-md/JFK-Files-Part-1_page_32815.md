@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32815.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>Office:</td><td>ROBERT FAMERINI;m.p.</td></tr></thead><tbody><tr><td>Unit:</td><td>WH 1/Argentina</td></tr><tr><td>Date:</td><td>6609</td></tr><tr><td>DATE:</td><td>3 APRIL 1968</td></tr></tbody></table>
 

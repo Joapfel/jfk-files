@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13677.png
-
-Convert to Markdown17:27
+17:27
 
 13:40
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7780.png
-
-Convert to Markdownkept informed to some extent about Subject through his younger brother, Javier ARIAS Buerba, from whom I have been taking Spanish lessons since July 1967.
+kept informed to some extent about Subject through his younger brother, Javier ARIAS Buerba, from whom I have been taking Spanish lessons since July 1967.
 
 3. Subject was a casual contact of Station officer Olivia C. RAGNITY in 1965 and 1966. Other than a file card noting this contact,
 

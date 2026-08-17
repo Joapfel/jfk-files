@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6780.png
-
-Convert to Markdown# 5.- Comparación del Producto Bruto Nacional
+# 5.- Comparación del Producto Bruto Nacional
 
 Muchos economistas dedicados al problema del subdesarrollo, admiten que una comparación de la magnitud de los PBN de un país atrasado y de un país industrializado, es un cómputo sumamente inexacto de los niveles relativos de sus respectivas economías. No obstante, raramente se toman el trabajo de examinar cuán inexacto es este sistema. Consecuentemente, dejan de apreciar la diferencia real que los separa, que es significativamente mayor de lo que las estadísticas sobre el PBN indican.
 

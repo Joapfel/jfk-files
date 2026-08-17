@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14270.png
-
-Convert to MarkdownJ. C. Farrington to Mr. McDermott memo
+J. C. Farrington to Mr. McDermott memo
 
 Re: Senator Gary Hart
 

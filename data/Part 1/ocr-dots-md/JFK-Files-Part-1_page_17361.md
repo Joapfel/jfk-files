@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17361.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">DISPATCH</td></tr><tr><td>TO<br/>Chief, WII Division</td><td>SIGNATURE<br/>FREQUENTLY UPDATED</td></tr><tr><td>NSA</td><td>CLASS C4349</td></tr><tr><td>FROM<br/>Chief of Station, Mexico City</td><td>PROCESSING<br/><table><thead><tr><th>PROPOSED</th><th>ACTION</th><th>ACCOMPLISHED</th></tr></thead><tbody><tr><td>XX</td><td>MARRIED FOR INDEXING<br/>NO INDEXING REQUIRED</td><td></td></tr><tr><td colspan="3"><hr /></td></tr><tr><td>ABSTRACT<br/>MICROFILM</td><td></td><td></td></tr></tbody></table></td></tr><tr><td>SUBJECT<br/>Monthly Activities Report for Project LIENVOY</td><td>ACTION REQUIRED REFERENCES</td></tr></table>
 

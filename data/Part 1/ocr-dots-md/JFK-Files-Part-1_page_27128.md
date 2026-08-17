@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27128.png
-
-Convert to MarkdownREPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
+REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
 
 <table><thead><tr><th>SECTION UNIT</th><th>FILE</th><th>VR</th></tr></thead><tbody><tr><td>A1</td><td>ASHT63</td><td>ASINT2</td></tr><tr><td>P</td><td>CLOSIC</td><td></td></tr></tbody></table>
 

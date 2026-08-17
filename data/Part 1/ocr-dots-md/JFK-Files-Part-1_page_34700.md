@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34700.png
-
-Convert to Markdown14-00000
+14-00000
 
 <html><body><table><tr><td>FORM NO. 53d</td></tr></table></body></html>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20101.png
-
-Convert to Markdown6 August 1962
+6 August 1962
 
 Memorandum in Lieu of Fitness Report Richardson, Jregime
 Subject:

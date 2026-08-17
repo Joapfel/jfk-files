@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26205.png
-
-Convert to Markdownother foreign service officers who respect
+other foreign service officers who respect
 him very much." So finally, Nolting was--
 a meeting was arranged with Nolting, and
 I liked him very much when I talked with him.

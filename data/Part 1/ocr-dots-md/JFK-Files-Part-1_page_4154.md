@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4154.png
-
-Convert to MarkdownAMWORLD Meeting in Houston, 31 July
+AMWORLD Meeting in Houston, 31 July
 
 SUBJECT: Status of AMBIDTY-1's Parents
 

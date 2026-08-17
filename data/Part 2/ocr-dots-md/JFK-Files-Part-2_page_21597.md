@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21597.png
-
-Convert to MarkdownFILE:SECRET
+FILE:SECRET
 
 Office of Security, although that office had an excellent relationship with FBI. Allan Dulles would not have condoned it since he had great respect for the FBI. Papich believes the same is true of McCone and Helms. Papich also concedes the possibility of entries by the CIA, citing the independent operation conducted regarding the (Bolivian official) Hoover opposed going to CIA or NSA for technical support in a joint surveillance operation. The FBI would only do so for equipment for its own operation.
 

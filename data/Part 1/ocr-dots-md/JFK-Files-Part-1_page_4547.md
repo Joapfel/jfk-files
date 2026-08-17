@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4547.png
-
-Convert to MarkdownIn the Name of God. Amen
+In the Name of God. Amen
 
 Francisco Burles Claren
 

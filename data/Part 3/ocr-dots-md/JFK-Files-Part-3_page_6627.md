@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6627.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 community leaders in Geneva', Rome, Istanbul, Tel Aviv,
 Jersuleum, Saigon, Kyoto, Tokyo, and Honolulu'. He

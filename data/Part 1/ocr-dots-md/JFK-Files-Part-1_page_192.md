@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_192.png
-
-Convert to Markdown-11-
+-11-
 
 37. International Peasant Union - Washington, D.C. (92) Supported by FEC (Project TPTONIC) for fifteen years.
 

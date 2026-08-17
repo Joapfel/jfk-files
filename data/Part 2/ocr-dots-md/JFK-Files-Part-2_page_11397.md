@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11397.png
-
-Convert to MarkdownIV. Special section and unavailable section
+IV. Special section and unavailable section
 
 Security index cards of detcom subjects filed in special and unavailable sections are to be designated by affixing colored tabs.
 

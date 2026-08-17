@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23876.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 he is receiving, and he has an expectation he wants to fulfill.
 

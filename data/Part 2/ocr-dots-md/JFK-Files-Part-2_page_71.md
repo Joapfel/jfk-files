@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_71.png
-
-Convert to Markdown25. Military service - dates, country, unit, rank, duty, where
+25. Military service - dates, country, unit, rank, duty, where
 services performed, decorations, when discharged, why. Give
 details if ever prisoner of war
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22564.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 grant for research would be difficult as Source is not what could be called a research type nor would he have freedom of movement, and he would not have a reasonable excuse for being in certain areas and asking certain questions of interest. If a cover is given, for instance for writing a book, it is believed that this cover would be limited and would preclude Source moving in certain areas of interest, i.e., if he were to write a book on ____________, he could logically talk on the subject and interview persons knowledgeable, visit the Hill and some of the press, but it seems doubtful to us that he could convert this into matters of specific interest to us.
 

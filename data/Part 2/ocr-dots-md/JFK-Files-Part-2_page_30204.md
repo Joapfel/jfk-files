@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30204.png
-
-Convert to Markdown# OUTSIDE CONTACT REPORT
+# OUTSIDE CONTACT REPORT
 
 DATE July 14 TIME 11AM
 1978

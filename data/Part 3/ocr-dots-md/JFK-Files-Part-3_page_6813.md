@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6813.png
-
-Convert to Markdown334 Auburn Avenue, N.E.
+334 Auburn Avenue, N.E.
 Atlanta 3, Georgia
 
 Attorney General Robert Kennedy

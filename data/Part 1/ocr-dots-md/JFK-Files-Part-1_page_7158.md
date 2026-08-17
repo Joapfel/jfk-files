@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7158.png
-
-Convert to Markdown10 March 1966.
+10 March 1966.
 
 S.U.J. 3174, Contact Sport / LICOZY-5
 

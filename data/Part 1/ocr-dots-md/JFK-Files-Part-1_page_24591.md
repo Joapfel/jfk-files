@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24591.png
-
-Convert to Markdown5 October 1968
+5 October 1968
 
 Let Jose EJMA, aka Carlos SALVADOR Marillo on the street and latter told CARDOZA about the attempted recruitment of him by a "special agent". EJMA asked CARDOZA for money, but the latter refused (15).
 

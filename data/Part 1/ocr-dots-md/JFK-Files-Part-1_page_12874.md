@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12874.png
-
-Convert to Markdown# OUTGOING MESSAGE
+# OUTGOING MESSAGE
 
 <table><tr><td>0</td><td></td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td><td>.</td></tr><tr><td colspan="9">07/18/84</td></tr></table>
 

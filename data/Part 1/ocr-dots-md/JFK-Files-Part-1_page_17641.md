@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17641.png
-
-Convert to Markdown14-00000
+14-00000
 
 Travel (PC3 Air to Mexico for family) $ 500
 Household Effects, Movement 600

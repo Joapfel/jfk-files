@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5579.png
-
-Convert to MarkdownOn September 25, 1978, Mr. Katzenbach mailed to the committee the following letter supplementing his testimony:
+On September 25, 1978, Mr. Katzenbach mailed to the committee the following letter supplementing his testimony:
 
 I have read the foregoing pages and,
 one through sixty-six, inclusive,

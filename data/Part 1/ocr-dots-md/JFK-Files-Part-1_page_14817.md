@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14817.png
-
-Convert to MarkdownFrom participating in CPUSA affairs, Hall is seen to be a slave of that Winston is mentally ill as a result of his basic handicap.
+From participating in CPUSA affairs, Hall is seen to be a slave of that Winston is mentally ill as a result of his basic handicap.
 
 From Winston's earliest days in the Communist movement until his release from prison, he--unlike many other Negro Party leaders--was not known to be arrogant or to press for special recognition or advantage because of his race. Set on assuming to the highest level of national leadership, Winston changed from over-all the G.O.B., all black Winston became a vigorous and outstanding inner Party figure and let it be known to all his associates in the National Office that he was an important figure.
 

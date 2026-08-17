@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4184.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Meeting at the White House 19 December 1963
 PRESENT: The President

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3850.png
-
-Convert to Markdown<table><thead><tr><th>PRECEDENCE</th></tr></thead><tbody><tr><td>REPRODUCTION PROHIBITED</td></tr></tbody></table>
+<table><thead><tr><th>PRECEDENCE</th></tr></thead><tbody><tr><td>REPRODUCTION PROHIBITED</td></tr></tbody></table>
 
 SECRET 062327Z CITE JEWAVE 5883
 

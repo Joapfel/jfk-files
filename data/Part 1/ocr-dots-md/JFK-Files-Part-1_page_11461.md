@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11461.png
-
-Convert to Markdown14-09000
+14-09000
 
 INDEX: ☐ YES ☑ NO
 CLASSIFY TO FILE NO. 2 - 798301

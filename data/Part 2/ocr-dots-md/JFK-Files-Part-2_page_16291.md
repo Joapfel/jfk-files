@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16291.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Bob Lee, Field Secretary, Illinois BPP, also spoke at this rally and told about a play concerning the black revolution which he is supposedly working on and will attempt to have produced in Chicago, Illinois. Lee also spoke about Eldridge Cleaver, BPP National Minister of Information who is now in exile in Cuba. He stated that Cleaver was not being treated as a true revolutionary in Cuba and that none of the black revolutionaries in Cuba had rights or were being treated as revolutionaries.
 

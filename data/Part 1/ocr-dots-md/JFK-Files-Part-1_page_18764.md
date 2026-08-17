@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_18764.png
-
 to the American Consulate general at Bombay, India. It is believed that Miss Goodpasture is fully qualified to serve as Administrative Assistant in the American Consulate at Monterrey. She will receive from C.I. a basic salary of 31,600.00 per annum.
 
 3. Miss Goodpasture will perform the administrative duties for the C.I. station to be opened in Monterrey.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15306.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Date: November 10, 1954
 

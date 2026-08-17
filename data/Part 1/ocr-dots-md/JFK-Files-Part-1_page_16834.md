@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16834.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">WARNING: NOTICE<br/>SENSITIVE DISCLOSING OFFICER<br/>PLEASE BE INVOLVED</td>
    </tr>

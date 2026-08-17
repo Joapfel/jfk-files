@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30805.png
-
-Convert to MarkdownSEC. 17. SELECTIVE SERVICE
+SEC. 17. SELECTIVE SERVICE
 
 Inactive Enlistment - V6
 

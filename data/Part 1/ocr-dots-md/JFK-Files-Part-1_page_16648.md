@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16648.png
-
-Convert to MarkdownSECTION I
+SECTION I
 
 383 598
 

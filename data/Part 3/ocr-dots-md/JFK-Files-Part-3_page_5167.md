@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5167.png
-
-Convert to MarkdownSAC GEBHARDT:
+SAC GEBHARDT:
 
 (10/21/70)
 

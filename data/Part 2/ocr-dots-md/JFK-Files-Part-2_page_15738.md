@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15738.png
-
-Convert to MarkdownSo much for today about combating subjectivism in order to rectify the style of study throng hout the party.
+So much for today about combating subjectivism in order to rectify the style of study throng hout the party.
 
 Let me now speak about the question of sectarianism.
 

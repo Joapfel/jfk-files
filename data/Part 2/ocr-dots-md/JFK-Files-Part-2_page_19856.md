@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19856.png
-
-Convert to MarkdownAPR 201972
+APR 201972
 
 MR019 WF CODED
 6:37PM NITEL 4-20-72 ALM

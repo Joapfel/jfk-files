@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10334.png
-
-Convert to Markdownrequest of CI/PG. Trainees represent internal security or national police from all countries participating in AID Police assistance programs.
+request of CI/PG. Trainees represent internal security or national police from all countries participating in AID Police assistance programs.
 
 ### White House
 

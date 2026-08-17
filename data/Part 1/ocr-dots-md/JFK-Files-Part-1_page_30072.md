@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30072.png
-
-Convert to Markdown1946 to 1953 - Worked as a Special Agent (MOS-130A) in the Army's Counter Intelligence Corp in the grade of Master Sargeant. My duties consisted of investigating crimes of security nature; member of a combat CIC team in Korea; two assignments as an instructor at the basic CIC School; enlisted Chief of the Technical Laboratory at the CIC Center, and enlisted Chief of Special Projects Technical Laboratory (CIC), Far East Command. During this period, I co-authored two text books for the CIC school and wrote one other. Further, I experienced over 2,000 lecture hours as an instructor in the basic CIC school and lived and worked three years in two foreign countries.
+1946 to 1953 - Worked as a Special Agent (MOS-130A) in the Army's Counter Intelligence Corp in the grade of Master Sargeant. My duties consisted of investigating crimes of security nature; member of a combat CIC team in Korea; two assignments as an instructor at the basic CIC School; enlisted Chief of the Technical Laboratory at the CIC Center, and enlisted Chief of Special Projects Technical Laboratory (CIC), Far East Command. During this period, I co-authored two text books for the CIC school and wrote one other. Further, I experienced over 2,000 lecture hours as an instructor in the basic CIC school and lived and worked three years in two foreign countries.
 
 1945 to 1946 - Held the position of Camp Superintendent of a 100 man forest camp engaged in timber disease control, U. S. Forest Service, California.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20699.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="2">NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br/>OF OFFICIAL COVER BACKSTOP</th>

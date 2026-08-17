@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10629.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="5" style="text-align:center;">SECRET<br/>(WHEN FOLD IN)</th>

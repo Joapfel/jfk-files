@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24237.png
-
-Convert to Markdownbe transferred to the Office of General Counsel. This occurred,
+be transferred to the Office of General Counsel. This occurred,
 and it remained there until Director Colby decided in conjunction
 with Mr. Houston to transfer for operational reasons to the Cover
 and Commercial Staff. This was done because CSS had the expertise

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15941.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Captain Corbo stated that Mackey related that a vehicle containing several Negro youths who were present at the beating, left the scene and took Curry with them. This vehicle was described as a 1965 Pontiac Grand Prix, color maroon. Mackey also stated that the persons beating both him and Curry also threatened their lives if they did not produce a gun they were looking for.
 

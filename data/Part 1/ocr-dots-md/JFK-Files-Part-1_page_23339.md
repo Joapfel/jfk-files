@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23339.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">142<br/>142 ED/SP/CBS</td>
     <td rowspan="2">CLASSIFIED MESSAGE</td>

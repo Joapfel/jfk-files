@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20740.png
-
-Convert to Markdown16 June 1966
+16 June 1966
 
 ATTN:
 

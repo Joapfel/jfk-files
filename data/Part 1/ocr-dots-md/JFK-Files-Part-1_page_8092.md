@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8092.png
-
-Convert to MarkdownLESNIK, M.
+LESNIK, M.
 
 Cuba
 

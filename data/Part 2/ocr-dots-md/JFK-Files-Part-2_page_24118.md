@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24118.png
-
-Convert to MarkdownB. Nonoperating Proprietaries
+B. Nonoperating Proprietaries
 
 Nonoperating proprietaries vary in complexity according to their Agency task, are, for the most part, either corporate shells or less that facilitate foreign operations, and clearly pose no competitive threat to bona fide businesses. The most elaborate are legally licensed and established to conduct bona fide business. They have nominee stockholders, directors, and officers and are generally directed by one of four Agency proprietary management companies. The company address may be a Post Office Box, a legitimate address provided by a cleared and witting company official or attorney, or in a few cases the address of a proprietary management company. They maintain bank accounts, generate business correspondence, keep books of account which can withstand commercial and tax audit, file State and Federal tax returns, and perform normal business reporting to regulatory authorities in order to backstop fully their Agency tasks. They are moderately capitalized, generally around $5,000, and their net worth at any one time varies according to the Agency task they are performing. As of 31 December 1973, 38 of these companies had a combined net worth of approximately $325,000. Of this amount, almost $200,000 was operating capital for three companies which provide cover for several Agency personnel. Examples of two non-operating companies which are commercially managed, keep books of account, and can withstand commercial and tax audit are:
 

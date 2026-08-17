@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14161.png
-
-Convert to Markdown69. 8/29/62 - CIA's President's Checklist contained the report that:
+69. 8/29/62 - CIA's President's Checklist contained the report that:
 
 > "There is no sign of a let-up in the movement of Soviet equipment and personnel into Cuba,"
 

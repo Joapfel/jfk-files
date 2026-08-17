@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1063.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DD/P PERSONNEL DATA SHEET
 

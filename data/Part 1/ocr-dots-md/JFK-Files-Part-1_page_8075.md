@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8075.png
-
-Convert to MarkdownA-______ ALIGN FIRST LETTER IN THIS DUA.
+A-______ ALIGN FIRST LETTER IN THIS DUA.
 
 1.4-0000
 

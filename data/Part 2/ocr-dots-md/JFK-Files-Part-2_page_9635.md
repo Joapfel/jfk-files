@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9635.png
-
-Convert to Markdown# INTELLIGENCE
+# INTELLIGENCE
 WORK PROJECTS
 
 1. Write to the following "peace publication" (most of them are actually communist fronts) and ask for subscription price and a sample copy.

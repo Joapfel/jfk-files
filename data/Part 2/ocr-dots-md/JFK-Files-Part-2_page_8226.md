@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8226.png
-
-Convert to Markdown13-00000
+13-00000
 
 Sept 17, 1969
 

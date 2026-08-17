@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22617.png
-
-Convert to Markdown1. interests and the interests of Israel were in conflict?
+1. interests and the interests of Israel were in conflict?
 
 2. Mr. Angleton. We never got into that. Of course, you
 3. only had to read the paper every day to see that.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20512.png
-
-Convert to MarkdownWFO 100-54927
+WFO 100-54927
 
 Georgia Women's Abortion Action Coalition
 P.O. Box 7122, Atlanta, Ga. 30309 (404) 874-8365

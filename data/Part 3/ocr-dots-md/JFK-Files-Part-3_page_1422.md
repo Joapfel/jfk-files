@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1422.png
-
-Convert to MarkdownJAN 13 6 42 PM '78
+JAN 13 6 42 PM '78
 
 RECEIVED
 FEDERAL BUREAU

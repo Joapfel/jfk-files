@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17673.png
-
-Convert to MarkdownADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg 4-14-75
+ADDENDUM: LEGAL COUNSEL DIVISION PVD:dkg 4-14-75
 
 Regarding the observations of the Intelligence Division concerning the making available the amount of manpower dedicated to counterintelligence and domestic intelligence work in the FBI, the Legal Counsel Division has the following observations:
 

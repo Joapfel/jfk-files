@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19852.png
-
-Convert to Markdown14-00000
+14-00000
 
 HIGH 3 BASED ON LAST 3 YEARS IN CONTRACT
 OCT. 61 - DEC 67      $1,607.02

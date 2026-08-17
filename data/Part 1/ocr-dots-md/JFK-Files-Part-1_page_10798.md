@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10798.png
-
-Convert to MarkdownSECRET
+SECRET
 
 VIA: I-1
 FROM: J/EMI

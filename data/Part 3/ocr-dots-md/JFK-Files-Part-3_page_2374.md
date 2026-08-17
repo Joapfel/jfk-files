@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2374.png
-
-Convert to Markdown# 3. Cuban Intelligence Service
+# 3. Cuban Intelligence Service
 
 We also use physical surveillances on a selected basis and periodically review pertinent bank records. Through the use of informants and double agents we have been successful in penetrating Cuban Intelligence Service operations in the United States.
 

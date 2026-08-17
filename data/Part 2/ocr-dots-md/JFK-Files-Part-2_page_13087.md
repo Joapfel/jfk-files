@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13087.png
-
-Convert to MarkdownLetter to Denver
+Letter to Denver
 
 Re: Thomas Riha
 105-78256

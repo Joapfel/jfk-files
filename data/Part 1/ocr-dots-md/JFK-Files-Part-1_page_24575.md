@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24575.png
-
-Convert to Markdown201-023:66
+201-023:66
 
 **NAME:** Jose Alberto CARDOZA Aguilar (2)
 

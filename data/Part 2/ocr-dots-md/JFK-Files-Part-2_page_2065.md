@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2065.png
-
-Convert to Markdown14-0000
+14-0000
 
 23 January 1959
 

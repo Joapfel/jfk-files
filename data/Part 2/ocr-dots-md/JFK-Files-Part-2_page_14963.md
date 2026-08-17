@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14963.png
-
-Convert to Markdownthis installation and details of same were included in our
+this installation and details of same were included in our
 letter to the Acting Attorney General 12/29/66.
 
 At the specific request of former Attorney General

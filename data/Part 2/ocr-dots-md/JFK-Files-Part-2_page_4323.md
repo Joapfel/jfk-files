@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4323.png
-
-Convert to Markdown5 December 1963
+5 December 1963
 
 MEMORANDUM FOR THE SPECIAL GROUP
 

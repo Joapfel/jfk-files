@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14266.png
-
-Convert to MarkdownFEB 23 98
+FEB 23 98
 
 SECRET
 

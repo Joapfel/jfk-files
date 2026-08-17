@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6150.png
-
-Convert to Markdown56 Md. L. Rev. 1, *20
+56 Md. L. Rev. 1, *20
 
 wants to review for possible release, but it does not have the resources to do so. n130 For more than fifty years, the Department followed a scheme of classification that might best be called "classified at birth." n131 Any document generated was presumed secret until proved otherwise. n132 The Department and its civilian contractors have literally lost track of what needs to be kept quiet. n133 Even more fundamental, what is genuinely in need of protection - the design of weapons and such - is lost in an ocean of documents no longer worthy of classified status (if they ever were). n134
 

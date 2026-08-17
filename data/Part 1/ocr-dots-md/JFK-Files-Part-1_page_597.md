@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_597.png
-
-Convert to Markdown104-10066-10239
+104-10066-10239
 
 SECRET
 

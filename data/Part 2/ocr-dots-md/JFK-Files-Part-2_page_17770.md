@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17770.png
-
-Convert to MarkdownSupplemental Agreement No. I
+Supplemental Agreement No. I
 to the Delimitations Agreement
 
 Cooperation and Coordination Between

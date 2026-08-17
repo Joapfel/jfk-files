@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27917.png
-
-Convert to MarkdownPERSONNEL QUALIFICATION QUESTIONNAIRE
+PERSONNEL QUALIFICATION QUESTIONNAIRE
 
 <table>
     <tbody>

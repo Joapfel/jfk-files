@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6956.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 JUL IN 372102
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35529.png
-
-Convert to MarkdownAccording to our records the following invoices have been paid by the
+According to our records the following invoices have been paid by the
 following Cashier's Checks:
 
 | Invoice No. | Period | Amount | Cashier's Check No. |

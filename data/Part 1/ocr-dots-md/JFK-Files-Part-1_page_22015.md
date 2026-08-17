@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22015.png
-
-Convert to MarkdownJanuary 1960: STORSBERG arrived in Moscow (this date was supplied by the interrogator and was accepted by NOSENKO as accurate, which it is).
+January 1960: STORSBERG arrived in Moscow (this date was supplied by the interrogator and was accepted by NOSENKO as accurate, which it is).
 
 Early 1960: PREISFREUND was recruited by KOVSHUK. (This was consistent with earlier statements, and NOSENKO had always said he first met PREISFREUND a week or so after his recruitment. On 21 October 1966, however, NOSENKO said that he and PREISFREUND first met 'in the middle of 1960, in the summer of 1960. He subsequently stayed with the general date mid-1960.)
 

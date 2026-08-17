@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8345.png
-
-Convert to MarkdownSUBJECT: Ruth Niewandt
+SUBJECT: Ruth Niewandt
 
 DATE OF INFORMATION: March 13, 1969. 1300 Hours
 

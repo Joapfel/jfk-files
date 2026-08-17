@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32668.png
-
-Convert to MarkdownThe aggregate strength of these units is now estimated by intelligence people
+The aggregate strength of these units is now estimated by intelligence people
 to be about 5,000 men.
 
 In addition, it is agreed that the number of Soviet personnel in Cuba

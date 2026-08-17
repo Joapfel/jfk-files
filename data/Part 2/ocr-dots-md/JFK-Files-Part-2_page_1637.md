@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1637.png
-
-Convert to MarkdownCOPY AIR
+COPY AIR
 
 H088-A-9355
 (50-1-5)

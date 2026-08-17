@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4552.png
-
-Convert to MarkdownHavana 92-1
+Havana 92-1
 
 7/13/59
 

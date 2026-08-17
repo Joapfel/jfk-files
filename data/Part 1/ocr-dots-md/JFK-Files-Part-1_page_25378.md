@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25378.png
-
-Convert to MarkdownNikolay LONOV
+Nikolay LONOV
 
 20 May 1955: Rodolfo NERVO called Subject and was told "We have found the books and material you requested (re Soviet foreign policy)." LEO NOT said he would take the books to NERVO the next day. NERVO for many years active in the Mexican Diplomatic Service, at one time being Charge of the Mexican Legation in Warsaw, Poland. Now about 75 and inactive in Government, but does write articles for the newspaper Excelsior (HEMA 3736 5 Leo 55).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10443.png
-
-Convert to MarkdownNWI 88608 DocId:32989628 Page 280
+NWI 88608 DocId:32989628 Page 280
 
 | POSITION | IS | CI |
 | :--- | :--- | :--- |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11016.png
-
-Convert to Markdown1 - Mr. J. B. Adams
+1 - Mr. J. B. Adams
 1 - Mr. J. A. Mintz
 
 The Attorney General

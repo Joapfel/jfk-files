@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9516.png
-
-Convert to MarkdownMarch 8, 1950
+March 8, 1950
 
 REICHSTAG PROCEEDINGS
 

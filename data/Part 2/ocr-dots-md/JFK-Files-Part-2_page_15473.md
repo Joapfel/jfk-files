@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15473.png
-
-Convert to MarkdownMemorandum to Mr. Sullivan
+Memorandum to Mr. Sullivan
 
 Re: INTELLIGENCE COVERAGE OF
 NON-SOVIET-BLOC COUNTRIES

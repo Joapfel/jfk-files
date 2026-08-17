@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14571.png
-
-Convert to MarkdownSAC, New York (105-31090)
+SAC, New York (105-31090)
 
 Director, FBI (62-77787-205)
 

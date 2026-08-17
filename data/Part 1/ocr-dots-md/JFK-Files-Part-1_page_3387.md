@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3387.png
-
-Convert to MarkdownPARSON
+PARSON
 AMWORLD Meeting in San Juan, 7-8 June 1964
 
 SUBJECT: Adelaida Padron y Cruz

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27862.png
-
-Convert to Markdown# Mortgage Guaranty Insurance Corporation
+# Mortgage Guaranty Insurance Corporation
 a subsidiary of MGIC Investment Corporation
 
 Telephone 414/347-6500

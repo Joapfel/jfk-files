@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24445.png
-
-Convert to MarkdownJames O'Connell, who was the case officer for the operation involving underworld figures, testified that when he and Edwards discussed the matter in 1975, prior to giving evidence to the Rockefeller Commission, he was sure that Edwards had told him Dulles had approved the plot (O'Connell Tr. 5/30, pp. 58-59). He added that he was "reasonably sure" or "knew" in the "back of my mind" that either Edwards or Bissell had also told him of Dulles' knowledge when the plot was underway in 1960-62 (O'Connell Tr. 5/30, pp. 33-34; 36; 60).*
+James O'Connell, who was the case officer for the operation involving underworld figures, testified that when he and Edwards discussed the matter in 1975, prior to giving evidence to the Rockefeller Commission, he was sure that Edwards had told him Dulles had approved the plot (O'Connell Tr. 5/30, pp. 58-59). He added that he was "reasonably sure" or "knew" in the "back of my mind" that either Edwards or Bissell had also told him of Dulles' knowledge when the plot was underway in 1960-62 (O'Connell Tr. 5/30, pp. 33-34; 36; 60).*
 
 
 

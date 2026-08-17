@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16479.png
-
-Convert to MarkdownThe end result of this education will be positive for Black people in their resistance and negative for the power structure in its oppression, because the party always exemplifies revolutionary defiance. If the party is not going to make the people aware of the tools of liberation and the strategic method that is to be used, there will be no means by which the people will be mobilized properly.
+The end result of this education will be positive for Black people in their resistance and negative for the power structure in its oppression, because the party always exemplifies revolutionary defiance. If the party is not going to make the people aware of the tools of liberation and the strategic method that is to be used, there will be no means by which the people will be mobilized properly.
 
 The relationship between the vanguard party and the masses is a secondary relationship. The relationship between the members of the vanguard party is a primary relationship. It is important that the members of the vanguard group maintain a face-to-face relationship with each other. This is important if the party machinery is to be effective. It is impossible to put together functional party machinery or programs without this direct relationship. The members of the vanguard group should be tested revolutionaries. This will minimize the danger of Uncle Tom informers and opportunists.
 

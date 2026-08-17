@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32502.png
-
-Convert to MarkdownCase A: Boomerang - we would almost certainly enhance the prospects for Communism.
+Case A: Boomerang - we would almost certainly enhance the prospects for Communism.
 
 Case B: There would be strong popular Latin American support, some governmental outrage, but the prospects for Communism would be diminished.
 

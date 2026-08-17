@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32805.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">MESSAGE FORM<br>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="2">SECRET</td><td>1</td><td></td></tr><tr><td>AUTO.<br>UNIT:<br>LOT:<br>DATE:</td><td>PAGE TWO</td><td>7</td><td></td></tr><tr><td colspan="3"></td><td>9</td></tr><tr><td colspan="3"></td><td>8</td></tr><tr><td colspan="3"></td><td>6</td></tr><tr><td>FILE NO.</td><td></td><td>10</td><td></td></tr><tr><td>CONFIDENTIALITY DISSEMINATION</td><td>[ ] INDEX [ ] DESTROY [ ] RETURN TO...<br>SEARCH [ ] FILE ID</td><td colspan="2">[ ] NO INDEX [ ] FILE IN CS FILE NO.</td></tr><tr><td>BY PEE. -</td><td>-</td><td>CONECTED</td><td>FILE V2</td></tr><tr><td>COMP.</td><td>☐ RID COPY</td><td>INFO:</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="4">MESSAGE FORM<br>TOTAL COPIES</th></tr></thead><tbody><tr><td colspan="2">SECRET</td><td>1</td><td></td></tr><tr><td>AUTO.<br>UNIT:<br>LOT:<br>DATE:</td><td>PAGE TWO</td><td>7</td><td></td></tr><tr><td colspan="3"></td><td>9</td></tr><tr><td colspan="3"></td><td>8</td></tr><tr><td colspan="3"></td><td>6</td></tr><tr><td>FILE NO.</td><td></td><td>10</td><td></td></tr><tr><td>CONFIDENTIALITY DISSEMINATION</td><td>[ ] INDEX [ ] DESTROY [ ] RETURN TO...<br>SEARCH [ ] FILE ID</td><td colspan="2">[ ] NO INDEX [ ] FILE IN CS FILE NO.</td></tr><tr><td>BY PEE. -</td><td>-</td><td>CONECTED</td><td>FILE V2</td></tr><tr><td>COMP.</td><td>☐ RID COPY</td><td>INFO:</td><td></td></tr></tbody></table>
 
 ( classification )
 

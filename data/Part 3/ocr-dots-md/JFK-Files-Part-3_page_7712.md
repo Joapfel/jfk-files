@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7712.png
-
-Convert to MarkdownKatzenbach Report
+Katzenbach Report
 
 Emerson Brown
 IDS 101-21504

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9536.png
-
-Convert to MarkdownTHE PRESS RELEASE
+THE PRESS RELEASE
 PARTICIPANTS
 
 BEN W. FONDRON

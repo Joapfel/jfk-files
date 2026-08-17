@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24829.png
-
-Convert to MarkdownMEMO : To ICAP Directors
+MEMO : To ICAP Directors
 FROM : Train and Lopez
 IN RE: Projected trip through Latin America
 

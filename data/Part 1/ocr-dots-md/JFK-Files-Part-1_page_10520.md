@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10520.png
-
-Convert to Markdownthere. Date of HAHN's introduction to the Club and to Noriko MATSUZAKAYA by George PARIS aka George PERIS was estimated by Mr. Sayle to have been somewhere between 1954 and 1957. With regard to Valentin HAHN's own inclinations toward sharing his knowledge of romance with others, Mr. Sayle advised that Security Office had established that while employed as a contract agent of the Tokyo Station HAHN had pimped for CIA Staff personnel in Tokyo.
+there. Date of HAHN's introduction to the Club and to Noriko MATSUZAKAYA by George PARIS aka George PERIS was estimated by Mr. Sayle to have been somewhere between 1954 and 1957. With regard to Valentin HAHN's own inclinations toward sharing his knowledge of romance with others, Mr. Sayle advised that Security Office had established that while employed as a contract agent of the Tokyo Station HAHN had pimped for CIA Staff personnel in Tokyo.
 
 6. As attachment herewith, the writer appends additional background data on the professional intelligence activities and contacts of Valentin HAHN and family as noted during the oral briefing by Sayle.
 

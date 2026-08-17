@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13824.png
-
-Convert to Markdown**Note:** On page 92 of Mr. McCone's testimony he states --
+**Note:** On page 92 of Mr. McCone's testimony he states --
 "I think I said that we knew of some 1,000 to 1,500 that were in training there at the present time." The duration of the training courses ranges from 4 to 40 weeks. CIA has indicated informally that the bulk of the 1,000 to 1,500 reported above are still in Cuba.
 
 U.S. intelligence agencies are largely dependent upon third country sources for information concerning those who received train- ing in Cuba. Systems of documenting these visitors and their travel to and from Cuba are in the process of being undertaken by many Latin American nations. Among the problems which confront Latin American security forces are the fact that Cuban visitors employ many devious means in travelling to and from Cuba; some states desire not to infringe on the freedom of movement of its citizens; the use of false documents or aliases by travellers; and the difficulty of obtaining a useful exchange of intelli- gence among Latin States. There is also some problem of separating Cuban- inspired plotters from the leftists, oppositionists, and political plotters who travel in neighboring states.

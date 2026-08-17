@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12551.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">EQUIF. AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>0</td></tr><tr><td>2</td><td>0</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">EQUIF. AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>0</td></tr><tr><td>2</td><td>0</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
 
 <table><tr><td>M. BERGER</td></tr><tr><td>WH/3/V</td></tr><tr><td>1535</td></tr><tr><td>11 FEBRUARY 1970</td></tr></table>
 

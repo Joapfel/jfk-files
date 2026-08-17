@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10094.png
-
-Convert to MarkdownAttachment to
+Attachment to
 
 15 August 1972
 

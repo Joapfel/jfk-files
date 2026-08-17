@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22007.png
-
-Convert to Markdown(Interrupting.) When necessary, because there are little questions which the case officer must decide himself. When it was necessary.
+(Interrupting.) When necessary, because there are little questions which the case officer must decide himself. When it was necessary.
 
 Q: And participating personally when necessary?
 

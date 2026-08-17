@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_723.png
-
-Convert to MarkdownThe "Black Panther" Party became known for the first time when BOBBY SEALE and one of the Party leaders, HUEY P. NEWTON, organized armed patrols in October, 1966, which were to watch police treatment of Negroes. NEWTON is now in prison for shooting a police-man and one of the Party's goals is his release.
+The "Black Panther" Party became known for the first time when BOBBY SEALE and one of the Party leaders, HUEY P. NEWTON, organized armed patrols in October, 1966, which were to watch police treatment of Negroes. NEWTON is now in prison for shooting a police-man and one of the Party's goals is his release.
 
 The USA is a police state, SEALE continued, and he maintains that black society must learn to defend itself. He does not believe in many so-called "hot summers" because he believes that black society has realized the inadequacy of spontaneous riots. However, he asserted effectively working organizations are respected.
 

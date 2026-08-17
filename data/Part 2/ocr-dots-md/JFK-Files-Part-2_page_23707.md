@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23707.png
-
-Convert to Markdownand he can't do that if he doesn't know when one of the agencies
+and he can't do that if he doesn't know when one of the agencies
 of the Federal government might be breaking them.
 
 It's a chicken and egg situation.

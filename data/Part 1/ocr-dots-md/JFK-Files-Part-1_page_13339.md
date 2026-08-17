@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13339.png
-
-Convert to Markdown<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>UPGV-6657</td><td>10 AUG 87</td></tr><tr><td></td><td>CLASSIFICATION</td><td>FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>201-300985</td></tr></tbody></table>
+<table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER</th><th>DATE</th></tr></thead><tbody><tr><td></td><td>UPGV-6657</td><td>10 AUG 87</td></tr><tr><td></td><td>CLASSIFICATION</td><td>FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>201-300985</td></tr></tbody></table>
 
 <table><tbody><tr><td>N</td><td>F1</td><td></td></tr><tr><td>S</td><td>DEST</td><td></td></tr><tr><td>ACT</td><td>INDF</td><td></td></tr></tbody></table>
 

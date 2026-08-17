@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17664.png
-
-Convert to Markdown# The Attorney General
+# The Attorney General
 
 "Whereas the President of the United States has the constitutionally imposed responsibility of defending the Constitution and the existence of the Government thereunder; and
 

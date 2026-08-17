@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26936.png
-
-Convert to MarkdownOGC 76-0844
+OGC 76-0844
 
 24 February 1976
 

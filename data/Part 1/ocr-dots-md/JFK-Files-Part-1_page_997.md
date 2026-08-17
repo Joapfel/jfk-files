@@ -1,4 +1,2 @@
-# JFK-Files-Part-1_page_997.png
-
-Convert to Markdown1. HSCA Request, 1 December 1977 (OLC #77-5333) for 16 Warren Commission Documents, by number (these documents in possession of National Archives and withheld from release by CIA).
+1. HSCA Request, 1 December 1977 (OLC #77-5333) for 16 Warren Commission Documents, by number (these documents in possession of National Archives and withheld from release by CIA).
 4. Letter from Helms with attached translations.... results of interrogations of Sylvia DURAN and her husband in Mexico City, 23-28 November 1963.

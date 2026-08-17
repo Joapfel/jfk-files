@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30787.png
-
-Convert to MarkdownSEP 28 '98 10:47AM
+SEP 28 '98 10:47AM
 
 All CO's had access
 TRUE NAME

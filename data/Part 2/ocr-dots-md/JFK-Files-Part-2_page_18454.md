@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18454.png
-
-Convert to Markdown(3) The date of each dissemination.
+(3) The date of each dissemination.
 
 (4) The use which was in fact made of the information by the recipient.
 

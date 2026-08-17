@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8531.png
-
-Convert to MarkdownATTACHMENT A cont'd
+ATTACHMENT A cont'd
 
 <table>
    <thead>

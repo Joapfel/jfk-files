@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5892.png
-
-Convert to MarkdownDirectorate of Administration
+Directorate of Administration
 
 Briefing for the
 JFK Assassination Records Review

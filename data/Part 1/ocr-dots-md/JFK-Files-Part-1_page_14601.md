@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14601.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief of Station, Madrid
 Chief, European Division:

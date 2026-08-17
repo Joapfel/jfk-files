@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29190.png
-
-Convert to MarkdownC of D-15-DIT-J (Rev. 8-73)
+C of D-15-DIT-J (Rev. 8-73)
 
 <table><tr><td>A.</td><td>TOTAL DETROIT INCOME EXPECTED IN 1974</td><td>$</td></tr><tr><td>B.</td><td>EXEMPTIONS ($600.00 FOR EACH EXEMPTION)</td><td>$</td></tr><tr><td>C.</td><td>ESTIMATED DETROIT TAXABLE INCOME (LINE A LESS LINE B)</td><td>$</td></tr><tr><td>D.</td><td>ESTIMATED DETROIT INCOME TAX—NONRESIDENT INDIVIDUALS ENTER ½ OF 1% OF LINE C.<br/>ALL OTHER TAXPAYERS ENTER 2% OF LINE C. ENTER TAX HERE AND ON LINE 1b OF DECLARATION BELOW</td><td>$</td></tr></table>
 

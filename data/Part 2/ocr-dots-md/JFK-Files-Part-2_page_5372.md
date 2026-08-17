@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5372.png
-
-Convert to MarkdownPublic
+Public
 information.
 
 Federal

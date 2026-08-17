@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7436.png
-
-Convert to MarkdownC-O-N-F-1974-T-I-A-L
+C-O-N-F-1974-T-I-A-L
 When PII In
 
 9 T200A24 1975

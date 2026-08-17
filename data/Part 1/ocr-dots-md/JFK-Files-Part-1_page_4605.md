@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4605.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">SECRET</td>
     <td>1788492 CITE JMWAVE 4132</td>

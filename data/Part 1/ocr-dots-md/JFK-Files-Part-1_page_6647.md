@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6647.png
-
-Convert to Markdown<table><tr><td></td></tr></table>
+<table><tr><td></td></tr></table>
 
 OPERATIONAL AND SOURCE COVER SHEET
 

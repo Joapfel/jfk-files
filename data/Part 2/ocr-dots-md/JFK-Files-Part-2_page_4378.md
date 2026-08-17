@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4378.png
-
-Convert to MarkdownAPRIL
+APRIL
 
 1961
 

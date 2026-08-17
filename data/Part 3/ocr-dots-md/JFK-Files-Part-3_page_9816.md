@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9816.png
-
-Convert to Markdownidentification of intelligence operations and agents;
+identification of intelligence operations and agents;
 
 (2) the penetration of these operations for the purpose
 of control and the development of intelligence information;

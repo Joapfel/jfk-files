@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14220.png
-
-Convert to MarkdownRYBAT/SECRET
+RYBAT/SECRET
 
 SEPARATE COVER ATT.
 OSHA-24746

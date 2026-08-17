@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23654.png
-
-Convert to Markdown1. emergency maybe?
+1. emergency maybe?
 
 2. Mr. Aaron. Well, I think the way we came on it was to simply say if you have the process for a time of war, the President may exercise it, and he may exercise it if he feels it's a crisis.
 

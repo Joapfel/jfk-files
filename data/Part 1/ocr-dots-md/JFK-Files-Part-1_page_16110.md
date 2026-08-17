@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16110.png
-
-Convert to Markdown shapes, not an uniform pattern to find in various parts of the world today.
+shapes, not an uniform pattern to find in various parts of the world today.
 
 On the ground prairies, ice formed in the cracks. As the ice hanged up, more oil was shed, up into the polygons of earth and the cracks themselves weakened. Finally the earth blocks froze too. When a big tree set in, the ice in the cracks thawed faster than the earth blocks and flowed away, leaving big polygons of earth standing on the prairies.
 

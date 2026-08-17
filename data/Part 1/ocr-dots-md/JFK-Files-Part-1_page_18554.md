@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18554.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 Re: William King Harvey
 

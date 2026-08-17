@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24745.png
-
-Convert to Markdowndecision to create ... this capability had been taken
+decision to create ... this capability had been taken
 without an outside request. (Bissell, 6/9/75, pp. 67-68).*
 
 **Bundy:** McGeorge Bundy also testified that he had a conversation with Bissell, during which the executive action capability was discussed (Bundy, pp. 4-5). Bundy's testimony comports with Bissell's on the fact that they spoke about an untargeted capability, rather than an assassination operation (Bundy, pp. 4-5). But Bundy said that the capability included "killing the individual" (Bundy, p. 5).** Bundy's impression was that the CIA was "testing my reaction," not "seeking authority" (Bundy, p. 15). Bundy summarized his testimony by saying:

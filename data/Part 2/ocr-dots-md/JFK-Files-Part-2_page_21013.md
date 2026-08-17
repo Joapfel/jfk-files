@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21013.png
-
-Convert to Markdown<table><thead><tr><th>APPROVED</th><th>SPECIAL AGENT IN CHARGE</th><th>DO NOT WRITE IN SPACES BELOW</th></tr></thead><tbody><tr><td colspan="2">COPIES MADE:<br/>11 - Bureau (RM)<br/>(1 - 7-9452)<br/>(1 - 109-283)<br/>3 - New York (RM)<br/>(1 - 7-877 - info)<br/>1 - 62-11817<br/>1 - INS, New York</td><td>CIA HAS NO OBJECTION TO<br/>DECLASSIFICATION AND/OR<br/>RELEASE OF CIA INFORMATION<br/>IN THIS DOCUMENT.<br/><br/>4 JAN 6 1960<br/>SMITH<br/><br/>HUMPHRIES AND P.G. C. BRAGGlets</td></tr><tr><td colspan="2">COPIES DESTROYED No. A-11039008)<br/>4 - Miami (2 - 97-300; 1 - 7-477)<br/>3 SEP 13 1974<br/>Notations:<br/>1 - 109-39)</td><td>MCT - 2<br/><br/>REC. 26<br/><br/>EX-117</td></tr></tbody></table>
+<table><thead><tr><th>APPROVED</th><th>SPECIAL AGENT IN CHARGE</th><th>DO NOT WRITE IN SPACES BELOW</th></tr></thead><tbody><tr><td colspan="2">COPIES MADE:<br/>11 - Bureau (RM)<br/>(1 - 7-9452)<br/>(1 - 109-283)<br/>3 - New York (RM)<br/>(1 - 7-877 - info)<br/>1 - 62-11817<br/>1 - INS, New York</td><td>CIA HAS NO OBJECTION TO<br/>DECLASSIFICATION AND/OR<br/>RELEASE OF CIA INFORMATION<br/>IN THIS DOCUMENT.<br/><br/>4 JAN 6 1960<br/>SMITH<br/><br/>HUMPHRIES AND P.G. C. BRAGGlets</td></tr><tr><td colspan="2">COPIES DESTROYED No. A-11039008)<br/>4 - Miami (2 - 97-300; 1 - 7-477)<br/>3 SEP 13 1974<br/>Notations:<br/>1 - 109-39)</td><td>MCT - 2<br/><br/>REC. 26<br/><br/>EX-117</td></tr></tbody></table>
 
 SECRET
 

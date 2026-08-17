@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16767.png
-
-Convert to Markdown<table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td rowspan="3">12/15 SECRET</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
+<table><tr><td colspan="3">CLASSIFIED MESSAGE</td></tr><tr><td rowspan="3">12/15 SECRET</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table>
 
 ACTION: C/WH 5
 INFO: LOPP, C/EE 3, C/WE 2, D/OC 2, S/C 2

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14941.png
-
-Convert to Markdown**Biographic Data**
+**Biographic Data**
 
 **Name:** David TZITZICVILI (No information shown why Subject's surname differs from that of father's.)
 **Date of Birth:** 20 December 1919 (Some records show birthdate 12 July 1918.)

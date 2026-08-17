@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_7433.png
-
 to the Counsel to the President.
 
 RECOMMENDATION:

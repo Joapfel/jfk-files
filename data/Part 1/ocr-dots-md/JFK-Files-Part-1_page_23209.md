@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23209.png
-
-Convert to Markdown16 April 1952
+16 April 1952
 
 RECIPIENT: Chief of Operations, DB/P
 VIA: Chief, Central Cover Branch

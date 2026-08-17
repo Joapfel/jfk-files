@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21615.png
-
-Convert to MarkdownConsequently, I personally made this proposal, that we establish what I called a false flag base of people that would go from outside, and should there be any sort of flap, the chances of linking it to the U.S. Government would be much less, because they would appear to be from another nationality.
+Consequently, I personally made this proposal, that we establish what I called a false flag base of people that would go from outside, and should there be any sort of flap, the chances of linking it to the U.S. Government would be much less, because they would appear to be from another nationality.
 
 Mr. Schwarz. I would like to read to you a cable -- is this cable of 27 September in the Senator's book? I know that he asked for it after I came over.
 

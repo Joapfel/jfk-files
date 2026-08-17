@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4014.png
-
-Convert to MarkdownEP (65-95]
+EP (65-95]
 
 "NAGELL, being treated for wounds from a bullet which had penetrated into his chest and out his back.
 

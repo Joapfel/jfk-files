@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25074.png
-
-Convert to Markdown# Alegres Diplomáticos
+# Alegres Diplomáticos
 
 Por ALONSO FONSECA G.
 

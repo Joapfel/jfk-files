@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21106.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MAR 29 1962
 

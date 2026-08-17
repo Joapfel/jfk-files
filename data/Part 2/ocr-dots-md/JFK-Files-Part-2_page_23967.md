@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23967.png
-
-Convert to MarkdownImmediately following the assassination, all CIA personnel in the Dominican Republic were removed from the country and within a few days Consul General Dearborn was back in Washington. The State Department cabled the CIA station in the Dominican Republic to destroy all records concerning contacts with dissidents and any related matters, except not to destroy the contingency plans or the May 29, 1961 cable to Dearborn. (HQS to Station cable, 5/31/61.
+Immediately following the assassination, all CIA personnel in the Dominican Republic were removed from the country and within a few days Consul General Dearborn was back in Washington. The State Department cabled the CIA station in the Dominican Republic to destroy all records concerning contacts with dissidents and any related matters, except not to destroy the contingency plans or the May 29, 1961 cable to Dearborn. (HQS to Station cable, 5/31/61.
 
 ## C. Immediate Post-Assassination Period
 

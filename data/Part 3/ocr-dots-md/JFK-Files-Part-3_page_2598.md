@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2598.png
-
-Convert to MarkdownVZ CZ CHQO166
+VZ CZ CHQO166
 
 RR PH MM
 

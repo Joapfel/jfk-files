@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9678.png
-
-Convert to Markdownthat BREDRICK contacted his lawyer concerning the pending charges in New Jersey and has probably returned to New Jersey.
+that BREDRICK contacted his lawyer concerning the pending charges in New Jersey and has probably returned to New Jersey.
 
 DRAGER did admit to past memberships in the American Nazi Party, National Socialist White Peoples Party, Ku Klux Klan, Knights of Constantine, as well as generally claiming membership in all right wing organizations at one time or another during the past 15 years.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5615.png
-
-Convert to Markdown1.4-0000
+1.4-0000
 
 RECEIVED
 TOTAL COPIES:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16204.png
-
-Convert to MarkdownSECRET /SENSITIVE
+SECRET /SENSITIVE
 
 8. In default of the collaboration of either MULDOON or ROUSSOS, WERBELL and OLIVER have hired Walter Joseph MACKENZIE, a former Agency friend of both MULDOON and ROUSSOS.
 

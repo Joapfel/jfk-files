@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10410.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Guatemala, 21 de mayo de 1958.
 

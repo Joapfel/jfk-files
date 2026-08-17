@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24124.png
-
-Convert to MarkdownThe Chief of the Agency Audit Staff is responsible for the audit of Agency proprietaries, utilizing Audit Staff personnel under a suitable cover arrangement or witting or unwitting public accounting firms as is most appropriate to the requirements of a particular proprietary. An example of the type of audit conducted appears at p. 105 Section VIII and concerns MHMUTUAL, the proprietary insurance-investment complex.
+The Chief of the Agency Audit Staff is responsible for the audit of Agency proprietaries, utilizing Audit Staff personnel under a suitable cover arrangement or witting or unwitting public accounting firms as is most appropriate to the requirements of a particular proprietary. An example of the type of audit conducted appears at p. 105 Section VIII and concerns MHMUTUAL, the proprietary insurance-investment complex.
 
 ### D. Financial Controls/Non-Operating Companies Except Those Keeping Books of Account
 

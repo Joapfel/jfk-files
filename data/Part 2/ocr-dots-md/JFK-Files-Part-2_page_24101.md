@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24101.png
-
-Convert to Markdowninvolved themselves in political assassinations, but under
+involved themselves in political assassinations, but under
 their system they at least have a better prospect of keep-
 ing it concealed. Since we do like a free society and
 since these secrets are going to come out in due course, the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4470.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 On October 19, 1959, GREENWALD advised SA DEAN that THOMAS DICKSON, described above, was contacted by an individual, presumably a JOHN POLLINA, in an endeavor to purchase his 2500 acre plot in Salem, N.J. GREENWALD allegedly was told by DICKSON that it was demanded that he set a price for his land and that DICKSON would be contacted Wednesday evening, October 21, 1959, for his answer. GREENWALD said that DICKSON had called him and related this information. DICKSON was said to be extremely worried over what may happen to him or his family if he does not sell the land.
 

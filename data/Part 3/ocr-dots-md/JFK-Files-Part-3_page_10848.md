@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10848.png
-
-Convert to Markdowncoordinated. This would be most important if the individual in any way was connected with or associated with an intelligence service.
+coordinated. This would be most important if the individual in any way was connected with or associated with an intelligence service.
 
 2) DOD is anxious to have freedom to assess and recruit Bloc diplomats not known to be engaged in intelligence activity. On the surface, this does not appear to present a problem, but realistically speaking it is impossible for us to know that a Soviet diplomat, not known to be engaged in intelligence activity one day, appears on the scene the following week as an agent or coopted agent. To give CIA wide latitude in this field could create a truly undesirable mess. We believe that if CIA is permitted to move on such targets it should be done on a selective basis and with maximum coordination.
 

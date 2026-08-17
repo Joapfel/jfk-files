@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23625.png
-
-Convert to Markdown# AMENDMENT NO. 1
+# AMENDMENT NO. 1
 
 1. Agent HUMIST was granted provisional operational clearance as out put on 24 October 1952 and was activated 1 December 1952. He is presently being used in project HUAMOID as cut out between principal agent HUAMOID and sub-agents HUAMOID-1 and HUAMOID-2. As described in the project, it is planned to cancel project HUAMOID about mid-year when the principal agent leaves Costa Rica and re-submit it as two projects, one of which will be project HUMIST.
 

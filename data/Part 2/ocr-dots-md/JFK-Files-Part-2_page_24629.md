@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24629.png
-
-Convert to Markdownfailed to obtain a majority vote, the "PRESSURES FOR [LUMUMBA'S] RETURN WILL BE ALMOST IRRESISTABLE" (CIA Cable, IN 33499, Leopoldville to Director, 10/26/60).* Another general concern at CIA headquarters was that foreign powers would intervene in the Congo and bring Lumumba to power (CIA Cable, OUT 81720, Director to Leopoldville, 10/17/60). Similarly, throughout this period Lumumba was viewed by CIA officials and the Eisenhower Administration** as a stalking horse for "what appeared to be a Soviet effort to take over the Congo" (Hedgman, 8/21/75, pp. 10, 45).
+failed to obtain a majority vote, the "PRESSURES FOR [LUMUMBA'S] RETURN WILL BE ALMOST IRRESISTABLE" (CIA Cable, IN 33499, Leopoldville to Director, 10/26/60).* Another general concern at CIA headquarters was that foreign powers would intervene in the Congo and bring Lumumba to power (CIA Cable, OUT 81720, Director to Leopoldville, 10/17/60). Similarly, throughout this period Lumumba was viewed by CIA officials and the Eisenhower Administration** as a stalking horse for "what appeared to be a Soviet effort to take over the Congo" (Hedgman, 8/21/75, pp. 10, 45).
 
 During this period, the Leopoldville station continued to maintain close operational relationships with, and offer aid to, Congolese contacts who expressed a desire to assassinate Lumumba*** although there is no direct evidence that aid was provided for the specific purpose of assassination.
 

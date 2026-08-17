@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5599.png
-
-Convert to Markdown# BASIS FOR INVESTIGATION:
+# BASIS FOR INVESTIGATION:
 
 The investigation originated as a referral from Audit Division. It was alleged that SHELTON received $4,000.00 from DIXIE ENGINEERING COMPANY of Mobile, Alabama, during the years 1963 and 1964 and reported only $2,000.00 from this source during the aforementioned years. It was further alleged that SHELTON travels in a late model Cadillac, drives van and recently built a new house while reporting very nominal amounts of income on his tax returns.
 

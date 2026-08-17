@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7963.png
-
-Convert to Markdown<table><thead><tr><th colspan="3" style="text-align: center;">VIA COURIER POUCH</th></tr><tr><td colspan="2"><strong>DISPATCH</strong></td><td><strong>CLASSIFICATION</strong><br/>SECRET</td></tr><tr><th scope="col">TO</th><th scope="col">Attn:</th><th scope="col"></th></tr></thead><tbody><tr><td>Chief, WE</td><td>CHIEF, WE/4</td><td></td></tr><tr><th scope="row">INFO.</th><td></td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Rome</td><td>[Signature] 10/9</td></tr><tr><th scope="row">SUBJECT</th><td>KEYWAY<br/>Meeting of Dr. Martin Luther KING with Italian Leftist Personalities</td><td></td></tr><tr><th scope="row">ACTION REQUIRED</th><td>REFERENCES</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="3" style="text-align: center;">VIA COURIER POUCH</th></tr><tr><td colspan="2"><strong>DISPATCH</strong></td><td><strong>CLASSIFICATION</strong><br/>SECRET</td></tr><tr><th scope="col">TO</th><th scope="col">Attn:</th><th scope="col"></th></tr></thead><tbody><tr><td>Chief, WE</td><td>CHIEF, WE/4</td><td></td></tr><tr><th scope="row">INFO.</th><td></td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Rome</td><td>[Signature] 10/9</td></tr><tr><th scope="row">SUBJECT</th><td>KEYWAY<br/>Meeting of Dr. Martin Luther KING with Italian Leftist Personalities</td><td></td></tr><tr><th scope="row">ACTION REQUIRED</th><td>REFERENCES</td><td></td></tr></tbody></table>
 
 For Your Information.
 

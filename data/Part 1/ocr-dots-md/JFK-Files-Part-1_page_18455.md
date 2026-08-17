@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18455.png
-
-Convert to MarkdownSECRET
+SECRET
 (18 New Titled In)
 
 USE PREVIOUS EDITION

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3344.png
-
-Convert to Markdown<table><thead><tr><th>TO</th><th>WAVE NO.</th></tr></thead><tbody><tr><td>DC/WH/SA 3</td><td>TYPIC YOBITE AMWORLD<br/>REF: WAVE 0176 (IX 94619)*</td></tr></tbody></table>
+<table><thead><tr><th>TO</th><th>WAVE NO.</th></tr></thead><tbody><tr><td>DC/WH/SA 3</td><td>TYPIC YOBITE AMWORLD<br/>REF: WAVE 0176 (IX 94619)*</td></tr></tbody></table>
 
 CTI DA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8602.png
-
-Convert to Markdown6 October, 1969
+6 October, 1969
 
 CONTACT REPORT
 

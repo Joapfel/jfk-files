@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29068.png
-
-Convert to MarkdownSCHEDULE D
+SCHEDULE D
 (Form 1040)
 Department of the Treasury
 Internal Revenue Service

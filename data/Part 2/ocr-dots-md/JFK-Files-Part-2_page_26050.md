@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26050.png
-
-Convert to Markdownreform measures on the books and had issued
+reform measures on the books and had issued
 decrees on them that were good. As usual,
 the difficulty is, when you get a piece of
 legislation or something, his then implementing

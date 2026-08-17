@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1412.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 F. TAX STATUS : This is a profit-making corporation and has met Federal and State requirements as follows:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4604.png
-
-Convert to Markdown2. Assets!
+2. Assets!
 
 a. AMCT Security Service: The AMCT complex is made up of 97 AMT staff and clerical personnel, 34 AWASTS (security Detail/Installations teams) located in the Miami area, and 61 AMMERS (senior Cubans detailmen drawn from banking, commercial and running circles in Cuba), also located in Miami.
 

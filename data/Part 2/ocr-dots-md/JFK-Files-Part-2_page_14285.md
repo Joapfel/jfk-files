@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14285.png
-
-Convert to MarkdownThe Committee has not yet received a formal response to those letters. Appendix A sets out those documents which have not yet been supplied to the Committee pursuant to the March 19 letter and follow-up correspondence.
+The Committee has not yet received a formal response to those letters. Appendix A sets out those documents which have not yet been supplied to the Committee pursuant to the March 19 letter and follow-up correspondence.
 
 On the second matter, that is, the request for copies of additional documents (and for staff access to others), the Committee's interest falls into roughly three areas pertaining to the activities of the FBI and the Department of Justice:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1193.png
-
-Convert to MarkdownS-K-C-R-M-T
+S-K-C-R-M-T
 
 III. Evaluations: (This student's performance indicated by asterisk.)
 

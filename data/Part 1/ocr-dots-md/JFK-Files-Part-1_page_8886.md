@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8886.png
-
-Convert to MarkdownDear Mr. Thomas:
+Dear Mr. Thomas:
 
 Due to increased demands upon my time from other clients, I find it necessary to relinquish my duties as legal counsel for the IILR here in Mexico, and I do so with great reluctance. One of my heretofore-lesser clients has recently expanded his activities in certain real estate developments in Guadalajara and Puerto Vallarta, thereby necessitating a frequent absence from Mexico City. Then, too, I had underestimated the amount of time and effort required to satisfactorily attend the various legal and administrative matters confronting CEDS. Should you so desire, I could recommend other legal counsel; but I am inclined to feel that the Centro's principal problems would be of an administrative nature rather than a legal one.
 

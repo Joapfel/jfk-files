@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8334.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE:</td>
     <td colspan="2">: 1-04-91</td>

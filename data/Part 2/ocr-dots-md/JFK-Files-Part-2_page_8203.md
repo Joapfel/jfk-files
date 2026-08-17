@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8203.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 Tab. A-55 contains MEMO B-173 dated 19 Sept. 1968.
 

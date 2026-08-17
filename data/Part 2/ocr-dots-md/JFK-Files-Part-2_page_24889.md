@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24889.png
-
-Convert to MarkdownWe do not think that traditional American notions of
+We do not think that traditional American notions of
 fair play need be abandoned when dealing with our adversaries.
 It may well be ourselves that we injure most if we adopt
 tactics "more ruthless than the enemy".

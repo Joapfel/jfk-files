@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32185.png
-
-Convert to Markdown14-0000
+14-0000
 
 48. Are you single, married, widowed, separated or divorced? single
 

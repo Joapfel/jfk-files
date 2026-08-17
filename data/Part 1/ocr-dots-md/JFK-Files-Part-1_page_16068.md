@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16068.png
-
-Convert to Markdown1400000
+1400000
 
 Critical Factors Related to solving the Problem
 

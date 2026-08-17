@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7393.png
-
-Convert to Markdown# Appendix D - Item 13
+# Appendix D - Item 13
 
 **Rita /gnes Ambrosio**
 DOD July 19, 1939

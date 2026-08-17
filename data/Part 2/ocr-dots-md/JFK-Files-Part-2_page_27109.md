@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27109.png
-
-Convert to MarkdownSECRET
+SECRET
 
 misinterpreted. Upon informing Edgewood Arsenal of this decision, Boston was told that while Edgewood would dispose of chemical material for the CIA, it would not do so in the case of biological materials since that was not consistent with the mission of the arsenal. No further efforts toward the disposal of the material have taken place, and it remains under guard in the OTS vault.
 

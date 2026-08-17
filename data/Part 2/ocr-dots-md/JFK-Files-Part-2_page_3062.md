@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3062.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 and also "to raise at least a portion of the money, which would be needed for this operation." In addition to Pawley, King also contacted Henry Holland in New York City, suggesting that Holland raise money, through Cuban exile Justo Carrillo, to help pay for the propaganda efforts of New York radio station WRUL. King agreed that Holland could tell prospective donors that the "money was going to be used on behalf of non-Batista groups who were going to make a serious effort to remove Fidel Castro." 25/
 

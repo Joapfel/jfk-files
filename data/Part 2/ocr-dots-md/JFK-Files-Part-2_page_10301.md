@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10301.png
-
-Convert to MarkdownOn Mr. Colby's copy only:
+On Mr. Colby's copy only:
 
 13 Jan 72
 ExDir (Colby) said DCI had approved $30K for sensitive CS project - no details.

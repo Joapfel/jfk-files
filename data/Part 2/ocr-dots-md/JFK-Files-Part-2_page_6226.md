@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6226.png
-
-Convert to MarkdownREPRODUCED AT THE NATIONAL ARCHIVES
+REPRODUCED AT THE NATIONAL ARCHIVES
 
 Since 25 May 1968 Mr. Huzen had seen SHAW casually, by chance, in various downtown New Orleans restaurants, and greetings were exchanged. The last such casual encounter was just before SHAW's retirement in 1965.
 

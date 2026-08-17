@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33173.png
-
-Convert to MarkdownORIG: J. SEARS:mam
+ORIG: J. SEARS:mam
 DATE: 3 APR 69
 
 UNIT: CH/COG/OPS

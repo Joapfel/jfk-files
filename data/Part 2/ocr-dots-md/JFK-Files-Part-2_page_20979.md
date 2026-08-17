@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20979.png
-
-Convert to MarkdownDECLASSIFIED BY SP-24MM/16
+DECLASSIFIED BY SP-24MM/16
 
 UNITED STATES GOVERNMENT
 Memorandum

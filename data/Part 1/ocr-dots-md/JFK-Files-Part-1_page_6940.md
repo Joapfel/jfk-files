@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6940.png
-
-Convert to Markdown14-0000
+14-0000
 
 # FORMER U. S. AIDE AT WORK IN SOVIET
 

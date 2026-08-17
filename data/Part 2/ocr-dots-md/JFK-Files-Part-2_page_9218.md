@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9218.png
-
-Convert to Markdown# V. REVOLUTIONARY ACTIVITIES
+# V. REVOLUTIONARY ACTIVITIES
 
 On June 10, 1974, DE T-10 furnished two .22 caliber rifles abandoned by members of the BPP when vacating a home used as a safe house. Home was at 11746 Littlefield, Detroit, and was used by LONNIE DARDEN and his girlfriend between January and March, 1974.
 

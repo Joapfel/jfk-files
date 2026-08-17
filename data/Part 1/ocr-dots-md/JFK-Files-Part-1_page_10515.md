@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10515.png
-
-Convert to MarkdownRoyal Greek Honorary Consulate in
+Royal Greek Honorary Consulate in
 Yokohama, Sutherland Building, No. 75,
 Yanagashita-cho, Aoka-ku, Tel. 8-1713.
 

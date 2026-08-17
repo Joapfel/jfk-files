@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9689.png
-
-Convert to MarkdownTranscript prepared from tape recording received at FBIHQ on 4/22/74 with speaker identifying himself as Frank Drager.
+Transcript prepared from tape recording received at FBIHQ on 4/22/74 with speaker identifying himself as Frank Drager.
 
 157-6908
 

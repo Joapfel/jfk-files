@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24180.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th><th colspan="2">CLASSIFICATION:</th><th colspan="2">PROCESSING ACTION</th></tr><tr><td></td><td colspan="2">SECRET</td><td colspan="2"></td></tr></thead><tbody><tr><td>TO: Chief, LCPIPIT</td><td colspan="4"></td></tr><tr><td>INFO: Chief, ER, KUEWOLF; KUDESK, WH</td><td colspan="4"></td></tr><tr><td>FROM: Chief of Station, London</td><td colspan="4"></td></tr><tr><td>SUBJECT: KUDESK CREPHEY STEBONY SMOOTH BAIRN Report on STEBONY/1</td><td colspan="4"></td></tr><tr><td>ACTION REQUIRED: REFERENCES</td><td colspan="4"></td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th><th colspan="2">CLASSIFICATION:</th><th colspan="2">PROCESSING ACTION</th></tr><tr><td></td><td colspan="2">SECRET</td><td colspan="2"></td></tr></thead><tbody><tr><td>TO: Chief, LCPIPIT</td><td colspan="4"></td></tr><tr><td>INFO: Chief, ER, KUEWOLF; KUDESK, WH</td><td colspan="4"></td></tr><tr><td>FROM: Chief of Station, London</td><td colspan="4"></td></tr><tr><td>SUBJECT: KUDESK CREPHEY STEBONY SMOOTH BAIRN Report on STEBONY/1</td><td colspan="4"></td></tr><tr><td>ACTION REQUIRED: REFERENCES</td><td colspan="4"></td></tr></tbody></table>
 
 1. BAIRN, a sensitive SMOOTH operation, provides the following report relating to STEBONY/1 (date of info, 26 July 1965):
 

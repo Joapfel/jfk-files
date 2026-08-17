@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16162.png
-
-Convert to Markdown# CIA Agent Contacted on Alexandria Firm's Assassination Equipment
+# CIA Agent Contacted on Alexandria Firm's Assassination Equipment
 
 J. Conner
 

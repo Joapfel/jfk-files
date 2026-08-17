@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7116.png
-
-Convert to MarkdownLegal Counsel to Mr. Adams Memo
+Legal Counsel to Mr. Adams Memo
 RE: SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES
 
 applicant qualifies for security clearance as well as proposed guidelines to deal with the maintenance of classified material received by the Committee. He was told someone will be in touch with Senator Church regarding this in the near future.

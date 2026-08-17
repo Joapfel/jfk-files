@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35230.png
-
-Convert to MarkdownGENERAL
+GENERAL
 
 In compliance with what has been established, of submitting, to you a
 report at the close of each month, I am attaching herewith a STATEMENT OF

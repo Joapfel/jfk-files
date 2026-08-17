@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22179.png
-
-Convert to Markdown**NOSENKO:** Of course they would speak with KOVSHUK, GUK, GRYAZNOV, who talked to me.
+**NOSENKO:** Of course they would speak with KOVSHUK, GUK, GRYAZNOV, who talked to me.
 
 **Question:** How about the First Chief Directorate and the Seventh Directorate?
 

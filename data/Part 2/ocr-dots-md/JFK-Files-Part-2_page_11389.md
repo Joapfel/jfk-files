@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11389.png
-
-Convert to Markdown3. Investigative procedures and suggestions
+3. Investigative procedures and suggestions
 This section contains detailed investigative guides for use in investigating and reporting activities of the Communist Party, USA.
 
 a. To accurately and clearly show the true nature of the Communist Party, USA, data concerning the following topics must be fully developed and reported. [When material contains information that would be logically reported under more than one topic heading but to do so would make the separate accounts unintelligible, report all the material under the main heading and only refer to the information under the other breakdowns. Do not repeat same data under separate headings.] Reports on the Communist Party, USA, as an organization must be submitted by each office quarterly and should cover activities for the preceding three-month period. All offices are required to use the following breakdown in preparing quarterly reports on the Communist Party, USA. Each subfile caption must start on a separate page.

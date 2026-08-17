@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14120.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 Constitution against self-incrimination. He said he would keep that matter in mind.

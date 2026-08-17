@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23934.png
-
-Convert to Markdownwhich had long had a standing grudge against that and saw no way of doing away with, but obviously they weren't all as left as Babu. Osman made You had for instance Othman Sharif, who may be Ambassador to United States.
+which had long had a standing grudge against that and saw no way of doing away with, but obviously they weren't all as left as Babu. Osman made You had for instance Othman Sharif, who may be Ambassador to United States.
 
 (Serious reason he was made Ambassador to the UN is not clear from this document. He was later made High Commissioner in London, where he now lives.)
 

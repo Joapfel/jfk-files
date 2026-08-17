@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6031.png
-
-Convert to MarkdownJOHN R. TUNHEIM
+JOHN R. TUNHEIM
 Minnesota Chief Deputy Attorney General
 
 102 State Capitol

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29061.png
-
-Convert to Markdown# CALIFORNIA
+# CALIFORNIA
 ## ITEMIZED DEDUCTIONS
 
 Attach to Form 540

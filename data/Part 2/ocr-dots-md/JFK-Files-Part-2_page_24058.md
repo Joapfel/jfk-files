@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24058.png
-
-Convert to Markdownc. There is the danger that the United States Govern- ment will become an unwitting accomplice to criminal acts and that criminal figures will take advantage of their associa- tion with the government to advance their own projects and interests.
+c. There is the danger that the United States Govern- ment will become an unwitting accomplice to criminal acts and that criminal figures will take advantage of their associa- tion with the government to advance their own projects and interests.
 
 d. There is a fundamental impropriety in selecting persons because they are skilled at performing deeds which the laws of our society forbid.
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_25431.png
-
-Convert to MarkdownBook V, P. 58 The CIA investigation reflected a Soviet orientation, with exhaustive studies of Oswald's activities in the Soviet Union. There is no corresponding CIA analysis of Oswald's contacts with pro and anti Castro groups in U.S.
+Book V, P. 58 The CIA investigation reflected a Soviet orientation, with exhaustive studies of Oswald's activities in the Soviet Union. There is no corresponding CIA analysis of Oswald's contacts with pro and anti Castro groups in U.S.

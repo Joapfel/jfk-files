@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34084.png
-
-Convert to Markdown# COFFEE
+# COFFEE
 
 ## Commentary:
 

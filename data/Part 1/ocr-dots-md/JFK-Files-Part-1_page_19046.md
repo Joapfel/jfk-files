@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19046.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The party puts forth slogans proclaiming "Germany for the Germans" and "Europe for the Europeans." Indeed, the NPD favors a united Europe somewhat along the lines advocated by De Gaulle. Europe, it holds, should be completely independent of the US, and possess its own nuclear deterrent. It should be built on a Franco-German alliance that smaller European countries sooner or later would have to join. The NPD would welcome the decay of NATO as signaling the end of sterile policies which do not serve Germany's real interests.
 

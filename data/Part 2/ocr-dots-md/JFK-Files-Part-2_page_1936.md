@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1936.png
-
-Convert to MarkdownAugust 25, 1971
+August 25, 1971
 
 Dear Tom -
 

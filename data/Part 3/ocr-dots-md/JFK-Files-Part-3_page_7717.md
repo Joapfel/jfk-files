@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7717.png
-
-Convert to MarkdownSelect Committee Members Requesting Files
+Select Committee Members Requesting Files
 
 - Senator Gary Hart
 

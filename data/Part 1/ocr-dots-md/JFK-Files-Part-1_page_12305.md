@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12305.png
-
-Convert to MarkdownSUBJECT: Cuban Exiles Involved with DEA
+SUBJECT: Cuban Exiles Involved with DEA
 
 in contact with one Orlando GARCIA, who was in the Miami area recruiting Cubans for use in a Venezuelan Special Forces Unit. Your Agency is referred to the FBI for information concerning the activities of these individuals in the United States.
 

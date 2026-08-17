@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10432.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td><td></td></tr><tr><td colspan="2">SECRET</td></tr></table>
+<table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td><td></td></tr><tr><td colspan="2">SECRET</td></tr></table>
 
 <html><body><table><thead><tr><th>(Date and time filed)</th><th>(Reference number)</th></tr></thead><tbody><tr><td>CASE SECRETariat SUBMISSION<br/>BY__________________________<br/>CC: _________________________</td><td>(in order to _________________)<br/>FILE NO.</td></tr><tr><td>INDEX □ DESTROY □ RETURN TO ____ BRANCH □ FILE CRD</td><td>PRIOR TO EXTRACT NO.<br/>FILE IN CS PLINE NO.</td></tr><tr><td>[ ] RED COPY</td><td>RECF:<br/>FILE VR</td></tr></tbody></table></body></html>
 

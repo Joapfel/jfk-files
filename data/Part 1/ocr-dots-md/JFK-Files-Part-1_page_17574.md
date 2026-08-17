@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17574.png
-
-Convert to MarkdownSECRET / KAPOK
+SECRET / KAPOK
 -18-
 
 b. Basehouse rentals, utilities, and expenses:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14956.png
-
-Convert to MarkdownJUAN MARL BRAS
+JUAN MARL BRAS
 
 Juan Mari Bras, a Sam Juan attorney and Security Index subject, is the founder and current Secretary General of the Movimiento Pro-Independencia de Puerto Rico, which is the principal militant group seeking independence for Puerto Rico. He is involved in a Cuban intelligence network operating in Puerto Rico.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1718.png
-
-Convert to MarkdownRETIRED FROM UNREADABLE
+RETIRED FROM UNREADABLE
 COPY.
 
 SUBJECT: Court Foster Wood

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25555.png
-
-Convert to MarkdownHon. Michael Mansfield
+Hon. Michael Mansfield
 
 June 7, 1976
 

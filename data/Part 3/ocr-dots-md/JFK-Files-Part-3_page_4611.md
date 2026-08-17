@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4611.png
-
-Convert to MarkdownNK 105-9440
+NK 105-9440
 
 Seabrook, Texas, and charged with conspiracy and unlawful possession of firearms. The co-defendants in the case were listed as MANUEL ARQUES, MARIO SILVERIO VILLAMINA, FRANCISCO GONZALES OBREGON and ABELARDO PUJOL BARRERA.
 

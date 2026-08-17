@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16935.png
-
-Convert to Markdown10/7/69
+10/7/69
 
 RON SATCHEL, FRED N. JOHNSON, FRED HAMPTON,
 DEBRA JOHNSON

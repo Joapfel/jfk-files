@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28229.png
-
-Convert to MarkdownOct. 30, 1978
+Oct. 30, 1978
 
 Dear Tom:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1944.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CONTRIBUTION OF<br/>DISPATCH</td></tr></table>
 

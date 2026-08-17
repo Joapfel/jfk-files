@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10129.png
-
-Convert to MarkdownFEDERAL BUREAU OF INVESTIGATION
+FEDERAL BUREAU OF INVESTIGATION
 
 Date February 3, 1970.
 

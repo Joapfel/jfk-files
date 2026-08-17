@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22678.png
-
-Convert to MarkdownWARD & PAUL
+WARD & PAUL
 
 410 First Street, S.E., Washington, D.C. 20003
 

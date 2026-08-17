@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4775.png
-
-Convert to Markdown14-00000
+14-00000
 
 VI. 22 Apr 76
 

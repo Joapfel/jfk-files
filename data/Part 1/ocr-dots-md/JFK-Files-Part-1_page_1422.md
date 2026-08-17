@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1422.png
-
-Convert to Markdown- 5 -
+- 5 -
 
 # Chapter 7
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27152.png
-
-Convert to MarkdownTOP SECRET / SENSITIVE Attachments
+TOP SECRET / SENSITIVE Attachments
 
 Mrs. Davis also said that Justice made reference to Walt Rostow's recollection of a general survey of all "intelligence programs country by country" made by the 303 Committee. I assume he means the general beginning-of-a-new-President's-term roundup (similar to the ones given Mr. Nixon and Mr. Ford). We find references to covert action reviews, but these appear to have been oral and we find nothing in writing, and no references to mail operations.
 

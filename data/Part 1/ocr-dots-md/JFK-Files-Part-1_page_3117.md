@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3117.png
-
-Convert to Markdownc) reportedly became angry with a colleague who refused to prepare a speech commemorating GORKIY's birthday.
+c) reportedly became angry with a colleague who refused to prepare a speech commemorating GORKIY's birthday.
 
 c) wife supervised production of the Soviet publication, URSS.
 

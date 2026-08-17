@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13912.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 WASHINGTON
 
 September 19, 1963

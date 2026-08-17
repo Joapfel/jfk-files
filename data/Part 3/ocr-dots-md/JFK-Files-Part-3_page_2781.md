@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2781.png
-
-Convert to MarkdownF B I
+F B I
 
 Date: SEPTEMBER 10, 1975
 

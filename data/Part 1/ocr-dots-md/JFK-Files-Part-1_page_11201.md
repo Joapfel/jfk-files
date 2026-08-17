@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11201.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 21
 
 <table><tr><td>DATE: PAY SMILE:ACK</td><td>C/FILE NO:</td></tr><tr><td>號碼: WJ/C/FI/TC</td><td>0 INDEX</td></tr><tr><td>DATE: 2625</td><td>0 NO INDEX</td></tr><tr><td>DATE: 17 JUNE 1963</td><td>0 FILE IN CS FILE NO.</td></tr></table>

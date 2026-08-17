@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5404.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 24 June 1998
 

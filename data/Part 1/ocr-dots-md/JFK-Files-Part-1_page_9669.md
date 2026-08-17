@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9669.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>TO</td><td>MEXICO CITY</td></tr><tr><td>FROM:</td><td>DIRECTOR</td></tr><tr><td>CONF.</td><td>WH8</td></tr></table>
 

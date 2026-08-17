@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29183.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="3">For other taxable year beginning ...................., 1973, ending ............., 19..</th>

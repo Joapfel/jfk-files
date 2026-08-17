@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4749.png
-
-Convert to MarkdownFebruary 1, 1972
+February 1, 1972
 
 Director, FBI
 

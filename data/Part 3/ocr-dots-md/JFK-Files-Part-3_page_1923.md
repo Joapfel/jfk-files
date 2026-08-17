@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1923.png
-
-Convert to MarkdownIn reply, Please Refer to
+In reply, Please Refer to
 File No. 62-604
 
 Your Ref.:

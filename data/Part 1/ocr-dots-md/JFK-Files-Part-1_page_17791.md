@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17791.png
-
-Convert to Markdown... Unidos que leafields que está en una junta y que llaman
+... Unidos que leafields que está en una junta y que llaman
 sus tardas, l'ERG-DES que el llama lo diga que ya sale para el
 Congreso a buscarlo. MARIÑA que está bien.- 13h-
 

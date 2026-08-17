@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23576.png
-
-Convert to MarkdownEYES ONLY FOR THE PRESIDENT
+EYES ONLY FOR THE PRESIDENT
 
 November 1, 1961
 

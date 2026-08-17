@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20769.png
-
-Convert to Markdown6 June 1969
+6 June 1969
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

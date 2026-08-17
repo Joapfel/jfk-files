@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9993.png
-
-Convert to Markdowna directive permitting Loyalty Hearing Boards to hear witnesses in the absence of the employee and his counsel, if the witness so requested.
+a directive permitting Loyalty Hearing Boards to hear witnesses in the absence of the employee and his counsel, if the witness so requested.
 
 I understand the provision of section 9(c)(4) to be a deliberate policy judgment that witnesses, other than confidential informants, shall be subject to cross-examination. Accordingly, persons giving testimony will not have the choices set forth in your memorandum. I therefore suggest that you advise prospective witnesses that their testimony will have to be in the presence of the employee and his counsel and will be subject to cross-examination.
 

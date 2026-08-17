@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16099.png
-
-Convert to MarkdownTIME AND COST ESTIMATE
+TIME AND COST ESTIMATE
 
 TIME PERIOD COVERED: __________ months
 PERFORMANCE DURING PERIOD: Phase V: Expansion of Operations

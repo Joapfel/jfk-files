@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13901.png
-
-Convert to Markdown308.
+308.
 
 Entrada 1236.- ROBERTO pregunta por <u>ROGELIO</u> y J.dice - que esta fueras de México, que llame mañana a la misma hora. R. acepta.- 314.-
 

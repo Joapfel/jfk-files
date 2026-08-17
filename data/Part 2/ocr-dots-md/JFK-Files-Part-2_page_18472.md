@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18472.png
-
-Convert to Markdown2. The Black Panther Party, Chicago
+2. The Black Panther Party, Chicago
 
 The Committee is inquiring into the relation-
 ships between the FBI and other law enforce-

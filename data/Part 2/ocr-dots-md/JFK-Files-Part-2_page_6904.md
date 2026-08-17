@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6904.png
-
-Convert to Markdownpage from the Classified Information Procedures Act, the law that covers the handling of secret information in criminal trials. Under that law, federal judges have discretion to permit introduction in evidence of summaries or substitutes in place of classified information. The Joint Resolution provides for creation of such summaries or substitutes where appropriate, so that the public can learn essential facts about the Kennedy assassination from a document even where references to private matters or crucial national security secrets would render the document itself mostly unreleasable at present.
+page from the Classified Information Procedures Act, the law that covers the handling of secret information in criminal trials. Under that law, federal judges have discretion to permit introduction in evidence of summaries or substitutes in place of classified information. The Joint Resolution provides for creation of such summaries or substitutes where appropriate, so that the public can learn essential facts about the Kennedy assassination from a document even where references to private matters or crucial national security secrets would render the document itself mostly unreleasable at present.
 
 In all cases, the Joint Resolution requires that the presumption be in favor of release. All records will be released unless there is clear and convincing evidence that postponing release is essential to a vital interest.
 

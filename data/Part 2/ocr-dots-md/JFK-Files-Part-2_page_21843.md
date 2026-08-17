@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21843.png
-
-Convert to Markdownto a remark by the Chief of Station that implied that he might
+to a remark by the Chief of Station that implied that he might
 assassinate Lumumba:
 
 TO COS COMMENT THAT LUMUMBA IN OPPOSITION IS ALMOST AS DANGEROUS AS IN OFFICE, [THE CONGOLESE POLITICIAN] INDICATED UNDERSTOOD AND IMPLIED MIGHT PHYSICALLY ELIMINATE LUMUMBA. (CIA Cable, (IN 49679) Leopoldville to Director, 9/7/60.)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10444.png
-
-Convert to MarkdownDDHA-34623
+DDHA-34623
 
 10 May 1968
 19-120-13/1

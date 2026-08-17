@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7824.png
-
-Convert to MarkdownJUL 16 1975
+JUL 16 1975
 
 Mr. John T. Elliff, Director
 Domestic Intelligence Task Force

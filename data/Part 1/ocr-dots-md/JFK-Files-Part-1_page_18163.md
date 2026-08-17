@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18163.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 210017Z CITE MEXICO CITY 8920
 DIRECTOR

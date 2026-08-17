@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28794.png
-
-Convert to MarkdownCIVIL OFFICER
+CIVIL OFFICER
 APPOINTMENT AFFIDAVITS
 
 (As defined in 5 USC 21a and 21b)

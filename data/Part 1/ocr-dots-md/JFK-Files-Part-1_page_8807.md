@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8807.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>OFFICE CHARTER AND NUMBER</th></tr></thead><tbody><tr><td>CONTINUATION OF DASHCH</td><td>SECRET</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>OFFICE CHARTER AND NUMBER</th></tr></thead><tbody><tr><td>CONTINUATION OF DASHCH</td><td>SECRET</td></tr></tbody></table>
 
 4. As previously, Subject's reporting was terribly confused. I'm not sure what she meant by "rambling tangents." She said that AEDIEHARD arrived at her house at ca. 19:30 on 6 February. About four hours later, Subject were there. They were all guests at the luncheon to which AEDIEHARD had been invited. The male guests had long since departed to their jobs. AEDIEHARD made his usual impression of all the girls, none of whom he had met before. "They all loved him." AEDIEHARD stayed until ca. 23:00 when he left pleading a previous appointment.
 

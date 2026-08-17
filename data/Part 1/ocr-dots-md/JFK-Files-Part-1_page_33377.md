@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33377.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="2">CABLE SEC DISCOVER BY: 27 PER</td>
     <td>TOTAL COMPLIES: 15-1</td>

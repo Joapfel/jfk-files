@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30351.png
-
-Convert to MarkdownHEADQUARTERS
+HEADQUARTERS
 513TH INTELLIGENCE CORPS GROUP
 Office of the Commanding Officer
 APO 757 US Forces

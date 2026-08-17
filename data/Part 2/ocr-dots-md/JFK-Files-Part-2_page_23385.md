@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23385.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. agreement or no agreement at all resulting from either a final
 2. request for approval or either approval or no approval. This

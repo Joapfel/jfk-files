@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10311.png
-
-Convert to Markdown14-00090
+14-00090
 
 tanos o prisiones de la dictadura, las escas más obsequias que comparten con la dirección del penal.
 

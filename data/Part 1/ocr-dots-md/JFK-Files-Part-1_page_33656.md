@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33656.png
-
-Convert to MarkdownExiles Speak Over RFE
+Exiles Speak Over RFE
 
 Radio Free Europe, on the other hand, does not portray America. It concentrates largely on what is taking place within the slave countries. Over its transmitters Poles speak to Poles, Hungarians to Hungarians, etc. They speak as "the voice of Free Poland," "the voice of Free Hungary." etc. They look at their people's problems through their own eyes.
 

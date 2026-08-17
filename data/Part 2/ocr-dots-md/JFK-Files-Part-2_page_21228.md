@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21228.png
-
-Convert to MarkdownCOMMENT:
+COMMENT:
 
 On November 28, (N-46), NOSENKO stated that this case was included among the notes furnished to him by EVGENI NOSKOV acting for Section Chief VITALI DERA in 1963 (as noted above)
 

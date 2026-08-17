@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5921.png
-
-Convert to Markdownslain by Cook County States Attorney Officers, December 4, 1969, who at the time were executing a search warrant in Chicago, Illinois.
+slain by Cook County States Attorney Officers, December 4, 1969, who at the time were executing a search warrant in Chicago, Illinois.
 
 While in the party, Junior held the title of Field Secretary. and was privy to administrative matters relating to the BPP. On two occasions he traveled out of the state on party business, once to BPP National Headquarters for the purpose of meeting the National Staff, and to Washington, D. C., to attend the Revolutionary People's Constitutional Convention (RPCC).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21877.png
-
-Convert to MarkdownTweedy. No. Planning, yes, but nothing that ever got anywhere. (Tweedy, 9/9, p. 19)
+Tweedy. No. Planning, yes, but nothing that ever got anywhere. (Tweedy, 9/9, p. 19)
 
 It is difficult to reconcile the cable traffic with Tweedy's testimony that no action plans were launched and that no authorization for implementing the assassination operation, authorization for Hedgman's approach to his agent to explore access to Lumumba's entourage is in accord with Tweedy's description of his inquiries about gaining access to Lumumba.
 

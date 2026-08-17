@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8194.png
-
-Convert to MarkdownENCLOSURE
+ENCLOSURE
 
 | Name | DPOB | SSN | Compartmented Clearances |
 |---|---|---|---|

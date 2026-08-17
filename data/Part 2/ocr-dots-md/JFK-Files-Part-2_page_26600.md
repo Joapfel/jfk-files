@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26600.png
-
-Convert to Markdown# NOTES
+# NOTES
 
 A. **USSR** Simultaneous activity this morning on the Tyuratam missile test range, satellite tracking nets and Soviet space support ships in the Atlantic probably represented an attempt to launch an unmanned earth satellite. The launch apparently failed on the pad or was cancelled at the last moment. It may be tried again soon. (INTERCEPTS)
 

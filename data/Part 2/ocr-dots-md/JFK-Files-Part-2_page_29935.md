@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29935.png
-
-Convert to Markdownsister:
+sister:
 
 Eara Dixon
 3317 Bond Street

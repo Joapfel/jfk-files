@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21320.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 3/18/59, Eloy Gutierrez Menoyo, at a press conference, stated that his organization* supported the Castro Government "as long as it lives up to the principles for which we fought", and that if it should deviate "we will take whatever steps circumstances dictate". He further stated that his group was 100% anti-communist.
 

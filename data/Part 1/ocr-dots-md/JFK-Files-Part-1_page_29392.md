@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29392.png
-
-Convert to MarkdownG January 1970
+G January 1970
 
 MEMORANDUM FOR: Chief, Special Operations Division
 SUBJECT : Maritime Branch Nominee for the Special Operations Division's Historical Program

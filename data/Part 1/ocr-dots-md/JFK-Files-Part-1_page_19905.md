@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19905.png
-
-Convert to Markdown(Chief of Station, Mexico City
+(Chief of Station, Mexico City
 
 Office of Finance
 

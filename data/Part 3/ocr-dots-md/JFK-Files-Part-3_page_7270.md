@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7270.png
-
-Convert to Markdowntool and can produce the type of intelligence which cannot be obtained in any other fashion.²⁰
+tool and can produce the type of intelligence which cannot be obtained in any other fashion.²⁰
 
 On July 14, 1970, Haldeman sent a top secret memorandum to Huston, notifying him of the President's approval of the use of bur-glaries, illegal wiretaps and illegal mail covers for domestic intelli-gence. In the memorandum, Haldeman stated:
 

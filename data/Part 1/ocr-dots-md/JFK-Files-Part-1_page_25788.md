@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25788.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>SECRET</td></tr></table>
 
 DATE : 14 NOVEMBER 58
 

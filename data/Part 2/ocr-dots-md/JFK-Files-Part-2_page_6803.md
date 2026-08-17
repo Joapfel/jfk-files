@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6803.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 in Section 7 and shall inform the custodian of records and the originating body of the record of its determination. The Committee expects that the Review Board also will consult with the agency or department that originated the information in reaching its determination as to whether public disclosure of the material must be postponed to ensure that it is apprised of relevant sensitivities presented by that information. For example, the Review Board should consult with the relevant Executive Branch agency that provided information incorporated into a Congressional document before making a decision to release that document and shall inform the originating agency of a decision to release that information.
 

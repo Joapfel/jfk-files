@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9021.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ## 4. Control of Transfer of Funds
 ### Department of State

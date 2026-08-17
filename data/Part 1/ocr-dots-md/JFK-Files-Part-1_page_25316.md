@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25316.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It is reported by LIMRUCK that LECNOVA gives some sort of instruction to cebanay personnel and although it is not known just what type of lessons these may be, we venture a guess that she teaches Spanish. During October 1955 LECNOVA underwent a very serious operation, lasting two hours, during which the amethotization had to be discontinued because her heart could not take the strain. LECNOVA returned to work again in November 1955.
 

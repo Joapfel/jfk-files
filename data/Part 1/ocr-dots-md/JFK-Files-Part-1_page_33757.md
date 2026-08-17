@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33757.png
-
-Convert to Markdown24 June 1952
+24 June 1952
 
 **MEMORANDUM FOR: Chief, IO Division**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17292.png
-
-Convert to Markdownpolicy of genocide. Newsmen, students, public offici-
+policy of genocide. Newsmen, students, public offici-
 tals, and neighborhood residents were given guided tours
 of the apartment. Panther guides claimed the physical
 evidence proved that the police did all the shooting.

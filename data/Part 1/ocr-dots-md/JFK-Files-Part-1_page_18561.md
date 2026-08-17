@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18561.png
-
-Convert to Markdown10 December 1973
+10 December 1973
 
 MEMORANDUM FOR: Chief, Career Management Group
 

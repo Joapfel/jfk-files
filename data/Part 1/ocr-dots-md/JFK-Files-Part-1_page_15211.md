@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15211.png
-
-Convert to Markdown**TRANSLATION**
+**TRANSLATION**
 
 Dear Jo and dear Lise,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17292.png
-
-Convert to Markdown-9-
+-9-
 
 (5) LIEPTY-5 (formerly LIPSTICK-40), Position: Support Agent
 

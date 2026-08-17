@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11903.png
-
-Convert to Markdown4-E
+4-E
 
 ACCOMPLISHMENTS
 PROTEST AND TROTSKYIST GROUPS UNIT

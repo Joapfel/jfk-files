@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18090.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="5">PROJECT ACTION</th><th rowspan="2">OTHER<br/>DATE<br/>RED<br/>BLACK</th></tr><tr><th>TYPE OF ACTION</th><th>X</th><th>Y/CI</th><th>CA</th><th>TERMINATION</th></tr></thead><tbody><tr><td>NEW PROJECT APPROVAL</td><td></td><td colspan="3">DIVISION</td><td></td></tr><tr><td>AMENDMENT NO.</td><td></td><td colspan="3">FIELD STATION</td><td></td></tr><tr><td>GENERAL X<br/>FY 1966</td><td></td><td colspan="3">Mexico City</td><td></td></tr><tr><td>EXTENSION</td><td></td><td>SEARCH</td><td>DEPT. 1</td><td>Mexico</td><td></td></tr><tr><td>TERMINATION</td><td></td><td>CASE OFFICER</td><td>Gus H. Stewart</td><td>DATE 1 Jan 66</td><td></td></tr><tr><td></td><td></td><td>ROOM NO.<br/>GH-43</td><td>BUILDING<br/>Hdqs</td><td>TEL.<br/>EXT.</td><td>9325 4508</td></tr></tbody></table>

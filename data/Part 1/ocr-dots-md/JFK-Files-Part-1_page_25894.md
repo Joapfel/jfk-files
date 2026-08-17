@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25894.png
-
-Convert to MarkdownEMPLOYEE INFORMATION
+EMPLOYEE INFORMATION
 
 SECRET
 

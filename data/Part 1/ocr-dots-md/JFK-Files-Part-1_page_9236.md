@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9236.png
-
-Convert to MarkdownDecember 14, 1950
+December 14, 1950
 
 Dear Bill:
 

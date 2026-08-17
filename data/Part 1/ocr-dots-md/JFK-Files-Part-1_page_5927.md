@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5927.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">ADVANCE COPY ISSUED/SLOTTED</th><th rowspan="2" style="vertical-align: top;">BY<br/>AT<br/>Z</th><th colspan="2">AGENCY MESSAGE</th></tr><tr><th>ACTION UNIT</th><th>1</th><th>RF. FILE . VR</th><th>1</th><th>4</th></tr></thead><tbody><tr><td></td><td>N</td><td></td><td></td><td>2</td><td>5</td></tr><tr><td>ACTION #</td><td>F</td><td></td><td></td><td>3</td><td>6</td></tr><tr><td></td><td>O</td><td></td><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="3">ADVANCE COPY ISSUED/SLOTTED</th><th rowspan="2" style="vertical-align: top;">BY<br/>AT<br/>Z</th><th colspan="2">AGENCY MESSAGE</th></tr><tr><th>ACTION UNIT</th><th>1</th><th>RF. FILE . VR</th><th>1</th><th>4</th></tr></thead><tbody><tr><td></td><td>N</td><td></td><td></td><td>2</td><td>5</td></tr><tr><td>ACTION #</td><td>F</td><td></td><td></td><td>3</td><td>6</td></tr><tr><td></td><td>O</td><td></td><td></td><td></td><td></td></tr></tbody></table>
 
 T 441386
 

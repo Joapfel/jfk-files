@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18980.png
-
-Convert to MarkdownSAMUEL ADASON JAFFE
+SAMUEL ADASON JAFFE
 
 # I. Jaffe's Contacts with FBI, 1958 - 1961
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_11605.png
-
 in a covert capacity and two stenographers, all of whom would be in his overt cover office, presumably as his regular employees.
 
 3. Cut-outs, agents, etc.: FULMINATER-1 should be authorized to develop such out-outs, agents, etc. as required to carry out his objectives in Chile.

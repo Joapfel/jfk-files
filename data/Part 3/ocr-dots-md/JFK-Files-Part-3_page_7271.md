@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7271.png
-
-Convert to Markdownamong Haldeman, the Attorney General and Hoover.²⁹ Indicative of the fact that the plan was still quite alive, but imperiled by Hoover, is the following language in this memorandum:
+among Haldeman, the Attorney General and Hoover.²⁹ Indicative of the fact that the plan was still quite alive, but imperiled by Hoover, is the following language in this memorandum:
 
 > At some point, Hoover has to be told who is President. He has become totally unreasonable and his conduct is detrimental to our domestic intelligence operations... It is important to remember that the entire intelligence community knows that the President made a positive decision to go ahead and Hoover has now succeeded in forcing a review. If he gets his way, it is going to look like he is more powerful than the President. He had his say in the footnotes and RN decided against him. That should close the matter and I can't understand why the AG is a party in reopening it. All of us are going to look damned silly in the eyes of Helms, Gayler, Bennett, and the military chiefs if Hoover can unilaterally reverse a Presidential decision based on a report that many people worked their asses off to prepare and which, on the merits, was a first-rate, objective job.³⁰
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4879.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="4">APLE SEC DISC BY: A. PELUQUAN</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17702.png
-
-Convert to Markdownc. To recruit, train and administer such agents as the project requires;
+c. To recruit, train and administer such agents as the project requires;
 
 d. To issue such reports as are deemed necessary, based on material acquired from the project;
 

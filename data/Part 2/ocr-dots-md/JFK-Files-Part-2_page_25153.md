@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25153.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NHU, NGO DINH</td><td rowspan="2">August 1963</td><td rowspan="2"></td></tr><tr><td>CONEIN</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>NHU, NGO DINH</td><td rowspan="2">August 1963</td><td rowspan="2"></td></tr><tr><td>CONEIN</td></tr></tbody></table>
 
 **OCCURRENCE:** The coup ...."aborted, because, one, they did not have necessary forces. I'm talking about the coup plotters, did not have the necessary forces to combat those loyal to the DIEM government, namely elements of the Marines, elements of the Rangers, presidential guard, and other units, and especially the Special Forces, which were the best armed troops available. Also, they announced in the press that the CIA was paying to have a coup. This was a very shrewd and calculating move on any man on the quality NGO DINH NH! who was a shrewd politician and also master of psychological warfare." pp. 22-23
 

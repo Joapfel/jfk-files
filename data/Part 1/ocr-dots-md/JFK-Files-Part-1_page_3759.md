@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3759.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">DISPATCH</td>
         <td>CLASSIFIED<br>S-D-C-R-E-T</td>

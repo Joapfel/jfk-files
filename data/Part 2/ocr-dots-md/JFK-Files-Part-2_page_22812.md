@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22812.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 subject coming up or being discussed?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23712.png
-
-Convert to Markdown1. Senator Huddleston. Yes. First he must review them.
+1. Senator Huddleston. Yes. First he must review them.
 
 2. Mr. Aaron. And if he finds a violation, evidence of
 3. violation, then he must report to the President and the

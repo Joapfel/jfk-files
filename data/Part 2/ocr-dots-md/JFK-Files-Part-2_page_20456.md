@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20456.png
-
-Convert to MarkdownToday, in Battle Creek, Michigan, the city's seal, adopted in 1891, is a white man hitting an unarmed Indian with a rifle butt. Some Indian youth view the television program "Custer" as indicative of racist America. The National Congress of American Indians opposes this distortion of history. Beatings and murder of Indians inidine go unchallenged. Congress voted in 1950 to open up Indian land reservations to state jurisdiction. In actuality, this rides established tribal courts and federal jurisdiction. It gives local bigoted authorities more opportunity to harrass and open the way to termination of our treaties and in several places resulted in actual loss of land.
+Today, in Battle Creek, Michigan, the city's seal, adopted in 1891, is a white man hitting an unarmed Indian with a rifle butt. Some Indian youth view the television program "Custer" as indicative of racist America. The National Congress of American Indians opposes this distortion of history. Beatings and murder of Indians inidine go unchallenged. Congress voted in 1950 to open up Indian land reservations to state jurisdiction. In actuality, this rides established tribal courts and federal jurisdiction. It gives local bigoted authorities more opportunity to harrass and open the way to termination of our treaties and in several places resulted in actual loss of land.
 
 It is as deadly to be an Indian in America as it is to be a soldier
 in Viet Nam. In the three years before 1967, more Indian children below the

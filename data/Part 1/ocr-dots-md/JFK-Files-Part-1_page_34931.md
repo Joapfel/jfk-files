@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34931.png
-
-Convert to MarkdownLa Habana, Agosto 17, 1957.
+La Habana, Agosto 17, 1957.
 
 COCONUT GROVE BANK
 MIAMI, FLORIDA.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18685.png
-
-Convert to MarkdownMr. Calvin W. Hicks
+Mr. Calvin W. Hicks
 10207 Forest Avenue
 Fairfax, Virginia 22030
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31481.png
-
-Convert to MarkdownSF 100-33830
+SF 100-33830
 FTD/maj
 
 JAMES WOOD is a member of the CP in

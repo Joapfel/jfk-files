@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26276.png
-
-Convert to MarkdownSECRET
+SECRET
 
 arrested some 48 members of the URJE (Union of Revolutionary Ecuadoran Youth). The leaders of the group admitted having received guerrilla training in Cuba, but there was no other evidence at the time of any Cuban involvement. The URJE, however, was a Communist-front group whose leaders had thrown off the discipline of the regular Communist party, and this January the Communists managed to have a URJE convention, run by Young Communists, expel the leaders. They were accused, according to published accounts, of having wasted $44,000 supplied by Cuba for guerrilla activities.
 

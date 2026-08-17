@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11522.png
-
-Convert to Markdown2.
+2.
 
 b) Contact with "Rómulo": LIRING/3 told Rowton that he again saw Rómulo, the FAR liaison, outside his apartment house at about 1610 on 24 December, as arranged. In view of what had transpired a few short time earlier that afternoon, he told Rómulo about the comments made by Carlos López. Rómulo, according to L/3, did not indicate that he knew López at all, but agreed with L/3 that the accusations of Perzabal must be met head-on. He suggested the following course of action: L/3 should wait for the reply from Marta (mother of León Barrios brothers) as to the exact charges made by Perzabal before taking up the matter with the Chief LIRING. EE tended to agree with L/3 that the LIRING establishment might have inspired Perzabal's letter, but felt it would be better if L/3 had a statement from Marta before accusing the PBRCMEKERS of having faith in her. Rómulo added that in the meantime he would try to arrange a confrontation with Perzabal in the presence of three "important FAR officials in Mexico", including a certain "Julio" also known as "Buda". Rómulo felt that Buda could lure Perzabal to a private meeting since the latter had already had interviewed him some time ago and would be anxious to see him again. This would provide a good pretext for a confrontation between Perzabal and LIRING/3 to clear up the whole matter.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27071.png
-
-Convert to Markdown<table><tr><td>ORIG. L.MURPHY:Koo</td></tr><tr><td>CRI. SOD/AB/OPS/3</td></tr><tr><td>LX1 4475</td></tr><tr><td>DATE 24 May 1965</td></tr></table>
+<table><tr><td>ORIG. L.MURPHY:Koo</td></tr><tr><td>CRI. SOD/AB/OPS/3</td></tr><tr><td>LX1 4475</td></tr><tr><td>DATE 24 May 1965</td></tr></table>
 
 <table><tbody><tr><td colspan="2">MESSAGE FORM</td><td colspan="2"></td></tr><tr><td rowspan="4"><table><tr><td></td><td></td><td></td></tr><tr><td>SECRET</td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td></tr></table></td><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>5</td><td></td><td></td></tr><tr><td>2</td><td>6</td><td></td><td></td></tr><tr><td>3</td><td>7</td><td></td><td></td></tr><tr><td>4</td><td>8</td><td></td><td></td></tr></tbody></table>
 

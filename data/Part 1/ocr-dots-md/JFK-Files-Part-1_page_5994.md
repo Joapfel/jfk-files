@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5994.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>Passenger</td>

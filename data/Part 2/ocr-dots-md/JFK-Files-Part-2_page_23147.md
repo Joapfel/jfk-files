@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23147.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Halley. No, I don't know. We would have to go back to them and their criteria for carding might not coincide with ours. In other words, many of these Cuban groups were prone to act on rumors. They were prone to publicize things that were not true. The DRE had a record of publicizing, embellishing, elaborating on things, and therefore we treated a lot of their material with caution.
 

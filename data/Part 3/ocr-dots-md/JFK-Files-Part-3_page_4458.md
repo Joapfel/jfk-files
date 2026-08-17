@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4458.png
-
-Convert to Markdown4741 (RJG-2-61)
+4741 (RJG-2-61)
 
 DECODED COPY
 

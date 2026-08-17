@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26963.png
-
-Convert to MarkdownEdwin Margen (Sr. & Co.)
+Edwin Margen (Sr. & Co.)
 Reid Kennedy (Sr. & Co.)
 Richard A. Sarcino
 Robert O. Davis

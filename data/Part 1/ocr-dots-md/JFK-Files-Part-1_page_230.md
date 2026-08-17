@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_230.png
-
-Convert to Markdown104-10059-10188
+104-10059-10188
 
 <table><thead><tr><td>SUBJECT</td><td>MEMORANDUM FOR THE RECORD</td></tr></thead><tbody><tr><td colspan="2">OSWALD - Nosenko</td></tr><tr><td colspan="2">1. On 26 July Mr. Rocca, c/c/A., called to my attention an aspect of Nosenko's information which, unless he thoroughly examined where we actually intend to assess analyse Nosenko's story about the Oswalts case, Rocca was then leading all the late General Kom N. are Oswald and it is his impression there are various gaps in the info from the standpunk. That is why I asked him more about some aspects which don't ring true.</td></tr><tr><td colspan="2">2. Recently Peccei received a copy of a British intelligence bulletin on activities of Komsa SHURACOVA who has been in the UKL since June with a British controlled source (a gov't clerk) judged.</td></tr><tr><td>OFFICE AND TITLE</td><td>SIGNATURE</td></tr><tr><td>FORM 7.02 1954</td><td>CLASSIFICATION E 525-126</td></tr></tbody></table>
 

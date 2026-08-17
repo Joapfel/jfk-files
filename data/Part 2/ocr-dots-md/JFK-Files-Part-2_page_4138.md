@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4138.png
-
-Convert to Markdown19 JUL 1953
+19 JUL 1953
 
 MEMORANDUM FOR THE RECORD
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22050.png
-
-Convert to MarkdownNO OBLIGATION
+NO OBLIGATION
 NATIONAL SECURITY COUNCIL
 
 <table><thead><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr></thead><tbody><tr><td>SPECIAL GROUP AUGMENTED, MONGODB, Lansdale, TAYLOR, JOHNSON, GILPATRICK, MCCONE, RFK, LEMNITZER, ROIG, RUSK, KOHLER, HURWITCH</td><td>June 20, 1962<br/>July 31, 1962<br/>June 12, 1962<br/>May 17, 1962</td><td>Special Group Augmented<br/>MONGODB<br/>June 22, 1962</td></tr></tbody></table>

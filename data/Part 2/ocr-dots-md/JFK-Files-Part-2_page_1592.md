@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1592.png
-
-Convert to Markdown(c) You will submit to the Government quarterly income and expense statements on the cover venture and copies of all tax returns filed in connection therewith. Your cover accounts shall be kept separate and distinct from the bank account into which your personal compensation payments are made.
+(c) You will submit to the Government quarterly income and expense statements on the cover venture and copies of all tax returns filed in connection therewith. Your cover accounts shall be kept separate and distinct from the bank account into which your personal compensation payments are made.
 
 (d) You herein agree that monies loaned you by the Government shall be repaid from the profits of the cover venture, in amounts and at periodic intervals to be established by the Government representative over seeing your activities. After said loan has been completely repaid and all other obligations, such as local taxes, etc., have been made, you may retain any further profit derived from said cover venture. However, it is clear understood and agreed that your primary obligation under this agreement is the performance of Governmental activities.
 

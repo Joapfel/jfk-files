@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11993.png
-
-Convert to MarkdownT 658185 EIA026
+T 658185 EIA026
 
 ACTION-CORRECTED
 

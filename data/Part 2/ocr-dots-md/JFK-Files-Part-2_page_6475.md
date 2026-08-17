@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6475.png
-
-Convert to Markdownto the OAS prior to 10 January 1964. In the meantime, our effort
+to the OAS prior to 10 January 1964. In the meantime, our effort
 is devoted to ascertaining the maximum that the OAS is prepared
 to do as a result of the Venezuela affair. They are hopeful that the
 OAS will support an increased surveillance system. He thinks it is

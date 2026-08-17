@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30935.png
-
-Convert to MarkdownSECRET
+SECRET
 
 12 SEP 1969
 

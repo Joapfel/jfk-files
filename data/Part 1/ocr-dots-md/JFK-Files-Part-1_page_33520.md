@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33520.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">ACTION UNIT</th><th>RF.</th><th>FILE</th><th>VR.</th><th>AGENCY MESSAGE</th></tr></thead><tbody><tr><td rowspan="3">SANDWICH</td><td rowspan="3">ACTION #</td><td rowspan="3">LFD</td><td></td><td rowspan="3">SANDWICH C/43 cfw2</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">ACTION UNIT</th><th>RF.</th><th>FILE</th><th>VR.</th><th>AGENCY MESSAGE</th></tr></thead><tbody><tr><td rowspan="3">SANDWICH</td><td rowspan="3">ACTION #</td><td rowspan="3">LFD</td><td></td><td rowspan="3">SANDWICH C/43 cfw2</td><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
 
 T 144267
 

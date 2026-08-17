@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24891.png
-
-Convert to Markdown14-00000
+14-00000
 
 [ ] - UNCLASSIFIED [ ] FINAL USE ONLY
 [ ] CONFIDENTIAL [x] SECRET

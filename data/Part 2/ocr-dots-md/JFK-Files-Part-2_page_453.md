@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_453.png
-
-Convert to Markdown14-00000
+14-00000
 
 SABAJADA CHINARA.- 11-26-67.
 

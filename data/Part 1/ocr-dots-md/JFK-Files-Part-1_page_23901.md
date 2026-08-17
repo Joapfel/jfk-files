@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23901.png
-
-Convert to MarkdownBut what they want is a sort of autobiographical type of article.
+But what they want is a sort of autobiographical type of article.
 
 I don't mind writing about Revolution. Here's the problem. Once I write
 about-- it's all right for me to write about Revolution. Nobody will object

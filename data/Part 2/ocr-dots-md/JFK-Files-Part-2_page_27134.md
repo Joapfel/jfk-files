@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27134.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 By way of explanation, we can illustrate the ineffectual coordination with a case involving a long-term Soviet penetration in the Agency. A very important staff agent was unmasked by virtue of information supplied by the aforementioned defector, but in the process the FBI officially took the position that the candidate who was submitted by the Agency was not the Soviet agent in question, and by memorandum they proposed that we submit all of the data to the Department of Defense on grounds that the penetration agent was more likely a past or present asset of the military.
 

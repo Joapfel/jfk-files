@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25670.png
-
-Convert to MarkdownMACHADO, MANUEL
+MACHADO, MANUEL
 
 019-009-0003
 MEXI-02164

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6103.png
-
-Convert to Markdown122A
+122A
 
 SECTION 122. RACIAL MATTERS
 

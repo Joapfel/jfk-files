@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31389.png
-
-Convert to MarkdownBy memorandum of 5 December 1952, Mr. Phenix refers to the fact that the trustees have given formal approval to the establishment of a gymnasium and that his understanding of the reserve fund is that when the Board of Directors of NCFE ask for the money, they receive it at once. He says that there appears to be some misunderstanding of this procedure, pointing out that the locus of misunderstanding "is in and around Frank W's office."
+By memorandum of 5 December 1952, Mr. Phenix refers to the fact that the trustees have given formal approval to the establishment of a gymnasium and that his understanding of the reserve fund is that when the Board of Directors of NCFE ask for the money, they receive it at once. He says that there appears to be some misunderstanding of this procedure, pointing out that the locus of misunderstanding "is in and around Frank W's office."
 
 b. **The Turkish Broadcasting Station.** Mr. Phenix intends to raise this question as a basic policy matter, he having been informed by us that while there is great enthusiasm for the project and while the State Department has set January 15th as the date by which VOA must either secure agreement from the Turkish Government or withdraw itself from consideration, the basic policy question of whether RFE then moves in has not been definitively settled.
 

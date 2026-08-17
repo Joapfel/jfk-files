@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17691.png
-
-Convert to Markdown## b. Soviet Diplomacy Activities
+## b. Soviet Diplomacy Activities
 
 Reference is made to HE-2327, HE-2395 and HE-2405 as examples of the type of monthly reports now being submitted relative to the diplomatic activities of the Soviet Embassy. These reports, based almost entirely on LIFAT, indicate some relationships the Soviets are developing with the Mexican Government, with other Latin American governments, and with other foreign diplomatic representatives. They also show some slight contact between the Soviets, Czechs and Jugoslavs in Mexico City; and even on the relationships between the Soviets and the Jugoslavs. Reports of this type show when the Soviets seem to be engaging in a drive to establish contacts in various departments of the Mexican Government and when they appear to be conducting a drive to cultivate Latin American diplomats. The reactions of both the Mexicans and the Latin Americans to these advances are often shown in the corresponding traffic. The Soviets, in general, do not seem to get a very good reception from the Latin Americans, but on the other hand, LIFAT shows that they are well received by the diplomatic representatives of India and Indonesia. The diplomatic reports have also shown an improvement of relations with the Jugoslavs (which were non-existent for several years here). The traffic and reports further show that the Soviets, Czechs and Jugoslavs have frequent interchange and other joint projects of sport or other entertainment.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27234.png
-
-Convert to Markdown# REPORT OF INTERVIEW
+# REPORT OF INTERVIEW
 
 TO: CPD
 

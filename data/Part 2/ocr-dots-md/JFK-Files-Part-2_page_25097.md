@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25097.png
-
-Convert to Markdown4. Mindful of the risks attending such actions, the Joint Chiefs of Staff have reviewed the proposals of the study and believe that they offer an option for exerting new pressures against Castro. They believe that proposals related to the expansion of US influence over the world sugar market, the stabilization of the free market, and the covert introduction of Bunga into Cuba, merit serious consideration. Other forms of attack proposed in the study might be taken subsequently to exploit resulting economic and political turbulence.
+4. Mindful of the risks attending such actions, the Joint Chiefs of Staff have reviewed the proposals of the study and believe that they offer an option for exerting new pressures against Castro. They believe that proposals related to the expansion of US influence over the world sugar market, the stabilization of the free market, and the covert introduction of Bunga into Cuba, merit serious consideration. Other forms of attack proposed in the study might be taken subsequently to exploit resulting economic and political turbulence.
 
 5. The study is forwarded herewith with a request that the concept and actions proposed in the outline program of the study be coordinated by your committee with other governmental departments and agencies. Upon completion of your review and coordination, it is further requested that your comments be made available to the Secretary of Defense and the Joint Chiefs of Staff.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9980.png
-
-Convert to Markdown3 August, 1967
+3 August, 1967
 
 Subject: LIRING/3 Report on Developments in Niss's Orozco Case.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24256.png
-
-Convert to MarkdownThe Agency explained its situation, the cover need, the Chinese pressures, and the fact that they were keeping the carriage to what they thought was a minimum that appearances could stand.
+The Agency explained its situation, the cover need, the Chinese pressures, and the fact that they were keeping the carriage to what they thought was a minimum that appearances could stand.
 
 And it ended up by one of the members of the Board turning to Nyrop and saying, Don, you ought to be glad that you don't have a really good, reliable competitor in there. He said, If you were being competed with by private business, you'd have real headaches. You ought to be real glad that it's not worse than it is. And that's the end of that.
 

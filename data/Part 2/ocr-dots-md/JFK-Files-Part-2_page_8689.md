@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8689.png
-
-Convert to MarkdownTDCSDB 3/651,885 dated 25 October 1962
+TDCSDB 3/651,885 dated 25 October 1962
 
 Reported view of Soviet diplomat on the Cuban
 situation. The Soviet diplomat, Minister MOLYAKOV,

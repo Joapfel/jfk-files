@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27601.png
-
-Convert to Markdown# Superior Court
+# Superior Court
 of the District of Columbia
 
 ## Certificate of Appraisal

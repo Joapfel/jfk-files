@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3439.png
-
-Convert to Markdowncritical period following the Miami press conference, AMYUM-19 was the only available, cleared channel to AMBOLD and time, in view of Guacido's unfavorable reaction, was of the essence. AMJAVA/4 was asked to convey this explanation to AMBIDDY-1 and to stress that we consider AMYUM-19 his senior rep in FAPRIM.
+critical period following the Miami press conference, AMYUM-19 was the only available, cleared channel to AMBOLD and time, in view of Guacido's unfavorable reaction, was of the essence. AMJAVA/4 was asked to convey this explanation to AMBIDDY-1 and to stress that we consider AMYUM-19 his senior rep in FAPRIM.
 
 8. AMJAVA/4 stated that there had been many betrayals and consequently AMBIDDY-1 was always careful. At times he might even think that AMYUM-19 was not loyal which, AMJAVA/4 added, "Of course is not true." As AMBIDDY-1 analyzes his own performance, he is satisfied that he is performing well. He has been in the resistance business since Batista's days and many intimate friends have be- trayed him. At the present moment, he does not have 100% confidence in anyone. Everything he is told, he analyzes. As an example, AMJAVA/4 briefs Chavez (the Mexican) on a projected operation. AMBIDDY-1 will question AMJAVA/4 closely in order to make sure that the instructions did not deviate from the plan as conceived by him.
 

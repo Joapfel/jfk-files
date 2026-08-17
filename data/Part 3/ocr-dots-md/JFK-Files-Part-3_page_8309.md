@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8309.png
-
-Convert to Markdown# Boulder-housewife sure she talked to Riha
+# Boulder-housewife sure she talked to Riha
 
 (Mount Clipping in Some Other Place)
 

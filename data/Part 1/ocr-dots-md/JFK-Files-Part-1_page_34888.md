@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34888.png
-
-Convert to MarkdownJanuary 25th, 1968
+January 25th, 1968
 
 U.S. Senator Robert F. Kennedy
 110 E. 45th Street

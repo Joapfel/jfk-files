@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31599.png
-
-Convert to Markdownto alter the course of history: new forces raise their appearance on the battlefield, the people won their first major victory in their fight with the regime.
+to alter the course of history: new forces raise their appearance on the battlefield, the people won their first major victory in their fight with the regime.
 
 CZECHS AND SLOVAKS!
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10008.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 To date, Congress has refused to appropriate funds for the
 operation of the Subversive Activities Control Board (SACE).

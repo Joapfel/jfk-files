@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27174.png
-
-Convert to Markdown# ASSASSINATION FILES
+# ASSASSINATION FILES
 
 ## I. First Delivery
 

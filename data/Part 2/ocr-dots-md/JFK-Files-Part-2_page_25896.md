@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25896.png
-
-Convert to Markdown1 October 35
+1 October 35
 
 In at 10:35 hours NO/the same person who called me on Friday or so and spoke in broken Russian/speaks to OSWALD.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_917.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 of Director of the FBI for a restricted term of office could suggest that perhaps the confidence heretofore placed in the FBI is no longer merited. Whether this would have any impact on the confidence and cooperation by the public would be problematic.
 

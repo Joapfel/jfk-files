@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21735.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. the ones you've mentioned? In other words, supplying funds
 2. to companies other than the ones you've already mentioned?

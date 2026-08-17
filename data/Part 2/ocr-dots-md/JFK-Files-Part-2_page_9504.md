@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9504.png
-
-Convert to Markdown57 MAR 31/1971
+57 MAR 31/1971
 
 COVER PAGE
 

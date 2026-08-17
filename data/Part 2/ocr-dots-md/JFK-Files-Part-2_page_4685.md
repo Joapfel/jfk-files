@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4685.png
-
-Convert to MarkdownSECRET
+SECRET
 
 think we ought to do about it. If you agree, fine; if you don't agree, fine.
 Tell us." But these guys could sit up there and they could say, okay, they

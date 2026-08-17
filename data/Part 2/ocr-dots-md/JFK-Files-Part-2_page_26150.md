@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26150.png
-
-Convert to Markdownyou who are asking questions ought to have
+you who are asking questions ought to have
 people out there with him who would tell you
 immediately and take a first-hand look."
 

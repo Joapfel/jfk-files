@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10206.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 SUBJECT: Soviet Defector
 

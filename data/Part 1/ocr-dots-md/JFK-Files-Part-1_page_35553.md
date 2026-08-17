@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35553.png
-
-Convert to MarkdownReceived from
+Received from
 
 One thousand sixty and 50/100 $
 Cashier's Check #389048

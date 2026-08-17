@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10758.png
-
-Convert to MarkdownAttached hereto is the response to Item #1 in
+Attached hereto is the response to Item #1 in
 the Senate Select Committee (SSC) letter to Mr. K. William
 O'Connor, Esq. on July 14, 1975. Item #1 is set forth
 as follows:

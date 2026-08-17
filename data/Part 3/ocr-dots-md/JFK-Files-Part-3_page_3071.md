@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3071.png
-
-Convert to MarkdownNEW WA CODE
+NEW WA CODE
 
 3:30PM NITEL S-26-75 LXS
 

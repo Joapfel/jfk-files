@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11457.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 (1) Godfrey assigned SAO members to kidnap antiwar
 demonstrators during the 1972 Republican National Convention

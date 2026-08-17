@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7843.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 dated 10 June 1968; Associated Press, Toronto, dated
 10 June 1968; Associated Press, London, undated; London,

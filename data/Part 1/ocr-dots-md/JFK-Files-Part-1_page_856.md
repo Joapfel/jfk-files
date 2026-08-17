@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_856.png
-
-Convert to MarkdownSECRET
+SECRET
 RYBAT
 
 N. Rita *BRANDT, DOB 10 July 1940. 'She is German and although her POB is not known she attended high school at Friedberg, Germany. She is married to James Brandt.

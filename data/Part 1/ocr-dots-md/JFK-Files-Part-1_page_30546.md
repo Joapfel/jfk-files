@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30546.png
-
-Convert to Markdown14-00000
+14-00000
 
 EXTERIOR SURVEY DUTY ORDER
 U. S. NAVY, SHANGHAI, CHINA

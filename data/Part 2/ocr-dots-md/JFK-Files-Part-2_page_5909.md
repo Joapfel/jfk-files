@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5909.png
-
-Convert to Markdown**Security**
+**Security**
 
 Question 1 - For the period between 1955-65, what was the universe of files that OS had on individuals or groups?
 

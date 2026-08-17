@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13358.png
-
-Convert to MarkdownOLSEN: Do you remember at that time stating whether you thought
+OLSEN: Do you remember at that time stating whether you thought
 that there was a conspiracy or not a conspiracy in connection with the
 President's assassination?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10388.png
-
-Convert to Markdown9 May 1973
+9 May 1973
 
 MEMORANDUM FOR: Deputy Director for Management & Services
 SUBJECT : Press Allegations re Use of Agency

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31810.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WOMEN FOR PEACE, aka
 Women Strike for Peace

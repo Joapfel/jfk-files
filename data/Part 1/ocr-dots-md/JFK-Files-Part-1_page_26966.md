@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26966.png
-
-Convert to MarkdownE-12-79-00
+E-12-79-00
 
 FEB 20 1963 11:57:14 PT
 

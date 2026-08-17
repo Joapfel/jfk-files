@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30946.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① 7/7/78
 Betsy Palmer

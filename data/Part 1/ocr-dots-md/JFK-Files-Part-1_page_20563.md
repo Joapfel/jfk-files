@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20563.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
   <caption>QUALIFICATIONS SYSTEM RECORD CHANGE</caption>

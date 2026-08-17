@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34162.png
-
-Convert to Markdowntron aproximadamente 450,000 toneladas.
+tron aproximadamente 450,000 toneladas.
 
 En segundo lugar, resulta necesario hacer referencia a las siombras de caña. Las nuevas áreas sembradas de caña lo han sido de forma deficiente y además se han utilizado áreas destinadas con anterioridad a la siembra de otras cosechas para sembrar caña, como lo constituye, por sólo citar un ejemplo, el caso de la zona situada en los alrededores de Manzanillo y Bayamo, las cuales eran zonas arrocos y ahora han intentado convertirlas en zonas caneras, resultando todo esto en un fracaso pues la caña es de baja calidad al no ser adecuado el suelo. Otro factor menos importante pero digno de darse a conocer es la falta de cuidado en las tareas de cultivo y atención de los cañaverales debido a la escasez de mano de obra.
 

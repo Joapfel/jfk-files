@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19396.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 OSS Form 2213
 (Rev. 10/12/84)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_858.png
-
-Convert to Markdown### 3. Status
+### 3. Status
 
 The President has no warrantless power to authorize purely domestic national security electronic surveillances. He may have the power to subject domestic targets to electronic surveillance, but these electronic surveillances must be subjected to prior judicial review, i.e., a warrant, before installation. Admissibility of evidence obtained from such electronic surveillances is a correlative question, not yet directly considered. Presumably, such evidence would be admissible.
 

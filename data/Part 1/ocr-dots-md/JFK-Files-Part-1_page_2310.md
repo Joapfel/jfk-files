@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2310.png
-
-Convert to MarkdownIRD # 67491
+IRD # 67491
 Page 6
 
 Did you read the official report of KOSOLAPOV on his contact with JENNER on a train from Helsinki to Moscow? Yes.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4059.png
-
-Convert to Markdowncon el personal de distribución y ministros en la Compañía en Miami. Es posible tener cualquier pieza o material en el Bluff en su paso de diez semanas después de pedirlo por los oficinas localices (via adrosa). Se contaría necesitar un gran amounto de piezas de requestsos en algunos Asian countries del sigillores.
+con el personal de distribución y ministros en la Compañía en Miami. Es posible tener cualquier pieza o material en el Bluff en su paso de diez semanas después de pedirlo por los oficinas localices (via adrosa). Se contaría necesitar un gran amounto de piezas de requestsos en algunos Asian countries del sigillores.
 
 Competencia externa e interna. En cuanto al actillero, existe competencia externa ni interna en el orden contranacional. La de la competencia que encontrarseá sobre la mujica, y la norteamericana.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7624.png
-
-Convert to MarkdownSupervisory Reorganization of Functions and Personnel;
+Supervisory Reorganization of Functions and Personnel;
 Crime Research Division
 
 as Training Division is scheduled for regular annual inspection next week, these matters will be gone into in depth in connection with that inspection and coordinated in consultation with Administrative Division. It is the purpose of this memorandum to promptly effect the desired transfers of functions among affected Divisions in order to provide for immediate routing of mail and upper level review and supervision of the work product of all units previously composing Crime Research Division.

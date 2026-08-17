@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8340.png
-
-Convert to Markdownnot to upset my gracious hosts.
+not to upset my gracious hosts.
 
 **Political opinions.** Just for the record, let me make a few statements which I would never make in front of our friends--to avoid embarrassing you, to avoid creating a sense, to honor any resolution not to discuss politics.
 

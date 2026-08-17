@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_323.png
-
-Convert to Markdown14-00000
+14-00000
 
 C H R I S T , A K A C A R S W E L L , D A N
 Interviewed under alias by Cornwall & Hardway.

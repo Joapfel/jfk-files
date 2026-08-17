@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11530.png
-
-Convert to Markdown# X
+# X
 
 Chief, VI Division
 Chief of Station, Guatemala City

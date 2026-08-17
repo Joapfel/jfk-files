@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5722.png
-
-Convert to Markdown<table><tr><td colspan="2">C-O-N-P-I-D-E-M-T-I-A-L</td></tr></table>
+<table><tr><td colspan="2">C-O-N-P-I-D-E-M-T-I-A-L</td></tr></table>
 
 **COUNTRY** Honduras
 

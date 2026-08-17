@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24734.png
-
-Convert to Markdown# The "Executive Action" Capability
+# The "Executive Action" Capability
 
 Along with the question of authorization for actual assassination attempts, the Committee considered the extent and nature of authorization for a CIA project which included, as one element, the development of an assassination capability.
 

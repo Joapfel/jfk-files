@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14209.png
-
-Convert to Markdown- 18 -
+- 18 -
 
 whether the DCI would not encounter difficulty in trying to get
 this function transferred from FBI to CIA, and Mr. McCone responded

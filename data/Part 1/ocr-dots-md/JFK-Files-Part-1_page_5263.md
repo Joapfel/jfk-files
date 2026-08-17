@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5263.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">FORM 5-43</td>
     <td rowspan="2">610</td>

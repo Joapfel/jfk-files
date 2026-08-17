@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6364.png
-
-Convert to MarkdownADMINISTRATIVE - INTERNAL USE ONLY
+ADMINISTRATIVE - INTERNAL USE ONLY
 
 NOTE FOR: John Pereira @ DCI
 Barry Harrelson @ DCI

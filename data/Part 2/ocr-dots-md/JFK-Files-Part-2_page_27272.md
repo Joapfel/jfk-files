@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27272.png
-
-Convert to MarkdownU. Memorandum for Record, signed by Gen Walters, re phone call from Pat Gray. 5 July 72
+U. Memorandum for Record, signed by Gen Walters, re phone call from Pat Gray. 5 July 72
 
 V. Memo for Record by Gen Walters, re visit with Pat Gray. 6 July 72
 

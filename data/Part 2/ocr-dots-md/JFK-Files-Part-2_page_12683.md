@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12683.png
-
-Convert to Markdown(4) In all instances there must be clear showing, by overt acts or statements or other evidence, that there has been continuing sympathy for aims and objectives of Cuban Government since 10-1-60. Citizenship status must be clearly established.
+(4) In all instances there must be clear showing, by overt acts or statements or other evidence, that there has been continuing sympathy for aims and objectives of Cuban Government since 10-1-60. Citizenship status must be clearly established.
 
 c. Pro-Cuban activity
 

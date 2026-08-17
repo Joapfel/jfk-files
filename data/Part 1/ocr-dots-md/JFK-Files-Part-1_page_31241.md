@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31241.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Lee H. Wigren
 

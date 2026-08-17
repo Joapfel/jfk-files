@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13043.png
-
-Convert to MarkdownTransmit the following in
+Transmit the following in
 
 FBI
 Date: 6/13/63

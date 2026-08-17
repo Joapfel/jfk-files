@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8984.png
-
-Convert to Markdowndevelopment of the country, but as of now they are all the way Right. As for the minimum wage concept, the campesinos apparently do not grasp it a meaning.
+development of the country, but as of now they are all the way Right. As for the minimum wage concept, the campesinos apparently do not grasp it a meaning.
 
 e) The church is not so far Right that it supports the U. S. families and it is tending more towards the relative left.
 

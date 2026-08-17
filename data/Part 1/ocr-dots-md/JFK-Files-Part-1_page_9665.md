@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9665.png
-
-Convert to MarkdownJune 6, 1964
+June 6, 1964
 
 Lyle Stuart
 Dr. Paul Osegueda

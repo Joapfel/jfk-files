@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17383.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE : 283<br/>29 SEP 62</td>
     <td>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION : C/WH 2<br/>INFO : C/WE 2, S/C 2</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19736.png
-
-Convert to Markdown11 May 1964
+11 May 1964
 
 MEMORANDUM FOR: Chief, Administration and Training Staff
 

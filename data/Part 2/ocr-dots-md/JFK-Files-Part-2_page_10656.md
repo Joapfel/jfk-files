@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10656.png
-
-Convert to MarkdownSECRET
+SECRET
 
 United States Senate
 

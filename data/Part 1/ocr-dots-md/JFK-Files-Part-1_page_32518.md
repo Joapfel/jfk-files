@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32518.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Deputy Director for Plans
 

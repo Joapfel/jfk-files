@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3389.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 17. Memo for DDP from J. C. King, 29 Nov 60, sub: Para-military Policy re Cuba. S.
 

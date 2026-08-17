@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4411.png
-
-Convert to Markdown# MESSAGE
+# MESSAGE
 TOTAL COPY (S)
 
 DRIG I A. NIST

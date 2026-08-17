@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_5635.png
-
 , Levison recommendeddundator Pitts U'Vell, who had been U.S. Attorney General, National Committee on the CPUSA in December, 1963, under the pseudonym "Corwinus Janusew. Also accepted Levison's suggestion and employs U. N. in the organization, the Southern Christian Fellowship Conference (S.C.F.C.). identified U. 'ell as a combatant in all of the革命, 1963, King announced that U. V. was one of the members of the PULC. However, U. 'ell continues to associate with King, 10 Dec.
 
 Tolson

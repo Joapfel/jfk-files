@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28989.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 LETTER OF AUTHORIZATION FOR
 

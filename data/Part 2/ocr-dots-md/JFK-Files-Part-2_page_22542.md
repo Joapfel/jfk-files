@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22542.png
-
-Convert to Markdownembassador, the commander of all Thai troops in Vietnam,
+embassador, the commander of all Thai troops in Vietnam,
 etc.). In nearly all cases I either knew them previously
 or reached these men through personal introductions from
 mutual friends. At no point in the debriefing was I

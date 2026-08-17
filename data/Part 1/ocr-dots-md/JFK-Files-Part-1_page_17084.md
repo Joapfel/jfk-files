@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17084.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26. jüli 1969
 

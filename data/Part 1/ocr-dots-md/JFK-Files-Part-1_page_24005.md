@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24005.png
-
-Convert to Markdown# REQUIREMENTS
+# REQUIREMENTS
 
 ## ANDERSSON
 

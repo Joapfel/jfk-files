@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21993.png
-
-Convert to MarkdownA second joint meeting on this same subject took place in Washington, D.C., from 20 to 23 April 1968, and BLAKE mitted providing the KGB with a copy of the 21-page summary of the sessions.*
+A second joint meeting on this same subject took place in Washington, D.C., from 20 to 23 April 1968, and BLAKE mitted providing the KGB with a copy of the 21-page summary of the sessions.*
 
 c. GOLITSYN's Tourist Document
 

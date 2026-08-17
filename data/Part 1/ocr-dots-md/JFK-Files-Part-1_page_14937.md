@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14937.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROVISIONAL OPERATIONAL APPROVAL
 

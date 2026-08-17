@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27838.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="4">DEPARTMENT OF STATE<br/>FOREIGN SERVICE INSTITUTE<br/>LANGUAGE PROFICIENCY REPORT<br/>ACHIEVEMENT RATING</td>

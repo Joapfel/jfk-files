@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_607.png
-
-Convert to MarkdownSTAFF
+STAFF
 
 78 0443808
 

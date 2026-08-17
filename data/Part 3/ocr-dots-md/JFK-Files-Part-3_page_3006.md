@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3006.png
-
-Convert to Markdown1944
+1944
 
 Senator Huddleston. Now, the Committee has received documents which indicated that in one situation the FBI assisted an informant who had been established in a white hate group to establish a rival white hate group, and that the Bureau paid his expenses in setting up this rival organization.
 

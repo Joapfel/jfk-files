@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8011.png
-
-Convert to Markdown13-00000
+13-00000
 
 collections of scientific, humanistic and engineer-
 ing talent, that either already exist in the aero-

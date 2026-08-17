@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6717.png
-
-Convert to Markdown01/08/97
+01/08/97
 
 MEMORANDUM
 

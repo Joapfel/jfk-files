@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20299.png
-
-Convert to MarkdownAGENCY G-2 ONI, OSI, SEC. SLT
+AGENCY G-2 ONI, OSI, SEC. SLT
 
 <table>
   <tbody>

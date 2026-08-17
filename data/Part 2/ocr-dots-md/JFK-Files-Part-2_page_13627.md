@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13627.png
-
-Convert to MarkdownNR 019 SF PLAIN
+NR 019 SF PLAIN
 
 7:09PM NITEL MAY 16, 1975 KEK
 

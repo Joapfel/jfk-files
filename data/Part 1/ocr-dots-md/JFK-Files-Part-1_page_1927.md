@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1927.png
-
-Convert to Markdownexpected of her and stated that she could leave the country in 45 days. On 24 September 1958 "Sims" again met with a female traveling companion, Elizabeth Hogarth (actually Elizabeth Harter, FE Division). ~~It was told that "Hogarth" would ostensibly be her secretary but would be, in fact, the person she would look to for direction.~~
+expected of her and stated that she could leave the country in 45 days. On 24 September 1958 "Sims" again met with a female traveling companion, Elizabeth Hogarth (actually Elizabeth Harter, FE Division). ~~It was told that "Hogarth" would ostensibly be her secretary but would be, in fact, the person she would look to for direction.~~
 
 Records of this Office do not reflect any of the activities of Sukarno during the course of her mission. It is known that she did meet Sukarno, but due to unfortunate timing that had him leaving his country on official business, she had little time to cultivate him. Consequently, the purpose of the mission was not fulfilled. The last known contact she had with the Agency was in the form of a telephone call on 12 April 1961 when she called on a sterile line and talked to Mr. Hugh Tovar, who she knew as George Henry. She advised that one party for President Sukarno who would be in Los Angeles on 21 April 1961. ~~She wanted to know whether the Agency was interested in sponsoring this party. A negative response was given.~~
 

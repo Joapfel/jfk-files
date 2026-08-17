@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31693.png
-
-Convert to MarkdownMAR 23 1958
+MAR 23 1958
 
 MEMORANDUM FOR: Chief, Psychological Warfare Division
 SUBJECT: The Now Leader

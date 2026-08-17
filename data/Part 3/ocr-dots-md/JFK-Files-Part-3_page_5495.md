@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5495.png
-
-Convert to MarkdownSAC MEMOS & LETTERS
+SAC MEMOS & LETTERS
 1960
 
 <table>

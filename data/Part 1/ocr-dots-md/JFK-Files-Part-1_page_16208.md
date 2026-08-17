@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16208.png
-
-Convert to MarkdownSECRET
+SECRET
 
 time in a Nazi concentration camp during World War II; he speaks excellent French; he has a pet political theory which he has published. He is seeking some political entity where he can put his theory into practice to illustrate to the U.S. government that it is worth practicing in this country. In contrast to this colleague Mitch Three Werbell, however, he seems adamantly opposed to establishing a gambling empire.
 

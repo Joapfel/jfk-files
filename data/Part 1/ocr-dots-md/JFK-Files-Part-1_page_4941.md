@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4941.png
-
-Convert to MarkdownVI. 20 Oct '76
+VI. 20 Oct '76
 
 14-00000
 

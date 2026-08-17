@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31666.png
-
-Convert to MarkdownWhen the contract ends, we will take care of all the rest. We are sure you won't want me to be a third party in this business, but I am so interested in your success that I can not stay away from it.
+When the contract ends, we will take care of all the rest. We are sure you won't want me to be a third party in this business, but I am so interested in your success that I can not stay away from it.
 
 The contract with General Motors is still under discussion, and we're not allowed to talk about it right now. But we are making every effort possible to get the contract done and to make it a great one for both parties. The point is, if General Motors were to win the contract, I should lose my job and my income, which would really be very hard on me. And as far as I know, there is no chance of our winning it. So, you see, I am going to have to quit the company.
 

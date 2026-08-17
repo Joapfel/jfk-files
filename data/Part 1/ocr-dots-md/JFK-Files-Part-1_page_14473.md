@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14473.png
-
-Convert to Markdown21. April 1970
+21. April 1970
 
 SUBJECT: Interview with Alexander SANKO.
 

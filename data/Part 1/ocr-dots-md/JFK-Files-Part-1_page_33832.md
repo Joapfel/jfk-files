@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33832.png
-
-Convert to MarkdownNOTICE: PAPER IS FOR THE STATE DEPARTMENT SERVICE
+NOTICE: PAPER IS FOR THE STATE DEPARTMENT SERVICE
  policy, lending staff
  Department of State
 

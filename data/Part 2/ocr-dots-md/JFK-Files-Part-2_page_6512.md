@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6512.png
-
-Convert to Markdown(3) U. S. Military execution of specific counter-subversive tasks.
+(3) U. S. Military execution of specific counter-subversive tasks.
 
 This involves action taken in response to specific needs, as during the 1962 attempts to export Cuban revolutionaries to Central America.
 

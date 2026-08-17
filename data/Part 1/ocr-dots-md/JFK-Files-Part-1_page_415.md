@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_415.png
-
-Convert to Markdown24. BROWN, Mrs. G. Stace,
+24. BROWN, Mrs. G. Stace,
 
 × 25. BROE, William V.
 

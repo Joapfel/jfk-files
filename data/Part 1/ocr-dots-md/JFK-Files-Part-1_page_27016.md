@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27016.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="4" style="text-align: left; font-weight: bold;">INFORMATION REPORT</th>

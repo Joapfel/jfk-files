@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2839.png
-
-Convert to Markdown**PERSONNEL AND TRAINING:** Responsible for the screening of personnel for assignment to desk, branch or staff; organized special Headquarters operational programs requiring the selection of personnel, the formulation and execution of training seminars, and direction of field administration; managed personnel matters and devised and instituted new systems and programs for spotting, selecting, recruiting, training and assigning personnel; provided career development guidance and counseling to Agency personnel. On occasion, was called on to lecture to training classes. During off-duty hours, gave classes in Spanish and Italian.
+**PERSONNEL AND TRAINING:** Responsible for the screening of personnel for assignment to desk, branch or staff; organized special Headquarters operational programs requiring the selection of personnel, the formulation and execution of training seminars, and direction of field administration; managed personnel matters and devised and instituted new systems and programs for spotting, selecting, recruiting, training and assigning personnel; provided career development guidance and counseling to Agency personnel. On occasion, was called on to lecture to training classes. During off-duty hours, gave classes in Spanish and Italian.
 
 **RESEARCH AND ANALYSIS:** In all phases of career, have conducted intelligence, political and economic research and analysis in support of operational activities.
 

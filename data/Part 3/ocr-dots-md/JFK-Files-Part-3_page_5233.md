@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5233.png
-
-Convert to MarkdownSELECTIVE SERVICE MATTERS
+SELECTIVE SERVICE MATTERS
 
 4-M-5
 

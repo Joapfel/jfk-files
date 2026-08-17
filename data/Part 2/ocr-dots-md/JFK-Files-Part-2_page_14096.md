@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14096.png
-
-Convert to MarkdownRe: Interview of Retired Special Agent (SA) by Senator Walter F. Mondale and Staff Members of the Senate Select Committee (SSC)
+Re: Interview of Retired Special Agent (SA) by Senator Walter F. Mondale and Staff Members of the Senate Select Committee (SSC)
 
 notes regarding the activity that occurred in Atlantic City during
 the Democratic Party Nominating Convention during the summer of

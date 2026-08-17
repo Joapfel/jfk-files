@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34617.png
-
-Convert to MarkdownSECRET
+SECRET
 
 of the KGB operation against U. S. Professor Sarzboorn which NOSEMKO said he had personally supervised at the direction of SEMICHASTNIY, the Chairman of the Committee for State Security (KGB).
 

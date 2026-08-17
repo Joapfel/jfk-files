@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17090.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MPS/BC/FI
 

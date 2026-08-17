@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11829.png
-
-Convert to MarkdownMr. W. C. Sullivan
+Mr. W. C. Sullivan
 
 August 16, 1971
 

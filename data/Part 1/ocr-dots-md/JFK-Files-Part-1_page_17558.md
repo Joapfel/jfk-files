@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17558.png
-
-Convert to MarkdownHMM-4449, 28 August 1959, Soviet Pians to Bring Pyatnitskiy Chorus to Mexico from Canada.
+HMM-4449, 28 August 1959, Soviet Pians to Bring Pyatnitskiy Chorus to Mexico from Canada.
 
 HMMA-14677, 16 March 1960, Soviet Cultural Activities,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20791.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 Committee (SMC) and NY National Peace Action Coalition (NPAC), both of which organizations they dominate, would also concentrate in the area of the Women's Liberation Movement through their influence in WONAACT.
 

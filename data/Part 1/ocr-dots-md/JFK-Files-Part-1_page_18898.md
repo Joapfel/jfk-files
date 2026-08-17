@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18898.png
-
-Convert to MarkdownForm OAS 45A
+Form OAS 45A
 
 OFFICE OF STRATEGIC SERVICES
 WASHINGTON, D. C.

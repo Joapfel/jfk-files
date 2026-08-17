@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15105.png
-
-Convert to MarkdownCIVIL RIGHTS CASES HANDLED
+CIVIL RIGHTS CASES HANDLED
 
 1965-1969
 

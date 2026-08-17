@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13691.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Johnston. And you felt that this speech coincided
 with what you were telling AMLASH?

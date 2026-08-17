@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18844.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 Her full name is JOSEPHINE CLARK WINTER and she was born 10/10/23 at New York City. Her permanent residence and mailing address is 215 East 73rd Street, New York City. She resided outside the U. S. in France and Italy from 6/20/51 to 7/51. Her last American passport, number 448639, was obtained from Washington, D. C., in June, 1951, and is lost. She has never married.
 

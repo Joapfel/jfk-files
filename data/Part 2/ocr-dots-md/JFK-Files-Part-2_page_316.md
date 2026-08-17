@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_316.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PAGE 2 GUATEMALA CITY 6841 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26739.png
-
-Convert to MarkdownKeel 72-MICO-37
+Keel 72-MICO-37
 
 2 may 1965
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_316.png
-
-Convert to Markdown14-00000
+14-00000
 
 AMCLATTER 1
 2 X Parlett, Wallace A.

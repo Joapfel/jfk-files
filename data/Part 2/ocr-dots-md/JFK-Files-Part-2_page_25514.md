@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25514.png
-
-Convert to MarkdownML: Yeah.
+ML: Yeah.
 
 FS: Then you remarried, rather you got married here in New York?
 

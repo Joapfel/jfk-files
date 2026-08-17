@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6971.png
-
-Convert to MarkdownFederal News Service, JUNE 4, 1997
+Federal News Service, JUNE 4, 1997
 
 Despite the best estimate, Mr. Chairman, that this job could be done in three years, we cannot finish our work by the end of this fiscal year. We're confident that in the additional year we will be able to get through the records, which will largely involve the sequestered collections at the CIA and at the FBI — records sequestered by the House Select Committee on Assassinations. I'd be happy to answer any questions, Mr. Chairman, that you and the members have.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24984.png
-
-Convert to MarkdownState of Virginia
+State of Virginia
 County of SS:
 
 JAMES LAY, being duly sworn, deposes and says: I have read the attached statement consisting of two pages prepared by Frederick D. Baron, Counsel to the Senate Select Committee to Study Governmental Operations With Respect to Intelligence Activities, based upon my conversation with him on September 8, 1975, and I hereby adopt and ratify this statement which is true and correct to my direct knowledge.

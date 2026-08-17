@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13987.png
-
-Convert to Markdowninstigated the recent incidents in Panama, although the Communists were quick to exploit the situation once it arose. CIA succeeded in photographing 13 Castro-ites who were engaged in fomenting the incident after it started.
+instigated the recent incidents in Panama, although the Communists were quick to exploit the situation once it arose. CIA succeeded in photographing 13 Castro-ites who were engaged in fomenting the incident after it started.
 
 Of a total of 45 Communist Castro-ites involved, 13 had been trained in Cuba, and they distributed leaflets and disseminated propaganda over the radio.
 CIA also learned that one Thelma King personally led a mob of Panamanians in the streets. Dr. Langer wondered if Panamanians and the world at large are aware that radio stations in Panama were in the hands of the Communists.

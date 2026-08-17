@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4479.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 CENTRAL INTELLIGENCE AGENCY
 # Intelligence Information Cable

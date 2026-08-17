@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35711.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>SPEED LETTER</td></tr><tr><td>TO : Chief, Central Cover Staff<br>ATTN: James W. Franklin</td></tr></table>

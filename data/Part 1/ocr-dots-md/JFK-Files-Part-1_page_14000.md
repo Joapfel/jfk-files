@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14000.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br>TOTAL COPIES:</td></tr><tr><td><table><thead><tr><th colspan="2">ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>0</td></tr><tr><td>2</td><td>0</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>0</td></tr></tbody></table></td></tr><tr><td>OBO:<br>UNR:<br>BTH<br>DATE: 4/29 12:46 PM:69</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION<br>BY: RJD:EDT #<br>:CONF:<br>n:0 FILE:VR.</td></tr><tr><td>[Classification] [Date and Time filed]<br>(SECRET)</td></tr><tr><td>(reference number)<br>CITE DIRECTOR</td></tr></table>
+<table><tr><td>MESSAGE FORM<br>TOTAL COPIES:</td></tr><tr><td><table><thead><tr><th colspan="2">ROUTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td>1</td><td>0</td></tr><tr><td>2</td><td>0</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>0</td></tr></tbody></table></td></tr><tr><td>OBO:<br>UNR:<br>BTH<br>DATE: 4/29 12:46 PM:69</td></tr><tr><td>CABLE SECRETARIAT DISSEMINATION<br>BY: RJD:EDT #<br>:CONF:<br>n:0 FILE:VR.</td></tr><tr><td>[Classification] [Date and Time filed]<br>(SECRET)</td></tr><tr><td>(reference number)<br>CITE DIRECTOR</td></tr></table>
 
 TO: PAGE TWO
 

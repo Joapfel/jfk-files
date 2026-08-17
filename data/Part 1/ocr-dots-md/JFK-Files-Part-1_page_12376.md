@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12376.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG PHILIP SNARE
 UNIT: UH/3/V

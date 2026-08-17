@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10030.png
-
-Convert to MarkdownCR
+CR
 DPA B16G
 ENk
 

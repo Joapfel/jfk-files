@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15431.png
-
-Convert to MarkdownATTACHMENT A
+ATTACHMENT A
 
 The following technical surveillances are being maintained at the specific request or with the specific approval of the office of the Deputy Under Secretary of State:
 

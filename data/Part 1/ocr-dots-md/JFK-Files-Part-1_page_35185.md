@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35185.png
-
-Convert to MarkdownSTATEMENT OF INVOICES
+STATEMENT OF INVOICES
 
 AUXEX "N"
 Pase No.18

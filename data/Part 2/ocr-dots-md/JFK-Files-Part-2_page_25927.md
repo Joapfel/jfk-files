@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25927.png
-
-Convert to MarkdownHW 50955 DocId:32423630 Page 660
+HW 50955 DocId:32423630 Page 660
 
 Mr. BROWN. Yes, sir.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23024.png
-
-Convert to Markdown1 Mr. Baron. Let us turn then to the list of name --
+1 Mr. Baron. Let us turn then to the list of name --
 2 Mr. Halley. Wait a minute. Just let me make a note to
 3 myself.
 4 (Pause)

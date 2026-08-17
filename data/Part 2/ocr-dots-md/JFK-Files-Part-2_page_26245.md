@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26245.png
-
-Convert to Markdownthe night of the Generals' revolt in Algeria, passed-by noted with amusement that the top floor was abrade with lights. (I am informed that Ambassador Gavin was able to secure entrance that night to the CIA offices only with difficulty.)
+the night of the Generals' revolt in Algeria, passed-by noted with amusement that the top floor was abrade with lights. (I am informed that Ambassador Gavin was able to secure entrance that night to the CIA offices only with difficulty.)
 
 CIA is apparently now firmly committed to the CAS approach as a permanent solution for its problems. It is pressing to have CIA people given the rank of Counselor. Before State loss control of more and more of its presumed overseas personnel, and before CAS becomes permanently integrated into the Foreign Service, it would seem important (a) to assure every ambassador the firm control over the local CAS station nominally promised in the NSC Directive of January 19, 1961, and (b) to review the current CAS situation with an eye to a steady reduction of CAS personnel.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3513.png
-
-Convert to Markdown<table><tr><td>ALL INFORMATION CONTAINED<br/>HEREIN IS UNCLASSIFIED<br/>DATE 10/30/75 BY: SALMO</td></tr></table>
+<table><tr><td>ALL INFORMATION CONTAINED<br/>HEREIN IS UNCLASSIFIED<br/>DATE 10/30/75 BY: SALMO</td></tr></table>
 
 INFORMATIVE NOTE
 

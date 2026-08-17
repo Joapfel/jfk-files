@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12421.png
-
-Convert to Markdownque han suministrado algunos de votoa informa-
+que han suministrado algunos de votoa informa-
 ciones, puede adelantar que losيونns estarán
 en condiciones do rendir declaración escribí-
 tos si se les oxiga, puro haceron la recomen-

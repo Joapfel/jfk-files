@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11037.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">SECTION VI SPECIAL QUALIFICATIONS AND INTERESTS</th></tr></thead><tbody><tr><td colspan="2">1. INDICATE ANY WRITING, GIVE DETAILS INCLUDING TITLES OF BOOKS OR ARTICLES, ALSO NAMES OF PUBLISHERS AND PUBLICATION DATES.<br>Not known</td><td colspan="2"></td></tr><tr><td colspan="2">2. SPECIAL SKILLS, ABILITIES, Hobbies SUCH AS RADIO, PHOTOGRAPHY, ETC.<br>Artist</td><td colspan="2"></td></tr></tbody></table>
+<table><thead><tr><th colspan="4">SECTION VI SPECIAL QUALIFICATIONS AND INTERESTS</th></tr></thead><tbody><tr><td colspan="2">1. INDICATE ANY WRITING, GIVE DETAILS INCLUDING TITLES OF BOOKS OR ARTICLES, ALSO NAMES OF PUBLISHERS AND PUBLICATION DATES.<br>Not known</td><td colspan="2"></td></tr><tr><td colspan="2">2. SPECIAL SKILLS, ABILITIES, Hobbies SUCH AS RADIO, PHOTOGRAPHY, ETC.<br>Artist</td><td colspan="2"></td></tr></tbody></table>
 
 <table><thead><tr><th colspan="5">SECTION VII MILITARY SERVICE</th></tr><tr><th rowspan="2">COUNTRY</th><th colspan="2">DATES</th><th rowspan="2">UNIT</th><th rowspan="2">NAME</th><th rowspan="2">Date*</th></tr><tr><th>FROM</th><th>TO</th></tr></thead><tbody><tr><td>Not known</td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>* IDENTIFYING COUNTRY, INDICATE WHERE SERVICE PERFORMED, DECORATIONS, WERE AND WHY DISCHARGED, GIVE DETAILS IF BAR PRISONER.</td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

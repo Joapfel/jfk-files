@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11889.png
-
-Convert to Markdown107M-N
+107M-N
 
 2. Submit quarterly letter (FD-451b) to Bureau by secure teletype system (NITEL). Quarterly letter should include the following:
    a. Name, location and number of subversive groups including identities of groups on college campuses, exclusive of those in black extremist, white hate or espionage matters.

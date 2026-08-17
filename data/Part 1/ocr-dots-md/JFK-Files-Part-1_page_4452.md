@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4452.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JEFAVE
 John H. SEDGEARD/Leonard V. EMMORES

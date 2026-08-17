@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33153.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WH/COG 69-288
 

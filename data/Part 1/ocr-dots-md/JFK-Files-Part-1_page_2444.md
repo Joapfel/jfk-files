@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2444.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C. NOSENKO did not serve in the American Embassy Section
 throughout the 1953 - 1955 period as he claimed. (Previous conclusion)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24954.png
-
-Convert to Markdown# AFFIDAVIT
+# AFFIDAVIT
 
 UNITED STATES OF AMERICA
 DISTRICT OF COLUMBIA SS:

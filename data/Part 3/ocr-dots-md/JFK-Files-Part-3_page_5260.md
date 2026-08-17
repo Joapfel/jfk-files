@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5260.png
-
-Convert to MarkdownAgents' handbook, Part II, Page 12 and 12B,
+Agents' handbook, Part II, Page 12 and 12B,
 
 instructs that at the beginning of an interview with any
 known Subject of a Bureau case the Subject be advised of the

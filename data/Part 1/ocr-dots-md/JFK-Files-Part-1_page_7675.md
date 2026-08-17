@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7675.png
-
-Convert to Markdown8. LANGUAGES:
+8. LANGUAGES:
 
 **Spanish:** Subject speaks fluent Spanish with very little accent (11, 24).
 

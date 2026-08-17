@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7755.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SUBJECT: MARTIN LUTHER KING, JR.
 

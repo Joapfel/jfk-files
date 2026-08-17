@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_944.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table>
     <caption>FIELD REASSIGNMENT QUESTIONNAIRE</caption>

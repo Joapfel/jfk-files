@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18717.png
-
-Convert to Markdown# i. Informant's Potential for Advancement
+# i. Informant's Potential for Advancement
 
 Informant possesses good potential for advancement in the Soviet and Satellite field. He is aggressive and very capable of injecting himself into circles in which he has not been acquainted in the past on the basis of his occupation as a news reporter. To date, his acquaintance among Soviet and Satellite Nationals has been widening continuously.
 

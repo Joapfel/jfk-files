@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8393.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CONTINUATION OF</td>
     <td>CLASSIFICATION</td>

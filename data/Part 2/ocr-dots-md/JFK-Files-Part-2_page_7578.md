@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7578.png
-
-Convert to Markdown- Is there anything on biological indicators at low ranges of radiation doses?
+- Is there anything on biological indicators at low ranges of radiation doses?
 
 - Is it something on which I can speak somewhat as an expert. Although people may claim to have this, I do not think anyone has it, including the Soviets. One can find biological criteria at low doses, whether they have meaning beyond the limited experiment is the big question, you see.
 

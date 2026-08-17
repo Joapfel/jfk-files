@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22165.png
-
-Convert to Markdown**Question:** CHELNOKOV and KOVALENKO?
+**Question:** CHELNOKOV and KOVALENKO?
 
 **NOSENKO:** Yes. And CHURANOV got a J.I. I got and--who else? [S.M.] FEDOSEYEV got and T.M.] KOVSHUK also got the Order, the second time. The first time he got it several years ago, and this was the second time.
 

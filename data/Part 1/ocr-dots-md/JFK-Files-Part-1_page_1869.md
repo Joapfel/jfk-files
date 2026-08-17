@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1869.png
-
-Convert to MarkdownSECRET
+SECRET
 
 REQUEST FOR DOMESTIC COVER LIST ENTRY OR CHANGE
 

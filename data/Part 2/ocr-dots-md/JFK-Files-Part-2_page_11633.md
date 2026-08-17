@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11633.png
-
-Convert to MarkdownSECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 h. To include as many pertinent photographs as possible to make the write-up interesting. The photographs should not necessarily be of subjects alone but should be of paraphernalia used by the criminal, photographs of unusual loot obtained, scenes of various locales, etc. If photographs submitted do not belong to the FBI, it is necessary to inform the Bureau of their source and whether the owner of the photographs has any objection to their being reproduced in publications.
 

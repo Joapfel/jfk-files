@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18225.png
-
-Convert to MarkdownMarch 30, 1965
+March 30, 1965
 
 ALL INFORMATION CONTAINED
 HEREIN IS UNCLASSIFIED

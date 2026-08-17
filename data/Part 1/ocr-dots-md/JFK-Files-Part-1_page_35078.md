@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35078.png
-
-Convert to MarkdownCOSTOS RELATIVOS AL CHECK NO. 419
+COSTOS RELATIVOS AL CHECK NO. 419
 FOR $6,937.52 - "PAULA AND SCISA"
 
 Partida No. 9

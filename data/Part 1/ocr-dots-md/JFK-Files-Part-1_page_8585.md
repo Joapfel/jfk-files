@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8585.png
-
-Convert to MarkdownSubject: V. Lenin SOKOLOV (P-13,927)
+Subject: V. Lenin SOKOLOV (P-13,927)
 
 Date: November 4, 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3123.png
-
-Convert to Markdown1735
+1735
 
 We need more protection than promises of self-restraint
 by men of good will.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11224.png
-
-Convert to Markdownattend party educational classes and schools within dictates of discretion and without jeopardizing their security.
+attend party educational classes and schools within dictates of discretion and without jeopardizing their security.
 
 (23) Communist Party attempts to infiltrate mass organizations (Bureau file 100-3-106)
 

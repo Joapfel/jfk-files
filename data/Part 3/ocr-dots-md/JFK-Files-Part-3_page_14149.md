@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14149.png
-
-Convert to Markdown(27. 3/7/62 Continued)
+(27. 3/7/62 Continued)
 
 "internal warfare in countries on the periphery of the Sino Soviet Bloc, and in Africa and Latin America."
 

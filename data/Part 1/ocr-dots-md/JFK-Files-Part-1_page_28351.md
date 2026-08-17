@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28351.png
-
-Convert to Markdown12 August 1968
+12 August 1968
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 THROUGH: Assistant for Non-Staff Personnel

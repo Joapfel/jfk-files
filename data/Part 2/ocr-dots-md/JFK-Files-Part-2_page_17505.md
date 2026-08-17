@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17505.png
-
-Convert to MarkdownThis money was not actually seen, but BPP leaders stated this was what was received. The BPP allegedly had $1,300. already.
+This money was not actually seen, but BPP leaders stated this was what was received. The BPP allegedly had $1,300. already.
 
 WRIGHT JUNIOR COLLEGE
 LES COLEMAN

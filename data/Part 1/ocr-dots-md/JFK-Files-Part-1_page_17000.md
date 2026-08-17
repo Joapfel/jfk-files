@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17000.png
-
-Convert to MarkdownTO: WU/Personnel
+TO: WU/Personnel
 
 FROM: Chief, WMD
 

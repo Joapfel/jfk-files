@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_45.png
-
-Convert to MarkdownRETAIN:
+RETAIN:
 SSC-REQUEST, August 20, 1975
 Part I, 2.
 

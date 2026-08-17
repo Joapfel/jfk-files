@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12085.png
-
-Convert to MarkdownChief of Station, Paris
+Chief of Station, Paris
 
 25 Ecorhier 1949
 

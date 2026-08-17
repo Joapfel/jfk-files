@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8995.png
-
-Convert to MarkdownA. For a period of time he was in a supervisory capacity.
+A. For a period of time he was in a supervisory capacity.
 
 Q. Was he in a supervisory capacity when the change in residence was made?
 

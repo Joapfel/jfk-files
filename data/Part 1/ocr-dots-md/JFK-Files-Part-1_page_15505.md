@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15505.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 310<br/>20 SEP 61</td><td>RFL</td><td><table><tbody><tr><td colspan="2">ROUTING</td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>TO : DIRECTOR</td><td colspan="2">RE Filing correct one: No CS Record Value. Decline.</td></tr><tr><td>FROM : GENEVA</td><td colspan="2">All the copy as indicated</td></tr><tr><td>ACTION: AF 7</td><td colspan="2">Sienkiewicz order</td></tr><tr><td>INFO : CI, C1/OPS, C1/OA, FI, EE 4, SR 6, S/C.2</td><td colspan="2">None required</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30510.png
-
-Convert to MarkdownGenzman
+Genzman
 
 5-12-78
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32647.png
-
-Convert to MarkdownSECRET
+SECRET
 
 An agent who took guerrilla training in Cuba last fall has provided a detailed account of his training, lists of other trainees he could identify, and in particular, a list of questions the Cubans apparently gave to all the Peruvians. Possibly it is a standard questionnaire for all guerrilla warfare trainees. The Peruvians were asked to pinpoint possible sabotage targets such as bridges on a large map. The Cuban instructors also wanted information on all kinds of targets for sabotage, chances to subvert the police, possibilities for illegal entry into and travel in Peru, the problems of setting up business firms to cover espionage and agent operations, and information on location of and access to police and military installations.
 

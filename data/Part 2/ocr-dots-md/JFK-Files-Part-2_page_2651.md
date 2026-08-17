@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2651.png
-
-Convert to MarkdownSEC. 18. GIVE FIVE CHARACTER REFERENCES-IN THE U.S.—WHO KNOW YOU INTIMATELY—(Give residence and business addresses where possible.)
+SEC. 18. GIVE FIVE CHARACTER REFERENCES-IN THE U.S.—WHO KNOW YOU INTIMATELY—(Give residence and business addresses where possible.)
 
 | | Street and Number | City | State |
 | :--- | :--- | :--- | :--- |

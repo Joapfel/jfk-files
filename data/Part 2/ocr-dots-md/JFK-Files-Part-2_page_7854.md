@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7854.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1968; Director-93261, dated 20 April 1968; Director-93260, dated 20 April 1968; Tokyo-9660 (IN-94797), dated 20 April 1968; Director-93236, dated 20 April 1968; Director-93538, dated 22 April 1968; Bogota-0707 (IN-9595), dated 22 April 1968; Director-93603, dated 23 April 1968; La Paz-4254 (IN-96327), dated 23 April 1968; Guatemala City-8934 (IN-99192), dated 26 April 1968. Dispatches: ONHA-3982, dated 22 April 1968; HMMW-16353, dated 22 April 1968. Memoranda: Official Routing Slip, dated 22 October 1975; Official Routing Slip, dated 23 October 1975; Memoranda, dated 23 April 1968.
 

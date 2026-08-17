@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10421.png
-
-Convert to Markdown18 July, 1968
+18 July, 1968
 
 Subject: LIRING/4 Report on CIDCC,Cuernavaca.
 

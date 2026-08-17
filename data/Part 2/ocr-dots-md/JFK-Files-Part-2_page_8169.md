@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8169.png
-
-Convert to Markdown# RODIGAST
+# RODIGAST
 
 <table><tr><td rowspan="2">DISPATCH</td><th>CLASSIFICATION</th><td>PROCESSING ACTION</td></tr><tr><td>CONFIDENTIALITY BAT T<br/>CONFIDENTIALITY/ R.Y. B.A.T</td><td>MARKED FOR INDEXING</td></tr><tr><td>Chief, WOLTM</td><td></td><td>NO INDEXING REQUIRED</td></tr><tr><td>Chief, WOMUSE; Chief, EUR Division;</td><td></td><td>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>Chief of Station, London</td><td></td><td>MICROFILM</td></tr><tr><td colspan="3">Chief, LCPIRIT/London</td></tr><tr><td colspan="3">MRALPHA/MHPROBE/RODUGAST</td></tr></table>
 

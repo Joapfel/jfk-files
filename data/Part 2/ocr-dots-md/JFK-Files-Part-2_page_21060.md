@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21060.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MEMORANDUM FOR: Chief, Consular Section
 FROM: Liaison Section

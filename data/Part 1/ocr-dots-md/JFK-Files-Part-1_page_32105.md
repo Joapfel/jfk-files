@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32105.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td rowspan="3">14-0000</td><td colspan="5">VERIFIED RECORD OF OVERSEAS SERVICE</td></tr><tr><td>TO:</td><td colspan="4">Office of Personnel, Statistical Reporting Branch, RQOM S B 2500 Headquarters</td></tr><tr><td>EMPLOYEE SERIAL NO.</td><td>NAMI OF EMPLOYEE</td><td>OFFICE/COMPONENT</td><td>MZEKLE</td><td></td></tr><tr><td>1-6<br/>C25658</td><td>LAST (Print)<br/>PICCOLO, JOSEPH S.</td><td>FIRST</td><td>B-24</td><td>23.10<br/>57</td></tr></table>

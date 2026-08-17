@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29831.png
-
-Convert to MarkdownDate: 28 July 1950
+Date: 28 July 1950
 
 MEMORANDUM FOR THE COVER PERSONNEL BRANCH:
 

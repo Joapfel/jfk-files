@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10932.png
-
-Convert to Markdownor rather their expansion into it on intelligence
+or rather their expansion into it on intelligence
 matters. It ought not occur but this new memo
 of CIG shows how greedy it is. It is the
 Donovan plan almost in toto & is being slyly

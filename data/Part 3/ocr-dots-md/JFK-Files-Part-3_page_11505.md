@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11505.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 1 - Mr. Mintz
 1 - Mr. Wannall

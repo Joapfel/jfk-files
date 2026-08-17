@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25769.png
-
-Convert to Markdown## C. The reduction and eventual elimination of the Soviet military presence in Cuba
+## C. The reduction and eventual elimination of the Soviet military presence in Cuba
 
 We have maintained diplomatic pressure on the Soviets to continue troop-withdrawals and we have warned the Soviets that we will not tolerate the use of Soviet forces in Cuba to suppress popular uprising.
 

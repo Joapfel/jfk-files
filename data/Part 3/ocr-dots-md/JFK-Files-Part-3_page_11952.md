@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11952.png
-
-Convert to Markdown# SURVEYS, PROJECTS AND/OR INTENSIFICATION PROGRAMS 4-H
+# SURVEYS, PROJECTS AND/OR INTENSIFICATION PROGRAMS 4-H
 
 INSPECTOR E. S. MILLER: You are requested to furnish information regarding various surveys, projects and/or programs in effect in your Division. This information should include identity of the project or program, background and date of inception, scope and desired objectives, positive results achieved since last inspection, extent and nature of current supervision, current justification for continuance, and frequency of evaluation and date of last justification. Identify any surveys, projects or programs you have in operation that are not set forth in my request. In addition, identify any surveys, projects and programs completed or discontinued since the last inspection. Identify only investigative-type matters in this category.
 

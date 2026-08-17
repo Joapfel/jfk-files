@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5181.png
-
-Convert to MarkdownIn deserter and Selective Service matters, hippie coverage is maintained in Guerneville, California (Sonoma County) through 137-5462. This latter town is largely a summer resort town for the area, but does have a hippie population in the winter months as well. Also, in the Indian and Mexican deserter fugitive matters, 137-1412 gives coverage to the skid row section of Santa Rosa, California.
+In deserter and Selective Service matters, hippie coverage is maintained in Guerneville, California (Sonoma County) through 137-5462. This latter town is largely a summer resort town for the area, but does have a hippie population in the winter months as well. Also, in the Indian and Mexican deserter fugitive matters, 137-1412 gives coverage to the skid row section of Santa Rosa, California.
 
 ## WALNUT CREEK RA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15752.png
-
-Convert to MarkdownChicago, Illinois
+Chicago, Illinois
 
 January 21, 1970
 

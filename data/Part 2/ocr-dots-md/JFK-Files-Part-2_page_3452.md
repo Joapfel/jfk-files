@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3452.png
-
-Convert to MarkdownSEPI.28.1998
+SEPI.28.1998
 
 3:33PM A
 

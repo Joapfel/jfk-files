@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2044.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="3">STANDARD FORM 581<br>JANUARY 1970<br>U S. CIVIL SERVICE COMMISSION<br>FFM SUPPLEMENT 870-1 - 5A-109</td>
         <th rowspan="2">AGENCY CERTIFICATION OF INSURANCE STATUS<br>Federal Employees Group Life Insurance Program</th>

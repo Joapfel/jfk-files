@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6293.png
-
-Convert to Markdown(DRE, Alpha 66, etc.), Minutemen, etc.
+(DRE, Alpha 66, etc.), Minutemen, etc.
 
 Third, for a file where no relevance can be found, the staff will write a memorandum identifying the file, describing the review process, and explaining the basis of finding no relevance. The staff memorandum will then be sent to the JFK Collection and be made fully available to the public.
 

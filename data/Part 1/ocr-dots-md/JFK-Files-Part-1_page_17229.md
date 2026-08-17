@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17229.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief of Operations, DD/P
+MEMORANDUM FOR: Chief of Operations, DD/P
 
 THROUGH: DDP/PG
 

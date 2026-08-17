@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13515.png
-
-Convert to Markdowncb 2
+cb 2
 
 TOP SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23178.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 I a number of occasions. You know, if you asked me what your impression, I don't know, maybe three, four.
 

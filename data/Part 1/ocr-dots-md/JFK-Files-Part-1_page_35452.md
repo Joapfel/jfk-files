@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35452.png
-
-Convert to Markdown2.
+2.
 
 that STOCKWOOD not AMASH/1 and UNSHAPU/7, presumably in alias but I do not know the details. It was also apparent by the time AMASH/1 left that he knew UNSHAPU/5 was working for KUBARK and we know that UNSHAPU/7 was aware to some extent of AMASH/1's plans (UNSHAPU/9 had MARGEN been recruited by KUBARK at that time). It was agreed that AMASH/1 would use the address of UNSHAPU/13's parents for a/w letters to KUBARK (UNSHAPU/13 is wife of UNSHAPU/9).
 

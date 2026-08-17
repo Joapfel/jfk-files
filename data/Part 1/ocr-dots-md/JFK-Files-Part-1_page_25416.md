@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25416.png
-
-Convert to Markdown3268
+3268
 
 ROUTINE
 

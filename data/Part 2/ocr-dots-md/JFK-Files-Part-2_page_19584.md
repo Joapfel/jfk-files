@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19584.png
-
-Convert to Markdown4-572 (Rev. 7-18-63)
+4-572 (Rev. 7-18-63)
 
 OPTIONAL FORM NO. 10
 MAY 1962 EDITION

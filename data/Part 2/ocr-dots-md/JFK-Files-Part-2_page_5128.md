@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5128.png
-
-Convert to Markdown194-10003-10139; 0; None
+194-10003-10139; 0; None
 
 194-10003-10140; 0; None
 

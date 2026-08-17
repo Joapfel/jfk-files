@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_276.png
-
-Convert to Markdown1, 78 Estafen Jacqután BLANCO Sánchez
+1, 78 Estafen Jacqután BLANCO Sánchez
 2. 79 Actón Indicator
 3, 80 Antonio SANTIAGO Ruiz
 4. 81 Frente Revolucionario Nacional

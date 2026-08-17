@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15911.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET</th><th>ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td><td>4</td></tr><tr><td>2</td><td>5</td><td>5</td></tr><tr><td>3</td><td>6</td><td>6</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET</th><th>ROUTING</th></tr></thead><tbody><tr><td>1</td><td>5</td><td>4</td></tr><tr><td>2</td><td>5</td><td>5</td></tr><tr><td>3</td><td>6</td><td>6</td></tr></tbody></table>
 
 BONN INFO DIR BRLN CITE FRAN 6489
 

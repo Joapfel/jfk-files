@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26442.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NO FOREIGN DISEASE
 -3-

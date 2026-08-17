@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35010.png
-
-Convert to Markdown# GENERAL ACCOUNTS
+# GENERAL ACCOUNTS
 
 ## ANNUAL "I-I"
 ### Issue No.2

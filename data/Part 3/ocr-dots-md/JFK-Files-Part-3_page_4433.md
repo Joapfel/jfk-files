@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4433.png
-
-Convert to MarkdownSECRET
+SECRET
 
 United States Department of Justice
 Federal Bureau of Investigation

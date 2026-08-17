@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22318.png
-
-Convert to Markdown725.
+725.
 
 j. Responsibility of Supervising Military Attache Operations
 

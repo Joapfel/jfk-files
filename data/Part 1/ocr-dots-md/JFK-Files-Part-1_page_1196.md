@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1196.png
-
-Convert to Markdown7. File on Artime - Buesa
+7. File on Artime - Buesa
 
 a. Memorandum for the Record, 21 February 1975
 Subject: Artime-Buesa, Manuel F.

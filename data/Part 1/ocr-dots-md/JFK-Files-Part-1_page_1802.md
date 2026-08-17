@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1802.png
-
-Convert to Markdownaddition of an individual experienced in business in the international
+addition of an individual experienced in business in the international
 field, provided one of sufficient caliber could be found who would
 be willing to spend two or three years on the Board of Estimates.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15682.png
-
-Convert to Markdownthat he had killed and murdered in the ground. When we
+that he had killed and murdered in the ground. When we
 talk about Chairman FRED HAMPTON, we don't need to seriously
 talk about what a bad brother he was, what a bad brother he,
 what a lot of beautiful treats he gave to black and oppressed

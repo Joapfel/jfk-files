@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30387.png
-
-Convert to Markdown1. Mr. Tovar. So these would be at least consistent with that.
+1. Mr. Tovar. So these would be at least consistent with that.
 
 2. Mr. Goldsmith. Yes, that is true. I would also for
 3. purposes of further clarification, to have you read the letter

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23884.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 arrangement we had previously, that is to say, that none of
 2 this is final, and certainly not until we hear the comments

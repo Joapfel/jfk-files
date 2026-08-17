@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7320.png
-
-Convert to MarkdownDr. John M. Clarke          IC Staff      143ext5477
+Dr. John M. Clarke          IC Staff      143ext5477
 Mr. William McAfee         State        101ext21504
 Mr. Benson K. Buffham     NSA          (9)688.-7222
 Mr. Kenneth Geisen         DIA          11ext75101

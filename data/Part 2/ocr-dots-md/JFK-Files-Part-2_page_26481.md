@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26481.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. According to official records, there were 13 terrorist attempts in Colombia during 1962. in the course of which nine terrorists were captured, and one was killed. Three of those captured--all members of FUAR--were convicted. One of the three, Alvaro Santiago Paz of Cali, is known to have traveled to Cuba. To date in 1963 there have been 15 terrorist attempts, including eight in Bogota. There have been 16 captured and one killed in Bogota preparing or attempting terrorist acts. One terrorist, identified as a FUAR member, was convicted in Cali. One terrorist, not yet identified, was captured in Medellin.
 

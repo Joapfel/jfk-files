@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_447.png
-
-Convert to Markdown29 de octubre. 65.- III-III-18.
+29 de octubre. 65.- III-III-18.
 
 03:01.-
 

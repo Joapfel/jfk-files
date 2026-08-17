@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3394.png
-
-Convert to MarkdownB. Option One -- Ratifying Existing Powers
+B. Option One -- Ratifying Existing Powers
 
 The first option for Congress is legislation ratifying the existing authority granted to the FBI by current Presidential directives and orders. Such legislation would be cast in extremely general terms. Its main advantage is that it would provide a basis for Congressional oversight. It could also reinforce the Attorney General's role as the immediate supervisor of FBI intelligence activities. The statute would authorize the Attorney General to direct the FBI:
 

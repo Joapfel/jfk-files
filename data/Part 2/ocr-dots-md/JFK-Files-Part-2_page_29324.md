@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29324.png
-
-Convert to MarkdownCOMMITTEE SENSITIVE
+COMMITTEE SENSITIVE
 
 24 August 1978
 

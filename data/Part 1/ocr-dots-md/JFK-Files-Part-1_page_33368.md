@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33368.png
-
-Convert to MarkdownVRIJDAG 17 APRIL 1974
+VRIJDAG 17 APRIL 1974
 
 ## V.S.-economie loopt terug
 

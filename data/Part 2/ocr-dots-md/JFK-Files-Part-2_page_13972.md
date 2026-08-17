@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13972.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Senate Select Committee
 
 RECOMMENDATIONS:

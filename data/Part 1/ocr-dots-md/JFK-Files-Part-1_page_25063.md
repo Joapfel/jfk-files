@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25063.png
-
-Convert to Markdownin making propaganda 'from one place to another' inasmuch as
+in making propaganda 'from one place to another' inasmuch as
 in the land of Brezhnev and Kosygin they do not even have a
 remote idea of what Mexico is like.
 

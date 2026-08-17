@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_25906.png
-
 director Cartha DeLoach with the message that "the President had instructed that the FBI interview (Morgan) concerning any knowledge he might have regarding the assassination of President Kennedy."
 
 DeLoach told Watson, that it appeared Morgan "did not want to be interviewed, and even if he was interviewed he would probably not divulge the identity of his sources ." Watson persisted, however.

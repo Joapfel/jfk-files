@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6872.png
-
-Convert to Markdownis essential for completing its work.
+is essential for completing its work.
 
 *Third*, the legislation should incorporate a statutory provision that, at a certain point in time, records will presumptively be opened unless the agencies are able to articulate specific and persuasive reasons for continued redactions. Although it would be sensible to provide agencies with the benefit of the doubt regarding declassification for an initial period (e.g., between 10 and 25 years), once this period has passed the presumption should shift decisively in favor of releasing the information.
 

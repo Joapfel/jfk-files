@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8379.png
-
-Convert to MarkdownSubject said that what I mentioned sounded like a threat, and that it was,
+Subject said that what I mentioned sounded like a threat, and that it was,
 it still wouldn't make any difference; he would rather go to jail or be harrased
 by the police than to cooperate, either with us or the KGB. I told him
 why what I said was not a threat but a reality, and that he should appreciate

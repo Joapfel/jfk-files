@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26515.png
-
-Convert to Markdownminimo," which is what a family needs to support itself at today's cost of living levels. That, I can discuss as minimum wage.... Those are slogans for the struggle against capitalism. Capitalism is incapable of solving the problems of the masses. That is the basic problem.
+minimo," which is what a family needs to support itself at today's cost of living levels. That, I can discuss as minimum wage.... Those are slogans for the struggle against capitalism. Capitalism is incapable of solving the problems of the masses. That is the basic problem.
 
 ... the worker gets 1.74 a day ... does not pay for housing. That has to be assured because ... workers of the "frutera" [UFCO, United Fruit Company] do not pay for housing, or electricity; that is, the only thing that he pays for is ... they give him food cards ... the only thing that the peasant ... "frutera" ... retirement is ... or else they give him nothing, blackball him ... lost his indemnity ... ... the peasant struggling for better wages ...
 

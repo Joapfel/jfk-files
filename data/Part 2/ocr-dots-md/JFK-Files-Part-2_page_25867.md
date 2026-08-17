@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25867.png
-
-Convert to MarkdownJOB # 72-B-431
+JOB # 72-B-431
 
 All
 

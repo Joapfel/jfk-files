@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33861.png
-
-Convert to MarkdownStuxl
+Stuxl
 
 SECURITY INFORMATION
 

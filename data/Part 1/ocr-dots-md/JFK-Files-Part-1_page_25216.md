@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25216.png
-
-Convert to MarkdownEdmund Stevens
+Edmund Stevens
 
 Date Acquired: September 1966
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17998.png
-
 of Alexander BEKIER and hence has access to information of value, his entire family is with him, and he is young enough to be able to make a new life for himself if flight should become necessary. Attempts are now being made to develop a contract to him through one of his many acquaintances in the Mexican press.
 
 10. WLODAREK is interesting mainly because he is Minister, and because he seems to be dissatisfied with his prospects. HMMA-15177 of 17 June transmitted information about a possible avenue of approach to him. Information received more recently disclosed that the doctor, who had been tentatively spotted as a means of access to Mrs. WLODAREK, is indeed anti-Communist but is also on unfriendly terms with Mrs. WLODAREK, ODACID personnel, who had been asked to cultivate WLODAREK at diplomatic functions, have reported that WLODAREK has not attended any at which they have been present. No likelihood is now foreseen of any means of contact to WLODAREK, and indications are that his recall may take place some time this summer.

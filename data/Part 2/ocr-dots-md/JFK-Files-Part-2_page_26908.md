@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26908.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10 First Street, S.E., Washington, D.C. 20003
 

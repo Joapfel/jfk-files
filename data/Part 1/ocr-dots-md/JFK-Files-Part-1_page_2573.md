@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2573.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MARK, David - III, C, 4
 MATLAW, Ralph - IV, D, 5

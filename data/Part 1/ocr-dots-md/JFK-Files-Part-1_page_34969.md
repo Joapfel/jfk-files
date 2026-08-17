@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34969.png
-
-Convert to MarkdownDear friend,
+Dear friend,
 
 where I send you mine
 with certificate and at my own

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23843.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 committees, when we want, I think, to be able to go to the
 Congress and say, we recommend most strenuously that only these

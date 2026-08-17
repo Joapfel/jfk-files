@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13530.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>CONTINUATION OF<br>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NUMBER</th></tr></thead><tbody><tr><td></td><td>SECRET</td><td>UNDA-4862</td></tr></tbody></table>
 

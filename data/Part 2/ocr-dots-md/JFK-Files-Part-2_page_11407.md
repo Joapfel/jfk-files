@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11407.png
-
-Convert to Markdown(D) Whether or not defectee available for interview by all Agents
+(D) Whether or not defectee available for interview by all Agents
 
 (E) Whether he is in position to testify and willing to do so
 

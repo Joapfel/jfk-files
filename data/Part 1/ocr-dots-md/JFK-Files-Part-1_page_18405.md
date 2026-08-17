@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18405.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="3">DATE PREPARED</th></tr><tr><th>Mo</th><th>Da</th><th>Yr</th></tr></thead><tbody><tr><td>09</td><td>12</td><td>60</td></tr><tr><th colspan="4">REQUEST FOR PERSONNEL ACTION</th></tr><tr><th rowspan="2">1. Serial No.</th><th rowspan="2"></th><th rowspan="2">2. Name (Last, First, Middle)</th><th rowspan="2">1. Date of Birth</th><th rowspan="2">4. Yrs. Prior.</th><th rowspan="2">5. See</th><th rowspan="2"></th><th colspan="2">V to V</th><th colspan="2">V to UV</th></tr><tr><th></th><th></th><th></th><th>UV to V</th><th>UV to UV</th></tr><tr><th colspan="2">006102</th><th colspan="3"></th><th colspan="2">XX</th><th colspan="2">6. CS • EOD</th></tr><tr><th rowspan="2">7. SCD<br/>Mo</th><th rowspan="2">Da</th><th rowspan="2">Yr</th><th rowspan="2">Yes - 1<br/>No - 2</th><th rowspan="2">Code</th><th rowspan="2">10. Appr. Allidov.</th><th rowspan="2">11. FEGLI</th><th rowspan="2">12. LCD<br/>Mo</th><th rowspan="2">Da</th><th rowspan="2">Yr</th><th rowspan="2">Yes - 1<br/>No - 2</th><th rowspan="2">Code</th></tr><tr><th></th></tr></tbody></table>

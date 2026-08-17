@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5234.png
-
-Convert to Markdownto identify members of the Black Panther Party, Students for a Democratic Society, and other members of extremist groups who are in violation of Selective Service Act matters. These should be promptly discussed with the United States Attorney for expeditious handling.
+to identify members of the Black Panther Party, Students for a Democratic Society, and other members of extremist groups who are in violation of Selective Service Act matters. These should be promptly discussed with the United States Attorney for expeditious handling.
 
 There are several reasons why the draft dodgers come to this area to beat the draft, however, the six most important reasons are as follows:
 

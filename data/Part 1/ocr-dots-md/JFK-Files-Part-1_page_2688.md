@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2688.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 (Seventh Department - June 1955-January 1960)
 

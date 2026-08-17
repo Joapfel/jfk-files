@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33959.png
-
-Convert to Markdownwas giving NCFE an assurance that RFE's operation in Germany would not be interfered with, but on the contrary, would be facilitated and helped by the Federal Government.
+was giving NCFE an assurance that RFE's operation in Germany would not be interfered with, but on the contrary, would be facilitated and helped by the Federal Government.
 
 From his viewpoint there was only one reservation he had to make: RFE would be expected to refrain from using its broadcast facilities on German soil for the purpose of advocating and promoting political ends which the Federal Government considered in conflict with its own basic policies. Hence, the Federal Government would have the right, officially to notify NCFE through the Foreign Office of any such conflict. Should the German stations of RFE thereupon not refrain from advocating and promoting the policies to which the Federal Government had objected, the Federal Government would have no choice but to require the surrender by NCFE of its license and the discontinuance of its broadcast operations from German territory.
 

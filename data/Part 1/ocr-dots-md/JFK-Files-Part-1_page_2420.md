@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2420.png
-
-Convert to MarkdownSECRET
+SECRET
 
 "Because none of the above explanations is consistent with
 the data developed in interrogations and investigations, we are

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23830.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 oversight committee should be doing rather than setting it out
 here. It's just a question.

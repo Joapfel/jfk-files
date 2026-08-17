@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29337.png
-
-Convert to MarkdownPhillips, page 14.
+Phillips, page 14.
 
 have been LIHUFF/1. He said that the document did not help
 his memory that much and that "I don't know of any reason why

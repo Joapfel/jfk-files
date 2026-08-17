@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12689.png
-
-Convert to MarkdownWhen subject in unavailable section is located in another division, submit FD-129 to Bureau and new office of origin. Type "Remove from Unavailable Section" in space to right of addresses. Bureau will send new security index cards to new office of origin.
+When subject in unavailable section is located in another division, submit FD-129 to Bureau and new office of origin. Type "Remove from Unavailable Section" in space to right of addresses. Bureau will send new security index cards to new office of origin.
 
 (d) Exception - re special section
 

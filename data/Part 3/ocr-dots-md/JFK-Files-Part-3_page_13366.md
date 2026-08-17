@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13366.png
-
-Convert to MarkdownOLSEN: Did you ever have any conversation with him about your wanting to see an outline of the book before you authorized him to proceed?
+OLSEN: Did you ever have any conversation with him about your wanting to see an outline of the book before you authorized him to proceed?
 
 STURGIS: Yes, sir. I asked "Andrew, when are you going to make the outline," because he had to come sit down with me, take notes for an outline--which he never did.
 

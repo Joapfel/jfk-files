@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1963.png
-
-Convert to Markdown# FBI
+# FBI
 
 <table><tr><td>TRANSMIT VIA:</td><td colspan="2">PRECEDENCE:</td><td colspan="3">CLASSIFICATION:</td></tr><tr><td>☐ Teletype</td><td>☐ Immediate</td><td>☐ TOP SECRET</td><td rowspan="4">Date ____________<br/>1/4/78</td></tr><tr><td>☐ Facsimile</td><td>☐ Priority</td><td>☐ SECRET</td></tr><tr><td>☑ Airtel</td><td>☐ Routine</td><td>☐ CONFIDENTIAL</td></tr><tr><td></td><td></td><td>☐ EFTO</td></tr><tr><td></td><td></td><td>☐ CLEAR</td></tr></table>
 

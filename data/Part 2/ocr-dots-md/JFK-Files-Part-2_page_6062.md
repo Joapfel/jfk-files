@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6062.png
-
-Convert to Markdown13-00000
+13-00000
 
 Harvard University, Institute for Educational Management,
 Cambridge, Massachusetts, 1993, Certificate, July 1993.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16090.png
-
-Convert to MarkdownChicago, Illinois
+Chicago, Illinois
 
 March 5, 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9111.png
-
-Convert to MarkdownOne of Bob Rooney's chief associates is CASTILLO. USSTA PROUERCA, a member of a distinguished family headed by Luis Ussia y Gavaldá, Conde de los Cazanias, the owner of Minero Siderurgica de Ponferrada. His company is listed as one of hundred largest enterprises in Spain.
+One of Bob Rooney's chief associates is CASTILLO. USSTA PROUERCA, a member of a distinguished family headed by Luis Ussia y Gavaldá, Conde de los Cazanias, the owner of Minero Siderurgica de Ponferrada. His company is listed as one of hundred largest enterprises in Spain.
 
 As a preface to my remarks about Castilla, I should like to point out that I had previously met with George Train and Miguel Echegaray, and I had asked them to name some of the outstanding figures in banking, manufacturing, utilities, chemicals, construction, etc. Except for two or three of the better-known names, neither Train nor Echegaray seemed to have such information at the tip of the fingers, but they both took my previously-prepared check list of categories and vol-untered to fill in the blanks during the next few days.
 

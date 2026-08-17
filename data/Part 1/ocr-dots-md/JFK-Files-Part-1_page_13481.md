@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13481.png
-
-Convert to Markdown**CLASSIFIED M. SAGE**
+**CLASSIFIED M. SAGE**
 
 ORIG: [GRACE ROBERTS] d1a
 UNIT: WH/4/PA

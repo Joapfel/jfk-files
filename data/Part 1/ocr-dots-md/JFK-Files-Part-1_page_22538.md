@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22538.png
-
-Convert to MarkdownSECRET-EYES ONLY
+SECRET-EYES ONLY
 
 31 January 1961
 

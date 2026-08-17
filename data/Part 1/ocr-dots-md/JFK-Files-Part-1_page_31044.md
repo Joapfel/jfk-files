@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31044.png
-
-Convert to Markdown14-0000
+14-0000
 
 25. The station has two elevators. It has collected all orders said so in the last three months and paid them when due, and also had an additional one during October 1963. Of an alternative route which would be for the station to satisfy fluctuations of a broad range of values has been paid attention, on the basis of which the quarters would stand prevailing according to salary plus and minus rate. Also at least headquarters which satisfied the station and BREADTH prefer.
 

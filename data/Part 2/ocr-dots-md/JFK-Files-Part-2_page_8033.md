@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8033.png
-
-Convert to Markdownthe television program to let The Truth, and identified "the real Mr. So-and-go" with an accuracy of better than 94 percent. The problem obviously was not the television camera.
+the television program to let The Truth, and identified "the real Mr. So-and-go" with an accuracy of better than 94 percent. The problem obviously was not the television camera.
 
 He ran the testimony of William Gurvich on the PSE Gurvich had been Garrison's chief aide in the investigation of Clay Shaw until he resigned, charging Garrison with wrongdoing. He said, "The truth as I see it is that Mr. Shaw should never have been arrested." He was asked if Garrison had known of certain illegal and unethical methods Gurvich had alleged were being used by Garrison's staff. He answered, "Yeah, of course he did. He ordered it." There was no stress in Mr. Gurvich's statements. The PSE showed that he believed what he was saying.
 

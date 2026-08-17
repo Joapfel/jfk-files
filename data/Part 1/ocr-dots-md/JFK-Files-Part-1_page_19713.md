@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19713.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 29 APR 1969

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30494.png
-
-Convert to Markdown1-69
+1-69
 
 a Mexico City file. But it may be a Headquarters -- is this
 a Mexico City document, or a Headquarters document?

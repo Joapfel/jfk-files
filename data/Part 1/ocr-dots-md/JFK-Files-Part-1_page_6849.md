@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6849.png
-
-Convert to MarkdownMemo No. 112/P
+Memo No. 112/P
 
 17 June 1959
 

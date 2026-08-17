@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14611.png
-
-Convert to MarkdownMemo Donahoe to Belmont
+Memo Donahoe to Belmont
 
 Re: INTELLIGENCE COVERAGE OF FRIENDLY FOREIGN COUNTRIES (SEMIANNUAL EVALUATION)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28164.png
-
-Convert to Markdown# E-E-2-B-E-T
+# E-E-2-B-E-T
 
 ## TRAINING EVALUATION
 Course on World Communism No. ____

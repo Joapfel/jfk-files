@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8933.png
-
-Convert to Markdown14-00500
+14-00500
 
 ACTION. C/WH 5
 

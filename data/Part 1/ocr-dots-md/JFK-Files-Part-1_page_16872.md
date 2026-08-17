@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16872.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FORM<br/>B-64<br/>(40)</td>
     <td>CLASSIFICATION</td>

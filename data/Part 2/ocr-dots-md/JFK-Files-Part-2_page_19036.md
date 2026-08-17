@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19036.png
-
-Convert to MarkdownSAMUEL ADASON JAFFE
+SAMUEL ADASON JAFFE
 
 # Jaffe's Employees in Moscow
 

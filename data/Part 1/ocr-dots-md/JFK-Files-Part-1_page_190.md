@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_190.png
-
-Convert to Markdown-9-
+-9-
 
 28. People-to-People Health Foundation, Inc. (PPHF) - Washington, D.C. (124)
 

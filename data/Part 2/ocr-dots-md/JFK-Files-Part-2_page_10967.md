@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10967.png
-
-Convert to Markdown# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 ## 2. Identification orders, wanted flyers, check circulars, and apprehension orders
 

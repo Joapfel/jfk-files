@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3394.png
-
-Convert to Markdownunity of martyn, of sacrifice, of combat. we want the greatest success for our sister revolutionary organizations, which will never be objects of attack on our part because our only enemy is communism.
+unity of martyn, of sacrifice, of combat. we want the greatest success for our sister revolutionary organizations, which will never be objects of attack on our part because our only enemy is communism.
 
 Q. - You personally and the M.R.R. in general have always been cited as "Favorites" of certain North American groups or governmental agencies. Is that correct?
 

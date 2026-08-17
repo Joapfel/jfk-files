@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3152.png
-
-Convert to Markdownstrife -- perhaps I shouldn't say what was the purpose -- what possible justification for the Bureau trying to sick the Black Panthers on that outfit call the US out in California, or between the Black Panthers and the Blackstone Rangers in Chicago? Was it with the hope that by fomenting it they would kill each other off?
+strife -- perhaps I shouldn't say what was the purpose -- what possible justification for the Bureau trying to sick the Black Panthers on that outfit call the US out in California, or between the Black Panthers and the Blackstone Rangers in Chicago? Was it with the hope that by fomenting it they would kill each other off?
 
 Mr. Adams. Absolutely not, and I think the Committee staff can inform you that during their review of all of these matters they haven't come up with one instance of violence resulting from any of these actions, and in that particular case there was a communication in the same file which I believe the staff had access to which showed that we did get information that one of these groups was going to put out a contract on one of the others, and we notified the police and the individuals of the fact that their life was in danger.
 

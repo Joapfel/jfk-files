@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5338.png
-
-Convert to MarkdownMemorandum to Mr. Adams
+Memorandum to Mr. Adams
 Re: Inventory of Documents Received
 from Former Associate DAG Wilderotter, etc.
 

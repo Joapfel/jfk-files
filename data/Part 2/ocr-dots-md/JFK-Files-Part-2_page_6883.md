@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6883.png
-
-Convert to Markdowndisclosure of certain classified information, including the JFK Assassination Records Collection Act (P.L. 102-526) and legislation concerning the State Department's *Foreign Relations of the United States* series (P.L. 102-138). In addition, Congress has granted itself the authority to declassify any information in its possession.⁷
+disclosure of certain classified information, including the JFK Assassination Records Collection Act (P.L. 102-526) and legislation concerning the State Department's *Foreign Relations of the United States* series (P.L. 102-138). In addition, Congress has granted itself the authority to declassify any information in its possession.⁷
 
 Today, several more bills mandating declassification are pending before Congress, including: S. 1220, "The Human Rights Information Act"⁸; S. 1232, a bill to declassify the private journal of Dr. Glenn Seaborg⁹; and S. 1379, "The Nazi War Crimes Disclosure Act."¹⁰ Each of these bills was introduced because the public had no choice but to turn to Congress in order to correct the failings of executive branch classification and declassification policies. If the Justice Department position were to be taken at face value, all of these bills-- as well as the Freedom of Information Act itself-- would be unconstitutional, and executive branch officials would have completely unchecked power to withhold whatever information they chose.
 

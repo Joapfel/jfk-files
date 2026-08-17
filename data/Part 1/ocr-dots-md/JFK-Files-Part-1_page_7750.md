@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7750.png
-
-Convert to Markdown10.04.20 Have you ever heard anyone describe him as an athlete? Yes X No ___
+10.04.20 Have you ever heard anyone describe him as an athlete? Yes X No ___
 If Yes, give details:
 *everyone*
 

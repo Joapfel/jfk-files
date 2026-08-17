@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28577.png
-
-Convert to Markdown1964-1967. Caseaid at Family and Children's Service, 327 Fifth Avenue, Pittsburgh, Pennsylvania. Placed pre-adoptive infants in foster homes, counseled foster mothers in their care and prepared evaluations of the infants and foster homes. Supervised some adoptive placements.
+1964-1967. Caseaid at Family and Children's Service, 327 Fifth Avenue, Pittsburgh, Pennsylvania. Placed pre-adoptive infants in foster homes, counseled foster mothers in their care and prepared evaluations of the infants and foster homes. Supervised some adoptive placements.
 
 Summer of 1963. Employed as a summer intern at Franklin County Children's Aid Society, Miller Street, Chambersburg, Pennsylvania. Observed and aided the social workers, did some counseling, interviewed and evaluated foster parent applicants. Worked with the director of the agency in a public relations effort: contacted and visited county residents, particularly leading citizens, to make them more aware of the agency and its functions and to locate prospective foster parents. Left to return to senior year of college.
 

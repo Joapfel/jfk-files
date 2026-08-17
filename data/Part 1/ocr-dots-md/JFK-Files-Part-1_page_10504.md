@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10504.png
-
-Convert to MarkdownSubject has been identified as having resided in Korea since 28 January 1960, presumably in the above position.
+Subject has been identified as having resided in Korea since 28 January 1960, presumably in the above position.
 
 PERSONS WITH whom GEORGE PARISTER-POUCLOS IS KNOWN TO HAVE BEEN IN CONTACT:
 

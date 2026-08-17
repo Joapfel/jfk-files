@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5131.png
-
-Convert to Markdown<table><thead><tr><td>CLASSIFIED BY</td><td>PERMITTING</td><td>SECRET</td></tr></thead><tbody><tr><td></td><td></td><td>STAFF</td></tr><tr><td rowspan="3">LAS</td><td rowspan="3">INFO</td><td>F/1 FILE VR: Don't Know AGC 1000</td></tr><tr><td>0003 POSITIVITY SPEC. C14 EPS/E62</td></tr><tr><td>CALSOC/ SIAIFZ SIA ADDL LOULID</td></tr></tbody></table>
+<table><thead><tr><td>CLASSIFIED BY</td><td>PERMITTING</td><td>SECRET</td></tr></thead><tbody><tr><td></td><td></td><td>STAFF</td></tr><tr><td rowspan="3">LAS</td><td rowspan="3">INFO</td><td>F/1 FILE VR: Don't Know AGC 1000</td></tr><tr><td>0003 POSITIVITY SPEC. C14 EPS/E62</td></tr><tr><td>CALSOC/ SIAIFZ SIA ADDL LOULID</td></tr></tbody></table>
 
 T 415934 EIA758
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14079.png
-
-Convert to MarkdownCUBA
+CUBA
 
 1964
 

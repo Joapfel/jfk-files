@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4648.png
-
-Convert to MarkdownSECRET
+SECRET
 
 taken the pen to use at some kind of public trial, so
 he could show the evidence that the United States was

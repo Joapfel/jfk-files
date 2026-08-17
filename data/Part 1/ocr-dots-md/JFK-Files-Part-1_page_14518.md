@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14518.png
-
-Convert to Markdown# ①
+# ①
 Circa of US on CDA #420 N. A.P.R. ST.
 If heard previously of prior death in 1947 by name in Hesler for
 Having left after came under warnews at that time via

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18217.png
-
-Convert to MarkdownTo: Director, Federal Bureau of Investigation
+To: Director, Federal Bureau of Investigation
 
 May 20, 1954
 

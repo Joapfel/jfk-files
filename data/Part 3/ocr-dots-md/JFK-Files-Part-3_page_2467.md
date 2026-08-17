@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2467.png
-
-Convert to MarkdownWashington Field Division
+Washington Field Division
 Room 1706
 Washington, D.C.
 January 31, 1948

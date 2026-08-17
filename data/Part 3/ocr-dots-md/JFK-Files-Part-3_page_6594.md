@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6594.png
-
-Convert to MarkdownUNI-ED STATES DEPARTMENT OF JUSTICE
+UNI-ED STATES DEPARTMENT OF JUSTICE
 FEDERAL DUREAU OF INVESTIGATION
 
 Copy to: 1 - Secret Service, Los Angeles (RM)

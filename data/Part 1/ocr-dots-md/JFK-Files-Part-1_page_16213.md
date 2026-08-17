@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16213.png
-
-Convert to Markdown**PROFESSIONAL EXPERIENCE**
+**PROFESSIONAL EXPERIENCE**
 
 June 1963 - Present
 

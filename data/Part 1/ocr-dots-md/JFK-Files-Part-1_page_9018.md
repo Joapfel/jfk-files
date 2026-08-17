@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9018.png
-
-Convert to MarkdownHENRY P. LOPEZ
+HENRY P. LOPEZ
 
 | Date | Description | Advances | Total Trip Expense | Additional Payment |
 |:---|:---|---:|---:|---:|

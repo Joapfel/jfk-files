@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9562.png
-
-Convert to Markdownseparate and distinct phenomenon, and we refuse to accept any solution focussed on the results of the last aggression without considering the source of the aggression itself.
+separate and distinct phenomenon, and we refuse to accept any solution focussed on the results of the last aggression without considering the source of the aggression itself.
 
 The Resolution of the Security Council, November 22nd 1967, and all further proposals explaining or modifying it, are inadequate and irrelevant from our point of view, and therefore are totally and categorically unacceptable to us.
 

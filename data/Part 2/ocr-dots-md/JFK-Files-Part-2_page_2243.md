@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2243.png
-
-Convert to MarkdownEXCLASSIFIED
+EXCLASSIFIED
 
 CONTROL
 885

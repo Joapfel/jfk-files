@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15345.png
-
-Convert to MarkdownSAC, Washington Field
+SAC, Washington Field
 
 6-4-58
 

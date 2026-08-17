@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15983.png
-
-Convert to MarkdownFRED HAMPTON, Chicago BPP leader, was guest speaker.
+FRED HAMPTON, Chicago BPP leader, was guest speaker.
 
 2/25/69)
 

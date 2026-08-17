@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17504.png
-
-Convert to MarkdownTypical examples of the reporting based on LIFECAT coverage of the ACGM are:
+Typical examples of the reporting based on LIFECAT coverage of the ACGM are:
 
 HMMA-17318, 3 July 1961 (Albert MALTZ)
 HMMA-17388, 14 July 1961 (Enos Regnet WICHER, Maria WICHER)

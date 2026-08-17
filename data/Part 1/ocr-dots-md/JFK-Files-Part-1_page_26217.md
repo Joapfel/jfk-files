@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26217.png
-
-Convert to MarkdownSECRET
+SECRET
 
 3. Ricardo *MIRANDA Aldana* (201-7873092), Guatemalan Communist who received guerrilla training in Cuba February - October 1962. MIRANDA has said that he was in contact with Subject when he was in Mexico in January - February 1963 on his way to Cuba. MIRANDA also said that he had met Subject before when Subject was with Anastas Mikoyan in Cuba (in February 1960). MIRANDA has said that Subject has been a close friend of Guatemalan Communist leader Bernardo LEMUS Mendoza (P-5023, 201-091575) since 1953 (when Subject first came to Mexico). (Source: captured documents). On 7 December 1966 a "friend from Guatemala" called Subject's office, saying that he already knew Subject but that Subject did not know that he was in Mexico and that he did not want to go to Subject's office or use the telephone. He was told to call back the next day. The next day "MIRANDA" (probably Ricardo MIRANDA Aldana) called Subject's office, and Subject asked him to come to his house (same as office) the following day at 1000 hours. (Source: LIFEAT).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21539.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA HAS NO OBJECTION TO
 DECLASSIFICATION AND/OR

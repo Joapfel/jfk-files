@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8346.png
-
-Convert to MarkdownFile Kelly
+File Kelly
 
 Re KELLY CASE
 

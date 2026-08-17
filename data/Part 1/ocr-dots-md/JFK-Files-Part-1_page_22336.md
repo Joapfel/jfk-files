@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22336.png
-
-Convert to Markdowngave NOSENKO's rank as lieutenant colonel and was signed by GRIBANOV himself and testified to it by his signature on the "official biographical statement" prepared in Frankfurt.
+gave NOSENKO's rank as lieutenant colonel and was signed by GRIBANOV himself and testified to it by his signature on the "official biographical statement" prepared in Frankfurt.
 
 The first major change in NOSENKO's story of his promotions came during the interrogations of January 1965 when he volunteered out of context and for no clear reason that he had never held the rank of major but rather, because of a series of administrative slip-ups and GRIBANOV's advice and help, had jumped directly from the rank of captain, which he received in 1956, to the rank of lieutenant colonel in late 1963. NOSENKO was later to claim that he had never said in 1962 that he was a major.*
 

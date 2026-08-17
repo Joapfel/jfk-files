@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10166.png
-
-Convert to Markdown# PROGRAM DESCRIPTIONS
+# PROGRAM DESCRIPTIONS
 
 ## Internal Security - Investigations.
 The program focuses on identifying organizations and individuals engaged in activities relating to (1) subversion, overthrow and destruction of governments within the United States; (2) the deprivation of constitutional and civil rights; (3) and foreign terrorism and their supporters whose activity is detrimental to the conduct of United States foreign affairs.

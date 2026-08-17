@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8169.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: WH/PO/B W. L. SMITH
 FROM: F1/D

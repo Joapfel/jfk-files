@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2903.png
-
-Convert to MarkdownCUBAN REVOLUTIONARY COUNCIL
+CUBAN REVOLUTIONARY COUNCIL
 INTERNAL SECURITY - CUBA
 
 "6. In these difficult times, the Cuban Revolutionary Council urges all Cubans to close ranks to achieve the national unity needed to hasten our march towards Freedom.

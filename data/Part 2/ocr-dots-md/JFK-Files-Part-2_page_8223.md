@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8223.png
-
-Convert to MarkdownAPPEALS REVIEW FORM
+APPEALS REVIEW FORM
 
 1. Tab 372 contains Two Letter Intuits dated Sept 17, 1969.
 4. ( ) Previously denied in toto under exemption(s) of

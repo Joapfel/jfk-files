@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10866.png
-
-Convert to Markdown6) If the information collected by us suggested a potential for the development of an operation, i.e. double agent, the Bureau could assume complete control of this operation including the dissemination of the information.
+6) If the information collected by us suggested a potential for the development of an operation, i.e. double agent, the Bureau could assume complete control of this operation including the dissemination of the information.
 
 7) Our involvement in the "sophisticated" category should be increased by expanded research and development bearing in mind we should be utilizing the most productive equipment available. The importance of this field cannot be exaggerated in light of the rapid developments in the scientific world.
 

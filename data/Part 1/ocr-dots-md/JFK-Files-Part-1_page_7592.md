@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7592.png
-
-Convert to Markdownwhite film of the Olympics to Ramrez Vasquez. No Indian around.
+white film of the Olympics to Ramrez Vasquez. No Indian around.
 No Greek either. Chucha Valden, formerly de Lanz Duret, with
 her new husband, licenciado Lozano. She is the owner of Universal.
 He was nobody until he married, now he is a well known jurist.

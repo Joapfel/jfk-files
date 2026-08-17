@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12137.png
-
-Convert to Markdown-2-
+-2-
 
 PSI in the Polish field.
 

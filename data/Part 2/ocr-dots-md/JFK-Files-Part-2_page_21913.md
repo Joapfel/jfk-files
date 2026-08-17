@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21913.png
-
-Convert to Markdown7/21/60). Nonetheless, the attitude toward Lumumba even at these early meetings was vehement:
+7/21/60). Nonetheless, the attitude toward Lumumba even at these early meetings was vehement:
 
 Mr. Dulles said that in Lumumba we were faced with a person who was a Castro or worse . . . Mr. Dulles went on to describe Mr. Lumumba's background which he described as "harrowing" . . . It is safe to go on the assumption that Lumumba has been bought by the Communists; this also, however, fits with his own orientation. (NSC Minutes, 7/21/60)
 

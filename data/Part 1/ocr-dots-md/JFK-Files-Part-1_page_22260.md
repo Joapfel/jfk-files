@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22260.png
-
-Convert to MarkdownDATE 4/2/94
+DATE 4/2/94
 
 LOST/MISSING MATERIAL
 

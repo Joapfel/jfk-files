@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11877.png
-
-Convert to MarkdownEDGAR N. VASSALOTTI
+EDGAR N. VASSALOTTI
 
 Distribution:
 Orig. & 2 - JMWAVE

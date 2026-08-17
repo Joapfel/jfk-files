@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31393.png
-
-Convert to MarkdownOctober 31, 1952
+October 31, 1952
 
 The Honorable Joseph C. Grew
 2820 Woodland Drive, N.W.

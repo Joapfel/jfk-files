@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17111.png
-
-Convert to MarkdownCALVIN, WILLIE JAMES, born March 6, 1948, Captain of
+CALVIN, WILLIE JAMES, born March 6, 1948, Captain of
 Defense, Chicago Chapter Illinois BPP.
 
 CAMPBELL ANN. CAMPBELL is Communications Secretary

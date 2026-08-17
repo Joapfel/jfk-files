@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23509.png
-
-Convert to MarkdownSUBJ: Offset Clause - Arthur B. VATVADA
+SUBJ: Offset Clause - Arthur B. VATVADA
 
 29 March 1954
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2256.png
-
-Convert to Markdown23 February 1947
+23 February 1947
 
 MEMORANDUM FOR MR. FREDERICK B. LYON
 DIRECTOR, OFFICE OF CONTROLS

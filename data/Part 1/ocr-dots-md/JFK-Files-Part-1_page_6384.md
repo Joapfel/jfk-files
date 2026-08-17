@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6384.png
-
 for IBO at Bad-Reichenhall, Germany, from 1949 to 1950.
 
 **PUBLICATIONS:** Published nine articles on plant physiology and plant diseases and more than 20 popular-scientific articles on same matter.

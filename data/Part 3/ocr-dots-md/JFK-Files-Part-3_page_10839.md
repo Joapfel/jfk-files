@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10839.png
-
-Convert to Markdown# F. CURRENT CAPABILITIES OF THE FBI
+# F. CURRENT CAPABILITIES OF THE FBI
 
 ## 1. Manpower Being Devoted
 

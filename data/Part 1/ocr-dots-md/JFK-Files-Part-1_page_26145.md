@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26145.png
-
-Convert to MarkdownRICO, Victor (Oalan)
+RICO, Victor (Oalan)
 
 201-33474
 

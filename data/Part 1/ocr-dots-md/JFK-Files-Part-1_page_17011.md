@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17011.png
-
-Convert to MarkdownEOM-A-3992
+EOM-A-3992
 KAPCI-492
 
 16 January 1956

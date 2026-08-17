@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15179.png
-
-Convert to Markdown# ANTRIOT LAWS
+# ANTRIOT LAWS
 
 ## Chicago Cases
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28344.png
-
-Convert to Markdown11 January 1961
+11 January 1961
 
 To: Director of Personnel
 

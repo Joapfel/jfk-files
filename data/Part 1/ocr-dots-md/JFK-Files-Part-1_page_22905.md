@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22905.png
-
-Convert to MarkdownA0897Wi
+A0897Wi
 
 MR. W. C. BARNES
 

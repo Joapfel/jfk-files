@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6258.png
-
-Convert to MarkdownHUNTER PITTS O'DELL
+HUNTER PITTS O'DELL
 
 In July, 1962, HUNTER PITTS O'DELL, also known as JACK K. O'DELL, was considered by the Communist Party, USA, as a member of its National Committee.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8657.png
-
-Convert to Markdown394
+394
 
 8. S. Kogel, "Theory of the Effect of Old and New States upon the Choice of a政 party in Germany," in: The Political Science of Germany, ed. by J. E. O. Henshaw (New York: Macmillan, 1960), 257-273.
 9. Subj. D. Did not bring his wife to the meeting.

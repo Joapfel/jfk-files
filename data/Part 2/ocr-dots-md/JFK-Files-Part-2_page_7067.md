@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7067.png
-
-Convert to MarkdownCHAPTER 5: THE STANDARDS FOR REVIEW: REVIEW BOARD "COMMON LAW"
+CHAPTER 5: THE STANDARDS FOR REVIEW: REVIEW BOARD "COMMON LAW"
 
 ii. *Commentary.* The Review Board released CIA sluglines because the Agency never offered the Review Board any evidence to explain why the Board should not release them. An example of a CIA slugline is "RYBAT GPFLOOR." "RYBAT" is a CIA crypt that meant "secret," and GPFLOOR was the crypt that CIA gave Lee Harvey Oswald during its post-assassination investigation. CIA initially asked the Review Board to postpone the CIA slugline even where CIA had released the individual crypts that made up the slugline elsewhere. For example, in the case of "RYBAT GPFLOOR," the CIA agreed to release the crypt "RYBAT" in two places elsewhere in the document at issue, and the CIA agreed to release the crypt GPFLOOR when it appeared in the text. CIA told the Review Board that it could not, however, release the slugline "RYBAT GPFLOOR." CIA offered no substantive arguments to support its request for postponement of the slugline. Given the statute's demand that CIA provide clear and convincing evidence in support of its requests for postponement, the Review Board voted to release CIA sluglines.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7052.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Brazilian Ambassador to the country was transferred in late fall. If this does not come off, when V/2 visits her daughter in the fall she should attempt, under some pretaxt, to have her daughter leave Russia.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4457.png
-
-Convert to Markdownto develop the target and was able to provide significant OB at the same time. Neither this, nor the other efforts to penetrate the Cuban military at high-level, however, had met with full success by the end of the reports period.
+to develop the target and was able to provide significant OB at the same time. Neither this, nor the other efforts to penetrate the Cuban military at high-level, however, had met with full success by the end of the reports period.
 
 (b) The Cuban lawyer recruited in May 1962 (see paragraph 2a above) developed a second target in September, a former member of the Cuban General Staff now awaiting reassignment. The agent was instructed to recruit and train this military Officer in S/W. At the end of the reporting period it was not possible to determine the success of this potentially excellent operational development.
 

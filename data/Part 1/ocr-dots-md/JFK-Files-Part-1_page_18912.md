@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18912.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 # TRAINING EVALUATION
 ## COUNTEREFERENCE OPERATIONS COURSE I, 1

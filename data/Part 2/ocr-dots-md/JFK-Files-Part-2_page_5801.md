@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5801.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 8. With respect to the review of other agency documents referred to CIA, the review of any new assassination records, or the periodic review of postponed assassination records, the CIA shall, in good faith, continue to apply the postponement criteria of the JFK Act as previously interpreted by decisions of the Review Board.
 

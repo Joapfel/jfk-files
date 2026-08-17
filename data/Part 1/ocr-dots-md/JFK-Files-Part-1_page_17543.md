@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17543.png
-
-Convert to Markdownc. Field Agents
+c. Field Agents
 
 (1) LIFEUD-1, OA granted 17 October 1950 (201-182704)
 

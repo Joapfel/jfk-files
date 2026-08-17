@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24028.png
-
-Convert to MarkdownC. December
+C. December
 
 December 2
 

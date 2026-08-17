@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2808.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1. Agency and organizational designations<br/>CENTRAL INTELLIGENCE AGENCY</td>
     <td>2. Pay ro<br/>3. Block No.<br/>4. Skip No.</td>

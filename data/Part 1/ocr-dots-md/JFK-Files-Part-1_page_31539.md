@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31539.png
-
-Convert to Markdown4 December 1953
+4 December 1953
 
 MEMORANDUM FOR: CHIEF, IO DIVISION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30501.png
-
-Convert to Markdown1-76
+1-76
 
 made a tremendous effect on me.
 

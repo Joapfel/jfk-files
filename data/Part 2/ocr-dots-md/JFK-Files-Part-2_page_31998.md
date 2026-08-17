@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31998.png
-
-Convert to Markdown<table><tr><td>Released under the John F. Kennedy</td></tr><tr><td>Assassination Records Collection Act of</td></tr><tr><td>1992 (44 USC 2107 Note). Case#: NW</td></tr><tr><td>88613 Date: 03-18-2025</td></tr></table>
+<table><tr><td>Released under the John F. Kennedy</td></tr><tr><td>Assassination Records Collection Act of</td></tr><tr><td>1992 (44 USC 2107 Note). Case#: NW</td></tr><tr><td>88613 Date: 03-18-2025</td></tr></table>
 
 Date : 08/19/98
 Page : 1

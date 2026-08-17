@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17473.png
-
-Convert to MarkdownFBI
+FBI
 
 Date: 8/8/69
 PLAINTEXT

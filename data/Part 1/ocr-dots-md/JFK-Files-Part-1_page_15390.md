@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15390.png
-
-Convert to Markdown<table><thead><tr><td>NOTES</td><td></td><td>YES</td><td>NO</td><td></td></tr></thead><tbody><tr><td colspan="5">CLASSIFIED MESSAGE TOTAL COPIES: 32</td></tr><tr><td colspan="5">REPRODUCTION PROHIBITED</td></tr><tr><td rowspan="4">ACTION</td><td rowspan="4"></td><td rowspan="4">J.M. Wills</td><td rowspan="4"></td><td rowspan="2">ADVANCE COPY</td><td rowspan="4"><table><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr><tr><td>SLOTED</td><td>TURBO</td><td>UNIT</td><td>TIME</td><td>BY</td></tr></table></td></tr><tr><td>ISSUED</td><td>SLOTTED</td><td>TURBO</td><td></td></tr><tr><td colspan="5">INFO VR, FILE, DDA WHISAR, MR'S, AFH C/DOF, CC: 2</td></tr></tbody></table>
+<table><thead><tr><td>NOTES</td><td></td><td>YES</td><td>NO</td><td></td></tr></thead><tbody><tr><td colspan="5">CLASSIFIED MESSAGE TOTAL COPIES: 32</td></tr><tr><td colspan="5">REPRODUCTION PROHIBITED</td></tr><tr><td rowspan="4">ACTION</td><td rowspan="4"></td><td rowspan="4">J.M. Wills</td><td rowspan="4"></td><td rowspan="2">ADVANCE COPY</td><td rowspan="4"><table><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr><tr><td>SLOTED</td><td>TURBO</td><td>UNIT</td><td>TIME</td><td>BY</td></tr></table></td></tr><tr><td>ISSUED</td><td>SLOTTED</td><td>TURBO</td><td></td></tr><tr><td colspan="5">INFO VR, FILE, DDA WHISAR, MR'S, AFH C/DOF, CC: 2</td></tr></tbody></table>
 
 SECRET-151611Z
 

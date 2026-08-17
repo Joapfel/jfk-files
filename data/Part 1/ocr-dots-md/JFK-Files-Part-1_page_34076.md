@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34076.png
-
-Convert to MarkdownΠΡΟΣΟΧΗ
+ΠΡΟΣΟΧΗ
 ---
 
 Παραπέντων Εἰς τὰν ἁικηοσύννυ

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8714.png
-
-Convert to Markdown12.01.06 ¿Tiene usted idea de su opinión acerca de las mujeres?
+12.01.06 ¿Tiene usted idea de su opinión acerca de las mujeres?
 
 Sí No
 

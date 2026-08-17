@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17698.png
-
-Convert to Markdownwas used in inducing the Mexican Government to deport Mario SoSa Navarro and thus provided the station with the means to test one of its more potent sources as well as check the accuracy of his progress reports.
+was used in inducing the Mexican Government to deport Mario SoSa Navarro and thus provided the station with the means to test one of its more potent sources as well as check the accuracy of his progress reports.
 
 5. **Narciso BASSOLS.** BASSOLS is a leading collaborator of the Soviets in Mexico. Coverage of his traffic showed him in contact with his Soviet case officer and gave details of interest on Mexican political matters and one important Communist front, the Círculo de Estudios Exteriores, of which BASSOLS was the intellectual author though not a member.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25218.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>HANSEN, BUREAU OF BUDGET</td><td rowspan="4">Oct 24, 1963</td><td rowspan="4">DIEM</td></tr><tr><td>EXECUTIVE DIRECTOR OF CIA</td></tr><tr><td>LODGE</td></tr><tr><td>RICHARDSON</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>HANSEN, BUREAU OF BUDGET</td><td rowspan="4">Oct 24, 1963</td><td rowspan="4">DIEM</td></tr><tr><td>EXECUTIVE DIRECTOR OF CIA</td></tr><tr><td>LODGE</td></tr><tr><td>RICHARDSON</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="2">OCCURRENCE:</th></tr></thead><tbody><tr><td colspan="2">In an eyes only cable from CIA to Saigon for LODGE and HARKENS, from BUNDY the following message appears: "...there may be danger NHU attempting entrapment through DON'S approaches to CONEIN...feel quite strongly that LODGE and HARKINS should stand back from any nonessential involvement...it seems wise to maintain close control over meetings between DON and CONEIN."</td></tr></tbody></table>
 

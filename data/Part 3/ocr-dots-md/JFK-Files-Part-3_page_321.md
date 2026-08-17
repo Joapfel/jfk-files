@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_321.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Memorandum to Mr. W. R. Wannall
 Re: Samuel Adason Jaffe

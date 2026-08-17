@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6157.png
-
-Convert to MarkdownSUBJECT
+SUBJECT
 
 NATIONAL GUARDIAN
 

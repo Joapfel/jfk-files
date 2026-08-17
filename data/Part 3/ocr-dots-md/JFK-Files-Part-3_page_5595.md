@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5595.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th colspan="3" style="text-align:center; font-weight:bold;">SENSITIVE CASE REPORT</th>

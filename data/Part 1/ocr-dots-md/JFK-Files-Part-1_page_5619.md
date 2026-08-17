@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5619.png
-
-Convert to MarkdownAttachment: U/S/C
+Attachment: U/S/C
 
 HTPW-1347, 17 Sept 1968
 

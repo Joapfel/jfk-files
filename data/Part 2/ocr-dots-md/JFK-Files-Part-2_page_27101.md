@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27101.png
-
-Convert to MarkdownProject Management within CIA.
+Project Management within CIA.
 
 From its outset the project was characterized by a compartmentation that
 was extreme even by CIA standards. Only two or three Agency officers at any

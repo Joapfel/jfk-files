@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2266.png
-
-Convert to MarkdownBoyd Warrington Bishop
+Boyd Warrington Bishop
 (390487)
 DOB : (29 April) 1940
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17287.png
-
-Convert to MarkdownHMM-A-11257
+HMM-A-11257
 KAPOK-1472
 
 The major security threat to LIENTRAP is the fact that it has been operating for about two years in all parts of the city and should soon be replaced by a truck of a different make. Provision for this is made in Section 15 of this Field Project Outline.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27865.png
-
-Convert to MarkdownJune 29, 1977
+June 29, 1977
 
 Mr. Isiah C. Mathews
 21 Pearl Street

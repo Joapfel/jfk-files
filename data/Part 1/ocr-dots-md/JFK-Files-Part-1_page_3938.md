@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3938.png
-
-Convert to Markdown14-00000
+14-00000
 
 Att. 64 to FCGA-21693 dated
 SUBJECT: *SARDA (mat. unk.), (fnu)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31794.png
-
-Convert to MarkdownSF100-1632
+SF100-1632
 
 AD HOC COMMITTEE TO END DISCRIMINATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14185.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 Aug 69
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11125.png
-
-Convert to MarkdownDissemination in these cases is made to preclude these subjects from utilizing the fact they obtained a passport to refute allegations of subversive connections. The State Department, therefore, will be in possession of data concerning a defendant should he attempt to utilize this tactic in such an action.
+Dissemination in these cases is made to preclude these subjects from utilizing the fact they obtained a passport to refute allegations of subversive connections. The State Department, therefore, will be in possession of data concerning a defendant should he attempt to utilize this tactic in such an action.
 
 b. Data developed concerning individuals who are not within the Bureau's investigative jurisdiction
 

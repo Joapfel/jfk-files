@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_539.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attachment No. 1.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9015.png
-
-Convert to Markdown**TRAIN, CABOT & ASSOCIATES**
+**TRAIN, CABOT & ASSOCIATES**
 
 370 PARK AVENUE . · NEW YORK, N. Y. 10018
 

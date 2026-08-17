@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1870.png
-
-Convert to Markdown18 MAY 1961
+18 MAY 1961
 
 MEMORANDUM FOR: Chief, WH Division
 ATTENTION : Mr. Calvin W. Hicks, W-4

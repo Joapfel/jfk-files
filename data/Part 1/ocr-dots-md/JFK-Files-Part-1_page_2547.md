@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2547.png
-
-Convert to MarkdownSECRET
+SECRET
 
 learned of the name when the First Section, First Department, needed the services of the Seventh Department (Third Section) in obtaining a room in a certain hotel for the Soviet girl friend of HOWARD.
 

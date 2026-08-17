@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20644.png
-
-Convert to Markdown14-0000
+14-0000
 
 David A. Phillips
 

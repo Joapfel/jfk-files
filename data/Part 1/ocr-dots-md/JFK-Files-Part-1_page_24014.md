@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24014.png
-
-Convert to Markdown**Richard Thomas GIBSON**
+**Richard Thomas GIBSON**
 ***
 Born: Los Angeles on 13.5.31
 Address: 30, Stockleigh Hall,

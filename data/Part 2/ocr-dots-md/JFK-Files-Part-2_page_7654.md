@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7654.png
-
-Convert to Markdownour agents are putting in an average of over 2 hours overtime a day voluntarily, the loan of 139 men will be felt.
+our agents are putting in an average of over 2 hours overtime a day voluntarily, the loan of 139 men will be felt.
 
 Representative FORD. 169.
 

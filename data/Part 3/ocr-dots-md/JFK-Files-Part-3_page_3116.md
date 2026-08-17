@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3116.png
-
-Convert to Markdown1728
+1728
 
 Senator Mondale. Thank you very much, Mr. Chairman.
 I have always supported the FBI. It is clearly the finest,

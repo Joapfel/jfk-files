@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5564.png
-
-Convert to Markdown10/09/97
+10/09/97
 
 ## Reel 45, Folder 13
 

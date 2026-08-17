@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_39.png
-
-Convert to Markdown(Mount Clipping in Space Below)
+(Mount Clipping in Space Below)
 
 <table>
   <tr>

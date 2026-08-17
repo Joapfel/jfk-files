@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9675.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 On February 16, 1974, DRAGER and WILLIAM ERIC CARROLL were arrested by Lake Springfield, Illinois, Police Department, Sangamon County, Illinois, charged with possession of more than 10 grams, less than 30 grams, of marijuana and possession of burglary tools. A subsequent search of DRAGER's vehicle at that time of his arrest revealed extremist materials consisting of cassette tape recordings, address books, guerrilla training manuals, Ku Klux Klan literature, American Nazi Party literature, locations where crosses have allegedly been burned, wiretap equipment, and other right-wing literature. The subject was also in possession of numerous identification cards, such as driver's license and Social Security cards.
 

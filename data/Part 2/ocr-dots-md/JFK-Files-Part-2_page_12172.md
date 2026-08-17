@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12172.png
-
-Convert to Markdownprotect his security. Fellow members of the pertinent subversive organization may be aware of his unemployment status and would expect him to apply. Where a state requires notification of Bureau payments to informants that would necessitate disclosure of their identity, then Bureau payments should be discontinued during the period they receive unemployment compensation benefits.
+protect his security. Fellow members of the pertinent subversive organization may be aware of his unemployment status and would expect him to apply. Where a state requires notification of Bureau payments to informants that would necessitate disclosure of their identity, then Bureau payments should be discontinued during the period they receive unemployment compensation benefits.
 
 9. Handling money and property received by double agents
 

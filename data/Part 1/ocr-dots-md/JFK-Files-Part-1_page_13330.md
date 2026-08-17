@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13330.png
-
-Convert to MarkdownATTACHMENT 1. to UFGA-28437
+ATTACHMENT 1. to UFGA-28437
 
 <table><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>UFGW-6657</td><td>DATE<br/>JUL 18 1967</td></tr><tr><td></td><td>CLASSIFICATION<br/>SECRET</td><td>PDS FILE NUMBER<br/>201-300985</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24064.png
-
-Convert to MarkdownRichard Gibson Reports
+Richard Gibson Reports
 International news & features
 
 Općina Bolaica

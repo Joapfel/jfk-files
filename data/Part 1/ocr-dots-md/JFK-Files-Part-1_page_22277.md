@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22277.png
-
-Convert to Markdownfurther inconsistencies. Because of this and, in the absence of
+further inconsistencies. Because of this and, in the absence of
 any pressure of any kind (including any apparent psychological
 pressure) to lie about his date of entry, the most logical explana-
 tion for this change is that NOSENKO forgot in early 1964 either

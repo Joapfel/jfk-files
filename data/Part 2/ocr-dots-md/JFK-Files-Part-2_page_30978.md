@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30978.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ① state drc. Memo of Comer. Sub: Under to Dept by B.H. 24/4/64
 

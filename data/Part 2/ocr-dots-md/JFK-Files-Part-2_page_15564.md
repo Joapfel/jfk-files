@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15564.png
-
-Convert to MarkdownLR:
+LR:
 
 On August 21, 1969, United Air Lines advised the Chicago Office of the BPP that a shipment of newspapers had been received for the Chicago BPP Headquarters from San Francisco, California. The shipment consisted of 44 boxes weighing 2,333 pounds, and the freight charges were $374.00.
 

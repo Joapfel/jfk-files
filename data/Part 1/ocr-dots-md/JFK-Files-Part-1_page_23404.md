@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23404.png
-
-Convert to MarkdownSTC/000
+STC/000
 
 23 February 1951
 

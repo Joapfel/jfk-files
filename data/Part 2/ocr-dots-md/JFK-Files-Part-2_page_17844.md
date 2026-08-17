@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17844.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 
 PM 60 045 PM '75

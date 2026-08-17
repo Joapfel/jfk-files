@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14072.png
-
-Convert to MarkdownMINUTES OF
+MINUTES OF
 
 BOARD MEETING
 

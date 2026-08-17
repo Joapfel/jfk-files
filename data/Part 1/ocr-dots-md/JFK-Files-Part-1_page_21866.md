@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21866.png
-
-Convert to Markdownlive in this country and work for the welfare of
+live in this country and work for the welfare of
 this government.
 
 ## 4. The Letter of July 1964

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8525.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY SSC
+RE: INTERVIEW OF RETIRED FBI SA BY SSC
 
 "Q. Did you make any subsequent written recording of the interview?
 

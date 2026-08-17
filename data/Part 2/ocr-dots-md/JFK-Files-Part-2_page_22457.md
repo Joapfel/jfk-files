@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22457.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q You said there was a previous inquiry?
 

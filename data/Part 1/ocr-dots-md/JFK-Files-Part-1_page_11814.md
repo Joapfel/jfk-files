@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11814.png
-
-Convert to MarkdownSECURET
+SECURET
 Security Information
 
 Mission Santiago, working through contract agent Paul D. LANGEVIN, FUNERIAL, an unwitting Chilean with excellent contacts in business and intellectual circles, has succeeded in re-activating the former organization, and has recently approached DTHAREAS with a request for support for the group's activities.

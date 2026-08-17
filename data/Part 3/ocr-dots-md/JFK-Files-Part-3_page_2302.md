@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2302.png
-
-Convert to MarkdownHonorable Frank Church
+Honorable Frank Church
 
 It is now almost one year since the inception of the moratorium on our regular records destruction program. For your information, our regular destruction program, as approved by the National Archives and Records Service, is designed to prevent retention of masses of records well beyond the period during which they may serve a useful purpose. Further, our records destruction program, as approved by the National Archivist, permits the destruction of those records which are deemed to no longer possess evidentiary, intelligence, or historical value. The moratorium, which was not expected to last as long as it has, has created substantial administrative burdens not only at FBI Headquarters but throughout our 59 field offices. The suspension of sound records management and file destruction practices in many areas is causing very substantial space and storage problems.
 

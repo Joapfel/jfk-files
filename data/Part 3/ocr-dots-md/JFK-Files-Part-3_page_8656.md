@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8656.png
-
-Convert to MarkdownInternational News
+International News
 
 Panthers profess to believe that American Negroes comprise isolated "col-
 onies" in the heart of the "mother" country, and are part of the Third World,

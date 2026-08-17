@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22486.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 certain-political reasons, the Government didn't want NSA in there, the military personnel.
 

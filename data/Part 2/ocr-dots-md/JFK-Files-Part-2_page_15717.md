@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15717.png
-
-Convert to MarkdownWhy Set Defense?
+Why Set Defense?
 
 their parents. Often, black Panther neone are picked out at random for alleged traffic violations. If a black male is seen running away from a place where the police believe a crime has been committed (usually a property crime), they shoot first and ask questions later. The incidents of this in Berkely, and Oakland and San Francisco are numerous. In fact it is incidents such as these that have been the trigger in almost all the so-called "riots" that have occurred in this country since Watts.
 

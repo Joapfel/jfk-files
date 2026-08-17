@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11140.png
-
-Convert to MarkdownINDEX: ☐ YES ☐ NO
+INDEX: ☐ YES ☐ NO
 
 CLASSIFY TO FILE NO. 201-329609
 S-REF TO FILE NO.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4679.png
-
-Convert to MarkdownNY 105-62202
+NY 105-62202
 
 lost a great deal of money in this venture, which
 money had been given to him for use in the gambling

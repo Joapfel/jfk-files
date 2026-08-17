@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18070.png
-
-Convert to Markdown NW 88326 DocId:32989653 Page 68
+NW 88326 DocId:32989653 Page 68
 
 TREAT AS YELLOW
 

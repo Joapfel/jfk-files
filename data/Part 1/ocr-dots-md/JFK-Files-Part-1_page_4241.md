@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4241.png
-
-Convert to Markdown23. November 1965
+23. November 1965
 
 AMOUNTS PAYABLE: Chief, M/M/F
 

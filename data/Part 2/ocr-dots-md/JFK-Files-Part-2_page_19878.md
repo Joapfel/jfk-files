@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19878.png
-
-Convert to MarkdownWomens National Abortion
+Womens National Abortion
 Action Coalition (WONAAC)
 
 On March 23, 1972, NY T-1 advised that on

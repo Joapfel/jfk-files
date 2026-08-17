@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3149.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 By early November 1960, as the concept of the
 operation was shifting from one of guerrilla warfare

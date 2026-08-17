@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23757.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FURNACE
 RIDING 70281

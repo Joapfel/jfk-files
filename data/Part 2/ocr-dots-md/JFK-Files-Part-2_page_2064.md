@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2064.png
-
-Convert to Markdown3 SEP
+3 SEP
 
 **MEMORANDUM FOR:** Director of Personnel
 

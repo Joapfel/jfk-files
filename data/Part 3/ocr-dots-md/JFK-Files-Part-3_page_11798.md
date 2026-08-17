@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11798.png
-
-Convert to MarkdownMemorandum. C. D. Brennau to W. C. Sullivan
+Memorandum. C. D. Brennau to W. C. Sullivan
 Re: ADEQUACY OF PERSONNEL
 
 specific instructions. Therefore, one part of Wannall's "enormous" problem was resolved in one week with one interview and one letter to the Department.

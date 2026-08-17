@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30124.png
-
-Convert to MarkdownOUTGOING CORRESPONDENCE
+OUTGOING CORRESPONDENCE
 
 TO: Griffin Bell
 Approved _______ Date _______

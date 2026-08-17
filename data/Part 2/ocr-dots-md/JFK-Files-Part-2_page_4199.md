@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4199.png
-
-Convert to Markdown29 November 1963
+29 November 1963
 
 Late developments on the Mexico City investigation of
 Oswald's activities

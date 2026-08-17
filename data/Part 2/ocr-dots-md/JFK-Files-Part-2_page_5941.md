@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5941.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 9 February 1993
 

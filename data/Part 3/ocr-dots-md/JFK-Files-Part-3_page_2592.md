@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2592.png
-
-Convert to Markdowna. "Use of the resources of the FBI to gather political intelligence. Our review disclosed a few documented instances in which the Bureau at times during the course of an election campaign was requested to provide -- and did indeed provide -- information which could be used as political intelligence information. In one instance, this involved a check of FBI files on the staff of a campaign opponent.
+a. "Use of the resources of the FBI to gather political intelligence. Our review disclosed a few documented instances in which the Bureau at times during the course of an election campaign was requested to provide -- and did indeed provide -- information which could be used as political intelligence information. In one instance, this involved a check of FBI files on the staff of a campaign opponent.
 
 b. "Improper use of the FBI in connection with the political process. In a few instances recorded in Bureau files, an incumbent President caused the FBI to gather intelligence relating to a political convention under circumstances that although cast in legitimate law enforcement terms could-- and some would say should -- have been suspected of being politically motivated.
 

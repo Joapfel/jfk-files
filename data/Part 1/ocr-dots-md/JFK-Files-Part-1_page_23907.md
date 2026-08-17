@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23907.png
-
-Convert to Markdownoptics,
+optics,
 
 And his position as a newspaper editor and publisher in the French press. He was always talking of going back to Algiers, going to shoot Algerian Gerard Chalion just because Chalion had double-crossed him with the staff. He thought, well, since I have these Europeans they won't be able to take over the magazine, so quickly! He's very clever. He surrounds himself with people who are in a weaker position than he. Kirschenberg says in other words, a defense. things that took have to be very strong willed. place in Algeria, other side, But Chalion made a deal with the Ben Bella people and kept the entire staff on.
 

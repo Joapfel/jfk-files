@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24577.png
-
-Convert to MarkdownPOLITICAL AFFILIATION:
+POLITICAL AFFILIATION:
 
 He is currently a central committee member of the Partido Guatemalteco del Trabajo (PGT - Guatemalan Communist Party) (2, 7, 10). (COMMENT: As early as 1953, he was reported as being possibly a central committee-member of the PGT (3). As of 6 April 1954, he was serving as the PGT liaison with the printers' cell of the PGT (11). As of 9 May 1954, he was Chief of the Department Committee of the PGT for the Department of Guatemala (10). Soretime prior to 13 September 1954, he was named Secretary of the PGT Political Commission for Workers and Peasants (10).
 

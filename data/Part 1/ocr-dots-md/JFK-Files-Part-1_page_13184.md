@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13184.png
-
-Convert to Markdown1A U.S.C. Sect. 763 and 794, the transmission or revolution of which in any manner to be identified
+1A U.S.C. Sect. 763 and 794, the transmission or revolution of which in any manner to be identified
 
 NO FOREIGN DISSEM
 

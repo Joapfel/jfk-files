@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10212.png
-
-Convert to Markdown5 December, 1968,
+5 December, 1968,
 
 <table>
    <tr>

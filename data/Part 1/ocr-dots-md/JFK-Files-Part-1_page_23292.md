@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23292.png
-
-Convert to Markdown22 May 1957
+22 May 1957
 
 **TO:** Colonel J. Caldwell King,
 Chief, WH Division

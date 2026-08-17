@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30881.png
-
-Convert to Markdown3. Subject may also continue his enrollment under his health benefits plan. Premiums will continue at the same rate as that for employees and will be withheld from his monthly annuity payments.
+3. Subject may also continue his enrollment under his health benefits plan. Premiums will continue at the same rate as that for employees and will be withheld from his monthly annuity payments.
 
 4. Under the provisions of 17 U.S.C. 20-1 (c)(2) Subject's prospective retirement precludes him from becoming eligible for home leave upon completion of his present tour.
 

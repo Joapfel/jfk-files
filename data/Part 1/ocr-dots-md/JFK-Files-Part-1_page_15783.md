@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15783.png
-
-Convert to Markdown12.05.67
+12.05.67
 
 1 June 1949
 

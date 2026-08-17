@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35400.png
-
-Convert to Markdown# CEN
+# CEN
 
 ## -13-
 

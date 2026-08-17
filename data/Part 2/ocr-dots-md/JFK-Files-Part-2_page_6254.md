@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6254.png
-
-Convert to Markdown- Privacy
+- Privacy
 
 - Duplicates
 

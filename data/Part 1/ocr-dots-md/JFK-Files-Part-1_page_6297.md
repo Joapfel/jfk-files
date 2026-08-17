@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6297.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WIL/COG # 67-234
 

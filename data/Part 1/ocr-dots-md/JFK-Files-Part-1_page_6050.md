@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6050.png
-
-Convert to Markdown# Bombardero a Cuba fue militarmente premeditado - dicen jóvenes cubanos
+# Bombardero a Cuba fue militarmente premeditado - dicen jóvenes cubanos
 
 300 mil son los exilados que luckan por liberar a Cuba de rojos
 

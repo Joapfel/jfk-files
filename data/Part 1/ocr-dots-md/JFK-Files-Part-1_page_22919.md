@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22919.png
-
-Convert to MarkdownC-82712 Case in -law of Subject
+C-82712 Case in -law of Subject
 
 C-82713 Wife of Subject
 

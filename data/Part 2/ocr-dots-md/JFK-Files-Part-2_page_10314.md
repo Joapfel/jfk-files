@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10314.png
-
-Convert to Markdown- NPIC has examined domestic coverage for special purposes such as natural catastrophies and civil disturbances.
+- NPIC has examined domestic coverage for special purposes such as natural catastrophies and civil disturbances.
 
 - OCI, in 1967 and 1968, prepared intelligence memoranda on possible foreign connections with the US anti-war movement and world-wide student dissidence (including the SDS) at the request of the White House.
 

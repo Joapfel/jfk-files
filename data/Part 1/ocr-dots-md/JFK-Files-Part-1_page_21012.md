@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21012.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td colspan="4">SIGNAL CENTER USE ONLY</td></tr><tr><td>TO</td><td>FROM</td><td>CPI</td><td>AEP</td><td>TOG</td><td>FROM</td></tr><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></table>
 

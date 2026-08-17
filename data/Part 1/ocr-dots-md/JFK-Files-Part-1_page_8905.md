@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8905.png
-
-Convert to Markdown<table><tr><td>27</td><td style="text-align:center;">SECRET</td></tr></table>
+<table><tr><td>27</td><td style="text-align:center;">SECRET</td></tr></table>
 
 <table><thead><tr><th colspan="2">ASSIFIED MESSAGE</th></tr><tr><th>1</th><th>2</th><th>3</th></tr></thead><tbody><tr><td>4</td><td></td><td></td></tr><tr><td></td><td>5</td><td></td></tr><tr><td></td><td></td><td>6</td></tr></tbody></table>
 

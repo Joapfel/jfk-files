@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33649.png
-
-Convert to Markdowncc: Mr. Jackson
+cc: Mr. Jackson
 Mr. Lang
 
 EXCEPT FOR LITIGATION DUE FEBRUARY 21, 1952, BY JOY SPENCER

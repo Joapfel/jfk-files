@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19560.png
-
-Convert to MarkdownHOW TO PROTECT YOURSELF FROM
+HOW TO PROTECT YOURSELF FROM
 WAGE GARNISHMENTS
 
 1. GET A LAWYER IMMEDIATELY if your wages are garnished.

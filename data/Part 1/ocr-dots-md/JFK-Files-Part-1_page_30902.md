@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30902.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # BICGRAPHIC PROFILE (PART I) SCD: ?
 

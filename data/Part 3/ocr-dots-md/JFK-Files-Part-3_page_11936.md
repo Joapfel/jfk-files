@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11936.png
-
-Convert to Markdownthe arrest of four other of his associates enabled us to
+the arrest of four other of his associates enabled us to
 obtain possession of documents apparently relating to the BPP
 underground and should give us knowledge concerning it and the
 possible identities of others involved in this underground

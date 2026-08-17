@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25984.png
-
-Convert to Markdownof getting the people most concerned with
+of getting the people most concerned with
 something I could operate for the
 president, and having them get together and
 help form the policy, get the president's

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4561.png
-
-Convert to Markdownto prepare for me by no later than noon Monday the simplest,
+to prepare for me by no later than noon Monday the simplest,
 most concise, directive along the foregoing lines.
 
 Marshall S. Carter

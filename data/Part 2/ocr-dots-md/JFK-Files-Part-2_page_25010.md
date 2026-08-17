@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25010.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 operation. This ended consideration of this subject. With
 this one exception I never heard any discussion of assassina-

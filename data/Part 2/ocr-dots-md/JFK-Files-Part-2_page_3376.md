@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3376.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 32. Note to Mr. Barnes from Richard Helms, 8 Mar 60,
     sub: [Revision of 8 Mar 60 paper for 5412 Group]. S.

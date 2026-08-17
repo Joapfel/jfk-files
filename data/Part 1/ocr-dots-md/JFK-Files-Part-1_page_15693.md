@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15693.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">ASSIGNED ADDRESS</th></tr></thead><tbody><tr><td>DATE : 18 NOV .60</td><td>SECRET</td></tr><tr><td>TO : DIRECTOR</td><td>L-JEFFY</td></tr><tr><td>FROM : FRANKFURT</td><td>D. Moscovich has ac-<br/>tcd</td></tr><tr><td>ACTION : C/AF 3</td><td></td></tr><tr><td>INFO : COP, C/CI, C/FI 2, C/TSD 2, C/EE 3, S/C 2<br/>per GSN 43-49</td><td>STC</td></tr><tr><td colspan="2">PRITY DIR INFO FRAN LEOP CITE FRO3 8225</td></tr><tr><td colspan="2">RYBAT ZIBET (WIROGUE) CATARSI</td></tr><tr><td>REF DIR 11912 Oct 9.30.09</td><td>UNCLASSIFIED per GSN 43-43</td></tr></tbody></table>
 

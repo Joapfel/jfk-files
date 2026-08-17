@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27607.png
-
-Convert to Markdown-2-
+-2-
 
 ## Resume - Lillian B. Johnson Cont'd
 

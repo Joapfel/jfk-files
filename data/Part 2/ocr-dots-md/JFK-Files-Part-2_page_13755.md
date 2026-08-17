@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13755.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 
 Re: UNITED STATES SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 

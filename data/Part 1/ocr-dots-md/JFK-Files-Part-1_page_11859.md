@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11859.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 # Operational Areas Exposed
 

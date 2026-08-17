@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30149.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 SEC. XIV. MILITARY STATUS

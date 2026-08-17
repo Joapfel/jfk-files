@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9078.png
-
-Convert to MarkdownSECRET
+SECRET
 
 echelons to a notification that TICHBORN will be in Venezuela. As of 9 January, there had been no response by COS/Caracas.
 

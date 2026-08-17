@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3131.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 This frame of reference concerning Guantanamo Bay led the Executive Officer of WH/4, Ed Stanulis, to prepare an extremely sharp memorandum for Chief, Western Hemisphere Division raising some questions which are as pertinent to CIA today as they were when they were raised in 1960. Stanulis wrote as follows:
 

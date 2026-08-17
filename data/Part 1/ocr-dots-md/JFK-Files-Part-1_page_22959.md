@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22959.png
-
-Convert to MarkdownSec. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
+Sec. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
 
 <table>
    <thead>

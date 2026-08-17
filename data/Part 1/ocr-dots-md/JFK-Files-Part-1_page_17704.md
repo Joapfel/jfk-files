@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17704.png
-
 case operator duties with those of processing.)
 
 Total personnel, part or full time on project: 37.

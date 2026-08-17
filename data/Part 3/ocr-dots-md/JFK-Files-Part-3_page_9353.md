@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9353.png
-
-Convert to Markdown# Black Panther Party
+# Black Panther Party
 
 MARCH 1971
 

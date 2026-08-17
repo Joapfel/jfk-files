@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21343.png
-
-Convert to Markdownthe impression that he does not know really where their base was).
+the impression that he does not know really where their base was).
 
 50.7.42.
 

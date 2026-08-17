@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23555.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 MEMORANDUM FOR: Special Deputy, WH

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27066.png
-
-Convert to Markdownthreat to the continental US." The memorandum concluded that introduction of any missiles "will have a substantial political and psychological impact, while surface-to-surface missiles would create a condition of great alarm."
+threat to the continental US." The memorandum concluded that introduction of any missiles "will have a substantial political and psychological impact, while surface-to-surface missiles would create a condition of great alarm."
 
 15. In a memorandum of 27 August, General Carter reported to Mr. Bundy what actions CIA was taking in response to NSAM 181. He named the officers responsible for the three items mentioned above and listed the following additional measures:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21434.png
-
-Convert to MarkdownSAC, Chicago (100-41353)
+SAC, Chicago (100-41353)
 
 Director, FBI (100-442715)
 

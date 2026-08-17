@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13152.png
-
-Convert to Markdown(continued)
+(continued)
 
 operating from Paul's Barber Shop, Palms Plaza, 16772 South Dixie Highway, Perrine, Florida. This involved barbers Lestegas and Pablo Emilio Moncada Luna, subject of Bureau file # 105-136705, who were alleged to have mentioned tentative plans to assassinate Artime, Eloy Gutierrez Menoyo and Pedro Diaz Lanz. (See 105-136704-1).
 

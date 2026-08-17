@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2470.png
-
-Convert to MarkdownWFO 65-8300
+WFO 65-8300
 
 (4) If material in English requires action or investigation involving more than a check of office records, a separate memorandum shall be dictated promptly setting forth the pertinent facts and requesting that a new case be opened. A copy of this memorandum, title of which will be based on the item processed, shall be designated for the Sub B section of this file. Concurrently, an appropriate notation shall appear on the memorandum in the Sub A initially recording receipt of the item. The title (SAM SURVEY) shall appear after the subject name in each case.
 

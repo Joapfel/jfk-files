@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5434.png
-
-Convert to MarkdownSUBJECT: Proposal for Dealing with Employees' Names
+SUBJECT: Proposal for Dealing with Employees' Names
 
 within the documentation when requesting continued protection of
 the name.

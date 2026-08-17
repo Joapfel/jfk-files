@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8050.png
-
-Convert to Markdown13-00000
+13-00000
 
 Johnson, L.B. "President's Proclamation, June 6, 1968." *Vital Speeches*, 15 June 1968.
 "Johnson takes oath as nation mourns Kennedy." *Senior Scholastic*, 6 December 1963, p.

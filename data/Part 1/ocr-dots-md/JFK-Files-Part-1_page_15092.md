@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15092.png
-
-Convert to Markdown-9-
+-9-
 
 1941 - 1946
 Army Service

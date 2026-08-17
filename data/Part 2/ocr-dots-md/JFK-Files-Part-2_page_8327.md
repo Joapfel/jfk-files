@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8327.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 March 1951
 

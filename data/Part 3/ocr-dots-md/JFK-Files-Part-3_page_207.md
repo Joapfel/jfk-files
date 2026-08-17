@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_207.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 On May 2, 1962, the Cleveland Office alerted the Ohio Savings Bank to the fact that Jack Kling, Chicago editor of the Jewish-language communist newspaper, "Morning Freiheit," was to speak at the bank's auditorium on May 4, 1962.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6592.png
-
-Convert to MarkdownESE NR16 ROUTINE 1117452
+ESE NR16 ROUTINE 1117452
 
 CONF 88A
 

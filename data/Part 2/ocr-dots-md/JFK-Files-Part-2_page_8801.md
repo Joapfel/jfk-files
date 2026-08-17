@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8801.png
-
-Convert to MarkdownAt a meeting 20 Aug 1963 members of the group decided to report SIERRA's irregularities to the group's financiers in Chicago. Calls were made to Chicago to VANDERBUILT (fnu) and Dillon BRADEN.
+At a meeting 20 Aug 1963 members of the group decided to report SIERRA's irregularities to the group's financiers in Chicago. Calls were made to Chicago to VANDERBUILT (fnu) and Dillon BRADEN.
 
 WAVE 8562 (IN 74653) dated 5 Dec 1963 (Box 29)
 

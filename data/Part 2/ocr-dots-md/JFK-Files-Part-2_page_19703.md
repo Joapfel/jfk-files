@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19703.png
-
-Convert to MarkdownNY 100-176760
+NY 100-176760
 
 LEAD
 

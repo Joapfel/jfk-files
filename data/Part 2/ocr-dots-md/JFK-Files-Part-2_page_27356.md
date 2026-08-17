@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27356.png
-
-Convert to MarkdownA - Ltr from Knoche to Gray - 21 Apr 75 SECRET SENSITIVE
+A - Ltr from Knoche to Gray - 21 Apr 75 SECRET SENSITIVE
 
 B - CIA Relationship w/Robert A. Maheu SECRET
 

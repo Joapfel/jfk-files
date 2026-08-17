@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21590.png
-
-Convert to Markdown# INTERVIEW AND MEETING SUMMARY
+# INTERVIEW AND MEETING SUMMARY
 
 SECRET
 

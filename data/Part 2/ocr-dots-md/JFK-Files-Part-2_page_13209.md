@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13209.png
-
-Convert to Markdown<table><tr><td></td></tr></table>
+<table><tr><td></td></tr></table>
 
 FBI
 

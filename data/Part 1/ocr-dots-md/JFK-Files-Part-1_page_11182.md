@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11182.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 21
 
 <table><tr><td>ORIG:</td><td>Jack Stewart</td><td>☐ FILE RID</td></tr><tr><td>UNIT:</td><td>WH/1</td><td>☐ INDEX</td></tr><tr><td>END:</td><td>3654</td><td>☐ NO INDEX</td></tr><tr><td>DATE:</td><td colspan="2">9 September 1966 ☐ FILE IN CS FILE NO.</td></tr></table>

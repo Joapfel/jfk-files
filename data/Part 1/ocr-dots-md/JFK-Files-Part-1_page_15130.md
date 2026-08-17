@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15130.png
-
-Convert to Markdown-12-
+-12-
 
 Karte)oder dauernde Befreiung vom Militärdienst.
 

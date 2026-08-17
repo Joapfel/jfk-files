@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3966.png
-
-Convert to Markdown1 May - $ 50,000 Mustering out payments for approx. 100 men and final contractual obligations of project
+1 May - $ 50,000 Mustering out payments for approx. 100 men and final contractual obligations of project
 
 $ 50,000
 

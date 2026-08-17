@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24291.png
-
-Convert to Markdown**OTHER SECURITY AND COVER SITUATIONS:** The past allegations of Q/1's affiliation with JKLANCE, many pre-dating his actual recruitment, add an extra dimension to Q/1's cover situation. We have no indication that any of these allegations are based on any proof, nor have they produced a significant reduction in his number of contacts.
+**OTHER SECURITY AND COVER SITUATIONS:** The past allegations of Q/1's affiliation with JKLANCE, many pre-dating his actual recruitment, add an extra dimension to Q/1's cover situation. We have no indication that any of these allegations are based on any proof, nor have they produced a significant reduction in his number of contacts.
 
 **ABILITY TO WORK WITHOUT SUPERVISION:** Q/1 is a self-starter and can work well for extended periods without supervision.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27282.png
-
-Convert to Markdown- Memo for Mr. Gray from Tim Hardy - Undated
+- Memo for Mr. Gray from Tim Hardy - Undated
 
 B - Ltr from Knoche to Roethe - 11 Mar 75
 

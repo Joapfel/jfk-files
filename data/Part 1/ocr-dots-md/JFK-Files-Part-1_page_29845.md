@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29845.png
-
-Convert to Markdown2430 E Street, N.W.
+2430 E Street, N.W.
 Washington, D. C.
 8 April 1973
 

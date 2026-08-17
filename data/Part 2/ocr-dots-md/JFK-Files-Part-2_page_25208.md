@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25208.png
-
-Convert to Markdown# PERSONS/ENTITIES:
+# PERSONS/ENTITIES:
 
 JON
 Conein

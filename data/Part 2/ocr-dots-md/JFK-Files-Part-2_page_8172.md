@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8172.png
-
-Convert to Markdown13-00000
+13-00000
 
 HERewith ATTACHMENT TO: OEPA-1097
 

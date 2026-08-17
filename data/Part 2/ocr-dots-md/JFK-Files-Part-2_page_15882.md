@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15882.png
-
-Convert to MarkdownAnderson, Blair
+Anderson, Blair
 
 Arrested: 12/4/69
 Charge: Attempted Murder

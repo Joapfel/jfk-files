@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23837.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Committee, talked about how they are beginning to -- drawing a way to work in the proprietaries so that they can both identify them and indicate their cash flow implications for the budget, and in effect --
   

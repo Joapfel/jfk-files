@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8763.png
-
-Convert to MarkdownUNION
+UNION
 DES RÉPUBLIQUES
 SOVIÉTIQUES SOCIALISTES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13418.png
-
-Convert to Markdownamt 19
+amt 19
 
 Phone (Area 202) 544-6000
 

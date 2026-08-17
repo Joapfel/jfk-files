@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22387.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A This is what I was trying to think of.
 

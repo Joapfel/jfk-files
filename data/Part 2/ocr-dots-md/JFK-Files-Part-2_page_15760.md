@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15760.png
-
-Convert to MarkdownFAYE:
+FAYE:
 
 deform individuals so the people cannot get
 the right information that's necessary for

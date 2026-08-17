@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9727.png
-
-Convert to MarkdownThe National revolutionary Primary Army is the militant underground faction of an already resistant Government who is ready and capable of seizing immediate power in the United States at the very moment the N.R.A. is successful, in eliminating the enemy aliens now in Power.
+The National revolutionary Primary Army is the militant underground faction of an already resistant Government who is ready and capable of seizing immediate power in the United States at the very moment the N.R.A. is successful, in eliminating the enemy aliens now in Power.
 
 The N.R.A. pledges destruction of the existant government of
 the United States and a full return to a truly represented

@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_13055.png
-
 . LEVISION stated that in the past LEVISION had not considered it wise for O'DELL to take on such a position, but he is the only one who could do the job and should be considered for it. LEVISION stated as long as O'DELL did not have the title of Executive Director, there would not be "as much lightening flashing around him". O'DELL could be called a coordinator and still fulfill all the duties of Executive Director.
 
 ELSUR

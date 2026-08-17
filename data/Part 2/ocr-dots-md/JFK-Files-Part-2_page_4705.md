@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4705.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: And make it more gradual.
 

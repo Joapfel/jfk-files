@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16471.png
-
-Convert to Markdowncomes destructive to these ends, it is the right of the people to alter or to abolish it, and to institute a new government, laying its foundations on such principles and organizing its powers in such forms as to them shall seem most likely to effect their safety and happiness.
+comes destructive to these ends, it is the right of the people to alter or to abolish it, and to institute a new government, laying its foundations on such principles and organizing its powers in such forms as to them shall seem most likely to effect their safety and happiness.
 
 Now these same colonized white people, these ex-slaves, robbers, and thieves, have denied the colonized black man the right to even speak of abolishing this oppressive system which the white colonized American created. They have carried their madness to the four corners of the earth, and now there is universal rebellion against their continued rule and power. The Black people in America are the only people who can free the world, loosen the yoke of colonialism and destroy the war machine. As long as the wheels of the imperialistic war machine are turning there is no country that can defeat this monster of the West. But Black people can make a malfunction of this machine from within. Black people can destroy the machinery that's enslaving the world. America cannot stand to fight every Black country in the world and fight a civil war at the same time. It is militarily impossible to do both of these things at once.
 

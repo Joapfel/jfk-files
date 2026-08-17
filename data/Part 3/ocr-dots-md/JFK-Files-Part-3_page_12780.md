@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12780.png
-
-Convert to Markdown# EXPELLED
+# EXPELLED
 
 So let this be heard throughout the many times he has been warned black community, of Atlantic City, by his comrades, about his work, New Jersey. That Leonard Weeks and about his duty to the people's is no longer a servant of the peo- children. He deserted the children of the black community, there were fast coordinator for this community days he would not attend the break-
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13168.png
-
-Convert to Markdown14-00000
+14-00000
 
 CO-OP: C521
 DATE: 13 MAY 1968

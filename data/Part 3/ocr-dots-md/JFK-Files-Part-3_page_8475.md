@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8475.png
-
-Convert to MarkdownMEMORANDUM OF UNDERSTANDING
+MEMORANDUM OF UNDERSTANDING
 
 Subject: Procedures for Determining Eligibility for Access
 to Classified Information or Material on the Part

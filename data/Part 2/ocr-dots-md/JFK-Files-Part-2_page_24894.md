@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24894.png
-
-Convert to Markdownexplicit authorization from the highest level. The command and control system revealed by the record made it possible for the CIA to have engaged in assassination activities without express authorization by officials outside the Agency.
+explicit authorization from the highest level. The command and control system revealed by the record made it possible for the CIA to have engaged in assassination activities without express authorization by officials outside the Agency.
 
 The ambiguity and imprecision in the record illustrates the dangers of a "plausible denial" system in which the precise level of authorization may be difficult to ascertain. While there is no evidence that the "plausible denial" system has succeeded in shielding decision makers in the cases considered in this report, the possibility that a system exists which might permit those responsible for authorizing major operations to escape responsibility is disturbing. Responsible government requires that public officials be held accountable for their decisions.
 

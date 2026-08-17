@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27129.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 1949 report is infused with an understanding of problems and principles that have remained much the same for the past quarter of a century. The following two brief quotations are illustrative: " ... We ... propose that the branches of the Central Intelligence Agency which are directly engaged in clandestine activities, such as secret intelligence [espionage], counterintelligence, secret operations and the like, be given a great measure of autonomy as to internal administration, the control of their operations and the selection of personnel." The report also stated, "It seems apparent that the present counterespionage staff of the Office of Special Operations should be materially strengthened and more intensive counterespionage work promoted."
 

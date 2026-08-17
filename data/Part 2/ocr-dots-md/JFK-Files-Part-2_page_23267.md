@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23267.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 given a little thing for a watch chain, if I had one,
 which would be a member of the Congo Club, and it was rather

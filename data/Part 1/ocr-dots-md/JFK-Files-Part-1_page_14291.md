@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14291.png
-
-Convert to Markdown<table><thead><tr><th>ACTION</th><th>[x] MC COPY</th><th>ADVANCE COPY [ ]</th><th>UNIT</th><th>TIME [ ]</th><th>BY [ ]</th></tr></thead><tbody><tr><td>FILE, VE, DDP, c/EI, C/EUR2, CHUIN5, CHUN2, C/HEL4</td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th>ACTION</th><th>[x] MC COPY</th><th>ADVANCE COPY [ ]</th><th>UNIT</th><th>TIME [ ]</th><th>BY [ ]</th></tr></thead><tbody><tr><td>FILE, VE, DDP, c/EI, C/EUR2, CHUIN5, CHUN2, C/HEL4</td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 
 SECRET 0610542 CIIE: MADRID 3303
 DIRECTOR INFO PARIS, JMWAVE, MEXICO CITY

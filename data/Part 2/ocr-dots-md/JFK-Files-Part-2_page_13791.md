@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13791.png
-
-Convert to Markdown## B. Surreptitious Entry
+## B. Surreptitious Entry
 
 The purpose of this inquiry is to determine the extent to which the FBI has used surreptitious entry as an intelligence technique, either through its own operations or through operations by other agencies and individuals. This case may involve allegations of abuse and controversial matters where there is reason to believe improprieties may have occurred.
 

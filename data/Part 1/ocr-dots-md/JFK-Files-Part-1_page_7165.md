@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7165.png
-
-Convert to Markdown2.
+2.
 
 But he also knew that you have friends among the French officials in the French Office and wanted Subj to find out the reaction of these officials to:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18390.png
-
-Convert to Markdown| Name | Date of Request |
+| Name | Date of Request |
 | :--- | :--- |
 | Charles Clark Kissinger, Jr. | 5/31/68 |
 | Carl Preston Oglesby, Jr. | 5/31/68 |

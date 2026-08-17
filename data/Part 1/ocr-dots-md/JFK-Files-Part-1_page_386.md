@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_386.png
-
-Convert to Markdown14-00000
+14-00000
 
 D. Peter M. Slobogin (Retired)*
 Mystic Ave

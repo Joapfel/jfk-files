@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20935.png
-
-Convert to MarkdownCI 100-20519
+CI 100-20519
 
 1971 Ohio license plate J3862 is registered to the Colonial Stores, Incorporated, 1033 Brentnell Avenue, Columbus, Ohio, on a 1969 Chevrolet Station Wagon bearing VIN 131359K376355.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7221.png
-
-Convert to Markdownflatly, as I have already, that CIA conducted a "massive
+flatly, as I have already, that CIA conducted a "massive
 illegal domestic intelligence operation."
 
 I have also submitted for the record a number of annexes

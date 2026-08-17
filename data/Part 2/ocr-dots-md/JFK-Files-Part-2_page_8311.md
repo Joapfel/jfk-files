@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8311.png
-
-Convert to MarkdownSECURITY : CONFIDENTIAL
+SECURITY : CONFIDENTIAL
 
 6 ATHENS 588
 

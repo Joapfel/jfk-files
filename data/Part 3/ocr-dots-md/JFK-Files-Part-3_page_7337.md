@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7337.png
-
-Convert to MarkdownCompartmented
+Compartmented
 Clearance
 Designated Briefed
 

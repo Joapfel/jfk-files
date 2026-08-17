@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19239.png
-
-Convert to Markdownsuch care and attention as you receipt, is a result of your participation in such program. You will be returned to this organization. Whether participation in a particular cover plan or program is involuntary will be determined by this organization.
+such care and attention as you receipt, is a result of your participation in such program. You will be returned to this organization. Whether participation in a particular cover plan or program is involuntary will be determined by this organization.
 
 2. **Non-official Cover Premium Pay.** You are hereby authorized Non-official Cover Premium Pay in accordance with applicable organizational issuances. For your information, currently this premium pay is ten per cent of your base salary plusتك. In addition, taxable compensation to you and all other covered individuals may be allocated under the system.
 

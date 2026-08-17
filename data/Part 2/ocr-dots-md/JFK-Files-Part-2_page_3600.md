@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3600.png
-
-Convert to Markdownf. All Soviet weapons intro-
+f. All Soviet weapons intro-
 duced into Cuba last year have been
 withdrawn or turned over to the
 Cubans. The only significant excep-

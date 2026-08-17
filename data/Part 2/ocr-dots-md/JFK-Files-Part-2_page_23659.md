@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23659.png
-
-Convert to Markdownwhile before stepping out to the question of whether he can really adequately perform and wear both hats.
+while before stepping out to the question of whether he can really adequately perform and wear both hats.
 
 Those are essentially, I think, the arguments. If there are others that ought to be offered in explanation of the choice
 

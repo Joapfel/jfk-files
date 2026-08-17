@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28091.png
-
-Convert to MarkdownMay 3, 1977
+May 3, 1977
 
 Mr. Al Lewis
 Acting Staff Director

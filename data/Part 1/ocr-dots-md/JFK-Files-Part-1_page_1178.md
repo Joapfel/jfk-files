@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1178.png
-
-Convert to MarkdownRolando Arcadio MASFERRER Rojas (201-42669)
+Rolando Arcadio MASFERRER Rojas (201-42669)
 
 Former Cuban senator and self-admitted former Communist. Quite active during early 60's in various anti-Castro activities in U.S. Recently served four and one-half year prison sentence received U.S. District Court for violation of U.S. neutrality laws.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15634.png
-
-Convert to MarkdownOn October 9, 1969, a rally of the Revolutionary Youth Movement of SDS was held at the Federal Building Plaza, Chicago, Illinois, and the remarks of FRED HAMPTON, Deputy Chairman, Illinois BPP, were obtained by SAs SHERROD LEE MC DANIEL and CRISPIN L. SMITH.
+On October 9, 1969, a rally of the Revolutionary Youth Movement of SDS was held at the Federal Building Plaza, Chicago, Illinois, and the remarks of FRED HAMPTON, Deputy Chairman, Illinois BPP, were obtained by SAs SHERROD LEE MC DANIEL and CRISPIN L. SMITH.
 
 HAMPTON's remarks are set forth as follows:
 

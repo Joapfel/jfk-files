@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12502.png
-
-Convert to Markdowne. Do not defer recommendation for ADEX because subject is missing, temporarily out of the country, or in prison.
+e. Do not defer recommendation for ADEX because subject is missing, temporarily out of the country, or in prison.
 
 f. If FBIHQ approves recommendation, ADEX cards will be prepared including two copies for field. Copy of FD-122 will be returned stamped "ADEX card approved, copies attached." Check cards for accuracy. Place one in alphabetical section of field office ADEX and other in either geographical section or unavailable section.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19055.png
-
-Convert to Markdown# Anlage IV, Contrat. Geb. 18.2.1917 in Prettin,
+# Anlage IV, Contrat. Geb. 18.2.1917 in Prettin,
 Wohnschaft: Landenburg, in der Techt 1
 Beruf: Hausfrau
 

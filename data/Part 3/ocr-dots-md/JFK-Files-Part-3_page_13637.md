@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13637.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Johnston. The CIA's plans for using him.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24971.png
-
-Convert to Markdowngovernment service. I do not recall whether I ever heard of the CIA adopting any assassination plan; nor do I recall whether I ever heard the President make a statement that could be construed as an order for the assassination of Patrice Lumumba.
+government service. I do not recall whether I ever heard of the CIA adopting any assassination plan; nor do I recall whether I ever heard the President make a statement that could be construed as an order for the assassination of Patrice Lumumba.
 
 3. It is my opinion as a former member of the Special Group and as a participant in the meeting of August 25, 1960 that the following language from the Memorandum for the Record is broad enough to cover a discussion of assassination:
 

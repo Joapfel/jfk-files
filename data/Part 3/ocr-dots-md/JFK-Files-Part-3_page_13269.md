@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13269.png
-
-Convert to MarkdownMEMORANDUM FOR THE RECORD
+MEMORANDUM FOR THE RECORD
 
 SUBJECT: Review of Personal Papers of Mr. Dulles
 

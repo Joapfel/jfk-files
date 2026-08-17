@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16081.png
-
-Convert to Markdown# BLAIR ANDERSON
+# BLAIR ANDERSON
 
 Anderson is to be bailed out of jail per instructions of the BPP lawyers. However, ANDERSON will not be allowed to be reinstated as a BPP member.
 

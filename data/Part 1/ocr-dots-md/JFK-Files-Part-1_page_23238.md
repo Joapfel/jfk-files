@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23238.png
-
-Convert to Markdown4 April 1958
+4 April 1958
 
 MEMORANDUM FOR: Chief of Operations, DD/P
 VIA : CCOB/NC

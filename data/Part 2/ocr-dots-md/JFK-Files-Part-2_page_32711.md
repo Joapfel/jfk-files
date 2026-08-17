@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32711.png
-
-Convert to Markdownin the Western Hemisphere by having these offensive missiles dismantled and withdrawn. The United Kingdom fully supported the U.S. resolution before the Council.
+in the Western Hemisphere by having these offensive missiles dismantled and withdrawn. The United Kingdom fully supported the U.S. resolution before the Council.
 
 The Representative of Romania, Mr. Malitza, supported the Soviet position.
 

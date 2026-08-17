@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8058.png
-
-Convert to Markdownquestioning elsewhere than in the Senate, with respect to the events occur-
+questioning elsewhere than in the Senate, with respect to the events occur-
 ring at the Subcommittee hearing at which the Pentagon Papers were intro-
 duced into the public record. The court stated: ".../T/o us this claim is
 incontrovertible." (At p. 615.)

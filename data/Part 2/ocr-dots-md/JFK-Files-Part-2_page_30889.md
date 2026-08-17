@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30889.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Betsy Palmer
 May 1, 1978

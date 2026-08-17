@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2354.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Puerto Rican Independence Movement (Movimiento Pro-Independencia de Puerto Rico - MPIPR) a message from the Central Committee of the Communist Party of Cuba (CPC). The message expressed CPC solidarity with and support of the MPIPR in the latter's struggle for independence. Cuban support has included guerrilla training for some leaders of current violence in Puerto Rico.
 

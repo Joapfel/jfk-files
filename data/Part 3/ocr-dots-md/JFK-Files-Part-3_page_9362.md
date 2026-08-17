@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9362.png
-
-Convert to Markdown# III. RISE OF BLACK PANTHER PARTY
+# III. RISE OF BLACK PANTHER PARTY
 
 Proclaiming a legal right to bear arms, the Panthers by early 1967 had begun to appear in public wearing black leather jackets and black berets, openly carrying shotguns, rifles, or pistols, and shouldering bandoliers of ammunition.
 

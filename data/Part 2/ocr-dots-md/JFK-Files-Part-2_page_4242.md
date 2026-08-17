@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4242.png
-
-Convert to Markdownhad been reached and that attribution of U.S. support would be inferred but there should be no evidence of proof. Mr. FitzGerald indicated that this was operationally feasible.
+had been reached and that attribution of U.S. support would be inferred but there should be no evidence of proof. Mr. FitzGerald indicated that this was operationally feasible.
 
 ## 3. Zanzibar - Proposed Political Action
 

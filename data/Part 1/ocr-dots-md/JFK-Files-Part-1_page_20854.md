@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20854.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STAFF AGENT LETTER OF APPOINTMENT
 

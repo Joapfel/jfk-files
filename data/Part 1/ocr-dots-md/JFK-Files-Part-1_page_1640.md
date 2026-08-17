@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1640.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 Page Four
 \#210 838

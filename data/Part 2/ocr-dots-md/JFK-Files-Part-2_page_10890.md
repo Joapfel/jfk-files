@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10890.png
-
-Convert to MarkdownNOVEMBER 27, 1973
+NOVEMBER 27, 1973
 REVISION 258
 
 RE: REVISED PAGES

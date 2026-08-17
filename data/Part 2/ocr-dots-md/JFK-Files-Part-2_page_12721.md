@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12721.png
-
-Convert to MarkdownIII. Sex
+III. Sex
    Male M
    Female F
 

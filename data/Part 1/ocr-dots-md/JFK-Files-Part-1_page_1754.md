@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1754.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>6. SPECIAL REMARKS, IF ANY, CONCERNING RELATIVES NOTED IN SECTION XIX ABOVE</td>

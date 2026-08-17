@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26859.png
-
-Convert to Markdown110 First Street, S.E., Washington, D.C. 20003
+110 First Street, S.E., Washington, D.C. 20003
 
 By MR. MANFREDI:
 

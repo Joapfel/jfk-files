@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35355.png
-
-Convert to Markdown# VILLAGE COUNCIL
+# VILLAGE COUNCIL
 
 Dated: December 23, 1961
 

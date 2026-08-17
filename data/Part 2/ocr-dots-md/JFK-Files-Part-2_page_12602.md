@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12602.png
-
-Convert to Markdown(b) Subjects out of country
+(b) Subjects out of country
 Place cards for subjects who have departed from U. S. or Puerto Rico for foreign country in this subsection, unless they should be canceled in accordance with instructions below under permanent departure.
 
 Investigation of subject not yet included in ADEX may be in progress at time subject departs for foreign country. If facts otherwise warrant, submit FD-122 recommending inclusion in unavailable section.

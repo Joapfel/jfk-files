@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11354.png
-
-Convert to Markdown(3) Criteria for placing and retaining names in the security index
+(3) Criteria for placing and retaining names in the security index
 
 (a) The addition to and retention of names in the security index shall be governed by the following criteria:
 

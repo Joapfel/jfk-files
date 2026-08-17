@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16990.png
-
-Convert to Markdownleaders, unknown alleged community and Illinois government leaders, as well as BPP lawyers, feel the bullet holes in walls at 2337 West Monroe, do not back police story of shooting on 12/5/69. The BPP lawyers allegedly dug bullets from the walls.
+leaders, unknown alleged community and Illinois government leaders, as well as BPP lawyers, feel the bullet holes in walls at 2337 West Monroe, do not back police story of shooting on 12/5/69. The BPP lawyers allegedly dug bullets from the walls.
 
 HOWARD ALK, FRED HAMPTON, BPP
 

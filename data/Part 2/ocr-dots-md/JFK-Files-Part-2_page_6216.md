@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6216.png
-
-Convert to Markdown# Types of Questions for DA Records Briefing
+# Types of Questions for DA Records Briefing
 
 March 17, 1997
 

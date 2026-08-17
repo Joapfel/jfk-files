@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2359.png
-
-Convert to Markdown6. In the event the Employee desires to resign from the service overseas, he shall submit a written resignation addressed to the ADSO, who will take appropriate steps to clear the matter with the Department of State.
+6. In the event the Employee desires to resign from the service overseas, he shall submit a written resignation addressed to the ADSO, who will take appropriate steps to clear the matter with the Department of State.
 
 ARTICLE XII. Security. This contract contains information affecting the national defense of the United States within the meaning of the Espionage Act (50 U.S.C. 31 and 32, as amended). Its transmission or the revelation of its contents in any manner to an unauthorized person is prohibited by law. Violation of this ARTICLE or any security agreement signed by the Employee with the Government shall result in immediate disciplinary action, which may include suspension, separation from Government service, and may subject the Employee to criminal prosecution under the Espion- age Act.
 

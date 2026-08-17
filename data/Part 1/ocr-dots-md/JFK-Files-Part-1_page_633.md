@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_633.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CROFILMED</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15729.png
-
-Convert to MarkdownDocument entitled, "Rectify the Party's Style of Work."
+Document entitled, "Rectify the Party's Style of Work."
 
 Document entitled, "We Demand Community Control of Police."
 

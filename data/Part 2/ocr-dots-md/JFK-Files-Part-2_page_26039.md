@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26039.png
-
-Convert to Markdownan unusually well-run American military
+an unusually well-run American military
 operation. There were some unusual things
 being done that made it so. One of them
 was one of the best ideas I've ever bumped

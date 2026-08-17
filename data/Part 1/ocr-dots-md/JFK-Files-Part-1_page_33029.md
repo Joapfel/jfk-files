@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33029.png
-
-Convert to Markdown# BIOGRAPHIC PROFILE AMCHALK-5 aka AMSTALK-1, AMICE-14
+# BIOGRAPHIC PROFILE AMCHALK-5 aka AMSTALK-1, AMICE-14
 
 **NAME**: Miguel Angel DIAZ Isalque 201-307337
 **DPOB**: 14 Feb 1937, Matanzas City, Cuba

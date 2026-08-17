@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3380.png
-
-Convert to MarkdownUNITED STATES SENATE
+UNITED STATES SENATE
 
 COMMITTEE ON FINANCE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7059.png
-
-Convert to Markdown13-00000
+13-00000
 
 **b. CIA's Lee Harvey Oswald "201" file.**
 

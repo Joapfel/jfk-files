@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27154.png
-
-Convert to MarkdownSECURITY APPROVAL
+SECURITY APPROVAL
 
 DATE : 26 June 1973
 

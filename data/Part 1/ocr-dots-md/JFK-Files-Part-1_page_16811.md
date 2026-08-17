@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16811.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>ORIG:</td><td>[Table: CONFIDENTIAL]</td></tr><tr><td>UNIT:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr><tr><td colspan="2">ROUTING<br><table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>TO:</td><td></td></tr><tr><td>FROM:</td><td>DIRECTOR</td></tr><tr><td>CONF:</td><td></td></tr><tr><td>INFO:</td><td>-2-</td></tr></table>
+<table><tr><td colspan="2">CLASSIFIED MESSAGE</td></tr><tr><td>ORIG:</td><td>[Table: CONFIDENTIAL]</td></tr><tr><td>UNIT:</td><td></td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td></td></tr><tr><td colspan="2">ROUTING<br><table><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></tbody></table></td></tr><tr><td>TO:</td><td></td></tr><tr><td>FROM:</td><td>DIRECTOR</td></tr><tr><td>CONF:</td><td></td></tr><tr><td>INFO:</td><td>-2-</td></tr></table>
 
 <table><tr><td>CITE DIR</td><td>35-57</td></tr><tr><td>TO</td><td>NOT CONFRONT US WITH SIMULTANEOUS CHALLENGES IN BOTH CUBAN AND BERLIN.</td></tr><tr><td>INFO</td><td>IT SUGGESTS THAT LEADERS INTEND TO POSTPONE FURTHER SERIOUS BERLIN TALKS UNTIL LATE THIS MA YEAR OR EARLY NEXT YEAR, TO GIVE THEMSELVES TIME TO ADE ASSESS IMPACT ON WESTERN POSIT OF PROPAGANDA ATTACKS ON US "AGGRESSIVE ACTIONS" IN UN AND OF MANEUVERS TO INVOLVE UN IN BERLIN SETTLEMENT.</td></tr></table>
 

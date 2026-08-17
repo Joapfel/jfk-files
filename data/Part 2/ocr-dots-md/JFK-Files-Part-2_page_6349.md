@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6349.png
-
-Convert to MarkdownIn the letter to David, I would add at the end of the third paragraph:
+In the letter to David, I would add at the end of the third paragraph:
 
 "Our Office of General Counsel provided some legal comments on the scope of the definition that we've included in the attached."
 

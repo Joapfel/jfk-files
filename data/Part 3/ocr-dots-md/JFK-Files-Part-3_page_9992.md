@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9992.png
-
-Convert to MarkdownUNITED STATES DEPARTMENT
+UNITED STATES DEPARTMENT
 Memorandum
 
 TO : Mr. J. B. Adams

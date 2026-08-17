@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28306.png
-
-Convert to Markdown<table><tr><td>Form 9-61</td><td>560</td></tr></table>
+<table><tr><td>Form 9-61</td><td>560</td></tr></table>
 
 Complete Previous Edition
 

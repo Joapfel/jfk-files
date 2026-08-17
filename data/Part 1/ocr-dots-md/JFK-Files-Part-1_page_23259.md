@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23259.png
-
-Convert to Markdown5465 01-96.03D
+5465 01-96.03D
 
 CLASSIFIED MESSAGE
 

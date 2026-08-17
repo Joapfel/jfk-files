@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10174.png
-
-Convert to Markdown<table><tr><td>DATE : 28 DEC 62</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: TFW 10</td></tr><tr><td>INFO : DDP, CA 2, CA/PEG, CA/O 4, CI, CI/OPS, CI/IC 2, FI, FI/INT 2, WH 7, S/C 2</td></tr></table>
+<table><tr><td>DATE : 28 DEC 62</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: TFW 10</td></tr><tr><td>INFO : DDP, CA 2, CA/PEG, CA/O 4, CI, CI/OPS, CI/IC 2, FI, FI/INT 2, WH 7, S/C 2</td></tr></table>
 
 CLASSIFIED MESSAGE
 

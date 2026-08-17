@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2509.png
-
-Convert to MarkdownSECRET
+SECRET
 
 $2,000 in March 1964
 $8,000 in May 1969

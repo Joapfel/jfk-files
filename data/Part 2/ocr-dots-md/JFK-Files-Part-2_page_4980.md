@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4980.png
-
-Convert to MarkdownSECRET
+SECRET
 INTEL
 
 MHFNO: 96-2899457

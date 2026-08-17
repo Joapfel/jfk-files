@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34329.png
-
-Convert to Markdownto aid terrorism against the Venezuelan People, the democratic government, its businessmen, and even Japanese interests in that country. Isn't this a complete illogical operation?
+to aid terrorism against the Venezuelan People, the democratic government, its businessmen, and even Japanese interests in that country. Isn't this a complete illogical operation?
 
 ## 2.- The Organization of American States (OAS).
 

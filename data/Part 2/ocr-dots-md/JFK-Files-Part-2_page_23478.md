@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23478.png
-
-Convert to MarkdownSECRET - EAS ONLY
+SECRET - EAS ONLY
 
 30 November 1960
 

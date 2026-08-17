@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1371.png
-
-Convert to Markdownend his career as an overt propagandist taking advantage of the current furor over the CIA to do the greatest possible damage. The current paralysis of all anti-Communist action by the Agency attests to the effectiveness of AGEE, SZULC, the Soviets, et al.
+end his career as an overt propagandist taking advantage of the current furor over the CIA to do the greatest possible damage. The current paralysis of all anti-Communist action by the Agency attests to the effectiveness of AGEE, SZULC, the Soviets, et al.
 
 B
 

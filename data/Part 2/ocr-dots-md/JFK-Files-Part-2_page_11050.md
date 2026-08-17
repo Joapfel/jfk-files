@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11050.png
-
-Convert to Markdown2. Identification orders, wanted flyers, check circulars, and apprehension orders
+2. Identification orders, wanted flyers, check circulars, and apprehension orders
 
 Each field office must maintain a mailing list composed of individuals and organizations to which identification orders, wanted flyers, check circulars, and apprehension orders are to be sent. Each field office must review annually its mailing list in order to see that no data is sent to firms which have ceased business or have merged with other organizations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9086.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On November 13, 1959, CIA representatives were informed that we were opposed to making the defector available to HCUA. On that same date we were told that CIA was informing HCUA it was reversing its position and that upon reconsideration, it did not feel that Tisler could be made available.
 

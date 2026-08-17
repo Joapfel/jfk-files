@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1803.png
-
-Convert to Markdownand other agencies is in a good position to assist in coordinating
+and other agencies is in a good position to assist in coordinating
 the exploitation of foreign documents. We urge that the DD/I
 integrate FDD and FBID into the most compatible area of the
 DD/I organization.

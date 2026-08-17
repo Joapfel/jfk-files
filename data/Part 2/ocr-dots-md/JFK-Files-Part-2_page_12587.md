@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12587.png
-
-Convert to Markdown(e) Cancel flash notice when subject dies or is no longer of security interest.
+(e) Cancel flash notice when subject dies or is no longer of security interest.
 
 (9) Physical description
 

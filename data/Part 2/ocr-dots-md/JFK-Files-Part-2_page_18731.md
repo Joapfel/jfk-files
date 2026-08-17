@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18731.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 d. Amount Paid for Services and Expenses by Month: (e)
 

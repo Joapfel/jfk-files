@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33834.png
-
-Convert to MarkdownX4: CARBON PRS, Mr. Robert J. Joyce
+X4: CARBON PRS, Mr. Robert J. Joyce
 Department of State
 
 SUBJECT: Testifying of Adolph E. Berle, Jr.

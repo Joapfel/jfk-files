@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7044.png
-
-Convert to Markdown9. Atomic Energy Commission Division of Intelligence
+9. Atomic Energy Commission Division of Intelligence
 
 10. Treasury Department Intelligence Division
 

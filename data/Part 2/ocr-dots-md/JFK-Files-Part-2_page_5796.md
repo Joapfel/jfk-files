@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5796.png
-
-Convert to Markdown09/16/98 WED 13:00
+09/16/98 WED 13:00
 
 ARRB
 

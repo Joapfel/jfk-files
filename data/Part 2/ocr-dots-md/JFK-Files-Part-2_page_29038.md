@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29038.png
-
-Convert to MarkdownWEEKLY WORK PLAN/TIME REPORT
+WEEKLY WORK PLAN/TIME REPORT
 
 SALESMAN Weis, Koisin and Co., Inc.
 

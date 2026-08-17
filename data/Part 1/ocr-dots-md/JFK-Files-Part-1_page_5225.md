@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5225.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 28 DECEMBER 1966
 

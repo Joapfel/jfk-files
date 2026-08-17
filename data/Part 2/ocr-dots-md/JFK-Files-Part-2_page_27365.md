@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27365.png
-
-Convert to MarkdownA - Memo for File - from Gray - Subj: Interview with Joseph S. Farland
+A - Memo for File - from Gray - Subj: Interview with Joseph S. Farland
 13 May 75
 
 B - Memo for the File from Gray - Subj: Interview w/Wynderley B. Coert

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15826.png
-
-Convert to Markdownit is their right, it is their duty, to throw off such a government,
+it is their right, it is their duty, to throw off such a government,
 and to provide new guards for their future security.
 
 POLITICS AND THE BLACK COMMUNITY

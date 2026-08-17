@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12435.png
-
-Convert to Markdown- 27 -
+- 27 -
 
 VENEZUELA
 

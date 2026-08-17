@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5682.png
-
-Convert to MarkdownSECRET
+SECRET
 
 - 7 NOV 1995
 

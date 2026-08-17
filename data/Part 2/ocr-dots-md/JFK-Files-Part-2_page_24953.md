@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24953.png
-
-Convert to Markdownofficials and discovered that Casavubu and Mobutu had decided to fly to Thysville to put down the munity. COS attempted to con vince them not to go together. They did succeed in putting down the mutiny.
+officials and discovered that Casavubu and Mobutu had decided to fly to Thysville to put down the munity. COS attempted to con vince them not to go together. They did succeed in putting down the mutiny.
 
 COS did not learn that Lumumba was to be moved to Katanga until after it happened. COS said his discussions with Mobutu about Mobutu's intentions for Lumumba left COS with the impression that Lumumba might be executed.
 

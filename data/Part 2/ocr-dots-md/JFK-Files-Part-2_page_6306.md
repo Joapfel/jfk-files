@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6306.png
-
-Convert to Markdown# Secret - Working Notes
+# Secret - Working Notes
 
 17 August 1998
 

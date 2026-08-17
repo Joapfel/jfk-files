@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30050.png
-
-Convert to Markdown<table><thead><tr><th>SEPARAL NO.</th><th></th><th>NAME</th><th>OFFICE</th><th>OFFICE TELEPHONE NUMBER</th><th>HOME TELEPHONE EXCHANGE</th><th>CORRECEIVE DATE</th></tr></thead><tbody><tr><td colspan="7"><hr></td></tr><tr><td colspan="7">120-00430</td></tr></tbody></table>
+<table><thead><tr><th>SEPARAL NO.</th><th></th><th>NAME</th><th>OFFICE</th><th>OFFICE TELEPHONE NUMBER</th><th>HOME TELEPHONE EXCHANGE</th><th>CORRECEIVE DATE</th></tr></thead><tbody><tr><td colspan="7"><hr></td></tr><tr><td colspan="7">120-00430</td></tr></tbody></table>
 
 PERSONNEL INFORMATION CARD
 

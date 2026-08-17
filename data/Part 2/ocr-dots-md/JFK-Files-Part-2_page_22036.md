@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22036.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>SPECIAL GROUP AUGMENTED, MONGOOSE,<br>(Lansdale), TAYLOR, JOHNSON, GILPATRICK, MCCONE, RFK, LEMNITZER,<br>[ROIG] RUSK, KOHLER, HURWITCH</td><td>June 20, 1962<br>July 31, 1962<br>June 12, 1962<br>May 17, 1962</td><td>Special Group Augmented MONGOOSE<br>✓ June 22, 1962</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>SPECIAL GROUP AUGMENTED, MONGOOSE,<br>(Lansdale), TAYLOR, JOHNSON, GILPATRICK, MCCONE, RFK, LEMNITZER,<br>[ROIG] RUSK, KOHLER, HURWITCH</td><td>June 20, 1962<br>July 31, 1962<br>June 12, 1962<br>May 17, 1962</td><td>Special Group Augmented MONGOOSE<br>✓ June 22, 1962</td></tr></tbody></table>
 
 OCCURRENCE:
 

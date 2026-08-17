@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1526.png
-
-Convert to Markdown5. Any and all information within the U-2 program file pertaining to defectors with knowledge of the U-2 program.
+5. Any and all information within the U-2 program file pertaining to defectors with knowledge of the U-2 program.
 
 See above.
 

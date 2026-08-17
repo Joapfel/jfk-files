@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31505.png
-
-Convert to Markdown22 July 1952
+22 July 1952
 
 MEMORANDUM FOR: DEPUTY DIRECTOR OF CENTRAL INTELLIGENCE
 SUBJECT: National Committee for a Free Europe

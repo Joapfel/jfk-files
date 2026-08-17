@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11980.png
-
-Convert to MarkdownBANPOP PROGRAM
+BANPOP PROGRAM
 
 Bufile: 65-70741
 

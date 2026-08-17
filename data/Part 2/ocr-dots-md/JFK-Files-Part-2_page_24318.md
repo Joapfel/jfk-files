@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24318.png
-
-Convert to Markdown(2) How will the instrumentality be disposed of?
+(2) How will the instrumentality be disposed of?
 
 (a) Will it be disposed of intact? If so, by bid, negotiation, gift, etc.; or
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10600.png
-
-Convert to MarkdownATTACHMENT
+ATTACHMENT
 
 The following staff officials of the Senate Select Committee
 as identified below by date and place of birth and social security

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4301.png
-
-Convert to MarkdownMovimiento de Recuperación Revolucionaria
+Movimiento de Recuperación Revolucionaria
 
 3312 N. 6 2 COURT
 MIAMI 57, FLORIDA

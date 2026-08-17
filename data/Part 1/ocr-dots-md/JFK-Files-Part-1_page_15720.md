@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15720.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORG:</td><td colspan="2">B. HIESCTUR</td></tr><tr><td>UNIT:</td><td colspan="2">AP/W/2</td></tr><tr><td>EXT:</td><td colspan="2">3966</td></tr><tr><td>DATE:</td><td colspan="2">27 October 1960</td></tr><tr><td colspan="3">TO : LEOPOLDVILLE</td></tr><tr><td colspan="3">FROM: DIRECTOR J Chroms cc:</td></tr><tr><td colspan="3">CONF. C/AF 3 cc:</td></tr><tr><td colspan="3">INFO : COP, C/CA, C/C1, G/EE 3, S/C 2</td></tr></table>
 

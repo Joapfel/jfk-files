@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26067.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MSG: C.W. COX</td></tr><tr><td>INT: WH/3/V</td></tr><tr><td>ST: R-9494</td></tr><tr><td>LATE: 1 FEBRUARY 1968</td></tr></table>
 

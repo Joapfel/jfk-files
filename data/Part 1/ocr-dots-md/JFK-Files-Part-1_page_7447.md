@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7447.png
-
-Convert to Markdownfor the fate to which he and his wife were condemned.
+for the fate to which he and his wife were condemned.
 
 I ask you to recall the whole period of the organization and activities of the China-League for Civil Rights, from December, 1933, to June, 1933, in which I took an active part. I gave full play to this hybrid League and its work without once publishing the basic criticisms which I often voiced to you and which in the end were wholly confirmed by what happened after the Kuomintang murdered Yang Chien in June that year.
 

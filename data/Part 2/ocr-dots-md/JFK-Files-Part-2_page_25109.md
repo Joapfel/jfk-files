@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25109.png
-
-Convert to Markdowndespite some criticism of that point from the State Depart-
+despite some criticism of that point from the State Depart-
 ment. He felt that the economic wealth of the Congo was
 important to the United States' future, and ;that it was
 equally important that the Congo remain a viable unit. He

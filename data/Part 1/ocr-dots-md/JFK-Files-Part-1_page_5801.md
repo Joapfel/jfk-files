@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5801.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CLASSIFIED MESSAGE</td></tr><tr><td>CENTRAL INTELLIGENCE AGENCY</td></tr><tr><td>SECURITY INFORMATION</td></tr></table>
 

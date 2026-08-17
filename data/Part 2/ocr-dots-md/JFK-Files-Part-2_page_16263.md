@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16263.png
-
-Convert to MarkdownDuring the SDS Convention MIKE KLONSKY reported that SDS and the BPP have a close relationship.
+During the SDS Convention MIKE KLONSKY reported that SDS and the BPP have a close relationship.
 
 BOB RUSH spoke at the Convention and read from Mao's Red Book to the effect that the role of women is: to help in the revolution. This was in reply to a comment of a prior Panther speaker who had stated the roll of women in the Movement is to use "sexual relations" to revolutionize. At the time this statement was met with great disapproval among those in attendance.
 

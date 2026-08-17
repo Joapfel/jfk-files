@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21692.png
-
-Convert to MarkdownKOSOLAPOV was the only KGB officer in contact with the Polish agent.
+KOSOLAPOV was the only KGB officer in contact with the Polish agent.
 
 NOSENKO previously stated that a KGB technician who was on the train from Moscow to Warsaw reported back to NOSENKO the day after the train arrived in Warsaw. Later NOSENKO said that instead of talking to the technician personally, he may have read the report of the technician after he returned from Cuba.
 

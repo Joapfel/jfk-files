@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5433.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 RIO/MIS
 
 Jun 30 1973 AH '67

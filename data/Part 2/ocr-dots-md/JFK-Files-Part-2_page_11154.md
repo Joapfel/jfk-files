@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11154.png
-
-Convert to Markdownand similar sources. Again, if more direct means employed, use extreme care. Send specimens to the Bureau under a separate cover. Let them by registered mail for the attention of the FBI Laboratory. Letter should bear caption of individual case.
+and similar sources. Again, if more direct means employed, use extreme care. Send specimens to the Bureau under a separate cover. Let them by registered mail for the attention of the FBI Laboratory. Letter should bear caption of individual case.
 
 Handwriting specimens should be sufficiently extensive to permit possible future comparisons by the Laboratory. When specimens submitted may be of value as evidence, letter of transmittal should so state and Bureau should be requested to return specimens after copies have been made.
 

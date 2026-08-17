@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3249.png
-
-Convert to Markdownand that operations should be conducted to "counter" foreign
+and that operations should be conducted to "counter" foreign
 intelligence activities by means other than arrest or "persona
 non grata" proceedings. On the other hand, if Congress treats
 the investigation of foreign intelligence activities the same

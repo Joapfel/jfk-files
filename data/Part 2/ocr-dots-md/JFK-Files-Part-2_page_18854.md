@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18854.png
-
-Convert to MarkdownSAC, New York (105-8) July 27, 1954
+SAC, New York (105-8) July 27, 1954
 
 Director, FBI (105-28339)
 

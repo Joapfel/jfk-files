@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6802.png
-
-Convert to Markdown<table><tr><td colspan="2">181</td></tr><tr><td>DATE</td><td>11 JANUARY 1961</td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>STOCKHOLM</td></tr><tr><td>ACTUARIES</td><td>WE 6</td></tr><tr><td>REPO</td><td>DCI, D/DCI, DOP, COP. AOCPA, CA 2, CA/PAG, 10C &amp; CA/PAG, CA/PROP, CI, GI/OPS, C1/C2, FI, F1/F4/F5, F6, CE 4, FE 4, SR 4, WH 4, S/C 2 (SUSPENSE DO/I)</td></tr></table>
+<table><tr><td colspan="2">181</td></tr><tr><td>DATE</td><td>11 JANUARY 1961</td></tr><tr><td>TO</td><td>DIRECTOR</td></tr><tr><td>FROM</td><td>STOCKHOLM</td></tr><tr><td>ACTUARIES</td><td>WE 6</td></tr><tr><td>REPO</td><td>DCI, D/DCI, DOP, COP. AOCPA, CA 2, CA/PAG, 10C &amp; CA/PAG, CA/PROP, CI, GI/OPS, C1/C2, FI, F1/F4/F5, F6, CE 4, FE 4, SR 4, WH 4, S/C 2 (SUSPENSE DO/I)</td></tr></table>
 
 CLASSIFIED MESSAGE
 

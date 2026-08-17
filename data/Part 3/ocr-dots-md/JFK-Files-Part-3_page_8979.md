@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8979.png
-
-Convert to MarkdownLegal Counsel to Mr. J. B. Adams
+Legal Counsel to Mr. J. B. Adams
 
 RE: SENATE SELECT COMMITTEE ON
 INTELLIGENCE ACTIVITIES

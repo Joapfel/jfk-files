@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17312.png
-
-Convert to Markdown# 9. Dirección Federal de Seguridad - Federal Security Police
+# 9. Dirección Federal de Seguridad - Federal Security Police
 
 The principal functions of this security unit are to:
 (1) Provide a plain-clothed security detail for the President,

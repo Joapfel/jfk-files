@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33923.png
-
-Convert to MarkdownCHESTER, CONNECTICUT
+CHESTER, CONNECTICUT
 
 "In addition to making special note each Sunday morning service, we shall see to it that some space is allotted in our monthly pastoral letter for a suggestion of prayer for other men who are denied corporate worship."
 

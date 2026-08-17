@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28520.png
-
-Convert to MarkdownU.S. HOUSE OF REPRESENTATIVES
+U.S. HOUSE OF REPRESENTATIVES
 
 (Any erasures, corrections, or changes on this form must be initialed by the authorizing official.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6628.png
-
-Convert to MarkdownMarital status Married
+Marital status Married
 JUANITA ABERNATHY
 Nee JONES
 

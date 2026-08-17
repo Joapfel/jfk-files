@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17392.png
-
-Convert to Markdown# BLACK PANTHER PARTY (BPP)
+# BLACK PANTHER PARTY (BPP)
 
 On February 4, 1969, advised that in the morning on February 4, 1969, Vincent T. Cullers, Education Committee, Black Students Association, University of Illinois, had requested and had been granted space for a meeting to be held from 8:00 p.m. until 11:00 p.m. on February 4, 1969, in Room 213 of the Illini Union, student union building of the University of Illinois.
 

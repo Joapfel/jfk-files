@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6201.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Organization of Records Management in the Agency
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_13106.png
-
-Convert to MarkdownPhotograph shows left ear stands away from head in pronounced manner, and it should be noted eyes were drawn in since they were closed when photograph was taken. According to description subject is 5'10" tall, weighing from 163 to 174 pounds. Subject is said to have a small scar on forehead, exact location not stated, and another scar on palm of right hand.
+Photograph shows left ear stands away from head in pronounced manner, and it should be noted eyes were drawn in since they were closed when photograph was taken. According to description subject is 5'10" tall, weighing from 163 to 174 pounds. Subject is said to have a small scar on forehead, exact location not stated, and another scar on palm of right hand.

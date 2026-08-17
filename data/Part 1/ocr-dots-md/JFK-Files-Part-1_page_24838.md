@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24838.png
-
-Convert to MarkdownPROJECT UOACE
+PROJECT UOACE
 
 a. **Identification.** Base - New York City. Political Action Support.
 

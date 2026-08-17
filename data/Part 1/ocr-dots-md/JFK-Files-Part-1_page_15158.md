@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15158.png
-
-Convert to Markdown**Consulado General del
+**Consulado General del
 Paraguay.**
 
 Narbur, November 26, 1952

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28037.png
-
-Convert to MarkdownSeptember 27, 1977
+September 27, 1977
 
 The Honorable Frank Thompson, Jr.
 Chairman

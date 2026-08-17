@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29812.png
-
-Convert to MarkdownD - of yes he did
+D - of yes he did
 
 M - frequently or infrequently
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11463.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CABLE SECRETAP AT DISSEMINATION</th><th>CLASSIFIED MESSAGE</th><th>TOTAL COPYS</th><th>REMITTING AND/OR INITIALS - SEEN BY</th></tr></thead><tbody><tr><td colspan="2">PERSON/UNNOTIFIED</td><td rowspan="6"><table><tbody><tr><td>SECRET (When Filled In)</td><td>.</td><td>6</td></tr><tr><td>ISSUED</td><td>.</td><td>7</td></tr><tr><td>SLOTTED</td><td>.</td><td>8</td></tr><tr><td>YES</td><td>*</td><td>9</td></tr><tr><td>NO</td><td></td><td>10</td></tr></tbody></table></td><td>W/</td></tr><tr><td>ADVANCE COPY</td><td>☐</td><td></td></tr><tr><td>BY <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; AT&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u></td><td>✓</td><td></td></tr><tr><td>DISTRIBUTION PER<br/>ACTION W/COE8 ☐ RID COPY <u>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; WHS, R/EAN&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</u></td><td>☐</td><td></td></tr><tr><td>FILeno</td><td>☐</td><td>BRANCH ☐ DESTROY ☐ SG.</td></tr></tbody></table>
 

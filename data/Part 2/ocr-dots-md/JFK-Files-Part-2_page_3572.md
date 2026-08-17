@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3572.png
-
-Convert to Markdown13-00000
+13-00000
 
 government's land reform drive. The pilot was injured
 and his two passengers were killed. The incident

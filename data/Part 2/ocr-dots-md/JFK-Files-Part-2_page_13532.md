@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13532.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <!-- Question B: Communist Party, U.S.A., or any communist or fascist organization? ☐ No ☐ Yes -->
     <tr>

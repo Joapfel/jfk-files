@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13880.png
-
-Convert to Markdown62-116464
+62-116464
 
 1 - Mr. J. B. Adams
 1 - Mr. W. V. Cleveland

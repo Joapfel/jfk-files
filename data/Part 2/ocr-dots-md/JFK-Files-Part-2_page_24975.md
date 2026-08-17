@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24975.png
-
-Convert to MarkdownI asked if he would be willing to say this under sworn testimony.
+I asked if he would be willing to say this under sworn testimony.
 
 He said that having gone this far he would, but he cautioned that 15 years had passed and he could not vouch for the exact wording, although his memory of the impact of the meeting is firm.
 

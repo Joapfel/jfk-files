@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26478.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Florentino Alcantara de Moraes, Pernambuco state leader of the regular Communist Party of Brazil.
 

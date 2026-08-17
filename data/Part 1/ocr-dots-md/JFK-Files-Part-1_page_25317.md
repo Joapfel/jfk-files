@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25317.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="2">CENTRAL INTELLIGENCE AGENCY<br/>CLASSIFICATION</th></tr></thead><tbody><tr><td>Charged to</td><td>Secret</td></tr><tr><td>BY AUTHORITY OF</td><td></td></tr><tr><td>Name: John Hallgrill, Wa</td><td></td></tr><tr><td>Office: 1590 Wyndale Ave</td><td></td></tr><tr><td>Date: 14 June 76</td><td>29 March 1956</td></tr></tbody></table>
 

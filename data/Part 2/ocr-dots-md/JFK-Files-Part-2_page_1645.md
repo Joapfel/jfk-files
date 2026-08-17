@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1645.png
-
-Convert to MarkdownCHECK LIST FOR TRAINING
+CHECK LIST FOR TRAINING
 
 1. Typing
 2. Portland

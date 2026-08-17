@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7717.png
-
-Convert to Markdown13-00000
+13-00000
 
 for necessary reorganizations, together
 with the names of recommended chiefs.

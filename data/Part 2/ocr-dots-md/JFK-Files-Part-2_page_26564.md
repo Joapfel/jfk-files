@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26564.png
-
-Convert to Markdownd. This Communist effort is aimed at discrediting the post-Diem regime before the new leadership is able to get its feet on the ground and capture the loyalty and respect of people in the provinces.
+d. This Communist effort is aimed at discrediting the post-Diem regime before the new leadership is able to get its feet on the ground and capture the loyalty and respect of people in the provinces.
 
 e. Although the Viet Cong still continues to draw its main strength from local recruiting, a steady stream of cadre and training personnel continues to make its way to the south from North Vietnam along the Laotian border.
 

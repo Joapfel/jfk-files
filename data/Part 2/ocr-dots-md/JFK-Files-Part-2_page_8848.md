@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8848.png
-
-Convert to Markdown<table><tr><td>14-00000</td></tr><tr><td>104-10516-10227</td></tr></table>
+<table><tr><td>14-00000</td></tr><tr><td>104-10516-10227</td></tr></table>
 
 <table><tr><td colspan="2">CLASS: SECRET</td></tr><tr><td>[Table]<br/>1<br/>[List-item]<br/>4</td><td>[Table]<br/>1<br/>[List-item]<br/>3</td></tr></table>
 

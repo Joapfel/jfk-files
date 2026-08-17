@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26704.png
-
-Convert to MarkdownIt was in this manner that this gal came to our knowledge. We surveilled her for a long time and determined that obviously she was receiving messages and she was sending messages. So along with the Bureau we put a surveillance on her and we obtained a van with DF equipment in it and indeed, she went on the air in the morning at 5:00 o'clock or 4:30 or whatever it was, and the direction finder found it was being beamed toward Cuba, this type of thing, and that was one of the examples of the CI activities we were involved in.
+It was in this manner that this gal came to our knowledge. We surveilled her for a long time and determined that obviously she was receiving messages and she was sending messages. So along with the Bureau we put a surveillance on her and we obtained a van with DF equipment in it and indeed, she went on the air in the morning at 5:00 o'clock or 4:30 or whatever it was, and the direction finder found it was being beamed toward Cuba, this type of thing, and that was one of the examples of the CI activities we were involved in.
 
 Q Were there many activities of that type?
 

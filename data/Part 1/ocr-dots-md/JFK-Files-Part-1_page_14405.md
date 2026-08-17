@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14405.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Name: Orestes Guillermo RUIZ Perez
 DPOB: 10 February 1930, Havana Municipal District, Havana Province

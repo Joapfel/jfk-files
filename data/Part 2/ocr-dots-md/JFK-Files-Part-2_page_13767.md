@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13767.png
-
-Convert to MarkdownMemorandum for Mr. Adams
+Memorandum for Mr. Adams
 RE: SENSTUDY 75
 
 (A) Legal Authority for FBI Intelligence and Counterintelligence Activities

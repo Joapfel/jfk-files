@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21318.png
-
-Convert to Markdown**Security Information**
+**Security Information**
 **Secret Control**
 **US Officials Only**
 

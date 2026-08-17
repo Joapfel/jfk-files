@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23485.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>PRESIDENT EISENHOWER, DOUGLAS DILLON, GENERAL GOODPASTER</td><td>July 5, 1960</td><td>TRUJILLO</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>PRESIDENT EISENHOWER, DOUGLAS DILLON, GENERAL GOODPASTER</td><td>July 5, 1960</td><td>TRUJILLO</td></tr></table>
 
 <table><thead><tr><th>OCCURRENCE:</th><th colspan="2">On July 5, 1960 President Eisenhower met with Secretary of State Herter, Secretary of the Treasury Dillon. Also present were Gen. Goodpaster and General Persons. The memorandum of the conference stated: "With regard to the Dominican Republic, Mr. Herter said there are various things being done which could result in a provisional government being set up. The President said if such a government were set up we should recognize it quickly. We could then move in with troops on their request if need should arise. In so far as the question is one of internal intervention, we must use the CIA in order to avoid attribution. The President thought we should knock out of any documents on file any reference to starting a revolution."</th></tr></thead></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20889.png
-
-Convert to Markdown# THIS SHEET MUST BE COMPLETED
+# THIS SHEET MUST BE COMPLETED
 
 EDUCATION (Continued)
 

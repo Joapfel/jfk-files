@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7267.png
-
-Convert to MarkdownE-1 April-May Demonstrations
+E-1 April-May Demonstrations
 
 E-2 Likelihood of New Momentum on the Antiwar Activities and Forces in View of the Laos and Cambodian Situation
 

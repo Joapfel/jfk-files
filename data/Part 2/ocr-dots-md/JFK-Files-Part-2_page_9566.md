@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9566.png
-
-Convert to MarkdownMoreover, this is a stage of "liberation struggle," where actions are more important than words, and where efforts of all Palestinians are needed. Fateh has its orientation, however, and in terms of armed struggle against Imperialism, it is more leftist than the Soviet Union and the Arab Communist parties. Disagreement between Communist parties and Fateh exist over proposals for "peaceful settlement" of the conflict, for Fateh rejects any "peaceful settlements" and believes in armed struggle as the only solution.
+Moreover, this is a stage of "liberation struggle," where actions are more important than words, and where efforts of all Palestinians are needed. Fateh has its orientation, however, and in terms of armed struggle against Imperialism, it is more leftist than the Soviet Union and the Arab Communist parties. Disagreement between Communist parties and Fateh exist over proposals for "peaceful settlement" of the conflict, for Fateh rejects any "peaceful settlements" and believes in armed struggle as the only solution.
 
 At this stage of Arab history, Fateh ideas are popular and represent a turning point in Arab thought. They represent the beginning of a new Arab re-awakening, an attempt at the re-definition of the Arab being in terms of armed struggle. Fateh spearheads this re-awakening, it is the vanguard of the revolution, and it leads by action and armed struggle.
 

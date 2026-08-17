@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16248.png
-
-Convert to Markdown1. To be learned verbatim and understood thoroughly.
+1. To be learned verbatim and understood thoroughly.
 
     a) Discipline of the Party (Redbook)
 

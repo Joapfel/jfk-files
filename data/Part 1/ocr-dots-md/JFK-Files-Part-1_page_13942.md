@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13942.png
-
-Convert to Markdown27 APR 1970
+27 APR 1970
 
 MEMORANDUM FOR: Director
 Federal Bureau of Investigation

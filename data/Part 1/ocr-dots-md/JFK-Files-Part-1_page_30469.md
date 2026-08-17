@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30469.png
-
-Convert to MarkdownTHE JOINT CHIEFS OF STAFF
+THE JOINT CHIEFS OF STAFF
 WASHINGTON, D.C. 20501
 
 8 May 1972

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 time but when I was there he was working by himself. Because of the housing shortage the Embassy is reluctant to add to the staff. The fact is, as I have already said, in spite of Musser's outstanding ability he cannot do the job that now must be done without substantial continuing assistance. He also needs additional equipment.
 

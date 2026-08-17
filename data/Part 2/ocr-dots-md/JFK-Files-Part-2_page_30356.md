@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30356.png
-
-Convert to Markdown1
+1
 
 Mr. Nosenko. Right.
 

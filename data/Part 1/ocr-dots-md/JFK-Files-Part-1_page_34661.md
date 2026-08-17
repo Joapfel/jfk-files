@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34661.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Supreme Court, but that now he considered LABAU unfit to hold any judicial position.
 

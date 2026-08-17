@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6639.png
-
-Convert to MarkdownAT 157-257
+AT 157-257
 
 KING, MARTIN LUTHER, JR.
 

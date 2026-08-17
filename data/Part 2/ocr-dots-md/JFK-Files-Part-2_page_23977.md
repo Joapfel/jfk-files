@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23977.png
-
-Convert to MarkdownIt is clear that President Nixon wanted him (Helms) to encourage the Chilean military to cooperate or to take the initiative in preventing Allende from taking office. (Kissinger testimony, p. 12)
+It is clear that President Nixon wanted him (Helms) to encourage the Chilean military to cooperate or to take the initiative in preventing Allende from taking office. (Kissinger testimony, p. 12)
 
 Operationally, the CIA set the President's instructions into motion on September 21. On that day two cables were sent from CIA Headquarters to Santiago informing the CIA Chief of Station (COS) of his new directive:
 

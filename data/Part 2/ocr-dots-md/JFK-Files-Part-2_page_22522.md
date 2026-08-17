@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22522.png
-
-Convert to Markdownwhich he could then be considered an expert. Subject has contacted a number of organizations in radio, television, newspapers and magazines who had evidenced an interest in securing from him stories, pictures and taped interviews. Approval for the trip was requested and $3,000 toward financing of this trip. He was to depart toward the end of May and return around the first of August. The memo is initialed "OS/SE" (SE being Sheffield Edwards, Director of Security).
+which he could then be considered an expert. Subject has contacted a number of organizations in radio, television, newspapers and magazines who had evidenced an interest in securing from him stories, pictures and taped interviews. Approval for the trip was requested and $3,000 toward financing of this trip. He was to depart toward the end of May and return around the first of August. The memo is initialed "OS/SE" (SE being Sheffield Edwards, Director of Security).
 
 Ultimately his travel voucher covering this trip reflected expenses of $4,544.38 with $3,000 advanced and the "balance not claimed." His cover accounting for 7(6)-6/62 lists "Deficit on trip to Asia" 1,544.38 as an expense and is offset against listed income for that period. Besides other countries he was in during the period 5/15 to 8/18/62, he spent 12 days in the USSR and 14 days in Helsinki.
 

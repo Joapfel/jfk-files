@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24052.png
-
-Convert to Markdownnot translated. Only extra-creation words
+not translated. Only extra-creation words
 translated kroz 13 dana kroz 5 dana
 for 3 days for 5 days
 

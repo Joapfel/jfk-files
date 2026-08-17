@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19737.png
-
-Convert to MarkdownNR 002. SF PLAIN
+NR 002. SF PLAIN
 
 NOV 20 1971
 

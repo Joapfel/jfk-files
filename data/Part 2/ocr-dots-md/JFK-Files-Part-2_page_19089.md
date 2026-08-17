@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19089.png
-
-Convert to MarkdownDIRECTOR, FBI (105-86457)
+DIRECTOR, FBI (105-86457)
 
 SAC, NEW YORK (105-40635) (P)
 

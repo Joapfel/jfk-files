@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10448.png
-
-Convert to Markdown# Department of State
+# Department of State
 
 Technical graphics guidance on developing a new United States Passport, analyses of foreign passports, car-armoring and personnel locators (beacons) for Ambassadors have been supplied the State Department. In addition analyses and exposure of black letter operations against the United States abroad are made. All graphics requirements are forwarded to TSD for further coordination within the Division. The Department of State furnishes exemplars of foreign passports, foreign visas and in the past passports on a priority basis.
 

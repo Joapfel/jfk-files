@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21885.png
-
-Convert to Markdown(O'Donnell) said that in one of his two conversations with Bissell about Lumumba, he raised the prospect "that conspiracy to commit murder being done in the District of Columbia might be in violation of federal law" (O'Donnell), 6/9/75, p. 14). He said that Bissell "airily dismissed" this prospect (O'Donnell), 6/9/75, p. 14).
+(O'Donnell) said that in one of his two conversations with Bissell about Lumumba, he raised the prospect "that conspiracy to commit murder being done in the District of Columbia might be in violation of federal law" (O'Donnell), 6/9/75, p. 14). He said that Bissell "airily dismissed" this prospect (O'Donnell), 6/9/75, p. 14).
 
 Despite his refusal to participate in assassination, (O'Donnell) agreed to go to the Congo on a general mission to "neutralize" Lumumba "as a political factor" (O'Donnell), 9/11/75, pp. 43-44):
 

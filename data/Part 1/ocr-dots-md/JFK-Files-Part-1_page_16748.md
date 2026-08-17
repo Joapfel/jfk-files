@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16748.png
-
-Convert to MarkdownCLASSIFIED INFORMATION DIV-1076
+CLASSIFIED INFORMATION DIV-1076
 
 <table><tr><td>4</td></tr><tr><td>5</td></tr><tr><td>6</td></tr></table>
 

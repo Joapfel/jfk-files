@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13643.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 he pictured himself as a leader of a top level effort on the condition that it had assurances of government support and top level support here.
 

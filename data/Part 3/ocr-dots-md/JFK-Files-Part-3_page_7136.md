@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7136.png
-
-Convert to Markdown22 February 1975
+22 February 1975
 
 AGENCY NOTICE
 

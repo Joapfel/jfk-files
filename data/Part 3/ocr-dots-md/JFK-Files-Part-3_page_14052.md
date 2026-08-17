@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14052.png
-
-Convert to MarkdownControl System
+Control System
 
 Mr. Desmond Fitzgerald of CIA (DD/P Area) exhibited a chart reflecting the following information concerning clandestine agents in Cuba as of April 1, 1963, and the intelligence reports which they had produced during the 12-month period ending April 1, 1963:
 

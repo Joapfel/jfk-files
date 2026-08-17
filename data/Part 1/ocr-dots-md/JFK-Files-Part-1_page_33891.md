@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33891.png
-
-Convert to MarkdownB. Development Stage
+B. Development Stage
 
 Upon the collapse of the original concept of broadcasting under exile auspices, RFE necessarily utilized some exile personnel endorsed and recommended by the leaders of the various nationality groups. As technical radio facilities came into being, exiles with radio background or writing talent were required for the production of programs. This involved using individuals eminently qualified by experience to do a radio job of script writing, announcing, acting, etc., without regard for the fact that such individuals might be persona non grata with one or another political faction or leader of an exile "Council". It also involved elimination of proven inefficient, inept or unworthy individuals without regard for their exile "Council" sponsorship. In either instance criticism of RFE was predictable and indeed was always forthcoming -- often in virulent and dishonest form.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30496.png
-
-Convert to MarkdownMr. Thuc. E. Mall
+Mr. Thuc. E. Mall
 
 April 9, 1958
 

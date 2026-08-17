@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24588.png
-
-Convert to Markdown23 December 1965
+23 December 1965
 
 Faberio ALVARESO Arellano, and Arturo MÁRquez Gómez: ref in PASGA headquarters; with a small group of PGT party members to discuss the expected overthrow, probably. on 24 December 1965 of the government of Colonel Enrique PERALTA Azurduia. CARDOZA and ALVARESO ordered the members of the group to remain within their homes on call on 24 December (14).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15087.png
-
-Convert to Markdownthe end of second semester, and were graded by the following system:
+the end of second semester, and were graded by the following system:
 
 5 - Otlichno (excellent)
 

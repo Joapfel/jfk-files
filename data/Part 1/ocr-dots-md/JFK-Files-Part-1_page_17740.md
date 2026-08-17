@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17740.png
-
-Convert to Markdown4989 ...2.-
+4989 ...2.-
 
 Salida sin contestación.- varias veces.- y ocupado.-75-
 

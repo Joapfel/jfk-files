@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9956.png
-
-Convert to MarkdownSECRET
+SECRET
 
 16 Aug 57 in 33264
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6017.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 MILITAR INFILTRATION OPS TRAINING:
 

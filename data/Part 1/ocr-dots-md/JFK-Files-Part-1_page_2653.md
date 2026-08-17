@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2653.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 (KGB ENTRY)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11871.png
-
-Convert to MarkdownIn view of the above and because of existing criteria which was approved by the Department that membership in YSA is sufficient to place an individual on the Security Index, the New Left Section should consider issuing instructions to the field that sufficient effort be expended on their investigations of YSA activities to insure that all YSA members are identified and investigated for possible inclusion in the Security Index.
+In view of the above and because of existing criteria which was approved by the Department that membership in YSA is sufficient to place an individual on the Security Index, the New Left Section should consider issuing instructions to the field that sufficient effort be expended on their investigations of YSA activities to insure that all YSA members are identified and investigated for possible inclusion in the Security Index.
 
 Comments of Section Chief Shackelford and Assistant Director Brennan requested.
 

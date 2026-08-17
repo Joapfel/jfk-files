@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14767.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (6) Vladimir LAZERKA, DPOB 49, Minsk; 1974 graduate of Spanish interpreters faculty; now in Cuba with Aeroflot.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17041.png
-
-Convert to Markdownbelieve it is time for the Station to make an updated security review of the operation with particular attention to the knowledgeability of terminated agents and their families. We also believe that the Station should now address itself to the contingency that the present sites or personnel will be blown and to investigate alternative means of continuing their valuable coverage.
+believe it is time for the Station to make an updated security review of the operation with particular attention to the knowledgeability of terminated agents and their families. We also believe that the Station should now address itself to the contingency that the present sites or personnel will be blown and to investigate alternative means of continuing their valuable coverage.
 
 4. The ADDP last approved this project in May 1970 with the condition that termination payments to the principal agent and his divorced wife be made on a monthly basis. This condition has been met.
 

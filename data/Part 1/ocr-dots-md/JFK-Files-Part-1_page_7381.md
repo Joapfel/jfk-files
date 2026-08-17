@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7381.png
-
-Convert to Markdown3 September 1965
+3 September 1965
 
 MEMORANDUM FOR: Chief, Contract Personnel Division
 

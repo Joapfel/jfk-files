@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21667.png
-
-Convert to Markdown**S E C R E T**
+**S E C R E T**
 
 Clean Copy of IN 20362
 

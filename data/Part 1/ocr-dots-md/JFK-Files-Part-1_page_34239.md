@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34239.png
-
-Convert to MarkdownJANUARY 10, 1966:
+JANUARY 10, 1966:
 
 NEWSCAST:
 

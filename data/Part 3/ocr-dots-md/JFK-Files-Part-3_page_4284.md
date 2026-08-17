@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4284.png
-
-Convert to MarkdownMemorandum for the Attorney General
+Memorandum for the Attorney General
 
 Your authority is requested to continue technical
 surveillance coverage on the YLP office, 949 Longwood Avenue,

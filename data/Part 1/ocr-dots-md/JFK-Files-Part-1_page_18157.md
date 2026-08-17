@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18157.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>ORIG:</td>
         <td>S.L.Yaxley/319</td>

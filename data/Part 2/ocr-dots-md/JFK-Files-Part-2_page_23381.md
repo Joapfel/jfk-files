@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23381.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Tweedy. I did not say he was not. This at that time is the Chief of Station's best assessment of what the [Schotroff] reaction would be if the thing was formally put to him so bluntly that he understood entirely what it was all about. I do not recall, I do not believe any of this residual traffic indicates that it ever got so far that we did that, and I think, my own belief is it is a 50-50 proposition on whether [Schotroff] would agree to do it. I think probably in "limits security accomplish objective" is probably the controlling factor. I cannot really recall anymore.
 

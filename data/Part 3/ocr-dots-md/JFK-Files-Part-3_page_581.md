@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_581.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In February, 1965, a mimeographed leaflet was circulated exposing the "Labor Press Spring Bazaar" to be held at the Jewish Music Center, 14868 Schafer, Detroit, Michigan, on March 20-21, 1965, as a front effort by the Communist Party, USA (CPUSA), in Michigan to raise funds for a financially beleaguered communist newspaper. Also in February, 1965, an anonymous letter enclosing newspaper advertisement on the spring bazaar was sent to patriotic veterans organizations in Detroit area, protesting this communist endeavor and calling for these groups to stop this function.
 

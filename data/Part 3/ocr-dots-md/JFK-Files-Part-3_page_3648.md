@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3648.png
-
-Convert to Markdown2 - Mr. J. A. Mintz
+2 - Mr. J. A. Mintz
 (1 - Mr. J. B. Hotis)
 1 - Mr. D. W. Moore
 1 - Mr. J. Cochran

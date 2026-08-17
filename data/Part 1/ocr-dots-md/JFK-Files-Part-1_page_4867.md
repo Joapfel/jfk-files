@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4867.png
-
-Convert to Markdown**DISTRIBUTION OF**
+**DISTRIBUTION OF**
 **OPERATIONS**
 
 **WARNING NOTICE**

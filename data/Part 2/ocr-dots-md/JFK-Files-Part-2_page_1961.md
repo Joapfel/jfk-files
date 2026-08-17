@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1961.png
-
-Convert to Markdown16 June 1961
+16 June 1961
 
 **MEMORANDUM FOR:** Director of Central Intelligence
 **VIA** : Deputy Director (Plans)

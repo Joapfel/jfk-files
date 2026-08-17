@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31178.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the available evidence suggests that CFA may have been the "true" (in fact) basis for the Agency's report on Castro. In 1977 Internal Revenue investigators were called in to review and evaluate his material contributions, which also supplying an aura of official sanction? (See L 1977 P.R. 280?).
 

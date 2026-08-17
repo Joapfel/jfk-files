@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_24430.png
-
 , told the Committee that the pen was intended to show "bona fides" and
 
 "The orders were to do something to get rid of Castro . . . and we thought this other method might work whereas a rifle wouldn't." (Halpern, p. 26)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18372.png
-
-Convert to MarkdownW. Donald Stewart
+W. Donald Stewart
 1900 South Eads Street, Apt. 202
 Crystal House I
 Arlington, Virginia 22202

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14178.png
-
-Convert to Markdown(117. 9/19/62 Continued)
+(117. 9/19/62 Continued)
 
 "must be examined carefully, even though it would run counter to current Soviet policy; (4) Soviet planners might see some utility in deploying MRBMs and ICBMS to Cuba in order to supplement the limited number of ICBMs now believed to be operational in the USSR and to reach targets beyond the range of submarine-launched missiles; (5) the establishment on Cuban soil of a significant strike capability with such weapons would represent a sharp departure from Soviet practice, since such weapons have so far not been installed even in Satellite territory . . . the Soviets might think (it) would be worth a good deal if they could get away with it, however, they would almost certainly estimate that this could not be done without provoking a dangerous U. S. reaction; and (6) although the Soviets may see some military advantages in Cuba, as a strategic strike base, the risks would be great and the political implications would run counter to the kind of policy they are actually pursuing in Latin America. They do not propose to win the region for Communism by military conquest. They count instead on a process of political action . . .
 

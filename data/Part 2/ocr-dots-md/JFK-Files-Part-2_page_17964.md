@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17964.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE-DUNI
 MAY 25, 1977 09PM
 

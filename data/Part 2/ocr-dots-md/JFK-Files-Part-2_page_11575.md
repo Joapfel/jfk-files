@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11575.png
-
-Convert to MarkdownJuly 27, 1960
+July 27, 1960
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 93

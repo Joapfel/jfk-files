@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8120.png
-
-Convert to Markdown10 May 1960
+10 May 1960
 
 MEMORANDUM FOR THE RECORD
 

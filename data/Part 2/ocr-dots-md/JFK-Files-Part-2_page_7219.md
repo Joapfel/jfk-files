@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7219.png
-
-Convert to MarkdownSECRET 1617262 OCT 75 STAFF
+SECRET 1617262 OCT 75 STAFF
 
 CITE BOMN 43387
 

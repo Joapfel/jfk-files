@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29003.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. The conditions of this authorization are predicated upon the assumption that you will be assigned to Saigon, Indo-China under bona fide military cover, and that you will continue under such cover for the duration of your overseas assignment with this organization. Any deviation from these facts will require a new Letter of Authorization or amendment there-to.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9342.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IV. Future Plans
 

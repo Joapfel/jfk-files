@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34412.png
-
-Convert to Markdown14-0000
+14-0000
 
 Chief, WU Staff/l
 2 C 48 lags

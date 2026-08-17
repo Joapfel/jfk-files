@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10377.png
-
-Convert to MarkdownPROJECT MOCKINGBIRD
+PROJECT MOCKINGBIRD
 
 Project Mockingbird, a telephone intercept activity, was conducted between 12 March 1963 and 15 June 1963, and targeted two Washington-based newsmen who, at the time, had been publishing news articles based on, and frequently quoting, classified materials of this Agency and others, including Top Secret and Special Intelligence.
 

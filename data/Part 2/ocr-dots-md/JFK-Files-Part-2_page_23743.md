@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23743.png
-
-Convert to Markdownassociated with it?
+associated with it?
 
 That is somewhat separate but relevant.
 

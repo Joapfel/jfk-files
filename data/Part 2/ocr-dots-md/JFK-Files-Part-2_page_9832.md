@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9832.png
-
-Convert to Markdown**Internal Revenue Service**
+**Internal Revenue Service**
 
 Washington, DC 20224
 

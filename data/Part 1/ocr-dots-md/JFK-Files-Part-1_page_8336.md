@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8336.png
-
-Convert to Markdown26 March 1969
+26 March 1969
 
 CONTACT REPORT
 

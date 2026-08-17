@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4227.png
-
-Convert to Markdown94TH CONGRESS
+94TH CONGRESS
 1ST SESSION
 
 H. R. 10905

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34541.png
-
-Convert to Markdown2. You stated previously that Marina was an obyvatel. Do you have any comments on the following: "We knew each time you had a date. We knew when you applied for your marriage license. We knew the date of your wedding." These were the words of the Komsomol secretary in Minsk when Marina was expelled from the Komsomol.
+2. You stated previously that Marina was an obyvatel. Do you have any comments on the following: "We knew each time you had a date. We knew when you applied for your marriage license. We knew the date of your wedding." These were the words of the Komsomol secretary in Minsk when Marina was expelled from the Komsomol.
 
 3. Do you have any comments on Marina's statement when she said, "Our government (Soviet) knows every move I make." She makes this comment shortly after her expulsion from the Komsomol.
 

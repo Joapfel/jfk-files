@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6019.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 CIA-IR-34 -- Files of CIA officials/offices
 

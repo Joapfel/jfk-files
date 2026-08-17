@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4797.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DATE:</td>
     <td>2 APRIL 1976</td>

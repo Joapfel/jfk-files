@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2177.png
-
-Convert to Markdown5 August 1968
+5 August 1968
 
 MEMORANDUM FOR: OF/PAB
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9815.png
-
-Convert to Markdown## Unaffiliated Individuals
+## Unaffiliated Individuals
 
 In the areas of revolutionary (new left) and extremist activities, some investigations are conducted of individuals who are not affiliated with organizations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23651.png
-
-Convert to MarkdownSo again, my intent here is not to be a know-nothing. It just to keep the structure as clean as possible to identify responsibility. That's all. And if this is important to do, let's do it.
+So again, my intent here is not to be a know-nothing. It just to keep the structure as clean as possible to identify responsibility. That's all. And if this is important to do, let's do it.
 
 Mr. Bader. The record, Senator, and I can only speak from personal experience with the board of national estimates -- I certainly know of at least four estimates with which I had a part of which the board's role was very important in shielding both the PCI and indeed the analyst from the ravages in two cases of the military who felt very strongly that the continuation of our bases in the Azores was much more important than say some hard political realities about the future of Portuguese Africa.
 

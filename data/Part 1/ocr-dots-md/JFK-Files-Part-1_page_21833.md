@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21833.png
-
-Convert to Markdown| | |
+| | |
 | :--- | :--- |
 | (iv) Information from NOSENKO | 554 |
 | (v) Information from SOURCE | 557 |

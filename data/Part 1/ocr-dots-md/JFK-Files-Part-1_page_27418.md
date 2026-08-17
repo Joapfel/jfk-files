@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27418.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 REQUEST FOR MEDICAL EVALUATION

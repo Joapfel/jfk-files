@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30415.png
-
-Convert to Markdownpaperwork relating to the JFK assassination was prepared and subsequently stored?
+paperwork relating to the JFK assassination was prepared and subsequently stored?
 
 Mr. Tovar. No, I really don't. I have no idea. I have seen no documents on that subject. I have seen nothing either originated or approved or signed by him. You realize that any files on this subject are dead files. I am just doing my current job. Until you people became interested, we were not dealing with them on a daily basis.
 

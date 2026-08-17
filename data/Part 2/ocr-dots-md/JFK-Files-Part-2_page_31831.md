@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31831.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="2">REQUEST FOR AND RESULTS OF PERSONNEL SECURITY ACTION<br/>(AR 381-130)</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11454.png
-
-Convert to MarkdownSECTION 87. SECURITY INVESTIGATIONS
+SECTION 87. SECURITY INVESTIGATIONS
 
 INDEX FOR SECTION 87D
 References are to page.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6988.png
-
-Convert to MarkdownSECRET
+SECRET
 
 about their association with Jack Collyer and Boris Horros. Halperin was very closely associated with them and instrumental in their retirement plans - he got their plane reservations without saying they were for the Stearns until the last minute, etc. (SRS; JF Herald Trib 1 Sept 60)
 

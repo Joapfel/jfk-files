@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22602.png
-
-Convert to Markdown1 2 3 4 5 6 7 8
+1 2 3 4 5 6 7 8
 
 Enigma, the blue prints of which were originally obtained by a Frenchman. And I might add that the Frenchman never received credit for it. And yet that perhaps was the most single important breakthrough of the entire war. And he had obtained it about eight to nine or ten years prior to the outbreak of war, when it was non-operative. And he had the prescience to know that the systems could only be one thing, that it would be operative in a time of war.
 

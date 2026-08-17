@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11538.png
-
-Convert to Markdown(7) Interviews with subjects of security investigations
+(7) Interviews with subjects of security investigations
 
 (a) Purpose
 

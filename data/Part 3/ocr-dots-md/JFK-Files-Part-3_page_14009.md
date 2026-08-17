@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14009.png
-
-Convert to MarkdownThe consequences are as follows:
+The consequences are as follows:
 
 1. The White House, and more particularly the State Department, are rightfully disturbed because they do not know the effect this publicity might have on their responsibilities.
 

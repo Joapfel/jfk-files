@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11992.png
-
-Convert to MarkdownThe woman went on to say, in so many words, that State was holding steady at an expression of concern.
+The woman went on to say, in so many words, that State was holding steady at an expression of concern.
 
 That afternoon, Branch met with Propper and the senior F.B.I. agent on the Letelier case. The agent was convincingly determined to solve the murders. Branch sketched out what he knew again. The agent advised him strongly not to return to Venezuela, observing that the DISIP was perfectly capable of chopping off his hands and assembling a dozen Venezuelans within thirty minutes to swear it was an accident. He felt the F.B.I. had to put away the killers, who had come to Washington in order to check the terrorists' boldness. Otherwise Washington could gradually turn into Miami, and Miami could turn into Beirut.
 

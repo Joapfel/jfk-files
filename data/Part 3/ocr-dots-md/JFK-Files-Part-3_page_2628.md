@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2628.png
-
-Convert to Markdown2472
+2472
 
 has been traditionally some acceptance of the fact that if
 the President wants to see and talk with the Director, he

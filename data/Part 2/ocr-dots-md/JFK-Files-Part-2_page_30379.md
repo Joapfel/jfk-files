@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30379.png
-
-Convert to MarkdownThe reason for that is because the transcript frequently will contain classified information and the Agency prefers for that information to be kept in our secure area here. So I would like to ask you to waive your right to receive a copy of your statement but in so doing, I want to assure you that you will be given a right to review the transcript for accuracy, to make comment upon it and if necessary, to give an additional statement.
+The reason for that is because the transcript frequently will contain classified information and the Agency prefers for that information to be kept in our secure area here. So I would like to ask you to waive your right to receive a copy of your statement but in so doing, I want to assure you that you will be given a right to review the transcript for accuracy, to make comment upon it and if necessary, to give an additional statement.
 
 Mr. Tovar. I agree.
 

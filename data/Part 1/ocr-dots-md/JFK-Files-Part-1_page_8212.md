@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8212.png
-
-Convert to MarkdownRoutine followed in Recruiting Prospective Campaign Managers
+Routine followed in Recruiting Prospective Campaign Managers
 
 1. I explained to them that I was not investigating anyone but that I was seeking their cooperation on a confidential basis. I asked that they give me their word that they would keep the subject of our conversations forever confidential and told them that I had a very good reason for than to sign. If receiving their request, I pointed out to them that we were interested in getting the cooperation of people with grass roots political experience who would be willing from time to time to give briefing sessions in political organization to foreigners visiting this country under our agenda. I explained that the briefing should be all inclusive from the conception of an idea, the organization of a political grouping, to the actual mounting and holding of an election. I pointed out to them that from time to time they might also be asked to do this for people who are working on our staff but were planning to go abroad. If they gave positive answer to the idea, and still existed today, I then suggested that on occasion we found it necessary to ask our consultants to go abroad to do much the same type of thing on the scene.
 

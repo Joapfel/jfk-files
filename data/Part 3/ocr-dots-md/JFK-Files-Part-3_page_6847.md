@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6847.png
-
-Convert to Markdown<table><tr><td colspan="2">CLASSIFY AS APPROPRIATE</td></tr><tr><td>TE: SEE INSTRUCTIONS ON REVERSE<br/>BEFORE COMPLETING.</td><td></td></tr></table>
+<table><tr><td colspan="2">CLASSIFY AS APPROPRIATE</td></tr><tr><td>TE: SEE INSTRUCTIONS ON REVERSE<br/>BEFORE COMPLETING.</td><td></td></tr></table>
 
 <table><tr><td>TO:</td><td colspan="4">Intelligence Community Staff</td><td rowspan="3">FROM:<br/>FBI</td></tr><tr><td>ATTN:</td><td colspan="4">Central Index</td></tr><tr><td colspan="5">SUBJECT: Abstract of Information Provided to Select Committees</td></tr></table>
 

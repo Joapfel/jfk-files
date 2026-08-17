@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28876.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>Cville, DC Division</td><td>X</td><td>MARKED FOR HIGHER<br/>NO INDEXING REQUIRED<br/>ONLY GUARDED WORK<br/>CAN BE JUDGED INDICATING</td></tr><tr><td>Chief of Base, Washington</td><td></td><td>MICROFILM</td></tr><tr><td colspan="3">TSOLOG/Administrative<br/>DO Base/Washington's Proposed Use of Retired Annuitant - Arthur R.<br/>SCHWICKRATH (P)</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>Cville, DC Division</td><td>X</td><td>MARKED FOR HIGHER<br/>NO INDEXING REQUIRED<br/>ONLY GUARDED WORK<br/>CAN BE JUDGED INDICATING</td></tr><tr><td>Chief of Base, Washington</td><td></td><td>MICROFILM</td></tr><tr><td colspan="3">TSOLOG/Administrative<br/>DO Base/Washington's Proposed Use of Retired Annuitant - Arthur R.<br/>SCHWICKRATH (P)</td></tr></tbody></table>
 
 ACTION REQUIRED: See paragraph 1.
 

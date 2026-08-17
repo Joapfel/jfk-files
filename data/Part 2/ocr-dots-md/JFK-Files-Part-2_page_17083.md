@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17083.png
-
-Convert to Markdownletters and issued a press release alleging that the letters were another means of the establishment in its plot to put the Panthers in a bad light.
+letters and issued a press release alleging that the letters were another means of the establishment in its plot to put the Panthers in a bad light.
 
 9:30:69).
 

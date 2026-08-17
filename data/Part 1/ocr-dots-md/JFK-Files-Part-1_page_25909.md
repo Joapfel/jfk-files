@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25909.png
-
-Convert to MarkdownNo. 2731
+No. 2731
 
 Nombre Ctero Hernández Rolando Team A
 Estatura 5.8

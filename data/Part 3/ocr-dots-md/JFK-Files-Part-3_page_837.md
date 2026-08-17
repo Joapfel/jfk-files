@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_837.png
-
-Convert to MarkdownThe underlying rationale for, and history behind,
+The underlying rationale for, and history behind,
 these concepts is:
 
 Personnel - the generalist allows for a highly

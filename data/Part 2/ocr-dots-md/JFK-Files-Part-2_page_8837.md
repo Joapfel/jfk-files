@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8837.png
-
-Convert to MarkdownS. de Cuba MÁJIMAS 2 0130 240,000 envs. N. Crudo
+S. de Cuba MÁJIMAS 2 0130 240,000 envs. N. Crudo
 
 S. de Cuba MÁJIMA 1034-5 0700 100,000 " " "
 

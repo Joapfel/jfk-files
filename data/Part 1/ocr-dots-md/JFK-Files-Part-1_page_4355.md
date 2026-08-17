@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4355.png
-
-Convert to Markdown-2-
+-2-
 
 (AMBIDDY-1's) effort was made that Arrizueta was on his payroll for $380 a month. Arrizurieta is now in Miami and will remain there and not return to Costa Rica, principally according to AMBIDDY-1, because it is necessary to cut back his financial commitments.
 

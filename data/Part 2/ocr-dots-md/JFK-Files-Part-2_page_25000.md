@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25000.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 discussed at one time or another in the National Security Council, or they at least knew about them at that time, because the major activity that was just getting underway at that time was very much aware of the development of the capability to move against Cuba.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29058.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>SCHEDULE</td>
     <td>TAXABLE</td>

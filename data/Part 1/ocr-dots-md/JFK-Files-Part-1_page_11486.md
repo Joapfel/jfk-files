@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11486.png
-
-Convert to Markdownseveral years previously in PERUMEN. He then stated that in any case the
+several years previously in PERUMEN. He then stated that in any case the
 PERUMEN Chief would not be returning to Mexico, and that this should make 1/3
 happy. To console 1/3, Iden B continued that the LIRING Chief was not popular
 with the staff, since he was considered to forcel and snobbish, and somewhat

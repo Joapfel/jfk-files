@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24383.png
-
-Convert to Markdown**Country**
+**Country**
 
 Domínican Republic
 

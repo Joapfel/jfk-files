@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31991.png
-
-Convert to MarkdownSTAPLE HERE
+STAPLE HERE
 
 SPECIAL-DI
 

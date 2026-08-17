@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9777.png
-
-Convert to MarkdownHonorable J. Edgar Hoover.
+Honorable J. Edgar Hoover.
 Director, Federal Bureau of Investigation.
 Washington, D.C.
 

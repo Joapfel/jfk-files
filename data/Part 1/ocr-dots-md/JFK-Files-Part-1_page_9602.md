@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9602.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Domestic Collection Division
 Foreign Intelligence Information Report

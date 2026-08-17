@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35032.png
-
-Convert to MarkdownANNEX "IV-B"
+ANNEX "IV-B"
 
 PLANNING:
 

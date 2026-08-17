@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24248.png
-
-Convert to Markdown18 July 1972
+18 July 1972
 
 MEMORANDUM FOR THE RECORD
 

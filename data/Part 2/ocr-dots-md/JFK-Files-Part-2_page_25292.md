@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25292.png
-
-Convert to Markdown# EXILES vs. CASTRO— A Relentless Pursuit
+# EXILES vs. CASTRO— A Relentless Pursuit
 
 On Jan. 1, 1959, Fidel Castro took power and the first wave of refugees fled Cuba. A small number of the 600,000 exiles who settled in the U.S. have become extremists.
 

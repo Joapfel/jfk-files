@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_23495.png
-
 .
 
 LUMIMBA

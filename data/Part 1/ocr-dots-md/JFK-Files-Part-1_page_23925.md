@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_23925.png
-
 because he can't devote much of his time to He's got to earn a living.
 
 it. He has a very expensive establishment. His mother and father, wife and child, maintains two cars and has a three story- sort of duplex, bigger than an apartment. It is magnificent, on the Rue Pichie /n Paris,

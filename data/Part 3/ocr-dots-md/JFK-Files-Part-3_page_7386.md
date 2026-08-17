@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7386.png
-
-Convert to Markdown<table>
+<table>
    <caption>
     13. RELATIVES (Continued)
    </caption>

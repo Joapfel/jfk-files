@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21582.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (b) Page 163 of the previous summary contains information that GOLITSYN also learned from GRYAZNOV in the spring of 1960 that GRYAZNOV had developed an operation against an American Embassy military code clerk in which the KGB was "99 per cent sure" that the target would be recruited. This is believed to undoubtedly be a reference to the case of [James STORSBERG] who was actually the subject of a recruitment approach in 1961.
 

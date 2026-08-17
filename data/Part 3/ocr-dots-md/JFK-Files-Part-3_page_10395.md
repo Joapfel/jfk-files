@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10395.png
-
-Convert to MarkdownREC-106
+REC-106
 
 April 9, 1975
 

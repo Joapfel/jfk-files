@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16398.png
-
-Convert to MarkdownThe socialist system will eventually replace the capitalist system; this is an objective law independent of man's will. However much the reactionaries try to hold back the wheel of history, sooner or later revolution will take place and will inevitably triumph.
+The socialist system will eventually replace the capitalist system; this is an objective law independent of man's will. However much the reactionaries try to hold back the wheel of history, sooner or later revolution will take place and will inevitably triumph.
 
 MAO TSE-TUNG
 

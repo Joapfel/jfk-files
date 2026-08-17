@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25104.png
-
-Convert to Markdown(3)
+(3)
 
 3) Did any contacts or agents within the Cuban refugees ever speak of or sequest an attempt to be made on Castro's life? If so, how was the situation handled?
 

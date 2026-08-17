@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30218.png
-
-Convert to Markdown4 June 1951
+4 June 1951
 
 Mr. James W. McCord, Jr.
 820 Pacific Avenue

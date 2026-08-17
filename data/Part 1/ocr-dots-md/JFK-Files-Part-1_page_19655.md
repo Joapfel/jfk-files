@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19655.png
-
-Convert to MarkdowninnoVative manner and have been effective in discharging their
+innoVative manner and have been effective in discharging their
 responsibilities..
 
 4. Mr. O'Connell also spearheads the security program which furnishes Security Officers to overseas stations and domestic operations as necessary. Mr. O'Connell has taken a personal interest in this activity and has been of considerable assistance to the Office of Security Career Board in the assignment of Security careerists to those positions.

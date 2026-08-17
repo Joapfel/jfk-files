@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7595.png
-
-Convert to MarkdownDOI 14 June 1967
+DOI 14 June 1967
 
 SOURCE: LIHABIT
 

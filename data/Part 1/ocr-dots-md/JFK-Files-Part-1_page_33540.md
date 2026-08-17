@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33540.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td colspan="5">SIGNAL TRANSMISSION ONLY</td></tr><tr><td>ALE</td><td>COL</td><td>AFL</td><td>TC</td><td>THE</td></tr><tr><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></table>
 

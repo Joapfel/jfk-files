@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15963.png
-
-Convert to MarkdownAs of April, 1969, the following individuals
+As of April, 1969, the following individuals
 are members of the Central Staff of the Chicago
 Chapter of the BPP, and are leaders of BPP acitivites
 at Chicago, at this time:

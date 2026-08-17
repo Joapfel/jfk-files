@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18745.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>STANDARD FORM 52<br/>FORM SUBMITTED BY THE<br/>U S ARMY DEPARTMENT COMMISSIONER<br/>AND DIRECTOR OF PERSONNEL<br/>MANAGEMENT IN CHARTERED</td>

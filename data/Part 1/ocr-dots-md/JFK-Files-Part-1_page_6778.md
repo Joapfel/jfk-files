@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6778.png
-
-Convert to Markdown**3.- Otras consideraciones acerca del tema principal**
+**3.- Otras consideraciones acerca del tema principal**
 
 Examinando ahora la actividad económica propiamente dicha, recordemos que para Latinoamérica, en conjunto, el promedio anual de aumento del PBN per cápita, fue de 2.7% para la década posterior a la guerra y de 2.5% para los 12 años. Considerando las repúblicas por separado, la gran mayoría compartió esta expansión en un grado mayor o menor y relativamente se registraron pocas variaciones en los niveles comparativos de sus respectivos PBN per cápita, sin embargo debe examinarse la tendencia en algunos de los países más importantes.
 

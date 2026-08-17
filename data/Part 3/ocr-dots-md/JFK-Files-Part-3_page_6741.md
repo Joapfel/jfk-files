@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6741.png
-
-Convert to MarkdownSAC, Birmingham (167-625) 2/23/65
+SAC, Birmingham (167-625) 2/23/65
 
 Director, Fox: (107-9-4)
 

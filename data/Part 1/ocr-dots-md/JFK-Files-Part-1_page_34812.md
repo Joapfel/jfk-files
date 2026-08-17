@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34812.png
-
-Convert to Markdowncontinued...
+continued...
 
 # Case # 65
 

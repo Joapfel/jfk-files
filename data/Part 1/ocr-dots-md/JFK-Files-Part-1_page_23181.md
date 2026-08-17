@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23181.png
-
-Convert to Markdown1. Dr. (Cmu) <u>Zuniga</u> was a psychiatrist from Nicaragua. I did not know where he worked. Description: Malatco, age 34, 5'9", 170 lbs, cross-eyed.
+1. Dr. (Cmu) <u>Zuniga</u> was a psychiatrist from Nicaragua. I did not know where he worked. Description: Malatco, age 34, 5'9", 170 lbs, cross-eyed.
 
 2. Dr. (Chu) Zorin was a psychiatrist from Argentina, who worked at the Brain Center Institute in Havana. Description: Caucasian, age 53, 5'8", 190 lbs, blue.
 

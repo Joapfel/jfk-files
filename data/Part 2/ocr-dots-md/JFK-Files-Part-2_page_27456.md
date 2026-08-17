@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27456.png
-
-Convert to MarkdownMay 18, 1977.
+May 18, 1977.
 
 Mr. Alan B. Hausman
 400 Argyle Road

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16214.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 PEORIA, ILLINOIS
 
 the NAACP, United Front, and the Human Relations Commission failed to make any inroads for Negro equality in housing; the building trades, etc. then the appeal of the Black Panther Party will become a reality with the young Negroes bent on direct action and violence.

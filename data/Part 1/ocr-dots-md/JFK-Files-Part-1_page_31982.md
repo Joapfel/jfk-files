@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31982.png
-
-Convert to Markdown7.71 NPG 3/74
+7.71 NPG 3/74
 
 CABLE SEC DISSM BY
 

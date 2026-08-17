@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23744.png
-
-Convert to MarkdownI just hate to see us recommend taking away from one place and putting it someplace else without a record.
+I just hate to see us recommend taking away from one place and putting it someplace else without a record.
 
 Senator Hart. Can't we recommend that we put it back in intelligence and the oversight committee consider that after it's created and so on.
 

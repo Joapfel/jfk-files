@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13696.png
-
-Convert to Markdowngsh51
+gsh51
 
 WARD & PAUL
 

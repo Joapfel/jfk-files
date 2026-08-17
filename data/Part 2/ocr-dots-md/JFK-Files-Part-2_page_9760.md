@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9760.png
-
-Convert to Markdowninvestigative material and information are to be maintained
+investigative material and information are to be maintained
 in confidence and no access given thereto, except, with the
 consent of the investigative agency concerned, to other
 departments and agencies conducting security programs under

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24624.png
-
-Convert to Markdown<table><thead><tr><td>FORM 5401</td><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr></thead><tbody><tr><td>53a</td><td>USE PREVIOUS EDITION</td><td>SECRET</td><td>2.</td></tr><tr><td colspan="3"></td><td>CONTINUED</td></tr></tbody></table>
+<table><thead><tr><td>FORM 5401</td><td>CLASSIFICATION</td><td></td><td>PAGE NO.</td></tr></thead><tbody><tr><td>53a</td><td>USE PREVIOUS EDITION</td><td>SECRET</td><td>2.</td></tr><tr><td colspan="3"></td><td>CONTINUED</td></tr></tbody></table>
 
 14-00000
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24366.png
-
-Convert to MarkdownJe pense que vous abandonnez ces trois derniers postes qui n'ont aucun intérêt pour vous, je crois.
+Je pense que vous abandonnez ces trois derniers postes qui n'ont aucun intérêt pour vous, je crois.
 
 2°) pour votre épouse : salaire : 4.500 Fr
       préavis : 4.500 Fr

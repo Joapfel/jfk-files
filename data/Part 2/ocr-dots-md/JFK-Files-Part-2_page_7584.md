@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7584.png
-
-Convert to MarkdownC-0-N-F-I-D-E-N-T-I-A-L
+C-0-N-F-I-D-E-N-T-I-A-L
 
 <table><thead><tr><th>COUNTRY</th><th>SUBJECT</th><th>DATE OF INFO.</th><th>PLACE & DATE ACQ.</th></tr></thead><tbody><tr><td>Austria/USSR/International/Belgium/Sweden</td><td>Symposium on Radiological Health and Safety in Nuclear Materials Mining and Milling Held in Vienna 26-31 Aug 63 Under Auspices of the International Atomic Energy Agency, NO. PAGES the International Labor Organization, and the World Health Organization (IAEA-ILO-WHO)/USRR Research and Practice in These Subjects As REFERENCES Disclosed at the Symposium/Visits to Related Laboratories In Belgium and Sweden: De L'Energie Nucleaire, Mbl, Belgium; (2) Division of Radiobiology, Research Institute of National Defense, Stockholm, Sweden, and (3) Forsvarets Forskningsanstalt, Research Institute of National Defense, Stockholm, Sweden</td><td>3 Dec 63</td><td>Holt, Mole, Stockholm</td></tr><tr><td></td><td></td><td></td><td>Aug 63</td></tr><tr><td>REPORT NO.</td><td>DATE DISTR.</td><td colspan="2">Case 40170 C-S13-7</td></tr><tr><td>00-E-3,209,471</td><td>3 Dec 63</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table>
 

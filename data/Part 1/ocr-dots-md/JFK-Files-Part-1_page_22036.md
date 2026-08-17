@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22036.png
-
-Convert to Markdown136.
+136.
 
 did not specify its nature. Reportedly this was the first
 time that SERGEYEV had made such a request of the police

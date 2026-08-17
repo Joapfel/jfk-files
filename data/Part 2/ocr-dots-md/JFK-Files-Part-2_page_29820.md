@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29820.png
-
-Convert to MarkdownD - that Gino worked very hard for everything that he has gotten. Patrick I think was trying to advise Gino to get out of what he was doing, I don't know what Patrick, when Patrick was drinking or Patrick would tell me how you know he wishes Gino would just quit all this and I don't know exactly what Patrick meant by quitting
+D - that Gino worked very hard for everything that he has gotten. Patrick I think was trying to advise Gino to get out of what he was doing, I don't know what Patrick, when Patrick was drinking or Patrick would tell me how you know he wishes Gino would just quit all this and I don't know exactly what Patrick meant by quitting
 
 M - did Patrick go by a nickname
 

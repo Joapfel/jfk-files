@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9488.png
-
-Convert to MarkdownN.W. 88614
+N.W. 88614
 
 DocId:32989606 Page 10
 

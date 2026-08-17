@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29983.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Proposed Assignment to Key Position
 European Division

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32414.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ADMINISTRATIVE<br/>Internal Use Only</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2225.png
-
-Convert to MarkdownMEMORANDUM FOR: Special Assistant, Intelligence
+MEMORANDUM FOR: Special Assistant, Intelligence
 Department of State
 
 SUBJECT : O'NEAL, Birch Dillworth

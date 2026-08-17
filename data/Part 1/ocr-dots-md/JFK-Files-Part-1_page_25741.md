@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25741.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr><tr><td>TO : Chief, WH Division<br/>DPO</td></tr><tr><td>FROM : Chief of Station, Mexico City</td></tr><tr><td>SUBJECT: Raymond H. GERENDE/Contract Renewal</td></tr><tr><td>ACTION REQUIRED - Renew GERENDE's Contract.</td></tr></table>
+<table><tr><td>DISPATCH</td></tr><tr><td>TO : Chief, WH Division<br/>DPO</td></tr><tr><td>FROM : Chief of Station, Mexico City</td></tr><tr><td>SUBJECT: Raymond H. GERENDE/Contract Renewal</td></tr><tr><td>ACTION REQUIRED - Renew GERENDE's Contract.</td></tr></table>
 
 <table><tbody><tr><td>CLASSIFICATION</td><td>PAGE NO.</td></tr><tr><td>SECRET</td><td></td></tr></tbody></table>
 

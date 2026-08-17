@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25565.png
-
-Convert to MarkdownSECRET
+SECRET
 
 system of "ghost payrolling" is quite common in Mexico, as everybody gains: the company because its declared profit is lower than it really is and, therefore, subject to less tax, and the individual because he is ordinarily given a kickback for allowing his name to be used (or in GERENDE's case, because it provided cover).
 

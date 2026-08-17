@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4967.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (external situation)
 

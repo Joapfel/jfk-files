@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_271.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C No. 83492
 

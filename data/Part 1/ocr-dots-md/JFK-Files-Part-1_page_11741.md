@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11741.png
-
-Convert to MarkdownThe mail
+The mail
 
 Just as day was beginning, a person who did not know she was the first woman of the break. Miss DeSalle carefully from the bed and crawled into her hands, knew toward the chair. As she was rising up to reach the pants, Waldo sat erect.
 

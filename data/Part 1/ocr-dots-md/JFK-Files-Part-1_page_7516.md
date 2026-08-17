@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7516.png
-
-Convert to MarkdownISAACS is also reported to have been a member of the Society of Friends of the USSR.
+ISAACS is also reported to have been a member of the Society of Friends of the USSR.
 
 On his arrival in China, ISAACS joined the editorial staff of the Shanghai Evening Post and the Mercury. ISAACS was also employed with the Havar News Agency, which connection he is reported to have severed around December 1933.
 

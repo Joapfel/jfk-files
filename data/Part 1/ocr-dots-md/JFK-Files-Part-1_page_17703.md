@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17703.png
-
-Convert to Markdown3. LESTONE-2. Field agent. Operational clearance 7452, 11 Dec. 1953. This agent works with LESTONE-1 and has similar duties.
+3. LESTONE-2. Field agent. Operational clearance 7452, 11 Dec. 1953. This agent works with LESTONE-1 and has similar duties.
 
 4. LIFESTONE-1. Field agent, operational clearance 6799, 11 Sept. 1953. Base house operator.
 

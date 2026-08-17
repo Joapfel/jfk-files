@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4174.png
-
-Convert to MarkdownNotes on Remarks by President Kennedy before the National Security Council
+Notes on Remarks by President Kennedy before the National Security Council
 
 Tuesday, January 22, 1963
 

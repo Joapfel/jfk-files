@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16826.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROJECT: LIENVOY (2135-5701-5170) Mexico
 Staff Agent: AREHART, Arnold F.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2729.png
-
-Convert to Markdown1925
+1925
 
 On some occasions that person will have been developed to a
 point where he is in fact furnishing information and we are

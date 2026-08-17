@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21322.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Department of the Army advised that in an interview with Florencio Pernas Lorenzo (105-98002) on 2/14/61, Pernas advised that from January to March, 1959, all he did was attend social and official gatherings in Cuba. During this period he made a trip to Miami, Fla. with Comandante Eloy Gutierrez Menoyo. In about July, 1959, he was requested by Gutierrez to participate in an action against Trujillo and Batista followers who were to attack Cuba. From 12/20-23/59, Pernas made a trip to Tampa, Fla., accompanied by Gutierrez to collect toys for needy children of the Escambray.
 

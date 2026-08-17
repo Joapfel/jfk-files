@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26506.png
-
-Convert to Markdownrole of the struggle of semicolonial or colonial peoples, and so forth,
+role of the struggle of semicolonial or colonial peoples, and so forth,
 are necessary. They are necessary because for a party, for a group to have
 authority it has to persuade masses which have high political sophistication.
 In our countries we face no such problems. We do not face such problems

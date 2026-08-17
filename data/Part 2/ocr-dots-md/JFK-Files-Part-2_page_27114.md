@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27114.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 if not privileged, position of the FBI who had dominated the
 Intelligence Community as it relates to counterintelligence.

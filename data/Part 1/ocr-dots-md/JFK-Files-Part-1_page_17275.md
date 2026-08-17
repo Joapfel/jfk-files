@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17275.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td colspan="2"></td><td>SECRET</td><td>19061-7522</td></tr><tr><td>TO<br/>INFO</td><td>: Chief of Station, Mexico City</td><td></td><td rowspan="3">HEADQUARTERS FILE NO<br/>50-6-7h/2</td></tr><tr><td>FROM<br/>SUBJECT</td><td>: Chief, WMD<br/>: LIEUTNY Project Amendment</td><td></td></tr><tr><td>ACTION REQUIRED</td><td></td><td></td></tr><tr><td colspan="4">REVISIONS</td></tr><tr><td colspan="4">HBKA-12236</td></tr></tbody></table>
 

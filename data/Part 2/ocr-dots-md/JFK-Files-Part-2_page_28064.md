@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28064.png
-
-Convert to MarkdownAMATO
+AMATO
 COMMITTEE STAFF
 
 October 7, 1976

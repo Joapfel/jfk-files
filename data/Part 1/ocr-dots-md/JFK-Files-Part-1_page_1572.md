@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1572.png
-
-Convert to Markdown(4) Subject is to receive a haircut, the shorter the better.
+(4) Subject is to receive a haircut, the shorter the better.
 
 (5) Subject is to receive one cigarette on 12 May 1964.
 

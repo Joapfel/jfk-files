@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14163.png
-
-Convert to Markdown(71. 8/30/62 Continued)
+(71. 8/30/62 Continued)
 
 installations on periphery of Bloc, Formosa, etc., affords USSR with opportunity for stepped-up military material and technical buildup.
 

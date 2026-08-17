@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4582.png
-
-Convert to Markdowng. Mail censorship. All mail coming from the military camp in Guatemala was censored by this group before being released for transmittal to Cuba.
+g. Mail censorship. All mail coming from the military camp in Guatemala was censored by this group before being released for transmittal to Cuba.
 
 h. Four of these were sent back to Cuba with instructions to report on CI targets; chiefly the secret service and the police.
 

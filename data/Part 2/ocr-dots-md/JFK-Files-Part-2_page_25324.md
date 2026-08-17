@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25324.png
-
-Convert to MarkdownCHRONOLOGICAL SCHEDULE OF RESIDENCES AND EMPLOYMENTS OF: Frank Sturgis
+CHRONOLOGICAL SCHEDULE OF RESIDENCES AND EMPLOYMENTS OF: Frank Sturgis
 
 present address:
 2515 N.W. 122nd Street

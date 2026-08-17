@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_680.png
-
-Convert to Markdown2.
+2.
 
 he lived with his wife and three-year-old child in a very small apartment near San Angel and shared a studio with another artist. He added that he was paying 850 pesos monthly rent which he considered very high for what he was getting. He also complained that the artist with whom he was sharing the studio was a dillettante who was more interested in the atmosphere of the Latin Quarter than in art for its own sake. He said he found it difficult to paint with guitars playing and cocktail glasses clinking in the background. Subject then stated that he was looking for a more suitable arrangement, perhaps in a condominio and preferably in the Tacubaya area.
 

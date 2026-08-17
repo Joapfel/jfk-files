@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22880.png
-
-Convert to Markdowncb 41
+cb 41
 
 Phone (Area 202) 544-6000
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30373.png
-
-Convert to Markdownfor the record or making any statement he so desires, and I want
+for the record or making any statement he so desires, and I want
 to at this time afford you that five minute period to make such a
 statement, if you so desire.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8738.png
-
-Convert to MarkdownUFGA 15233 Dated 20 April 1964
+UFGA 15233 Dated 20 April 1964
 
 JMWAVE Station forwarded to Hqs. Special Affairs Staff,
 copy of a report on Byron CAMERON which it had sent

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18478.png
-
-Convert to Markdown# IV. Department of Justice
+# IV. Department of Justice
 
 The Committee is examining activities of divisions of the Justice Department other than the FBI which perform internal security and intelligence functions. The purpose of these inquiries is to determine whether these functions have been carried out in conformity with the rule of law.
 

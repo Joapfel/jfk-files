@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23675.png
-
-Convert to MarkdownMr. Maxwell, this next full paragraph on page 38 the way it reads, it assumes that the Director of the Central Intelligence Agency who is outside the clandestine service is not able to ensure--
+Mr. Maxwell, this next full paragraph on page 38 the way it reads, it assumes that the Director of the Central Intelligence Agency who is outside the clandestine service is not able to ensure--
 
 Mr. Aaron. I understand. You're right. Okay, if these are agreed things and they have been dropped out, then let's just get them back in. I don't know that we have to take the subcommittee's time to do it.
 

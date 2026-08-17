@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2558.png
-
-Convert to Markdown1. Access to all memoranda, airtels, teletypes, and any other materials which relate in any way to:
+1. Access to all memoranda, airtels, teletypes, and any other materials which relate in any way to:
 
 a. The dissemination to any person or organization outside the executive branch of the federal government of information relating to Martin Luther King, Jr.
 

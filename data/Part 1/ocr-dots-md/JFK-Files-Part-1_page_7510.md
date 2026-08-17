@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7510.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 VIA: A&P
 SPECIFY AID OR SEA POLICR

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15259.png
-
-Convert to Markdown2 June 1959
+2 June 1959
 
 MEMORANDUM FOR: Chief, SR/DOB
 FROM : Training Staff, SR/DOB

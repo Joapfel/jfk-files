@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22815.png
-
-Convert to Markdown1 matters. He had a great interest at different points in
+1 matters. He had a great interest at different points in
 
 2 1961, 1962, in doing more about Cuba. And part of the more he
 

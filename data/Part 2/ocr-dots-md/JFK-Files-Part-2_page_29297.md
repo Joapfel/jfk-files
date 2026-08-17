@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29297.png
-
-Convert to Markdown* Mr. William Abbott, Civilian, Assistant to the Head, Counter-intelligence Branch, during the entire period of 1959 through 1963;
+* Mr. William Abbott, Civilian, Assistant to the Head, Counter-intelligence Branch, during the entire period of 1959 through 1963;
 
 * Mr. Prosser W. Palmer, Civilian, assigned to the Programs Section (Op-921E2) during the entire period of 1959 through 1963; and
 

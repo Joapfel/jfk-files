@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17991.png
-
-Convert to MarkdownLegal Counsel to Adams Memo
+Legal Counsel to Adams Memo
 
 RE: JOHN T. ELLIFF
 

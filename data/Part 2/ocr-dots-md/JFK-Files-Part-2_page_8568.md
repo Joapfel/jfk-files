@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8568.png
-
-Convert to Markdownthe information straight forwardly, thereby, handicapping the analysts in making a confident judgment of the accuracy of the report's content.
+the information straight forwardly, thereby, handicapping the analysts in making a confident judgment of the accuracy of the report's content.
 
 Some intelligence analysts, both inside and outside the CIA, receive large numbers of this type of report every day, many of which do come from actual agents. But by mixing together information supplied by audio surveillance (which is, by definition, an accurate account of what was said) with agent reports which are sometimes exaggerated or false, the Clandestine Services confuses and often misleads those people within the U.S. government whose function it is to analyze foreign events and indirectly those leaders who make decisions based on that intelligence analysis.
 

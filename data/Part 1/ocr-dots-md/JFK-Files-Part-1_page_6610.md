@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6610.png
-
-Convert to Markdown14-0000
+14-0000
 
 Chief, New York Office
 Chief, San Francisco Office

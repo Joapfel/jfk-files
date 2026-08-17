@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4479.png
-
-Convert to Markdown13-00000
+13-00000
 
 H. Exploitation of Exile Groups: We will continue the clandestine exploitation of exile groups for intelligence collection, psychological warfare and other approved missions.
 

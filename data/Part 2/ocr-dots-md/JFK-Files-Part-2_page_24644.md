@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24644.png
-
-Convert to MarkdownHowever, his cables indicate that he was planning to continue to implement the operation and sought the resources to do it successfully. He urged headquarters to send him an alternate operative for the assassination mission in the event that they found his first choice unacceptable:
+However, his cables indicate that he was planning to continue to implement the operation and sought the resources to do it successfully. He urged headquarters to send him an alternate operative for the assassination mission in the event that they found his first choice unacceptable:
 
 > IF HQS BELIEVE [AGENT'S CIRCUMSTANCES] BAR HIS PARTICIPATION, WISH STRESS NECESSITY PROVIDE STATION WITH QUALIFIED THIRD COUNTRY NATIONAL. (CIA Cable IN 24171, Leopoldville to Tweedy, 10/7/60.)
 

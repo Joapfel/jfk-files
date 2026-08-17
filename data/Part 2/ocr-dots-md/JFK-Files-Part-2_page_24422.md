@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24422.png
-
-Convert to MarkdownHarvey terminated the operation in mid-February 1963. At a
+Harvey terminated the operation in mid-February 1963. At a
 meeting with Roselli in Los Angeles, it was agreed that Roselli
 would taper off his communications with Varona (I.G., pp. 52-53).
 Roselli testified that he simply broke off contact with the Cubans.

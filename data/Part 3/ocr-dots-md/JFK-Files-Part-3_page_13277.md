@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13277.png
-
-Convert to MarkdownJanuary 30, 1964
+January 30, 1964
 
 Memorandum for: The Honorable Lee Rankin
 

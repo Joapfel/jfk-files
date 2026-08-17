@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7519.png
-
-Convert to MarkdownSUBJECT: Passports Used by MOSKALEV, Yuriy
+SUBJECT: Passports Used by MOSKALEV, Yuriy
 MOSKALEV, Yuriy Ivanovich
 MOSKALEV, Yuriy Mikhailovich
 

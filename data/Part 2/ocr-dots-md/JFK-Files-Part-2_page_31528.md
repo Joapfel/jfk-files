@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31528.png
-
-Convert to MarkdownSF T-3
+SF T-3
 on 2/24/66
 
 SF T-4

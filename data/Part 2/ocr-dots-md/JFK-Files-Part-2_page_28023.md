@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28023.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Phoebe Curtis Orr</td><td>December 1, 1978</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>219-64-3205</td><td>☐ Appointment<br/>☐ Salary Adjustment</td></tr><tr><td rowspan="2">Employing Office or Committee/Subcommittee</td><td>☐ Title Change</td></tr><tr><td>☐ Termination (At close of business on effective date)</td></tr><tr><td>Assassinations</td><td>☐ Leave without pay (Beginning with effective date above and ending close of business ____________________________)<br/>Specify Date</td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Phoebe Curtis Orr</td><td>December 1, 1978</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>219-64-3205</td><td>☐ Appointment<br/>☐ Salary Adjustment</td></tr><tr><td rowspan="2">Employing Office or Committee/Subcommittee</td><td>☐ Title Change</td></tr><tr><td>☐ Termination (At close of business on effective date)</td></tr><tr><td>Assassinations</td><td>☐ Leave without pay (Beginning with effective date above and ending close of business ____________________________)<br/>Specify Date</td></tr></table>
 
 (If type of action is an Appointment, Salary Adjustment, or Title Change, complete appropriate information below.)
 

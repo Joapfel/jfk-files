@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13751.png
-
-Convert to MarkdownThe Deputy Attorney General
+The Deputy Attorney General
 
 1 - Mr. Wannall - enc.
 1 - Mr. Cregar - enc.

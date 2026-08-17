@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19939.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # APPENDIX
 ## NATIONAL GUARDIAN

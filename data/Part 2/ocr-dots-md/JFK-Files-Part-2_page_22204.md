@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22204.png
-
-Convert to MarkdownHW 50955
+HW 50955
 
 <table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>SPECIAL GROUP AUGMENTED, MONGOOSE, LANSDALE, TAYLOR, JOHNSON, GILPATRICK, MCCONE, RFK, LEMNITZER</td><td>July 11, 1962</td><td>Special Group Augmented MONGODB</td></tr></tbody></table>
 

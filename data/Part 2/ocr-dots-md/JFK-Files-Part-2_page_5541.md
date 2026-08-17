@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5541.png
-
-Convert to MarkdownAdministrative - HRG Internal Use Only
+Administrative - HRG Internal Use Only
 
 30 April 1997
 

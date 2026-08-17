@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27061.png
-
-Convert to MarkdownFile #242 369
+File #242 369
 
 was given as 8th Avenue #1221, 8th Piso, P. O. Box 918, Guatemala City, Guatemala.
 

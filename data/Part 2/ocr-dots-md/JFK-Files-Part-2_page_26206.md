@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26206.png
-
-Convert to Markdownisn't my idea of a good spot to be in. You just get belabored over that.
+isn't my idea of a good spot to be in. You just get belabored over that.
 
 O'BRIEN: LANSDALE:
 

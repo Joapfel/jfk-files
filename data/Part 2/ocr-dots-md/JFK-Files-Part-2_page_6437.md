@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6437.png
-
-Convert to Markdown4. Concept of Operation:
+4. Concept of Operation:
 
 a. The tube must be introduced clandestinely into appropriate equipments.
 

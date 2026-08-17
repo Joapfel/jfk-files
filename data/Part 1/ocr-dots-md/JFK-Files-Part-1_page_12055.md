@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12055.png
-
-Convert to MarkdownSECRET
+SECRET
 Security information
 
 27 July 1973

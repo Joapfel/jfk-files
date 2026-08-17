@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3199.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td><td>CLASSIFIED &amp; SSAC:</td><td>TOTAL OPIES OUTING AND/OR INITIALS - SEE BY</td></tr><tr><td colspan="2">PERMANENT NOTIFIED</td><td colspan="2"><div style="text-align:center;"><strong>SECRET</strong><br/>(When Fitted In) ... GROUP I<br/>[List of other units, e.g., SS, etc.]<br/>REPRODUCTION OF THIS COPY PROHIBITED</div></td></tr></thead><tbody><tr><td>ADVICE COPY</td><td><input type="checkbox" checked disabled/> ISSUED <input type="checkbox" disabled/> SLOTTED</td><td></td><td><table><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table></td></tr><tr><td>DWG.</td><td>&nbsp;</td><td>ATTN.</td><td>&nbsp;</td></tr><tr><td>DISTRIBUTION BY:</td><td>20 PER</td><td>FILE NO.:</td><td>&nbsp;</td></tr><tr><td>ACTION</td><td><input type="checkbox" checked disabled/> RID COPY</td><td>FILE VA.</td><td>RJAN WH8 F? SC CLOPS c/c1c2</td></tr></tbody></table>
 

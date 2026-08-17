@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14027.png
-
-Convert to Markdownnot directly or indirectly involved in support of Diem forces which raided
+not directly or indirectly involved in support of Diem forces which raided
 the pagodas.
 
 Continuing, Mr. Colby reported to the Board that in September and early

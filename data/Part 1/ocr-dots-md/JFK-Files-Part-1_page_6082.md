@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6082.png
-
-Convert to Markdown# EPILOGO
+# EPILOGO
 
 "Todos os poderes que iria adquirindo a casta de funcionários, não pela necessidade de manter-se uma ocupação privilegiada e pungue, iria o ponto periférica, sem ter a mesma razão de simplicidade com esperanças e proveitos, para fazer frente aosREVISTARIOS encaçados por interesses communs.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20880.png
-
-Convert to MarkdownAT BOSTON UNIVERSITY.
+AT BOSTON UNIVERSITY.
 
 ADMINISTRATIVE---
 

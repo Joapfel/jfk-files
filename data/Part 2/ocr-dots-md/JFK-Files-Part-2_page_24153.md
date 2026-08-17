@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24153.png
-
-Convert to MarkdownTAB C
+TAB C
 
 FUNDING AND PAYROLLING MECHANISMS
 

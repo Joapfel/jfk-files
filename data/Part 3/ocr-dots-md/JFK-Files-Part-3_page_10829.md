@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10829.png
-
-Convert to Markdowninterest and CIA contact would not jeopardize any FBI
+interest and CIA contact would not jeopardize any FBI
 investigations, we would grant CIA approval to proceed
 with its contact with proviso we be kept informed of
 information developed of possible interest to us.

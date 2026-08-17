@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29227.png
-
-Convert to MarkdownThe names of the family of Celso M. Hernandez are as follows:
+The names of the family of Celso M. Hernandez are as follows:
 
 Wife: Maria De La Caridad Valero, WF, age 41 (Maiden name)
 Daughter: Maria De Los Angles, WF, age 14

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16450.png
-
-Convert to Markdown2. Breathing
+2. Breathing
 3. Pulling trigger
 
 C. Rifle

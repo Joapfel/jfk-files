@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17990.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET<br/><img src="https://i.imgur.com/12345.png" alt="SECRET"></td><td>HMMA-15394<br/>1805</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>SECRET<br/><img src="https://i.imgur.com/12345.png" alt="SECRET"></td><td>HMMA-15394<br/>1805</td></tr></table>
 
 which LIENVOY now provides. This is exactly the work previously done by ZINSMEISTER and the only difference is that tapes are made at a different location. However, this does require close coordination within the Station of these two operations.
 

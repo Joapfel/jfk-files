@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28092.png
-
-Convert to MarkdownMay 6, 1977
+May 6, 1977
 
 Mrs. Giulia Mainieri Barrow
 Select Committee on Assassinations

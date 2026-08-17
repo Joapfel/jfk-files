@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23146.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Johnston. My question to you is, of partial significance, and that is the fact that that cable says that Oswald "allegedly lives in home of Foreign Minister for two months.*
 

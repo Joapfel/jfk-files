@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2989.png
-
-Convert to Markdown# KOMAREK (See KAZAN-KOMAREK)
+# KOMAREK (See KAZAN-KOMAREK)
 
 - KOMAROV, Vladimir Mikhaylovich (alias of V.M. KOVSHUK) 33, 412
 - KONSTANTINOV, Ivan Alekseyevich 108, 109

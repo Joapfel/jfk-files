@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20656.png
-
-Convert to MarkdownSECRET
+SECRET
 SECRECY LEVEL: FOR PERSONNEL ACTION
 
 <table><tr><td>1 - Serial No.</td><td>2. Name (Last, First, Middle)</td></tr><tr><td>SCH</td><td>PHILLIPS, DAVID A.</td></tr><tr><td>3. SCD</td><td>4. CSC Point</td></tr><tr><td>5. Mo. Da. Yr</td><td>6. Yes. 1 Code<br/>No. 8 1</td></tr></table>

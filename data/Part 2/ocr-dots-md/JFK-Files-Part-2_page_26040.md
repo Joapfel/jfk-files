@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26040.png
-
-Convert to Markdowntheir Vietnamese counterparts in the Viet-
+their Vietnamese counterparts in the Viet-
 namese army and so forth thought of them, and
 their work, and their advice, and the reactions
 throughout the armed forces to them. This

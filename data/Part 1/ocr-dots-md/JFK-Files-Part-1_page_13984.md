@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13984.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td rowspan="2">1. Bill to Section 2 of check. List each item separately and forward to RHD.</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_419.png
-
-Convert to Markdown1. ISAACS, Harold
+1. ISAACS, Harold
 
 2. ITO, Chester
 

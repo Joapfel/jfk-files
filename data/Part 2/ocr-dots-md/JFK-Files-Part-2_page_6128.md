@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6128.png
-
-Convert to MarkdownAPR 04 '97 09:59AM
+APR 04 '97 09:59AM
 
 1ST ITEM of Level 1 printed in FULL format.
 

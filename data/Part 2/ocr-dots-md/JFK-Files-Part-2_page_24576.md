@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24576.png
-
-Convert to MarkdownAugmented chose a plan advanced by McCone that assumed Castro's continuance in power and had the more limited objective of splitting off Castro from "old-line Communists".* (August 10 Minutes, p. 2). The decision and "action" of the Special Group Augmented at the August 10 meeting was stated as follows:
+Augmented chose a plan advanced by McCone that assumed Castro's continuance in power and had the more limited objective of splitting off Castro from "old-line Communists".* (August 10 Minutes, p. 2). The decision and "action" of the Special Group Augmented at the August 10 meeting was stated as follows:
 
 "The principal members of the Special Group felt, after some discussion, that the CIA variant should be developed further for consideration at next Thursday's meeting of the Special Group. McCone was asked to stress economic sabotage, and to emphasize measures to foment a Castro-oldline Communist split." (August Memorandum, p. 2).
 

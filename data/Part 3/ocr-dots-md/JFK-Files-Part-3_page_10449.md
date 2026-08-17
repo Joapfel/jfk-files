@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10449.png
-
-Convert to MarkdownC-75
+C-75
 DEC 25 '93 10:34
 
 RECD

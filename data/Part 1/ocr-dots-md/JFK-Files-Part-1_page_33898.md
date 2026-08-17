@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33898.png
-
-Convert to MarkdownThe above quotation is understood by exile personnel par-
+The above quotation is understood by exile personnel par-
 ticularly to be a scumn injunction against ideological program content
 which in any way violates the letter and spirit of American policy and
 ideals. It is a guarantee to the American people and to our captive

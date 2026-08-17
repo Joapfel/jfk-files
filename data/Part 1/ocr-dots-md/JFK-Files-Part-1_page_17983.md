@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17983.png
-
-Convert to Markdown<table><tr><td>CLASS: TOP SECRET</td></tr></table>
+<table><tr><td>CLASS: TOP SECRET</td></tr></table>
 
 IN: 65-12047
 

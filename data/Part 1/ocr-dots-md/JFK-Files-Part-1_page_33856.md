@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33856.png
-
-Convert to Markdown14-00000
+14-00000
 
 Jom : 10 April
 I think if I were you I would forward this to DDP with a note on cover sheet:

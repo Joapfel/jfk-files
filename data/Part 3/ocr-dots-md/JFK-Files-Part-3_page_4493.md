@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4493.png
-
-Convert to MarkdownNO 87-14835
+NO 87-14835
 
 as a result of a notice received from the Embassy Auto Sales,
 1721 Broadway, New York, that this automobile had been

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16796.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>DATE : 27 FEB 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/WH 5</td></tr><tr><td>INFO : ADDP, C/CI, C/CI/IC 2, C/FI 2, S/C 2</td></tr></table>
 

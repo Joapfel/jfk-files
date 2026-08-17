@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9462.png
-
-Convert to MarkdownCopy of letter from MELVIN LASKY dated 21 May 1950, New York City
+Copy of letter from MELVIN LASKY dated 21 May 1950, New York City
 
 "Dear Jim,
 

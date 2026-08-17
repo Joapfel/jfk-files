@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21440.png
-
-Convert to MarkdownSF 100-61281
+SF 100-61281
 BW/cmp
 
 SECRET

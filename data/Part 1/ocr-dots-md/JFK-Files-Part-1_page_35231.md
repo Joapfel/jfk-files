@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35231.png
-
-Convert to MarkdownGENERAL
+GENERAL
 
 Cumpliendo con lo establecido, de rendirles un informe al cierre de cada mes, les estoy adfguntando un ESTADO DE IN- GRESOS Y GASTOS correspondiente al mes de Julio de 1960.
 

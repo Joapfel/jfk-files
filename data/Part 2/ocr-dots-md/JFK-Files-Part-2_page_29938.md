@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29938.png
-
-Convert to MarkdownSELECT COMMITTEE ON ASSASSINATIONS
+SELECT COMMITTEE ON ASSASSINATIONS
 
 NAME **Sgt. Lewis Wesley LEBER**
 Date **2/24/78** Time **12:03P.M.**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31686.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 out of the house immediately and hired a private investigator who moved into the house "armed to the teeth". It appears that ROBERT SCHEER has been somewhat frightened ever since this threat.

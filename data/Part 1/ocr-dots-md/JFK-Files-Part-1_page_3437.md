@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3437.png
-
-Convert to Markdown<table><tr><td colspan="4">ASSIGNED MESSAGE</td></tr><tr><td>~~SECRET~~</td><td></td><td>B/ SECRET</td><td></td></tr></table>
+<table><tr><td colspan="4">ASSIGNED MESSAGE</td></tr><tr><td>~~SECRET~~</td><td></td><td>B/ SECRET</td><td></td></tr></table>
 
 <table><thead><tr><th>TO</th><th>: DIRECTOR</th></tr></thead><tbody><tr><td>FROM : CARACAS</td><td></td></tr><tr><td>ACTION : DC/MH/SA 3 (MR HECKSHER, WH/SA NOTIFIED AND COPY SLOTTED AT 1830 27 MAY BP)</td><td></td></tr><tr><td>INFO : DOP, C/MH, VR</td><td></td></tr></tbody></table>
 

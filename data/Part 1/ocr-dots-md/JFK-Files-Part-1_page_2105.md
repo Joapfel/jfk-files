@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2105.png
-
-Convert to MarkdownSECRET
+SECRET
 
 POSITION CONTROL REGISTER
 

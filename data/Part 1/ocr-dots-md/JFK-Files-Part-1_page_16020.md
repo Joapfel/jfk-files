@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16020.png
-
-Convert to MarkdownVI.
+VI.
 
 If affirmative, is the information in the letter dated 23 February 1971 (in answer to the questions posed in the letter dated 16 February 1971) true and correct to your best knowledge and belief?
 

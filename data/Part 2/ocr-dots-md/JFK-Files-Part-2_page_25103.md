@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25103.png
-
-Convert to Markdown(2)
+(2)
 
 [4, con't.]
 

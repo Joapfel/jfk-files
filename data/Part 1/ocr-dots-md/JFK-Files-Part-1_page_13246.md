@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>MICROFILMED</td></tr><tr><td>FEB 7 1968</td></tr><tr><td>DOC. MICRO. GER.</td></tr></table>
 

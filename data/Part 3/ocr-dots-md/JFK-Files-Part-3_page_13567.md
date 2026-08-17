@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13567.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 has changed in a fairly marked way. In looking at the historical files of OMB, it is interesting to note that back in the 1950s there were some 45 people examining the programs of the Veteran's Administration, and they were examining them then in a way that was more like an audit function, because it was possible to do that because we did not have the great number of programs we have now.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6063.png
-
-Convert to Markdown13. Business relationships:
+13. Business relationships:
 
 Member, Board of Advisors, American Bar Association,
 Commission on College and University Legal Studies, 1993-

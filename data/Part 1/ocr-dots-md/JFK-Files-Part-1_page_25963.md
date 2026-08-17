@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25963.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: [Al Amor]
 

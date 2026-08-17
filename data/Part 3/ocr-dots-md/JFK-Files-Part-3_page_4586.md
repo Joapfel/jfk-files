@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4586.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NY 105-49812
 

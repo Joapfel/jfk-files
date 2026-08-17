@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30697.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Clare Booth Luce
 Office of Security - One volume

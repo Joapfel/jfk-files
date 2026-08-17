@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2340.png
-
-Convert to MarkdownSECRET
+SECRET
 
 issue, it is eminently reasonable to conclude that the encounter took place but that NOSENKO simply has no recollection of it. There is no reason to attach significance to this lapse of memory.
 

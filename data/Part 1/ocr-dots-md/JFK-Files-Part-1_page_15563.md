@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15563.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 ORIG: Dan Niesclur:nye
 UNIT: AF/W/2

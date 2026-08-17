@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32343.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DOD Revision to Paper Entitled
 "Training of Latin Americans in the United States"

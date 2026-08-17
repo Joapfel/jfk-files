@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13153.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CIA communication dated 6/15/66, furnished a letter dated 3/18/66, from Gilberto Navarro R, a resident of San Pedro Sula, Honduras, Central America, to Manuel Artime, Director of the Cuban Revolutionary Front in Exile, Miami, Florida. This letter advised Artime to get in contact with the CIA to deport from Los Angeles, Calif. 3 sisters, Nora, Oneyda and Marina Amaya Cabrera, and to order the American Consul in San Pedro Sula to cancel the visa of another sister, Lila Amaya Cabrera V de Lopez, who planned to transfer her residency to Los Angeles. Navarro said these sisters were first cousins of the dangerous international communist, Eliceo Mejia Cabrera o Rovelo (105-129943) who was located in Havana, Cuba.
 

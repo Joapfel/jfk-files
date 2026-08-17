@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22343.png
-
-Convert to Markdown750.
+750.
 
 ## 3. Motivation
 

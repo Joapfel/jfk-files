@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26296.png
-
-Convert to Markdown<table><tr><td>CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>C-O-N-F-I-D-E-N-T-I-A-L NOFORN/CONTINUED CONTROL</td><td>TDCS-3/513,973</td></tr></table>
+<table><tr><td>CLASSIFICATION - DISSEMINATION CONTROLS</td></tr><tr><td>C-O-N-F-I-D-E-N-T-I-A-L NOFORN/CONTINUED CONTROL</td><td>TDCS-3/513,973</td></tr></table>
 
 2. FIELD DISSEM. STATE ARMY NAVY AIR USMACV MAAG AID CINCPAC ARPAC PACFLT PACAF.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12746.png
-
-Convert to MarkdownCABLE SEC DISSENT PERS TOTAL COPIES
+CABLE SEC DISSENT PERS TOTAL COPIES
 
 <table><tr><td colspan="2">PERSON, UNIT NOTIFIED</td></tr><tr><td>TOTAL COPIES</td><td>SECRET</td></tr></table>
 

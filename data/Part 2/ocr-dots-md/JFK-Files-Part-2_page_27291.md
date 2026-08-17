@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27291.png
-
-Convert to MarkdownA - Memo from CIA from Sheffield Edwards re Arthur M. Thurston -
+A - Memo from CIA from Sheffield Edwards re Arthur M. Thurston -
 no date.
 
 CONFIDENTIAL

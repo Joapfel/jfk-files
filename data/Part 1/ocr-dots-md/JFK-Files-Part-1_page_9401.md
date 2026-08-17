@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9401.png
-
-Convert to Markdown# Congress for Cultural Freedom
+# Congress for Cultural Freedom
 
 Congrès pour la liberté de la culture * Kongress für Kulturelle Freiheit
 

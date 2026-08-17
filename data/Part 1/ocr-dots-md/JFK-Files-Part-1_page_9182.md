@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9182.png
-
-Convert to MarkdownINCOMING TELEGRAM
+INCOMING TELEGRAM
 
 Department of Sta.3
 

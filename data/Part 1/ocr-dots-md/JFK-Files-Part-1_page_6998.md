@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6998.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td rowspan="2">A-519</td><th colspan="2">SECRET</th></tr><tr><td>CA</td><td>SIG-Ego, CO-1639</td></tr></table>
 

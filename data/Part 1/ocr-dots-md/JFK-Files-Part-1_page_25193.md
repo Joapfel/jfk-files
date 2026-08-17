@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25193.png
-
-Convert to Markdown-3-
+-3-
 
 #37 (FEDYANIN, Vladimir P.)
 

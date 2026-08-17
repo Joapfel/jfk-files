@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4128.png
-
-Convert to MarkdownSECRET
+SECRET
 
 U. S., dealing directly with other countries on Costa Rican interests instead of falling in line always with the U.S. and the OAS. A/I mentioned Pres. ORLICH's offer to recognize a Government of Free Cuba if A/I could manage to seize and hold a piece of Cuba and declare such a government. ODUBER agreed to honor the agreement, without committing troops, but through his good offices in foreign affairs. He agreed to exert moral pressure on the U.S. in behalf of such an undertaking, if necessary, by exploiting the favorable press and public attitude toward him in the U.S.
 

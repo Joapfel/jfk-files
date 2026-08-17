@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26918.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Personnel Security Division, OS
 

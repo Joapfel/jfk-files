@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23545.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Interrogation of Witnesses and Prisoners
 

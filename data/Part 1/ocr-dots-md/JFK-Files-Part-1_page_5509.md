@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5509.png
-
-Convert to Markdown8. Secretary of State for Justice Ramesau Estimé, who is a good friend of Captain Tassy, is in serious trouble. Estimé, a brother of a former president of Haiti, may lose his position. Since he himself has presidential ambitions, he may become a candidate for this office if he survives the present crisis.
+8. Secretary of State for Justice Ramesau Estimé, who is a good friend of Captain Tassy, is in serious trouble. Estimé, a brother of a former president of Haiti, may lose his position. Since he himself has presidential ambitions, he may become a candidate for this office if he survives the present crisis.
 
 9. Another potential rival for the presidency is Secretary of State for Labor and Social Welfare Max A. Antoine, who claims the support of the labor unions.
 

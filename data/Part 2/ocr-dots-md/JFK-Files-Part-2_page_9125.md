@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9125.png
-
-Convert to MarkdownSECRET ARMY ORGANIZATION
+SECRET ARMY ORGANIZATION
 
 Name (FNU) Stan
 Address From San Diego CALIF.

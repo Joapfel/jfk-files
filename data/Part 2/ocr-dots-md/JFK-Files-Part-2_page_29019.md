@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29019.png
-
-Convert to MarkdownNAME SAM &amp; HYLL'S Ruby
+NAME SAM &amp; HYLL'S Ruby
 ADDRESS
 322-12-7997
 

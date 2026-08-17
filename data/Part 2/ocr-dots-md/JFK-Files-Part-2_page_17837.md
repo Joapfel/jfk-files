@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17837.png
-
-Convert to MarkdownNRO08 AT CODED
+NRO08 AT CODED
 
 5:44 PM URGENT MARCH 26, 1975 LAP
 

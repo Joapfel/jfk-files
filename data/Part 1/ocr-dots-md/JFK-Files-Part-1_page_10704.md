@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10704.png
-
-Convert to Markdown<table><tr><td>MY COMMENT:</td></tr><tr><td style="text-align: center;"><div>No dissemination of the attached to portion of this cable has been made outside the agency pending release by the action unit.</div></td></tr></table>
+<table><tr><td>MY COMMENT:</td></tr><tr><td style="text-align: center;"><div>No dissemination of the attached to portion of this cable has been made outside the agency pending release by the action unit.</div></td></tr></table>
 
 <table><tbody><tr><td colspan="2">MICROFILMED</td></tr><tr><td colspan="2">MAR 1 0005</td></tr><tr><td colspan="2">DOC. MICRO. SER.</td></tr></tbody></table>
 

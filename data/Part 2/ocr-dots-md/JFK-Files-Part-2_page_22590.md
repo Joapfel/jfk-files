@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22590.png
-
-Convert to MarkdownOn 6 June 1969, Tighe recorded that Jim McCord advised him on that date that he, McCord, had visited Wiley in New York City on the 4th and 5th of June 1969. McCord gave Tighe photographs from Wiley which had been "entrusted" to Wiley "many years ago" by Morse Allen. The photograph had the following names on the back: Vianamin Belitsky, Fred Borodin, Michel Reschal, and Deak Zoltan.
+On 6 June 1969, Tighe recorded that Jim McCord advised him on that date that he, McCord, had visited Wiley in New York City on the 4th and 5th of June 1969. McCord gave Tighe photographs from Wiley which had been "entrusted" to Wiley "many years ago" by Morse Allen. The photograph had the following names on the back: Vianamin Belitsky, Fred Borodin, Michel Reschal, and Deak Zoltan.
 
 Memorandum, dated 12 March 1970 by CIA Cover Employee states: "Wiley apparently had telephoned Jim McCord and at the end of their discussion, Wiley, or McCord, had the call transferred to our number."
 

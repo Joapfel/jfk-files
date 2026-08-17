@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24236.png
-
-Convert to Markdowndrink. He says that in the revolutionary movement poverty is no virtue,
+drink. He says that in the revolutionary movement poverty is no virtue,
 but merely indicates lack of influence. He says that the most popular
 persons are those who can dispense money, alcohol, and women. This may
 well be true. It is certainly true that such a role would please Q

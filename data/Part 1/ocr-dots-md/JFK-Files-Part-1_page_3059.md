@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3059.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>MESSAGE TYPE<br>TOTAL COPIES</td><td>BOUTING AND/OR INITIALS - SEEN BY:</td></tr></thead><tbody><tr><td>SECRET</td><td>PT 8<br>WH 7<br>0 6<br>0 5<br>0 10</td></tr></tbody></table>
 

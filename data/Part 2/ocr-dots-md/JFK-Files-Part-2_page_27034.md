@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27034.png
-
-Convert to Markdown24. Daniel Ellsberg
+24. Daniel Ellsberg
 
 25. Andrew St. George
 

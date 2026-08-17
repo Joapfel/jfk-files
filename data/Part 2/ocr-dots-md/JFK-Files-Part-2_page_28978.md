@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28978.png
-
-Convert to Markdown<table><tr><td>SCHEDULE<br>B<br>FORM 540</td></tr></table>
+<table><tr><td>SCHEDULE<br>B<br>FORM 540</td></tr></table>
 
 CALIFORNIA
 DIVIDEND AND INTEREST INCOME

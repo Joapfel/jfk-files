@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16205.png
-
-Convert to MarkdownDDO/WH/7/E. James McTigue:ar/4221/1497/ (26 June 1974)
+DDO/WH/7/E. James McTigue:ar/4221/1497/ (26 June 1974)
 
 Distribution:
 

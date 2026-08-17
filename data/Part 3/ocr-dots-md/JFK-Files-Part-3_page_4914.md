@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4914.png
-
-Convert to MarkdownRe: NORMAN ROTHMAN
+Re: NORMAN ROTHMAN
 
 MM T-21 is an individual who has some knowledge of the criminal element in the Miami, Florida, area.
 

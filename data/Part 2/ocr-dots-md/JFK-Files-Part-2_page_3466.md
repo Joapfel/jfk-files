@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3466.png
-
-Convert to Markdown<table><tr><td>DD/PZ-3032</td></tr><tr><td>Executive Registry</td></tr></table>
+<table><tr><td>DD/PZ-3032</td></tr><tr><td>Executive Registry</td></tr></table>
 
 25 July 1962
 

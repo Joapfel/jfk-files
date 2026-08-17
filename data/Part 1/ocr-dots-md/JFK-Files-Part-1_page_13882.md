@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13882.png
-
-Convert to Markdown140000
+140000
 
 ENBAJADA CUBANA.- 14-13-26.-
 

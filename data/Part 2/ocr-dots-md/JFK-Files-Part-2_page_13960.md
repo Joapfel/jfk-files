@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13960.png
-
-Convert to MarkdownThe individuals named on this list are those designated by the Agencies as having prime responsibility for preparing the paper. The papers should be delivered in two copies directly to the Associate Counsel to the President, Mr. James Wilderotter, Room 182, Old Executive Office Building, by the Agencies. In the course of the next week, a meeting will be called for Mr. Wilderotter to meet with the individuals designated on this list. Each Agency will also be responsible for naming a person to work with each Task Force leader where it is appropriate to the subject matter. In the interim, Task Force leaders should deal directly with the following people with respect to individual Agency responsibilities:
+The individuals named on this list are those designated by the Agencies as having prime responsibility for preparing the paper. The papers should be delivered in two copies directly to the Associate Counsel to the President, Mr. James Wilderotter, Room 182, Old Executive Office Building, by the Agencies. In the course of the next week, a meeting will be called for Mr. Wilderotter to meet with the individuals designated on this list. Each Agency will also be responsible for naming a person to work with each Task Force leader where it is appropriate to the subject matter. In the interim, Task Force leaders should deal directly with the following people with respect to individual Agency responsibilities:
 
 DCI/Intelligence Community John Clarke
 IDS 143-5477

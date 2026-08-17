@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9774.png
-
-Convert to MarkdownC O P Y
+C O P Y
 
 File: I:LK:hh
 

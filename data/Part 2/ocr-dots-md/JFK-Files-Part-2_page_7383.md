@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7383.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Area Security Check Sheet
 

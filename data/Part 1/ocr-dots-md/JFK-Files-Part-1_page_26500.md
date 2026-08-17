@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26500.png
-
-Convert to MarkdownCompañero:
+Compañero:
 
 I have arrived here together with Comandante Adan after a series of hardships and of many delays owing to a number of reasons which he can explain in detail even better perhaps than I could.
 

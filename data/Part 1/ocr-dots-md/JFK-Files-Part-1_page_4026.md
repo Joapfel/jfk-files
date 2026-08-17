@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4026.png
-
-Convert to Markdown# INTRODUCTION
+# INTRODUCTION
 
 This industrial development plan is presented by the INVERSIÑA Company located in the city of Managua, D.F. (Naval District), Nicaragua.
 

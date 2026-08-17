@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26049.png
-
-Convert to Markdownmeal or something, and had some way of
+meal or something, and had some way of
 dramatically affecting the most emotional irritations
 that would take place, just how the people
 being polite at the time would have seemed

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_685.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CS-1337 (Millard)
 2 February 1956

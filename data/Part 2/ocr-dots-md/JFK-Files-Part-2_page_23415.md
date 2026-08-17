@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23415.png
-
-Convert to MarkdownHW
+HW
 
 <table><tr><td colspan="2">DIRECTOR<br>LEOPOLDVILLE<br>C/AF (DR HOUSE, AF DIV NOTIFIED 1940 30 SEP)</td></tr><tr><td colspan="2">DOP, S/C 2</td></tr></table>
 

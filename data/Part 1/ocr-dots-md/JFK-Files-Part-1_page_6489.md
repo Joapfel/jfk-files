@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6489.png
-
-Convert to Markdown10-0000
+10-0000
 
 CONFIDENTIAL TOP 0319552
 ALIEN (SITUATION) FROM FERDIN

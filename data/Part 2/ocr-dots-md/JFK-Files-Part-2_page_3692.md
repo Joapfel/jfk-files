@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3692.png
-
-Convert to Markdown6. South Vietnam
+6. South Vietnam
 
 a. The first suicide by burning to occur under the new regime was witnessed today by bystanders at a crowded intersection in Saigon where a young girl went up in flames.
 

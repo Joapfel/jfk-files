@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6705.png
-
-Convert to MarkdownDear Mr. Teels:
+Dear Mr. Teels:
 
 Desd. Niz. le escribí acerca de los informes del amigo que liege de
 Cuba en los ultimos días de Julio o finales de Agosto; espero que le hayan sido uti-

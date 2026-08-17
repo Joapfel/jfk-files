@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27971.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chairman, Clandestine Services Career Service, Section A
 

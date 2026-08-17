@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11059.png
-
-Convert to Markdownin a key facility, copies of reports bearing the dual character, "Security of Government Employees; Security Matter - C," should be furnished to appropriate intelligence agencies of the armed services by the field offices as shown in section 87D 7e (2) of this manual. For instructions regarding dissemination to the Defense Industrial Security Clearance Office, Defense Supply Agency, Columbus, Ohio, see 87D 7e (3) of this manual.
+in a key facility, copies of reports bearing the dual character, "Security of Government Employees; Security Matter - C," should be furnished to appropriate intelligence agencies of the armed services by the field offices as shown in section 87D 7e (2) of this manual. For instructions regarding dissemination to the Defense Industrial Security Clearance Office, Defense Supply Agency, Columbus, Ohio, see 87D 7e (3) of this manual.
 
 Specific instructions with regard to all phases of our responsibilities under Executive Order 10450, including policy, investigative procedures, and dissemination are set out in section[19,] volume[II,] of this manual.
 

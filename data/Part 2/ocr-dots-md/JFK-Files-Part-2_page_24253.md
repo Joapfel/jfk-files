@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24253.png
-
-Convert to MarkdownThe management of the air proprietary at this time was in the OPC structure and was therefore responsive to operations. An example of some of the problems which were created as a result of this is the acquisition in August of 1950 of the entity.
+The management of the air proprietary at this time was in the OPC structure and was therefore responsive to operations. An example of some of the problems which were created as a result of this is the acquisition in August of 1950 of the entity.
 
 Houston was participating in the negotiations. He had been invited to do so by Frank Wisner.
 

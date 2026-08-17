@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31468.png
-
-Convert to MarkdownSTUDIES ON THE LEFT (SOTL)
+STUDIES ON THE LEFT (SOTL)
 
 The "Wisconsin State Journal," a daily newspaper published at Madison, Wisconsin, on November 26, 1959 announded that a new scholarly magazine, "Studies on the Left," a historical review dedicated to the leftist point of view, edited by present and former graduate students at the University of Wisconsin (UW), but having no connection with the UW itself, would begin publication soon.
 

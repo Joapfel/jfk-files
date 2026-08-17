@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10268.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 killing of police officers who, by their uniform, are a symbol of the democratic establishment; hijacking of aircraft in furtherance of revolutionary movements; terrorist assaults on foreign diplomatic personnel and establishments; and open declaration of war on our form of government are only a few of the violent acts which have been perpetrated by domestic subversives who seek to destroy or seriously cripple our Government. Terrorist guerrilla attacks which were once confined to far away places and related to problems of no immediate concern of ours are now possible in this country. Foreign terrorist groups in collusion with domestic terrorists have laid plans for an airport massacre of the type which recently occurred in Israel. Other foreign terrorist elements have laid plans for terrorist attacks on American soil. Already one foreign official has been assassinated, possibly by terrorists.
 

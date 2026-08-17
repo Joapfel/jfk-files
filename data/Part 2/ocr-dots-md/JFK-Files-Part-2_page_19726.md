@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19726.png
-
-Convert to Markdown<table><tr><td>Mr. Tulson</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Mr. Rison</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Casper</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dahlen</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Tavel</td></tr><tr><td>Mr. Welters</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss Holmes</td></tr><tr><td>Miss Gandy</td></tr></table>
+<table><tr><td>Mr. Tulson</td></tr><tr><td>Mr. Felt</td></tr><tr><td>Mr. Rison</td></tr><tr><td>Mr. Mohr</td></tr><tr><td>Mr. Callahan</td></tr><tr><td>Mr. Casper</td></tr><tr><td>Mr. Conrad</td></tr><tr><td>Mr. Dahlen</td></tr><tr><td>Mr. Cleveland</td></tr><tr><td>Mr. Ponder</td></tr><tr><td>Mr. Bates</td></tr><tr><td>Mr. Tavel</td></tr><tr><td>Mr. Welters</td></tr><tr><td>Tele. Room</td></tr><tr><td>Miss Holmes</td></tr><tr><td>Miss Gandy</td></tr></table>
 
 NOV 19 1971
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10288.png
-
-Convert to MarkdownSUBJECT: Sensitive Activities Performed by the Office of Logistics
+SUBJECT: Sensitive Activities Performed by the Office of Logistics
 
 action would be more economical and eliminate the need for one agency of the Government to duplicate facilities readily available from another. [A typical example of this procedure is purchasing photointerpretation gear for the Defense Intelligence Agency element located at NPIC.] In connection with the current reporting requirement, however, I have had our records researched for the past 2 years and Attachment 1 reflects those transactions which appear to be relevant to the subject of this memorandum.
 

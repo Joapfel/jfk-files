@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3187.png
-
-Convert to Markdown1799
+1799
 
 the country advocating off-the-pig or kill-the-police or something like that. And a newspaper man was furnished, say some background information on him which would have been in the area of public source material which he could use in an article.
 

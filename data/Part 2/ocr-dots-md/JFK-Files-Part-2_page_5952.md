@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5952.png
-
-Convert to MarkdownAdministrative - Internal Use Only
+Administrative - Internal Use Only
 
 6 August 1998
 

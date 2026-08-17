@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15571.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>SECRET</td><td><table><tr><th>ROUTING</th><td></td><td></td><td></td></tr><tr><td>1</td><td>Eggleton</td><td>4</td><td></td></tr><tr><td>2</td><td>Grafton</td><td>5</td><td></td></tr><tr><td>3</td><td>Chaffin</td><td>6</td><td></td></tr></table></td></tr></tbody></table>
 

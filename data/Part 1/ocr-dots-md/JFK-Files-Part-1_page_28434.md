@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28434.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 30 June 1972
 

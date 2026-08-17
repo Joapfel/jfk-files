@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34941.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th style="text-align: center; font-weight: bold;">DISPATCH</th>

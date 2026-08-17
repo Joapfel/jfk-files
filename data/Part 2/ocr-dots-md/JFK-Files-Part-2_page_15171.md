@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15171.png
-
-Convert to MarkdownPOLICE TRAINING
+POLICE TRAINING
 
 Assistance in training matters continues to be one of the
 most sought after cooperative functions of the FBI. During calendar year

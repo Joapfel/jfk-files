@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30087.png
-
-Convert to Markdown# RESUME
+# RESUME
 
 Herman Edward Kimsey
 3700 Massachusetts Ave., N.W.

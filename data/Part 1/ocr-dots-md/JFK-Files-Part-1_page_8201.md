@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8201.png
-
-Convert to Markdownprotect his KUBARK status and assure that this present mission
+protect his KUBARK status and assure that this present mission
 would not in any way interfere with his possible appointment
 to a post in the Administration.
 

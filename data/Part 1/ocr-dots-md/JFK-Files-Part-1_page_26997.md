@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26997.png
-
-Convert to Markdown15 May 1969
+15 May 1969
 
 ATTN: 038
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10240.png
-
-Convert to MarkdownFITS ONLY
+FITS ONLY
 
 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24508.png
-
-Convert to MarkdownAdministration of the assassination plots. On the other hand, McCone and the surviving members of the Kennedy Administration testified that they did not believe a Castro assassination was permissible without a direct order, that assassination was not within the parameters of the Administration's anti-Castro program, and testified that to their knowledge no such direct order was given to Helms.
+Administration of the assassination plots. On the other hand, McCone and the surviving members of the Kennedy Administration testified that they did not believe a Castro assassination was permissible without a direct order, that assassination was not within the parameters of the Administration's anti-Castro program, and testified that to their knowledge no such direct order was given to Helms.
 
 Before setting out the testimony in detail, we discuss below the Kennedy Administration's 1962 covert action program, Operation Mongoose (as well as the events in 1961 leading to that program) which was designed to overthrow the Castro regime. An understanding of that program is essential to an evaluation of the testimony on the issue of authorization.
 

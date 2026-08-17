@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22638.png
-
-Convert to Markdown<table><tr><td colspan="2">097 OUT/SU, ANG</td><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 9 MAR 60</td><td>S-E-C-R-E-T</td><td>ROUTING</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="4"></td><td rowspan="3">MAR 9 0653Z 60</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION : C/WH 2</td></tr><tr><td>INFO : COP, C/CI, S/C 2 *</td><td>Routine</td></tr><tr><td></td><td></td><td>IN 10787</td></tr></table>
+<table><tr><td colspan="2">097 OUT/SU, ANG</td><td>CLASSIFIED MESSAGE</td></tr><tr><td>DATE : 9 MAR 60</td><td>S-E-C-R-E-T</td><td>ROUTING</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="4"></td><td rowspan="3">MAR 9 0653Z 60</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION : C/WH 2</td></tr><tr><td>INFO : COP, C/CI, S/C 2 *</td><td>Routine</td></tr><tr><td></td><td></td><td>IN 10787</td></tr></table>
 
 TO
 

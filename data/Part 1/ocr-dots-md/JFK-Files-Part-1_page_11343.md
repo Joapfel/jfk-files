@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11343.png
-
-Convert to Markdown18 November 1963
+18 November 1963
 
 MEMORANDUM FOR: Chief, WH/3/Mexico
 ATTENTION : Mike Mulloy

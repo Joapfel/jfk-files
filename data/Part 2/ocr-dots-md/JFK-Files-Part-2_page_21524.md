@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21524.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Schwarz. I have been told, Mr. Harvey -- is this not correct -- that you not only conceived the program but helped <u>to dig the tunnel?</u>
 

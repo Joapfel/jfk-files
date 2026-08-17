@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15445.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG: LICH GARDINER</td></tr><tr><td>UNIT: AF/8</td></tr><tr><td>EXT.: 5038</td></tr><tr><td>DATE: 16 May 1993</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2936.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 followed the right course in upsetting the Diem regime; but now
 that it was done, we had to see that we accomplished our objectives.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9368.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The front window of the NCCF branch at 2009 Albert, Flint, Michigan, is barricaded completely with sand leaving only places for guns to be pushed through.
 

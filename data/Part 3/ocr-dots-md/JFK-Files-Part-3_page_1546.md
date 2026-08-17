@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1546.png
-
-Convert to MarkdownFD-36.(Rev. 7-27-76)
+FD-36.(Rev. 7-27-76)
 
 FBI
 

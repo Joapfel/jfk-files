@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11596.png
-
-Convert to Markdown13. Father - full name, occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
+13. Father - full name, occupation, present residence, year and place of birth, nationality at birth and subsequent nationalities.
 
 Edwin Thomas Phillips, Jr., deceased. Born in Texas about 1840, U.S. citizen, no other nationalities.
 Last residence in Fort Worth, Texas.

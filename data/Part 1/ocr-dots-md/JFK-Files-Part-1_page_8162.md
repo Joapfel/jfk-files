@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8162.png
-
-Convert to Markdown# REPORT OF PROJECTS
+# REPORT OF PROJECTS
 
 ## 1. Mr. Julian HAYA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12209.png
-
-Convert to Markdown4. Four-month evaluation of informants not paid on Bureau authority
+4. Four-month evaluation of informants not paid on Bureau authority
 If the informant is not being paid on Bureau authorization, a communi-
 cation must be transmitted to the Bureau every four months after the
 date of designation containing the same information set out above in

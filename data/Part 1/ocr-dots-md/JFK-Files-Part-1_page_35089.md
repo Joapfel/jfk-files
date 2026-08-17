@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35089.png
-
-Convert to MarkdownGASTOS RELATIVOS AL CHEQUE No. 241
+GASTOS RELATIVOS AL CHEQUE No. 241
 FOR $ 850.00 - "PAULA AND SOSA"
 
 Manutención y Albergue:

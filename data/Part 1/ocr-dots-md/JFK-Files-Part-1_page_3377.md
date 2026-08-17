@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3377.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DEBRIFTING of Russell H. Sambora in Washington, D.C., 16 June 1964
 

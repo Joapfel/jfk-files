@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35134.png
-
-Convert to MarkdownNOMINA
+NOMINA
 
 AÑOZO "I-E"
 Hoja No. 6

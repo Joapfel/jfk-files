@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6001.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 *   *Lagos Station, 1950 - 1967*, written by William H. Dunbar in March 1971, and controlled by DDP.
 

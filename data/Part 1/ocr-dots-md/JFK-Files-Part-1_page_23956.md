@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23956.png
-
-Convert to MarkdownPresident of Mali,
+President of Mali,
 Bouba Keita. Married to a French woman. Leftist.
 He knows Verges through friendship and offered to help. He put him
 in contact with a man by the name of Mego (c.)

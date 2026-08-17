@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10652.png
-
-Convert to Markdown# CENTRAL INTELLIGENCE AGENCY
+# CENTRAL INTELLIGENCE AGENCY
 
 This document is classified. Reading the report of the Joint Chiefs of Staff on the results of the invasion plan for 18. U.S. Marine Corps and 764th Engineer Division on Okinawa is prohibited by law.
 

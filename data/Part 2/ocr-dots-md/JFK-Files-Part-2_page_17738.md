@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17738.png
-
-Convert to Markdownfor retention. If absolutely required by the Committees, sanitization
+for retention. If absolutely required by the Committees, sanitization
 of such raw product should be conducted to mask the degree of
 technical capabilities.
 

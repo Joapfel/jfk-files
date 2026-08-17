@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4349.png
-
-Convert to Markdown# MEMORANDUM FOR THE ATTORNEY GENERAL
+# MEMORANDUM FOR THE ATTORNEY GENERAL
 
 This source also furnished information on January 20, 1970, which indicated that BPP official Kathleen Cleaver, wife of Eldridge Cleaver, had left him and traveled to Sweden for medical treatment.
 

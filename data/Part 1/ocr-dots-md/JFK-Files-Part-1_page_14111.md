@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14111.png
-
-Convert to MarkdownSECRET PAGE TWO
+SECRET PAGE TWO
 
 **Cite Director**
 

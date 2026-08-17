@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_513.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 Miami Division advised Isadon Hochman, Bureau Chief, "Palm Beach Post-Times," Belle Glock, Florida, of a severe beating of a white male teenager following which a Klansman placed a card on the victim stating, "You have just served a proud Klansman, United Klan of America, Incorporated, Palm Beach County. Yours to good health, in God we trust." Newspaper article resulted in unfavorable publicity regarding the Klan.
 

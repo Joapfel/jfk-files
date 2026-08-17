@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25333.png
-
-Convert to MarkdownMemo SAC�en & Director 18/25/73
+Memo SAC�en & Director 18/25/73
 Improvements on 4 occasions noted. In Aug and Oct, 73 advise SA Henry Selleys AV reversed Alpha 66 rel. several years earlier & was member of SPB but ceased Summer 1973 because lacked "real" seal.
 
 Memo SAC Miami & Director 9/27/73 reference 3 enfose

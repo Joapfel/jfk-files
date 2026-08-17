@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17515.png
-
-Convert to Markdown(3) LIEMBRACE-8 (201-111616) has been introduced to the LIFEAT operation as a standby technician backup to WILSTED, but will be actively employed in the operation only in the event of WILSTED's prolonged absence or incapacity. If and when such action is necessary, LIEMBRACE will then be carried under Project LIFEAT. LIEMBRACE-8's OA was amended to reflect this assignment on 7 April 1962.
+(3) LIEMBRACE-8 (201-111616) has been introduced to the LIFEAT operation as a standby technician backup to WILSTED, but will be actively employed in the operation only in the event of WILSTED's prolonged absence or incapacity. If and when such action is necessary, LIEMBRACE will then be carried under Project LIFEAT. LIEMBRACE-8's OA was amended to reflect this assignment on 7 April 1962.
 
 (4) Carol K. ZINSMEISTER (201-117968), LIFEAT processor/ translator and former basehousekeeper who can be temporarily reassigned basehousekeeping duties.
 

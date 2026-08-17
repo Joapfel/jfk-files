@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8991.png
-
-Convert to Markdown14-0000
+14-0000
 
 C. DUSTON
 VI/3/MEXICO 1666

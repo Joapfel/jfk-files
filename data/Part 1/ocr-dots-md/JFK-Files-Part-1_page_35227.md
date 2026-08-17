@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35227.png
-
-Convert to Markdown# FRENTE REVOLUCIONARIO DEMOCRATICO
+# FRENTE REVOLUCIONARIO DEMOCRATICO
 ## Misceláneos
 ### Mes de Julio de 1960
 

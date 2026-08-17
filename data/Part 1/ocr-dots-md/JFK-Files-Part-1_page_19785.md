@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19785.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FIELD REASSIGNMENT QUESTIONNAIRE
 

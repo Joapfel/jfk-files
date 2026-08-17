@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25193.png
-
-Convert to Markdown<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>AMBASSADOR LODGE</td><td>DATES:</td></tr><tr><td>CONEIN</td><td>10/3/63</td></tr><tr><td>GEN. DUONG VAN MINH</td><td>CATEGORIES:</td></tr><tr><td colspan="2">OCCURRENCE:</td></tr><tr><td colspan="2">Ambassador Lodge approved Conedin's meeting with General Duong Van Minh</td></tr></table>
+<table><tr><td colspan="2">PERSONS/ENTITIES:</td></tr><tr><td>AMBASSADOR LODGE</td><td>DATES:</td></tr><tr><td>CONEIN</td><td>10/3/63</td></tr><tr><td>GEN. DUONG VAN MINH</td><td>CATEGORIES:</td></tr><tr><td colspan="2">OCCURRENCE:</td></tr><tr><td colspan="2">Ambassador Lodge approved Conedin's meeting with General Duong Van Minh</td></tr></table>
 
 TOP SECRET
 

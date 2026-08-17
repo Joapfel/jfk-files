@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8906.png
-
-Convert to Markdown14-00900
+14-00900
 
 CLASSIFIED MESSAGE
 

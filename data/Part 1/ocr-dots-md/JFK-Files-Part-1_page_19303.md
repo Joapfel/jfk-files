@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19303.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM NO
 FEB 1949 27.60

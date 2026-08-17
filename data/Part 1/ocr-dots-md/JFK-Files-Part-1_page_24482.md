@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24482.png
-
-Convert to MarkdownSTANLEY
+STANLEY
 
 MEXICO CITY
 JITRO D. JUANET

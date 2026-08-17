@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7868.png
-
-Convert to MarkdownC.I.A.
+C.I.A.
 RELEASE
 
 RR ESV

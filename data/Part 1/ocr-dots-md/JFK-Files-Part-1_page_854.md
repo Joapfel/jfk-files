@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_854.png
-
-Convert to Markdownthat no. further literature of this nature will come to Libya and to Iden E.
+that no. further literature of this nature will come to Libya and to Iden E.
 
 4. Again for Headquarters only is a sketch [GSFEW/1] gave the Station on 23 September 1970 which shows the proposed UHF radio system expansion which was the subject of Reference C. Portions circled with red pencil are the planned expansions.
 

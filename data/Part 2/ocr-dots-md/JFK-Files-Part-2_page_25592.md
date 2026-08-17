@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25592.png
-
-Convert to MarkdownCHRONOLOGY OF EVENTS
+CHRONOLOGY OF EVENTS
 
 Thanksgiving, 1970 Hughes leaves Las Vegas.
 December 4, 1970 Maheu is fired.

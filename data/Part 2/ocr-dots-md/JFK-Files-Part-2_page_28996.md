@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28996.png
-
-Convert to Markdown# GAINS ON INSTALLMENT SALES
+# GAINS ON INSTALLMENT SALES
 
 | DESCRIPTION OF PROPERTY | DATE ACQUIRED |
 | :--- | :--- |

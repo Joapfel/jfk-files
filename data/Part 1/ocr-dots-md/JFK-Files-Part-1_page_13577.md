@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13577.png
-
-Convert to Markdown14-00000
+14-00000
 
 09:56 ROGELIO RODRIGUEZ supliea a YURI ALEXANDROV loopica por 10 mes, asistir a la cita que tenían hoy. YURI eitará de todos modos todo al día en la Embajada Soviética. ROGELIO, aunque sea surda, puede pasar a verlo.
 

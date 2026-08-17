@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18268.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="2">ELECTRONIC INFORMATION REPORT TELEGRAM</td>

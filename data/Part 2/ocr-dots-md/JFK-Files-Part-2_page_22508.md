@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22508.png
-
-Convert to MarkdownCONTRACTUAL RELATIONSHIP - July 1959
+CONTRACTUAL RELATIONSHIP - July 1959
 
 On 1 July 1959, this Agency entered into contract with Wiley, as an independent contractor, at the salary rate of $9,100 per annum, with additional compensation in the amount of 5% of the above sum, to be paid in quarterly installments, representing the Government's contribution toward Wiley's choice of programs for insurance, retirement, medical and health. The contract specified that he would be reimbursed for operational travel as directed by OS, and for other approved operational expenses, subject to accounting applicable with Government regulations.
 

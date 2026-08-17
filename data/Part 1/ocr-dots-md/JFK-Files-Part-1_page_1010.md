@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_1010.png
-
-Convert to Markdown1. HSCA Request, 1 December 1977 (OLC #77-5333) for 16 Warren Commission Documents, by number (these documents in possession of National Archives and withheld from release by CIA).
+1. HSCA Request, 1 December 1977 (OLC #77-5333) for 16 Warren Commission Documents, by number (these documents in possession of National Archives and withheld from release by CIA).
 
 1. CD #347, 1/31/64 re Information developed by CIA on the activity of LHO in Mexico City, 28 Sept-3 Oct 63 with attached photograph of KOSTIKOV.

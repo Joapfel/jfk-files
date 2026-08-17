@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30338.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 duress, but in the earlier period when you were not under that
 2 kind of duress. It doesn't wash with me.

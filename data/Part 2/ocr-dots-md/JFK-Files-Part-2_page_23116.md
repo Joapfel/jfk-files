@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23116.png
-
-Convert to MarkdownNWP:59510
+NWP:59510
 
 TOP SECRET
 

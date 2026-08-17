@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14247.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Myers referred to the difficulties of effecting agent penetration of North Vietnam and Laos. South Vietnamese locals are being trained for infiltration into North Vietnam at the present time. (Mr. Myers concluded his briefing of the Board at this point.)
 

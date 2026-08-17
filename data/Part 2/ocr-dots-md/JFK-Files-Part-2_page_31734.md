@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31734.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 Source advised that the "SCHEER For Congress Committee" was an organization formed in early 1966, for the purpose of supporting ROBERT SCHEER as a candidate for a seat in the United States House of Representatives, United States Congress, from the 7th Congressional District of California in the primary election of June 1966.

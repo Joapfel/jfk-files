@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19312.png
-
-Convert to Markdown2
+2
 
 CHICAGO COUNCIL OF AMERICAN-
 SOVIET RELATIONS

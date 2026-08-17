@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10425.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75
 
 At this time the length of the temporary assignment is indefinite. Upon the termination of Project Senstudy 75, the Bureau Supervisors mentioned above will revert back to their substantive assignments and an appropriate memorandum for the record will be prepared.

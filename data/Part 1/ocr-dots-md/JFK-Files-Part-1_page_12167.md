@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12167.png
-
-Convert to MarkdownJUAN JOSÉ TAVÍO Y SILVA, de nación hispánica, en el ex-diretor de policía de Batista, Atrebolario, Inesor l., Historiador, que existen, en los tribunales de justicia, numerosos procesos en laJusticia de los culeces, se ha dictado sentencia condenatoria contra él por asesinatos, robos y estafas. Caso con una dureza rara quien despojo de sus bienes. Sucedetamente fue expulso de la Venezuela y se le pidió, según notices, en la República Dominicana.
+JUAN JOSÉ TAVÍO Y SILVA, de nación hispánica, en el ex-diretor de policía de Batista, Atrebolario, Inesor l., Historiador, que existen, en los tribunales de justicia, numerosos procesos en laJusticia de los culeces, se ha dictado sentencia condenatoria contra él por asesinatos, robos y estafas. Caso con una dureza rara quien despojo de sus bienes. Sucedetamente fue expulso de la Venezuela y se le pidió, según notices, en la República Dominicana.
 
 FERNANDO CHAVES VILLARA.- Licenciado en firmacia, químico peligroso agitador comunista. Reside en Venezuela. Costarricense.
 

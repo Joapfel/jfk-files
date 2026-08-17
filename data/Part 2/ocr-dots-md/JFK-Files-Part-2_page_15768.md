@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15768.png
-
-Convert to MarkdownFAYE:
+FAYE:
 
 GARRY:
 

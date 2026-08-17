@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2174.png
-
-Convert to Markdown22 April 1969
+22 April 1969
 
 MEMORANDUM FOR: OP/PAB
 

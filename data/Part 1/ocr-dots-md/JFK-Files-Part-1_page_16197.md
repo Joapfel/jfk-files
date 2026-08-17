@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16197.png
-
-Convert to Markdown"the new land project" sought to establish a tax shelter on one of the out-islands of the Caribbean by forcefully taking over the island and establishing a government there. Mackem is supposedly involved in the paramilitary training of forces who would participate in this adventure. According to Dyckman, the paramilitary training supposedly was to take place in Georgia, where WER BELL is based.
+"the new land project" sought to establish a tax shelter on one of the out-islands of the Caribbean by forcefully taking over the island and establishing a government there. Mackem is supposedly involved in the paramilitary training of forces who would participate in this adventure. According to Dyckman, the paramilitary training supposedly was to take place in Georgia, where WER BELL is based.
 
 8. On 31 August 1974, Mr. Roussos met with Mr. K. Michael Absher, who at that time was AC/E/GC, and told him that WER BELL was leaving for Athens on 31 August to sell arms to the Greek Government. WER BELL wanted Roussos to be his advisor in this venture and to go to Athens. Roussos told WER BELL that he would check with CIA before giving him an answer. WER BELL asked Roussos to see if the Agency was in favor of such an arms deal or not. Mr. Absher strongly advised against Roussos' getting involved in this deal. Roussos told Mr. Absher that he understood and agreed not to get involved. Roussos said that WER BELL would probably call him from Athens and he would give WER BELL a final negative reply.
 

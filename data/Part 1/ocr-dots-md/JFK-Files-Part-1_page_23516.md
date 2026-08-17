@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23516.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. It should be noted, that Agent over a period of several contacts appeared to be very cooperative and his attitude was comendable. When he first learned that he had been denied entry to Buenos Aires, he was somewhat chagrined since he appeared to be set on an attempt to do a good job in a "tight" area. He had not given up hope to obtain proper authorization and was willing to pursue the matter further since he felt over a period of time he would be allowed proper entry authority. He suggested several possibilities.
 

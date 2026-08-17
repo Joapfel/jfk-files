@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21160.png
-
-Convert to Markdown# A. General Information
+# A. General Information
 
 (1) Thomas B. CASASIN (P). Aliases: John F. Reynolds, John R. Williams, John F. Martin, Mr. Black, John J. Kennedy, Lt. Col. Williams, Mr. Robbins, John Rainey, Mr. Richards, Mr. Roberts. Cover development has not been previously requested.
 

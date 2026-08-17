@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7610.png
-
-Convert to MarkdownYurily Ivanovich NOSENKO
+Yurily Ivanovich NOSENKO
 
 IDENTIFICATION:
 

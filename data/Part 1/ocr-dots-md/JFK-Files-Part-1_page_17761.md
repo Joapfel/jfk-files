@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17761.png
-
-Convert to Markdown.008
+.008
 
 226-
 

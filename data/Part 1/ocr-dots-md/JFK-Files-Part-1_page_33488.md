@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33488.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="2">ADVANCE COPY</th><th>ISSUED SLATE LO</th></tr></thead><tbody><tr><td>ACTION UNIT</td><td>RF FILE</td><td>VR</td></tr><tr><td>ACTION #</td><td colspan="2"></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30552.png
-
-Convert to MarkdownMay 6, 1948
+May 6, 1948
 
 MEMORANDUM FOR THE RECORD
 

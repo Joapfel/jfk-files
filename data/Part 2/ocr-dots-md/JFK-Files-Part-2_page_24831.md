@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24831.png
-
-Convert to MarkdownCIA officials maintain that they acted faithfully in transmitting messages to Generals Bennett and/or Philpott and in never sending a message without proper authorization. Mr. Karamessines was particularly forceful in this regard:
+CIA officials maintain that they acted faithfully in transmitting messages to Generals Bennett and/or Philpott and in never sending a message without proper authorization. Mr. Karamessines was particularly forceful in this regard:
 
 > ...I can recall no instance in my experience at the Central Intelligence Agency in which a message was received for an individual, an officer of the government anywhere, in whatever department, which was not faithfully, directly, promptly and fully and accurately delivered to that officer, or to his duly authorized representative.
 

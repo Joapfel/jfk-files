@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2305.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      O : Chief, Security Research Staff

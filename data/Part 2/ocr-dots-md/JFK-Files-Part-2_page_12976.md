@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12976.png
-
-Convert to MarkdownUNITED STATESGC RWNMENT
+UNITED STATESGC RWNMENT
 Memorandum
 
 TO : Mr. DeLoach MDR-16

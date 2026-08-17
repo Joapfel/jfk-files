@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21783.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Wides. Not getting back to the bulk of the ~~AMUTS~~ group, apart from the reporting on refugees and the efforts
 2. to keep tabs, which I guess is a summary of what you are

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19502.png
-
-Convert to MarkdownShe urged the women not to disperse, but to join her and others in invading the City Council Chambers with a demand that the JRB be allowed to speak to the Council even though they had not made previous arrangements for a place on the agenda that day. Some of the women were already out of range of the public address system and did not hear this announcement by Wright, having already been dismissed by Sissons and told to reconvene at the Board of Education following luncheon.
+She urged the women not to disperse, but to join her and others in invading the City Council Chambers with a demand that the JRB be allowed to speak to the Council even though they had not made previous arrangements for a place on the agenda that day. Some of the women were already out of range of the public address system and did not hear this announcement by Wright, having already been dismissed by Sissons and told to reconvene at the Board of Education following luncheon.
 
 Approximately 200 of the demonstrators did enter the Council Chambers. They got word to the councilmen, through one of the staff members, that they wished to be heard. A motion to allow a JRB representative to address them was put before the Council, and defeated by a vote of six to five. Immediately following this vote, there was a unanimous vote that the Council adjourn. As the councilmen filed out of the room, Tima Tomash rushed to the front shouting demands that they return, while other of the women hissed and booed the city legislators.
 

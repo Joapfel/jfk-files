@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2635.png
-
-Convert to Markdownpursue it to the point of prosecution.
+pursue it to the point of prosecution.
 
 Senator Huddleston. But it could be helped by periodic review.
 

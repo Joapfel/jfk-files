@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30659.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MILITARY. 9/43 - 7/46: US ARMY, SARGENT #39145469
 

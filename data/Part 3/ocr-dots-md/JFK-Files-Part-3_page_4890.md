@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4890.png
-
-Convert to MarkdownMM T-9 is PCI JOHN K. KERNAN.
+MM T-9 is PCI JOHN K. KERNAN.
 
 MM T-10 is MM 675-C.
 

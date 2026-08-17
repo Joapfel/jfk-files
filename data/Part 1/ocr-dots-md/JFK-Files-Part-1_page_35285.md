@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35285.png
-
-Convert to MarkdownPROPAGANDA
+PROPAGANDA
 
 July 31, 1962
 

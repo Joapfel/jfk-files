@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28556.png
-
-Convert to Markdown27 April 1971
+27 April 1971
 
 COMMENTS on Fitness Report on Tennent H. Bagley
 1 April 1970 - 31 March 1971

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17398.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 University police. He said he then saw the officer point his finger and say something to one of the black students.
 

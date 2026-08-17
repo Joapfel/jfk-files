@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15095.png
-
-Convert to Markdown-12-
+-12-
 
 found a safe place and slept until dark. I started off
 on foot from Batumi and followed the sea shore until I

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19090.png
-
-Convert to Markdown19. The French stated that the British troops were out of line, and that they had no right to fire on them; but that if the British moved closer to their lines, they would be fired upon by the British batteries in the city. The French agreed to this plan, provided that the British would not fire on the city. This plan was approved by the General Assembly, and a resolution was passed in favor of it.
+19. The French stated that the British troops were out of line, and that they had no right to fire on them; but that if the British moved closer to their lines, they would be fired upon by the British batteries in the city. The French agreed to this plan, provided that the British would not fire on the city. This plan was approved by the General Assembly, and a resolution was passed in favor of it.
 
 20. In August, some former Departmental chief of the French colonial agencies, who in 1815 had been in the French service, left the country to go back to France. They were followed by other French officers and soldiers, and a large number of Frenchmen joined the British forces. In December, the British force in the city was about 30,000, while the French were only 7,000.
 

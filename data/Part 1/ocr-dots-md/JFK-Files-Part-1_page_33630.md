@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33630.png
-
-Convert to MarkdownOffice of I. E. should be kept injured of all transactions undertaken here, the line division of NCTC
+Office of I. E. should be kept injured of all transactions undertaken here, the line division of NCTC
 
 W/Deplg State
 

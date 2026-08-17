@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23640.png
-
-Convert to MarkdownNow the next paragraph. C --
+Now the next paragraph. C --
 Mr. Kirbow. Could we take these one at a time because
 these are rather critical?
 

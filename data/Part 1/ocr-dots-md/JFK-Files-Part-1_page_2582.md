@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2582.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Attached is copy number 10 of the February 1968 CIA study entitled "The Examination of the Bona Fides of a KGB Defector - Yuriy I. Nosenko."
 

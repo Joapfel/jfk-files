@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22977.png
-
-Convert to Markdown1 Mr. Halley. Right, and I will stand by my answer, that is,
+1 Mr. Halley. Right, and I will stand by my answer, that is,
 2 I put forth no plans, I know of no plans put forth, you know,
 3 during my tenure in Miami in which assassination was part of
 4 the operational rationale. You know, the only way we can clarify

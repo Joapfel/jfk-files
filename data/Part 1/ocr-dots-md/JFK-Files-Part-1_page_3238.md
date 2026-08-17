@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_3238.png
-
 1949 to 1950. Reduction of forces.
 Checking quality and composition of concrete.
 

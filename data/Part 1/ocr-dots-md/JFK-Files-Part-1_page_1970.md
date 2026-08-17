@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1970.png
-
-Convert to Markdown# NAME GIVEN BY DE ARMAS
+# NAME GIVEN BY DE ARMAS
 
 John VALDAVIAN
 (aka: BLADABIAN)

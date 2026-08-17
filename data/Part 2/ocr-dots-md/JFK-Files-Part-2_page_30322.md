@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30322.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Devine. Yes, but as a defector would there not be reprisals taken by the Soviet Union against your family?
 

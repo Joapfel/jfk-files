@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7401.png
-
-Convert to MarkdownOffice of the Attorney General
+Office of the Attorney General
 Washington, D. C. 20530
 
 MAY 3-0.1975

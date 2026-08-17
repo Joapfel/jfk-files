@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25445.png
-
-Convert to Markdown23 January 1970
+23 January 1970
 
 Subject: World Associates (such McDonald, Proponent)
 

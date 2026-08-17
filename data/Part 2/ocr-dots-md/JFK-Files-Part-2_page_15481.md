@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15481.png
-
-Convert to Markdown# Cyprus
+# Cyprus
 
 Embassy, Washington, D. C.
 

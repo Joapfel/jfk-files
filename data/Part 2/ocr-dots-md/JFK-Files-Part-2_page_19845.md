@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19845.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 WF T-5 is CG 5926-S
 

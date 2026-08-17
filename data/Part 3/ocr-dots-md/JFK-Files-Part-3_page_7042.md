@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7042.png
-
-Convert to MarkdownOFFICE OF MANAGEMENT AND BUDGET
+OFFICE OF MANAGEMENT AND BUDGET
 ROUTE SLIP
 
 TO Mr. Hoobler

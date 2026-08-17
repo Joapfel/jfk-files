@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23468.png
-
-Convert to Markdownknow enough about the political attitudes of the members of the Frente,
+know enough about the political attitudes of the members of the Frente,
 particularly as to basic freedoms, their attitude toward restoration
 of seized American property, etc. (In answer to this, Mr. Gray had
 pointed out that the Frente is composed of people who have broken

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23421.png
-
-Convert to MarkdownRECEIVED FROM: GIA
+RECEIVED FROM: GIA
 SEP. 22. 1975
 
 GIA

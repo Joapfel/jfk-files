@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22763.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM
 4-62 45a OBSOLETE PREVIOUS EDITIONS.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32560.png
-
-Convert to MarkdownSECRET
+SECRET
 
 expecting to leave for Cuba in the near future for training.
 CIA has increased its personnel assigned to travel control

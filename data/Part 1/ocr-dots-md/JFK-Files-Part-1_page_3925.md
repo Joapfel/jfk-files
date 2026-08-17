@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3925.png
-
-Convert to MarkdownAtt. No. 50 to UFGA-2:693
+Att. No. 50 to UFGA-2:693
 
 UFGA - 21693/14
 

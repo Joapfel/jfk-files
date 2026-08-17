@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18470.png
-
-Convert to MarkdownColored photograph removed this date and forwarded with Biographic Profile to Mr. McCone via Mr. Henry Costhoek, WH/Pers. Mr. Costhoek cleared with Mr. Gene Stevens, Chief, T&R Branch, POD/OP, the removal of picture.
+Colored photograph removed this date and forwarded with Biographic Profile to Mr. McCone via Mr. Henry Costhoek, WH/Pers. Mr. Costhoek cleared with Mr. Gene Stevens, Chief, T&R Branch, POD/OP, the removal of picture.
 
 V. Graham, OP/FOD/CAB
 5E-2508 HQS

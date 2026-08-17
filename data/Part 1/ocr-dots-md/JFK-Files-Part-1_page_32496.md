@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32496.png
-
-Convert to Markdown<table><thead><tr><th colspan="4">SECTION XI</th></tr></thead><tbody><tr><td>6. SPECIAL REMARKS IF ANY, CONCERNING RELATIONS OF PERSON IN SECTION WITH RESPECT TO THE UNITED STATES:</td><td>NA</td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="4">SECTION XI</th></tr></thead><tbody><tr><td>6. SPECIAL REMARKS IF ANY, CONCERNING RELATIONS OF PERSON IN SECTION WITH RESPECT TO THE UNITED STATES:</td><td>NA</td><td></td><td></td></tr></tbody></table>
 
 <table><caption>SECTION XII<br>RELATIVES BY BLOOD, MARRIAGE OR ADOPTION WHO ARE IN THE MILITARY OR CIVIL SERVICE OF THE UNITED STATES</caption><thead><tr><th rowspan="2">1. NAME (Last, First, Middle)</th><th rowspan="2">2. RELATIONSHIP</th><th rowspan="2">3. AGE</th><th rowspan="2">4. CITIZENSHIP</th></tr></thead><tbody><tr><td>Arnett, Raymond Wesley</td><td>Pro-in-law</td><td>21</td><td>U.S. of America</td></tr><tr><td>5. ADDRESS (No., Street, City, State, Country):</td><td>6. TYPE AND LOCATION OF SERVICE (If known):</td></tr><tr><td>U.S. Army Depot, Puerto Rico</td><td></td></tr></tbody></table>
 

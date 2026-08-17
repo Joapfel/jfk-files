@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10327.png
-
-Convert to MarkdownJANUARY 14, 1975
+JANUARY 14, 1975
 
 H:W 888-608-DOCid:32989628-Page-164
 

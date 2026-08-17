@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17912.png
-
-Convert to MarkdownAIA
+AIA
 
 : Chief-of-station, Mexico City
 

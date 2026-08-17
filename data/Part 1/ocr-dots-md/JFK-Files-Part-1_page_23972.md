@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23972.png
-
-Convert to MarkdownTaspe No. 3 Gibson
+Taspe No. 3 Gibson
 
 ((What do you think about that - Malcolm X))
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35079.png
-
-Convert to Markdown# COSTOS RELATIVOS AL CHEQUE No. 419
+# COSTOS RELATIVOS AL CHEQUE No. 419
 FOR $6,937.52 - "PAULA AND SOSA"
 
 ## Partida No. 10

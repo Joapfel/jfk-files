@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6077.png
-
-Convert to MarkdownI will continue to draw my salary as Dean of the Henry Kendall
+I will continue to draw my salary as Dean of the Henry Kendall
 College of Arts and Sciences at The University of Tulsa.
 
 2. Indicate any investments, obligations, liabilities, or other relationships which could involve potential conflicts of interest in the position to which you have been nominated.

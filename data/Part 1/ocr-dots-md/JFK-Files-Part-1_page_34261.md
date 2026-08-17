@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34261.png
-
-Convert to MarkdownThe government purchasing organization buys merchandise from foreign companies, but fails to inform CUFLET of the date on which the cargo is to be loaded. All attempts to establish this are to no avail. Then one day the buying agency serves last-minute notice that the merchandise will be ready for loading. CUFLET takes pains to find a vessel in time but, more often than not, its hasty efforts are in vain. In the meantime, the seller abroad grows impatient, as he has long fulfilled his part of the deal and must continue to pay warehouse costs because of a delay that is no fault of his.
+The government purchasing organization buys merchandise from foreign companies, but fails to inform CUFLET of the date on which the cargo is to be loaded. All attempts to establish this are to no avail. Then one day the buying agency serves last-minute notice that the merchandise will be ready for loading. CUFLET takes pains to find a vessel in time but, more often than not, its hasty efforts are in vain. In the meantime, the seller abroad grows impatient, as he has long fulfilled his part of the deal and must continue to pay warehouse costs because of a delay that is no fault of his.
 
 This happens all the time, to the extent that many foreign firms refuse to deal with such an undependable customer as the Cuban government, or, foreseeing the damages they may come to them because of such inefficiency they impose the harshest selling terms.
 

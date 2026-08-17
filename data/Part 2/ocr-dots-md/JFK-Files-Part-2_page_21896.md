@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21896.png
-
-Convert to MarkdownThe cables contained no exploration of this sense of urgency about the "operational circumstances."
+The cables contained no exploration of this sense of urgency about the "operational circumstances."
 
 (b) Agent QJWIN's Mission in the Congo: November-December 1960
 

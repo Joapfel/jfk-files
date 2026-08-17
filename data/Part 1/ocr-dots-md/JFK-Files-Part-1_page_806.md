@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_806.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/><b>SECRET/R.Y.B.A.T</b></td><td>DSPATCH SYMBOL AND NUMBER<br/>OEPA-1058</td></tr></table>
 

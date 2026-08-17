@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7733.png
-
-Convert to Markdown8.11 When introduced to a fair number of people at the same time, does he Linger a bit with each person to whom he is introduced Acknowledge the introduction quickly and wait for the next Look toward the next person almost at the same time he is shaking hands with the person whom he has just met
+8.11 When introduced to a fair number of people at the same time, does he Linger a bit with each person to whom he is introduced Acknowledge the introduction quickly and wait for the next Look toward the next person almost at the same time he is shaking hands with the person whom he has just met
 
 8.12 In general, does he strike you as the kind of person who will Always remember a name Remember names in an average manner Have difficulty remembering names Be very poor at remembering names
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34102.png
-
-Convert to Markdown# DIARIO LAS AMERICAS
+# DIARIO LAS AMERICAS
 
 FUNDADO EL 4 DE JULIO DE 1958
 

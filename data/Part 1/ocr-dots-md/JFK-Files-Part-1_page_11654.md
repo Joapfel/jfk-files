@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11654.png
-
-Convert to Markdown000001
+000001
 
 [ ] UNCLASSIFIED [ ] CIA INTERNAL ONLY [ ] CONFIDENTIAL [X] SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9436.png
-
-Convert to Markdown"Суо"
+"Суо"
 
 14.3.50.
 

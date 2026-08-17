@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29890.png
-
-Convert to MarkdownSECRET
+SECRET
 (CURRENTLY FILLER UP)
 
 <table><thead><tr><td rowspan="2">NAME</td><td rowspan="2"></td><td rowspan="2">SERIAL NUMBER</td><td rowspan="2">GRADEPHASE</td><td colspan="2">STEP OLD SALARY</td><td>NEW SALARY</td></tr><tr><td>OLD SALARY RATE</td><td>NEW SALARY RATE</td><td>STEP NEW<br/>SALARY NEW</td></tr></thead><tbody><tr><td>MURPHY, DAVID E</td><td>556700</td><td>G8-15-3</td><td>S12.150</td><td></td><td>$13,370</td><td></td></tr></tbody></table>

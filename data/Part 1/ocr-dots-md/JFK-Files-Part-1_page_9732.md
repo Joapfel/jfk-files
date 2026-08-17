@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9732.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4 NOV
 9650 d/

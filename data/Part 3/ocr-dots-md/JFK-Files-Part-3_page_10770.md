@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10770.png
-
-Convert to Markdown| NAME | TITLE | GRADE | SALARY |
+| NAME | TITLE | GRADE | SALARY |
 |---|---|---|---|
 | Joseph G. Deegan | Special Agent | GS-13 | $13,26513,755 |
 | Frederick H. Freund, Jr. | Special Agent (A) | GS-14 | 15,415 16,130 |

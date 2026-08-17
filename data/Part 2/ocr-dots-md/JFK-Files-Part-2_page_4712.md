@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4712.png
-
-Convert to MarkdownSECRET
+SECRET
 
 these completely, some of these we are going to modify (and CHAOS was one of them). He didn't stop it completely. At least not initially. And these, he said, have no bearing. So his own orders, later after he got all this stuff together, when he finally tallied them all up, they were just, you know, "no," "maybe," "yes."
 

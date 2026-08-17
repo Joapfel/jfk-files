@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1929.png
-
-Convert to MarkdownChief, DD/S - C8
+Chief, DD/S - C8
 ATTN: Mr. Charles P. White
 
 Chief, Contact Division, CO

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16403.png
-
-Convert to Markdown## II. Current Location
+## II. Current Location
 
 Lives in Habana, Cuba (address unknown). In Cuba he goes by the name of Nelson BARET.
 

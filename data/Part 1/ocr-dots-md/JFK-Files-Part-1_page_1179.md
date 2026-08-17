@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1179.png
-
-Convert to Markdown# EDGAR ANTHONY BUTTARI PUIG (D.V.M.)
+# EDGAR ANTHONY BUTTARI PUIG (D.V.M.)
 
 aka. - Edgar A. BUTTARI (Doctor)
 

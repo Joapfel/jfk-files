@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16151.png
-
-Convert to MarkdownDate 1/16/70
+Date 1/16/70
 
 A shed attached to the residence located at
 2335 West Monroe Street, was examined for the purpose of

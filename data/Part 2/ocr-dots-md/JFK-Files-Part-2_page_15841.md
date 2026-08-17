@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15841.png
-
-Convert to Markdown4. June 2, 1967-Harry Tucker was arrested by the Berkeley police. He was accused of fighting a white boy. He was not allowed the two phone calls that any prisoner is required by law to have. He was separated from the other inmates, He was tried, convicted and sent to Santa Rita where he was told not to engage in any political discussion. He was forced to work on the farm section and to cut his "Afro" hair style. He pointed out that the Berkeley police have pictures of Huey Newton and Bobby Seale which are cautioned "Approach with Caution".
+4. June 2, 1967-Harry Tucker was arrested by the Berkeley police. He was accused of fighting a white boy. He was not allowed the two phone calls that any prisoner is required by law to have. He was separated from the other inmates, He was tried, convicted and sent to Santa Rita where he was told not to engage in any political discussion. He was forced to work on the farm section and to cut his "Afro" hair style. He pointed out that the Berkeley police have pictures of Huey Newton and Bobby Seale which are cautioned "Approach with Caution".
 
 5. October 28, 1967-Huey Newton wounded and arrested in a shooting incident in Oakland in which Oakland Officer Frey was killed and Officer Heames wounded.
 

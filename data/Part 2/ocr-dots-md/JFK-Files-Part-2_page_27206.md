@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27206.png
-
-Convert to MarkdownQQ. Summary of Domestic Surveillance
+QQ. Summary of Domestic Surveillance
 
 RR. Helms' Picture
 

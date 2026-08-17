@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10673.png
-
-Convert to MarkdownJUL 26 1971
+JUL 26 1971
 
 NRCDI PH CODE
 0125AM URGENT 7-26-71 JEW

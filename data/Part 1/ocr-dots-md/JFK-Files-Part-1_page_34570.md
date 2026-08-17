@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34570.png
-
-Convert to MarkdownYuriy Ivanovich NOSENKO (Aka: Yuri NOSSENKO)
+Yuriy Ivanovich NOSENKO (Aka: Yuri NOSSENKO)
 
 30 October 1927
 

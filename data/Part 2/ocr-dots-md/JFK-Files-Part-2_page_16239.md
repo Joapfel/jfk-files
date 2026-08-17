@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16239.png
-
-Convert to MarkdownGRAY, JOAN, born July 29, 1940, and is Field Lieutenant, Illinois BPP.
+GRAY, JOAN, born July 29, 1940, and is Field Lieutenant, Illinois BPP.
 
 HAMPTON, FRED, born August 30, 1948, and is Deputy Chairman, Illinois BPP. HAMPTON currently incarcerated on conviction of robbery receiving two to five year sentence.
 

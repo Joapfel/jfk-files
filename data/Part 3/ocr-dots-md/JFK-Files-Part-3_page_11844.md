@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11844.png
-
-Convert to MarkdownAs will be noted in the table set out hereinafter,
+As will be noted in the table set out hereinafter,
 case loads are excessive in very sensitive areas of the Bureau's
 responsibilities, e.g., Soviet espionage and black and New
 Left extremists who are daily escalating their revolutionary

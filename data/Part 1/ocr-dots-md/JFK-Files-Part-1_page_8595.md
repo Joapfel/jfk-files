@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8595.png
-
-Convert to MarkdownFiles: P-13,042
+Files: P-13,042
 P-13,623
 P-13,223
 P-11,712

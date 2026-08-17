@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6008.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 (U) The DO provided the following unclassified response about the Angleton Files: The files that Kalaris mentioned in Mangold's book were incorporated with the files of the CI staff. Per memorandum dated 1976-1979, the CI files were reviewed and incorporated into the DO record system. Items that were duplicates or not worthy of retention were destroyed. The memos describe the file collection and the process that was followed. Because the files that were once known as Angleton's have been dispersed within the DO records, they are no longer identifiable as a collection.
 

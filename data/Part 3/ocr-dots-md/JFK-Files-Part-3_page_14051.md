@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14051.png
-
-Convert to Markdown- 13 -
+- 13 -
 
 attorney Donovan to tell President Kennedy and Mr. McCone that Castro realizes that he must gain a rapprochment with the U.S., and Mr. McCone expressed the belief that in agreeing to the recent prisoner exchange Castro is seeking to retain a thread of contact with the U.S. as insurance in the event of a double-cross by the USSR. The DCI had no idea why he had been included in the message to be delivered by Donovan.
 

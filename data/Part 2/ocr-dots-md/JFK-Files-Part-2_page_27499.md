@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27499.png
-
 to Professor Richard H. Chused in case of United States v. Johnson, decided sub nom., United States v. Bridgeman, 523 F.2d 1099 (D.C. Cir. 1975).
 
 Law club teaching fellow: taught legal research and writing principles to seminar of first year law students.

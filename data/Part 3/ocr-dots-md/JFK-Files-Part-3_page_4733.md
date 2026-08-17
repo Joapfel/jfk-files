@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4733.png
-
-Convert to MarkdownSECRET SPOKE
+SECRET SPOKE
 
 2/00[CUG]R07-71 [~~S~~]
 

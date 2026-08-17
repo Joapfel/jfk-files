@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9926.png
-
-Convert to Markdown11 August, 1967
+11 August, 1967
 
 Subject: LIMS/3 Report of Contact with Noisés Crozco Leal.
 

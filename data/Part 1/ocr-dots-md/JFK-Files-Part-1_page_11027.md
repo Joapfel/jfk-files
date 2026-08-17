@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11027.png
-
-Convert to MarkdownCosts:
+Costs:
 
 ~~Cost of Intelligence Staff~~ base
 

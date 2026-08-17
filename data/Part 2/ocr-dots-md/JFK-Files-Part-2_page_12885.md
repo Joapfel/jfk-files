@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12885.png
-
-Convert to MarkdownNY 100-149194
+NY 100-149194
 
 to use HAZEL GRAY and her husband, JOHN GRAY, in the Kings County CP organization. The informant stated that LIGHTFOOT highly recommended the GRAYS.
 

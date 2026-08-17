@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12629.png
-
-Convert to MarkdownH. REPORTS ON INDIVIDUALS
+H. REPORTS ON INDIVIDUALS
 
 1. General
 

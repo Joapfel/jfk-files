@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5593.png
-
-Convert to Markdown107-9-4
+107-9-4
 
 3. In no instance in his individual tax returns does Molton indicate the source of income for his position as Imperial Wizard or President of the USA. However, his returns do indicate he has received some salary payments from each source as "Tax Wars," "J. Z. Gibson," "Indigo Tire Company," "J. C. H. Truax Corp.," and "Fon B Johnson III," among others. As your informants have advised Molton's accounts receivable all his time on his business and he paid almost $10,000 annually by the end, it would appear those salary securites are covered for tax payments made to him by corporate for his Kian employment. Necessary investigation should be conducted to resolve the true source of Molton's income.
 

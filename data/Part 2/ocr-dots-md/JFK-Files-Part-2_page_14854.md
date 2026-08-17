@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14854.png
-
-Convert to MarkdownDAMAGE TO NUCLEAR SUBMARINE "NAUTILUS," NUCLEAR CRUISER "LONG BEACH" AND GUIDED MISSILE FRIGATE "LUCE" SABOTAGE
+DAMAGE TO NUCLEAR SUBMARINE "NAUTILUS," NUCLEAR CRUISER "LONG BEACH" AND GUIDED MISSILE FRIGATE "LUCE" SABOTAGE
 
 reported to us by the Navy as sabotage and an intensive, exhaustive investigation must be conducted to identify the subjects.
 

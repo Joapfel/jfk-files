@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11770.png
-
-Convert to MarkdownCommunications between FULMINATOR-1 and the Santiago field station will at all times be carried on by means of a secure cut-out.
+Communications between FULMINATOR-1 and the Santiago field station will at all times be carried on by means of a secure cut-out.
 
 Since FULMINATOR-1's cover is his overt business situation in which he is already established, and since that situation provides him with printing and publishing facilities, it is believed that good operational security can be maintained with a minimum of effort in this Project.
 

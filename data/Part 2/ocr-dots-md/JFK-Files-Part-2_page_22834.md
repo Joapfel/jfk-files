@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22834.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 The Chairman. I think that since the point is important, that when the Committee Staff complete its review of the evidence it ought to be reminded to look closely at that Helms testimony and identify exactly what words Helms might have used to describe his relationship with Robert Kennedy.
 

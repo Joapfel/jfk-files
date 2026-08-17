@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30792.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>PERIODIC SUPPLEMENT</td>
     <td></td>

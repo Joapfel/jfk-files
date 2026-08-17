@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13108.png
-
-Convert to MarkdownMemorandum to Mr. J. A. Mintz
+Memorandum to Mr. J. A. Mintz
 
 RE: SENATE SELECT COMMITTEE ON
 INTELLIGENCE ACTIVITIES

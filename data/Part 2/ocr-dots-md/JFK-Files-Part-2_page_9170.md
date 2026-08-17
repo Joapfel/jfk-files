@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9170.png
-
-Convert to Markdown2
+2
 
 approximately 3:30 p.m., by which time the explosive device
 had already been removed by the New York City Police Depart-

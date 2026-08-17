@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15331.png
-
-Convert to MarkdownADDITIONAL QUESTIONS.
+ADDITIONAL QUESTIONS.
 
 D. 1. a. Where did you develope the negatives and films, and where did you make the copies (the positices) and enlargements?
 

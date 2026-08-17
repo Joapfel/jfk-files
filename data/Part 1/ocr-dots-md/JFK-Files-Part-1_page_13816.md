@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13816.png
-
-Convert to MarkdownGHP
+GHP
 
 COMMO
 CIRCO

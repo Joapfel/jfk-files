@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25658.png
-
-Convert to MarkdownMACHADO, MANUEL
+MACHADO, MANUEL
 
 SFK M 075 7
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25201.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th></tr></thead><tbody><tr><td>KENNEDY, JOHN F.</td><td>DATES:</td></tr><tr><td>RICHARDSON, JOHN</td><td>Oct. 9, 1963</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th></tr></thead><tbody><tr><td>KENNEDY, JOHN F.</td><td>DATES:</td></tr><tr><td>RICHARDSON, JOHN</td><td>Oct. 9, 1963</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="2">CATEGORIES:</th></tr></thead><tbody><tr><td colspan="2">DIEM ✓</td></tr></tbody></table>
 

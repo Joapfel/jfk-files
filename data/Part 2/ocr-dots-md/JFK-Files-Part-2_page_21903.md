@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21903.png
-
-Convert to Markdown(d) Agent QJWIN Was Asked By Hedgman's Operative WIROGUE
+(d) Agent QJWIN Was Asked By Hedgman's Operative WIROGUE
 to Join an "Execution Squad": December 1960
 
 The one incident where there is an explicit reference to assassination in connection with QJWIN involved his contact with WIROGUE, another asset of the Congo station.

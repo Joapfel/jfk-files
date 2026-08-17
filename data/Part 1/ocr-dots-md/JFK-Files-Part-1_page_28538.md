@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28538.png
-
-Convert to Markdown14-0000
+14-0000
 
 STANDARD FORM 50 (39 PART)
 

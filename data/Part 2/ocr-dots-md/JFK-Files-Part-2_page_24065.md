@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24065.png
-
-Convert to Markdowne. Castro
+e. Castro
 
 There was no evidence from which the Committee could conclude that Presidents Eisenhower, Kennedy, or Johnson, their close advisors, or the Special Group authorized the assassination of Castro.
 

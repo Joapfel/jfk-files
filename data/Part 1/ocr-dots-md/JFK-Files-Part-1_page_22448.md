@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22448.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DOII 70-1-1
 CHAPTER III, ANNEX B

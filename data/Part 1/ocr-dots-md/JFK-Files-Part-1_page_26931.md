@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26931.png
-
-Convert to MarkdownDCD-112/78
+DCD-112/78
 
 31 January 1978
 

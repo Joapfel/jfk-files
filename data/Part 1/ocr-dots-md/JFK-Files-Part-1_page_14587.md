@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14587.png
-
-Convert to Markdown27. All four children are very spoiled and have caused several maids to leave their jobs. Severina bitterly complains that the children show no respect for their parents, and that is the reason Severina gives for her hate for Nilda.
+27. All four children are very spoiled and have caused several maids to leave their jobs. Severina bitterly complains that the children show no respect for their parents, and that is the reason Severina gives for her hate for Nilda.
 
 ## EDUCATION AND CULTURE
 

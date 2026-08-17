@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_30209.png
-
 , Hav Smith, met with Blakey and Cornwell after they
 
 * Polgraph showed no deception on

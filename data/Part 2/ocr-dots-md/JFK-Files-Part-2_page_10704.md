@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10704.png
-
-Convert to MarkdownPH 52-7165 Sub S
+PH 52-7165 Sub S
 
 DETAILS:
 

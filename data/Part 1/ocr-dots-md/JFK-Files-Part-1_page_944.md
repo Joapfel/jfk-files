@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_944.png
-
-Convert to Markdown<table><thead><tr><th>MULTI-ADDRESSEE CABLE SELECTED FOR TRANSMISSION</th></tr></thead><tbody><tr><td>STC SECR</td></tr><tr><td>X</td></tr></tbody></table>
+<table><thead><tr><th>MULTI-ADDRESSEE CABLE SELECTED FOR TRANSMISSION</th></tr></thead><tbody><tr><td>STC SECR</td></tr><tr><td>X</td></tr></tbody></table>
 
 65387
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3494.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 CONTROLLED DISSEM
 
 **COUNTRY** Cuba **REPORT NO.** CSDB-3/660,494

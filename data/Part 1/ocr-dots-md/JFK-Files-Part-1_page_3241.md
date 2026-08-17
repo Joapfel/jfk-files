@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3241.png
-
-Convert to MarkdownSUPPLEMENT
+SUPPLEMENT
 to
 AUTOBIOGRAPHY
 of

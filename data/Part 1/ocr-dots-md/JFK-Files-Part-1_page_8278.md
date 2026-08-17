@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8278.png
-
-Convert to MarkdownJuly 9, 1969
+July 9, 1969
 
 Contact Report
 Subject: Jimmy SABORE

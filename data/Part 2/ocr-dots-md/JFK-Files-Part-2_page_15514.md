@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15514.png
-
-Convert to MarkdownMemorandum R. D. Cotter to W. C. Sullivan
+Memorandum R. D. Cotter to W. C. Sullivan
 
 RE: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES
 65-63113

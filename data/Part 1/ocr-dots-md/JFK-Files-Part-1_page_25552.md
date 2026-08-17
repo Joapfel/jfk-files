@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25552.png
-
-Convert to Markdown<table><tr><td>ORIG: WSPenehan</td></tr><tr><td>UNIT: WH/Contracts</td></tr><tr><td>DET: 4460</td></tr><tr><td>DATE: 28 August 1969</td></tr></table>
+<table><tr><td>ORIG: WSPenehan</td></tr><tr><td>UNIT: WH/Contracts</td></tr><tr><td>DET: 4460</td></tr><tr><td>DATE: 28 August 1969</td></tr></table>
 
 MESSAGE FORM
 TOTAL COPIES:

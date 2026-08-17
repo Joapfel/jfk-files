@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19940.png
-
-Convert to MarkdownSE 100-29048
+SE 100-29048
 
 CONFIDENTIAL
 

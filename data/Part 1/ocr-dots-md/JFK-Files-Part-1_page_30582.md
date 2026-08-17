@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30582.png
-
-Convert to MarkdownPrecedence
+Precedence
 From: CO AND CHIEF, MI
 To : CO, MOVED
 Destination:

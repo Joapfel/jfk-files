@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9447.png
-
-Convert to MarkdownThe Warden of St. Antony's
+The Warden of St. Antony's
 
 One bright afternoon in the fall of
 1949, a big car made its way through the

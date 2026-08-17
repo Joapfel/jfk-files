@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20802.png
-
-Convert to MarkdownStandard Form No. 84
+Standard Form No. 84
 January 1964
 U.S. Civil Service Commission
 FPM Supplement 590-1

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9423.png
-
-Convert to Markdown12 June 1950
+12 June 1950
 
 MEMORANDUM FOR: JOHN E. BAKER
 Chief, KE III

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21423.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 21 Aug. 1961 (Philadelphia)
 

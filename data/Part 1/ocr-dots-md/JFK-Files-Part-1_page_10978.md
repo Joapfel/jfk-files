@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10978.png
-
-Convert to Markdown5 March 1965
+5 March 1965
 
 TO : Chief, Finance Division
 VIA : Contract Approving Officer

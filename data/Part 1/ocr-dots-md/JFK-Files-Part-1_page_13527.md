@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13527.png
-
-Convert to MarkdownTO : Director
+TO : Director
 Federal Bureau of Investigation
 Attention: J. C. Sivich
 

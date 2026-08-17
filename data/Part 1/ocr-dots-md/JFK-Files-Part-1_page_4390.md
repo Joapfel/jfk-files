@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4390.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 
 TOTAL COPIES. 55
 

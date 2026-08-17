@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35501.png
-
-Convert to Markdown13 July
+13 July
 
 One thousand three hundred sixteen and 25/100 dollars,
 

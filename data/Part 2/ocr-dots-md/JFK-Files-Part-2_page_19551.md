@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19551.png
-
-Convert to MarkdownBANNERS CARRIED, OTHER THAN THE ONE LEAD-OFF JEANNETTE RANKIN BRIGADE BANNER. We will, of course, all adhere to this.
+BANNERS CARRIED, OTHER THAN THE ONE LEAD-OFF JEANNETTE RANKIN BRIGADE BANNER. We will, of course, all adhere to this.
 
 3. Press Aides will be beside the JEANNETTE RANKIN BRIGADE BANNER.
 

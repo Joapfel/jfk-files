@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22546.png
-
-Convert to MarkdownSECRET
+SECRET
 
 On 27 December 1962, Wiley reported of Ethel Mendoza of SRS, his then case officer, that he, Wiley, believed a trip to Miami, Fla., in the near future could be very profitable from both the straight reporting aspect, and through his thus being able to re-establish contact with several Cubans with whom he is acquainted. His most important contact is with Manuel Artime, one of the leaders of the Cuban invasion force, who has just been released by Castro. Miss Mendoza further noted that Wiley is also acquainted with several other Cubans of some importance, one of these being a member of the "Alpha 66" group which ran several small operations against Cuba during 1962.
 

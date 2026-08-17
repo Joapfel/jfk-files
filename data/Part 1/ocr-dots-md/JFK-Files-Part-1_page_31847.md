@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31847.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 MEMORANDUM FOR: Joseph S. Piccolo
 VIA : Chief, WH

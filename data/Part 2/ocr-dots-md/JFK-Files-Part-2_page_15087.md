@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15087.png
-
-Convert to MarkdownMemorandum J. J. Casper to Mr. Mohr
+Memorandum J. J. Casper to Mr. Mohr
 
 Re: Attorney General's Staff Conference
 Wednesday, April 8, 1970, 5:00 p.m.

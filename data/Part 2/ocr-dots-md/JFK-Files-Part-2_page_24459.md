@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24459.png
-
-Convert to Markdownthe existence of the assassination plots. Helms was Harvey's
+the existence of the assassination plots. Helms was Harvey's
 immediate superior and the person to whom he reported about
 the Castro plot activities.
 

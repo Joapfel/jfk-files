@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9089.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Instructions were sent to the field and we then learned in New York City that CIA allegedly planned to make a recruitment approach. The matter was taken up with CIA headquarters and a protest was made because of the wide discrepancy in the reports we received on CIA intentions. (Memorandum Brennan to Sullivan, April 18, 1966, (w))
 

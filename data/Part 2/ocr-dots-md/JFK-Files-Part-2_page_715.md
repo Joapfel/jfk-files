@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_715.png
-
-Convert to MarkdownSECRET
+SECRET
 
 20 Dec 63. 00 47½
 

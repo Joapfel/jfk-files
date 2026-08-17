@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4115.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>CROSS REFERENCE TO</th><th>DISPATCH SYMBOL AND NUMBER<br>UFGW 5472</th><th>DATE<br>23 August 1968</th></tr></thead><tbody><tr><td></td><td>CLASSIFICATION<br>S E C R . I T</td><td>MQS FILK NUMBER<br>201-267457</td></tr></tbody></table>
 

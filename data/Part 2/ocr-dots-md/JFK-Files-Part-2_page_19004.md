@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_19004.png
-
 traffic chief of police appeared. "This man spotted me" and he was required to take a sobriety test. Jaffe stated he passed the test although there was a trace of alcohol in his system. Jaffe was permitted to leave, but later was required to return to the police station and "they said it was decided to press charges."
 
 Jaffe said he reported the matter to the American Embassy and received conflicting advice. "Some said shut up because if you push them" it might lead to serious trouble. "Others said scream like hell because they have never convicted an American correspondent." Jaffe decided "to take the dovish" position.

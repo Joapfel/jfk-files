@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27783.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 4 JAN 1978
 

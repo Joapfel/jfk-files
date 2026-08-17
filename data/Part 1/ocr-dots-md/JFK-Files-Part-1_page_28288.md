@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28288.png
-
-Convert to MarkdownP1VALL. Vincent C.
+P1VALL. Vincent C.
 
 # Consolidated file
 

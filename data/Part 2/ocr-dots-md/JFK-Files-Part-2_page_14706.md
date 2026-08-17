@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14706.png
-
-Convert to MarkdownWashington, D. C., recorded an over-all gain of 25 percent in the number of serious offenses.
+Washington, D. C., recorded an over-all gain of 25 percent in the number of serious offenses.
 
 National Crime Information Center (NCIC)
 

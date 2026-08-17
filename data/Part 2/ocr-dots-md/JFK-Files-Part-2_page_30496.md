@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30496.png
-
-Convert to Markdown1-71
+1-71
 
 Mr. Goldsmith. For purposes of the record, could you
 explain why you think that would be out of the question?

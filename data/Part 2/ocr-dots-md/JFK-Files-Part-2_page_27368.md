@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27368.png
-
-Convert to MarkdownA - Memo from Knoche to Gray - 17 May 75 SECRET
+A - Memo from Knoche to Gray - 17 May 75 SECRET
 
 B - M/R - 20 June 62 SECRET ENDS ONLY
 

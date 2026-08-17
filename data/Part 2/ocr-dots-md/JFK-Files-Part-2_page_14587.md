@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14587.png
-
-Convert to Markdown# Office Mem andum • UNITED STATES GOVERNMENT
+# Office Mem andum • UNITED STATES GOVERNMENT
 
 TO : A. H. Belmont
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16153.png
-
-Convert to MarkdownChaos and tyranny—that is at least Mike Oliver foresaw as early as 1968, the inevitable result of America's "interventionists" and "collectivist" fiscal debauchery. That he made millions of dollars in gold profits along the way did not really reassure Oliver, it merely confirmed his premonitions. Of course, the profits helped: to people who tend to think in terms of money—that is, most of us—they seemed to prove that Oliver had something.
+Chaos and tyranny—that is at least Mike Oliver foresaw as early as 1968, the inevitable result of America's "interventionists" and "collectivist" fiscal debauchery. That he made millions of dollars in gold profits along the way did not really reassure Oliver, it merely confirmed his premonitions. Of course, the profits helped: to people who tend to think in terms of money—that is, most of us—they seemed to prove that Oliver had something.
 
 To tell the world what he had, Oliver wrote a book in 1968: *A New Constitution for a New Country*. Printed privately, never noticed in a book review, written in pedestrian declaratory style, the book has thus far sold 19,400 copies through the mail—proving that there does exist that contradictory thing, a genuine underground best seller.
 

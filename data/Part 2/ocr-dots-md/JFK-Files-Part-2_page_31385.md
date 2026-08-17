@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31385.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 he had been ordered to procure foreign weapons for the museum. SUBJECT stated that he at all times acted as an agent for the USAF, and at no time acted on his own. SUBJECT subsequently released to the writer against proper receipt, an AKA-47 Assault Rifle, S/N 9473736, one of the 12 captured enemy weapons sent by SUBJECT from RVN in approximately November 1968. It was noted that when SUBJECT removed the weapon from the lock-up area at Range 22, Eglin AFB, that it was marked with SUBJECT's name on the stock. The above mentioned weapon is being retained at OSI Detachment 710 by the evidence custodian, available to proper authority upon request.
 

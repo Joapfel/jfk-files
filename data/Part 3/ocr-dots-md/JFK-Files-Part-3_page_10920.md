@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10920.png
-
-Convert to Markdownf. The Doolittle Committee, 1954
+f. The Doolittle Committee, 1954
 
 In July, 1954, we received information from the White House that the President had appointed Lieutenant General James H. Doolittle to study in collaboration with the Central Intelligence Agency (CIA) certain aspects of the national intelligence effort. By letter dated July 28, 1954, Sherman Adams, the Assistant to the President, requested that the Bureau brief General Doolittle's group concerning the relationship that existed between the Bureau and CIA. We subsequently learned that at approximately the same time a survey would be conducted by the Hoover Commission under the chairmanship of General Mark Clark. We learned from Allen W. Dulles, Director of CIA, that the President strongly believed that General Clark should not permit the survey to get into CIA covert operations, particularly in the field of political and psychological warfare. The President had told Dulles that he was selecting General Doolittle to study CIA's covert operations.
 

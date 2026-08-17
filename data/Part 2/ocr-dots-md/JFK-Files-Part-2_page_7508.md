@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7508.png
-
-Convert to Markdown- that OSWALD was involved in the Kennedy assassination plot, but that he, "Saul", fired shots that killed Kennedy.
+- that OSWALD was involved in the Kennedy assassination plot, but that he, "Saul", fired shots that killed Kennedy.
 
 - that two hours after the assassination he, "Saul",
 was out of the U.S. That he used limp as a

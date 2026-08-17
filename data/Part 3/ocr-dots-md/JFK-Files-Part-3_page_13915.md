@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13915.png
-
-Convert to Markdownmeasures administered by CIA's Office of Security whose programs
+measures administered by CIA's Office of Security whose programs
 include thorough background investigations and the use of
 polygraph interviews, (2) the identification of a "Dunlap" in
 CIA might also result from the CIA's CI program carried on

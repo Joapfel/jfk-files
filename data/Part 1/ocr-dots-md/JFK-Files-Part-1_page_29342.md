@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29342.png
-
-Convert to MarkdownTampa, Fla.
+Tampa, Fla.
 
 16 June 1976
 

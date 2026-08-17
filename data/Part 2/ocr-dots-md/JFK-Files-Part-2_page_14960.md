@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14960.png
-
-Convert to Markdown# ROBERT G. BAKER
+# ROBERT G. BAKER
 ## FRAUD AGAINST THE GOVERNMENT
 ### CONFLICT OF INTEREST
 

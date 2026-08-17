@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3350.png
-
 .
 
 b. NSC 5412 Representatives.

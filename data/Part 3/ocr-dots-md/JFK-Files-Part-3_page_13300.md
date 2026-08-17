@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13300.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 Is there any indication that CIA believed Oswald's defection and return might have been connected with a mission for another intelligence organization (e.g., military) and that this kept CIA away from his case?
 

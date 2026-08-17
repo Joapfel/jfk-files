@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21135.png
-
-Convert to Markdown11. "ANDREY" (w)
+11. "ANDREY" (w)
 
 On page 99 it is also indicated that if NOSENKO served in the Embassy Section (1st Section, 1st Department) during 1953-55, "It is difficult to perceive how he could have remained unaware of 'ANDREY'S' identity." NOSENKO claimed that "ANDREY" was spotted by ROY RHODES and was recruited prior to NOSENKO's connection with KGB in March, 1953. "ANDREY" was a crypto-repairman and the direct subordinate of the Army Attache cryptographic security officer, Captain WALTER MULE, (s) who was NOSENKO's target.
 

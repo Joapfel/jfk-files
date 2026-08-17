@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5501.png
-
-Convert to Markdown8. Secretary of State for Justice Ranald Eslin, who is a good friend of Captainassy, is in serious trouble. He is, however, a former prisoner of war, may lose his position. Since he himself has presidential ambitions, he may become a candidate for this office if he survives. The present crisis.
+8. Secretary of State for Justice Ranald Eslin, who is a good friend of Captainassy, is in serious trouble. He is, however, a former prisoner of war, may lose his position. Since he himself has presidential ambitions, he may become a candidate for this office if he survives. The present crisis.
 
 9. Another potential rival for the presidency is Secretary of State for Labor and Social Welfare Max A. Anticize, who claims the support of the labor unions.
 

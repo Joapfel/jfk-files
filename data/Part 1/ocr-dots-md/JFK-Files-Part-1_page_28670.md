@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28670.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>24 REFLECTIVE. List three persons living in the United States or Territories of the United States who are NOT related to you and who have definite knowledge of your qualifications and fitness for the position for which you are applying. Do not list names of supervisors listed under Item 16 (EXPERIENCE).</td>

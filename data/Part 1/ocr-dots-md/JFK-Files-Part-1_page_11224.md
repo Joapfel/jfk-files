@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11224.png
-
-Convert to MarkdownLa Habana, 12 de Agosto de 1966
+La Habana, 12 de Agosto de 1966
 
 Al Sr. Consejero:
 

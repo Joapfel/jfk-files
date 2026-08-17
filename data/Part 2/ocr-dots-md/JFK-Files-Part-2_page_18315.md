@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18315.png
-
-Convert to Markdown1. Use of tax related information to harass or disrupt groups or individuals.
+1. Use of tax related information to harass or disrupt groups or individuals.
 
 2. Influence exerted or requests by the FBI that the IRS conduct audits or begin Intelligence Division cases on individuals or groups of interest to the Bureau.
 

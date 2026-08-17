@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6694.png
-
-Convert to MarkdownUNITED-STATES G. ERNMENT
+UNITED-STATES G. ERNMENT
 Memorandum
 
 TO : Mr. Tolson

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25391.png
-
-Convert to Markdown( more on Hunt Castro project)
+( more on Hunt Castro project)
 
 <table>
     <tbody>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33681.png
-
-Convert to MarkdownEvacuation Plans
+Evacuation Plans
 John Toufiro T+G - is in Paris -
 unemployed -
 S.P. thinks he would be a good man

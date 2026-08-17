@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1627.png
-
-Convert to MarkdownSECRET
+SECRET
 (8 hex filled in)
 
 <table><tr><td>REQUEST FOR PERSONNEL ACTION</td></tr></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14102.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. [x] MI61 was also made aware of the persons and places where the staybehind funds are cycled or stockpiled. It was also provided that MI61-36 with a radio set on 4 March 1961. He was also one of the staybehind agents who was originally introduced to the British.
 

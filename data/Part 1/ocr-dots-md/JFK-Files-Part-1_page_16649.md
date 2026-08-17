@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16649.png
-
-Convert to Markdown383 598
+383 598
 
 described by credit sources as an attorney specializing in investment counseling. Additional information indicates that SCHRIER previously resided at 18 Perry Place and was previously employed by The WIGMAN General (wig) shop. No detrimental credit information, police information, or House Committee on Un-American Activities records were reflected in the name of SCHRIER for his wife.
 

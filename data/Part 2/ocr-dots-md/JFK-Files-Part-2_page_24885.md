@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24885.png
-
-Convert to MarkdownIn addition to considerations, there were several practical reasons advanced for not assassinating foreign leaders. These reasons are discussed in the section of this report recommending a statute making assassination a crime:
+In addition to considerations, there were several practical reasons advanced for not assassinating foreign leaders. These reasons are discussed in the section of this report recommending a statute making assassination a crime:
 
 a. Distinction Between Targeted Assassinations Instigated by the United States and Support for Dissidents Seeking to Overthrow Local Governments
 

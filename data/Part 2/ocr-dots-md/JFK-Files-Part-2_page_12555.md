@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12555.png
-
-Convert to Markdown(5) Upon transfer of office of origin in these cases, old office of origin should furnish Secret Service locally with subject's new residence and business address by LHM or FD-366 with copies to Bureau and new office of origin for dissemination to Secret Service headquarters and Secret Service office covering new residence, respectively.
+(5) Upon transfer of office of origin in these cases, old office of origin should furnish Secret Service locally with subject's new residence and business address by LHM or FD-366 with copies to Bureau and new office of origin for dissemination to Secret Service headquarters and Secret Service office covering new residence, respectively.
 
 k. Dissemination at Bureau
 

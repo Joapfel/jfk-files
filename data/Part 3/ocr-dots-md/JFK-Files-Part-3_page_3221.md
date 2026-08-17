@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3221.png
-
-Convert to MarkdownSo--
+So--
 
 Senator Mondale. Would you agree that it would not be a proper basis for an investigation for the FBI or any other government official to be concerned about the success of the negro movement?
 

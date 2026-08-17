@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25396.png
-
-Convert to Markdownc. **Foreign Currency.** It is anticipated that any forseeable foreign currency requirements will be within the Station's capacity to handle.
+c. **Foreign Currency.** It is anticipated that any forseeable foreign currency requirements will be within the Station's capacity to handle.
 
 d. **Commitments.** No commitments have been made to LIHUFF/I other than a salary of $300.00 per month with a thirty day's notice on termination.
 

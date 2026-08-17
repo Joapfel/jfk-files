@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8754.png
-
-Convert to Markdownraid, target of a military nature, could cause international repercussions and/or bring them under prosecution on the neutrality act. BOSCH and MENDOZA were collaborating with Jose Mario "Pepin" BOSCH Lamarque and two former sugar mill owners to back a daylight raid on a Cuban MIG base with two rocket-firing P-51's.
+raid, target of a military nature, could cause international repercussions and/or bring them under prosecution on the neutrality act. BOSCH and MENDOZA were collaborating with Jose Mario "Pepin" BOSCH Lamarque and two former sugar mill owners to back a daylight raid on a Cuban MIG base with two rocket-firing P-51's.
 
 ### AMMUG Project (Cuban DGI Defector) 19-6-102
 

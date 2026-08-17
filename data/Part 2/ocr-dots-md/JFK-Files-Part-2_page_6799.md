@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6799.png
-
-Convert to Markdownassassination of President Kennedy will be significantly
+assassination of President Kennedy will be significantly
 improved by the release of these records.
 
 Ironically, it was President John F. Kennedy who first required scheduled declassification in the release of Executive Branch national security information. Declassification schedules remained in effect until President Reagan eliminated the requirement in 1981, and President Bush persists in this same practice. It is likely that more government documents related to the Kennedy assassination could have been released over the past 12 years if declassification was still a priority. It is also fair to say that the 1986 amendments to the Freedom of Information Act, including broad law enforcement exemptions, have narrowed the release of Kennedy assassination records by the FBI.

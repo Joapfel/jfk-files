@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19163.png
-
-Convert to MarkdownRE: CHANNTIE RAY'S PRIGADE
+RE: CHANNTIE RAY'S PRIGADE
 
 CONFIDENTIAL
 

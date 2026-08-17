@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21011.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 14 November 1973
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19459.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 J. Walton Moore, 10 February 1977

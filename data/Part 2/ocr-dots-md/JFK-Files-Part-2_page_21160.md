@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21160.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (damage assessment). He said the document contained
 the names of foreigners against whom KGB was working

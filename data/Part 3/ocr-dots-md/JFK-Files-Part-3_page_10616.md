@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10616.png
-
-Convert to Markdown8. ROBERT ECHOLS-SCOGGINS, Aka., Charlotte file 105-991, Bureau file 157-1530, is South-Carolina Grand Dragon-of United Klans of America. Charlotte reports by SA JOHN ALDEN MURR, 1/31/64 and 3/27/64, show that he is receiving over $300 per month from the Veterans Administration as a 100-per-cent disabled veteran. At the same time he operates a plumbing business and is active in United Klans of America, making public speeches, etc. Charlotte furnished extra copies of those reports to the Bureau, with the suggestion furnishing them to VA be considered.
+8. ROBERT ECHOLS-SCOGGINS, Aka., Charlotte file 105-991, Bureau file 157-1530, is South-Carolina Grand Dragon-of United Klans of America. Charlotte reports by SA JOHN ALDEN MURR, 1/31/64 and 3/27/64, show that he is receiving over $300 per month from the Veterans Administration as a 100-per-cent disabled veteran. At the same time he operates a plumbing business and is active in United Klans of America, making public speeches, etc. Charlotte furnished extra copies of those reports to the Bureau, with the suggestion furnishing them to VA be considered.
 
 It is suggested consideration be given to asking the VA to re-evaluate his disability rating, in view of his employment and activities. It is believed this should be done on a SCG level, to reduce the possibility of-SCOGGINS learning that such a suggestion came from the FBI.
 

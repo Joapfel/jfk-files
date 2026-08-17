@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33072.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CONTRIBUTION OF<br/>DISPATCH</td><td>OF ORIGIN<br/><i>P. P. B.</i></td><td>FORM OF DELIVERY<br/><i>G. A. JH. 74</i></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12302.png
-
-Convert to MarkdownSUBJECT: Cuban Exiles Involved with DEA Page 2
+SUBJECT: Cuban Exiles Involved with DEA Page 2
 
 was at no time used operationally. Our files contain
 no additional information on JIMENEZ since 1960

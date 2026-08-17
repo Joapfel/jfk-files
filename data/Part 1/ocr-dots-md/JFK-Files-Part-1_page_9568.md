@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_9568.png
-
 s.
 
 c. Preparation of a subsidiary propaganda plan - to insure adequate reporting of the conference and adequate circulation of its deliberations, in several languages, behind the curtain..

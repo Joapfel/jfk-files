@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17298.png
-
-Convert to Markdown16. Special Problems and Commitments:
+16. Special Problems and Commitments:
 
 a. No commitments, expressed or implied, have been made to any LIEMPTY agent by the present Case Officer, except as stated in the project outline and/or in the contracts of GERENDE and SCANTLING.
 

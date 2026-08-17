@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16415.png
-
-Convert to MarkdownThe people, and
+The people, and
 
 the people alone, are
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24609.png
-
-Convert to Markdown4. The Special Group Investigation of Reported Castro Assassination Plots by Cuban Exiles.
+4. The Special Group Investigation of Reported Castro Assassination Plots by Cuban Exiles.
 On June 10, 1964, Helms informed McCone by memorandum that Agency officials had learned of several plots of Cuban exiles to assassinate Castro and other Cuban leaders. (Memorandum, Helms to McCone, June 10, 1964.)
 Several of the plots, according to the memorandum, involved "people apparently associated with the Mafia". Reportedly the exiles had offered people associated with the Mafia $150,000 to perform the deed. In his memorandum, Helms stated that the sources of the reports were parties to the plots and in submitting the information to Agency officers were presumably seeking legal immunity should the plots succeed. (Id., p. 1.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11999.png
-
-Convert to Markdown# Extent and Nature of Current Supervision
+# Extent and Nature of Current Supervision
 
 Periodic reports on individuals and organizations as well as informant coverage relating to BOCOV are analyzed and correlated by SA Joseph E. Gauzens, Jr. Involved is review of incoming letters, memoranda, reports and semi-annual progress letters detailing informant coverage and subversive strength. Analysis of this material provides a basis for detecting weaknesses and making arrangements for counter-intelligence moves.
 

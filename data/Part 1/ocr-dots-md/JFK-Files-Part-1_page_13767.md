@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13767.png
-
-Convert to MarkdownCONTINUATION OF
+CONTINUATION OF
 DISPATCH
 
 <table><tr><td>14-00000</td></tr></table>

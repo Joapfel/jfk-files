@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8211.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Wannall
+Memorandum to Mr. W. R. Wannall
 Re: Senstudy 75
 
 # LETTER TO THE ATTORNEY GENERAL FROM SENATOR EDWARD M. KENNEDY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35207.png
-
-Convert to Markdown(3)
+(3)
 
 PERSONAL
 

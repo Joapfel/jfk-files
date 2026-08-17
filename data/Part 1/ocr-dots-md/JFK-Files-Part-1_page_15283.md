@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15283.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td colspan="3">NON-ACCOUNTABLE MATERIAL MANIFEST</td>
     <td>DATE</td>

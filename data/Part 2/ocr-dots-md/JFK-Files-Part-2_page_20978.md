@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20978.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ADDENDUM: J. B. ADAMS
 

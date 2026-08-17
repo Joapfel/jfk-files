@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31875.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Deputy Director of Personnel
 SUBJECT: Mexico City Clerical Requirements

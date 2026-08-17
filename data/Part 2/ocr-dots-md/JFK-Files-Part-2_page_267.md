@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_267.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Xin, files Joyce H. Pmoeich
 

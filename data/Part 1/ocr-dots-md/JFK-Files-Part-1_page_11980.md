@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11980.png
-
-Convert to MarkdownThe
+The
 Incident
 
 by Taylor Branch and John Rothchild

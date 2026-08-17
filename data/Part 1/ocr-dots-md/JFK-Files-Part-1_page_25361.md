@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25361.png
-
-Convert to MarkdownRCME 5842
+RCME 5842
 IF 26718
 22 May 53
 

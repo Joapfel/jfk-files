@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12488.png
-
-Convert to Markdown**SECRET**
+**SECRET**
 
 Chief of Station, Caracas
 

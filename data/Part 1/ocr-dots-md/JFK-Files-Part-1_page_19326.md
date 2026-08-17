@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19326.png
-
-Convert to Markdown10 May 1968
+10 May 1968
 
 # ADMINISTRATION FOR THE DEPARTMENT, GENERAL INTELLIGENCE
 

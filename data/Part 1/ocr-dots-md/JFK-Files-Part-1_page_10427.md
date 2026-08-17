@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_10427.png
-
 , Iden A, the previous afternoon (27/8/68) at about 1345 at the office of the director of Siemre, where she had gone in connection with added publicity for LIRING/3. She stated that LIRING/10 greeted her cordially, but she asked how she was doing. He seemed genuinely disturbed to hear that things were no better, and commented that he had been hearing about her from time to time from Iden B, but felt that she should make her problems known to the LIRING office herself. Then LIRING/4 commented that Iden C had told her and Iden B that it might be wiser for her to avoid contact openly with the LIRING office, LIRING/10 brushed this off, remarking that he felt it would be perfectly alright for LIRING/4 to come in whenever she felt it necessary for moral and whatever material help could be offered.
 
 LIRING/4 told Rowton that in view of this comment of LIRING/10, she visited the LIRING office early that same morning (28/8/68) and found that LIRING/2 had returned from his TDY. She said that LIRING/2 greeted her cordially as usual, but he apparently did not have time to chat with her on that occasion.

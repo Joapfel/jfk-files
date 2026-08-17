@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14982.png
-
-Convert to MarkdownNATIONAL CRIME INFORMATION CENTER (NCIC)
+NATIONAL CRIME INFORMATION CENTER (NCIC)
 
 The National Crime Information Center (NCIC), a computerized index of law enforcement information on crime and criminals, successfully began its pilot test operation on January 27, 1967. At the present time the following police agencies are directly on-line to the FBI computer:
 

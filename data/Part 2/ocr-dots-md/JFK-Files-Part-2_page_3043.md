@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3043.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 in Project PBSUCCESS, the operation which had resulted in the overthrow of the Communist-dominated government of Jacobo Arbenz in Guatemala in 1954. Esterline was the choice of J. C. King, Chief, WH Division; and to the best of Esterline's recollection, toward the end of his two year tour in Venezuela he had been queried by King about remaining in Venezuela or coming back to Headquarters to work on the Cuban problem. It was shortly after his return to the States in January of 1960 that Esterline became Chief, WH/4. 3/
 

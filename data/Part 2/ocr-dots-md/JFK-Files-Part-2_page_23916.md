@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23916.png
-
-Convert to Markdownit [the contact] unless there was some possibility of reactivating that operation" (Bissell, 6/11/75, p. 19). Bissell stated that because the assassination plot against Castro involving the syndicate
+it [the contact] unless there was some possibility of reactivating that operation" (Bissell, 6/11/75, p. 19). Bissell stated that because the assassination plot against Castro involving the syndicate
 
 had been stood down after the Bay of Pigs ... and there was no authorization to pursue it actively ... the responsibility that was given to him [Harvey] was that of taking over an inactive contact." (Bissell, 7/17/75, p. 14)
 

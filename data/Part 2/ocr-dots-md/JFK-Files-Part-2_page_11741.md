@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11741.png
-
-Convert to Markdown[6E - G]
+[6E - G]
 
 SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 

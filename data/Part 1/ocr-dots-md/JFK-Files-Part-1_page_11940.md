@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11940.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>OPERATION</th><th>CALLSIGN</th></tr></thead><tbody><tr><td>DEA</td><td>DARYL LA/CARI</td></tr></tbody></table>
 

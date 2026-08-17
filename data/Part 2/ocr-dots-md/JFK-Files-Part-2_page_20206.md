@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20206.png
-
-Convert to MarkdownNR 010 WF CODED
+NR 010 WF CODED
 
 NOV 17 1971
 

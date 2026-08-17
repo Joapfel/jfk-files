@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31488.png
-
-Convert to MarkdownBAY AREA PROGRESSIVE LABOR, aka
+BAY AREA PROGRESSIVE LABOR, aka
 "Progressive Labor"
 
 A source advised on December 12, 1962, that in the

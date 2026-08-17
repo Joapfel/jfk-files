@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1620.png
-
-Convert to MarkdownSUBJECT: Request for Services of Collins Modern Field Service Engineer
+SUBJECT: Request for Services of Collins Modern Field Service Engineer
 
 CONCURRENCE:
 

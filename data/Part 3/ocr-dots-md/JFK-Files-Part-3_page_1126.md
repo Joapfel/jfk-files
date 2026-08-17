@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_1126.png
-
 s concerning
 Seeger's subversive background. This memorandum, according
 to the Monsignor, would serve to answer inquiries which

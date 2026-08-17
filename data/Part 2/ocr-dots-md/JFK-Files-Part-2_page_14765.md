@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14765.png
-
-Convert to MarkdownWFO 105-New
+WFO 105-New
 
 WFO recommends that the Bureau authorize sending
 to the WCW in Helsinki, Finland, 6/14-17/69, and to

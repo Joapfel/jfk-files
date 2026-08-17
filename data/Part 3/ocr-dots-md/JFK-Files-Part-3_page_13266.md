@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13266.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 MR. ROETHE: Assuming that it was something that an official request made on behalf of the government?
 

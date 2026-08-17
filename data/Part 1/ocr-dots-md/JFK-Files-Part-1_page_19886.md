@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19886.png
-
-Convert to MarkdownMiss Sandra B. Cazazzus
+Miss Sandra B. Cazazzus
 
 Dear Miss Cazazzus:
 

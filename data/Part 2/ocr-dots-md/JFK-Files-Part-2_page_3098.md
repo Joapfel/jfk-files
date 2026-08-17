@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3098.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In mid-April of 1960 WH/4 made the first presentation for the DCI since the basic program had been approved by President Eisenhower in mid-March. In attendance in addition to the DCI were: Gen. Cabell, Mr. Helms (C/OPS), Herman Horton (CI Staff), and C. Tracy Barnes, Mr. Bissell's Deputy. This high level group was informed that broadcasting activity from Swan Island was scheduled to begin on 17 May 1960 and that very special operations were being carried out in order to provide stories for propaganda use. According to Dave Phillips who made the presentation
 

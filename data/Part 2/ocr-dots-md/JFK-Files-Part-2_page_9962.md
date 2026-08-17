@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9962.png
-
-Convert to MarkdownExecutive Order 10450
+Executive Order 10450
 
 Security Requirements For Government Employment
 

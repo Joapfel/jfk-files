@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23236.png
-
-Convert to MarkdownSECLUDED REBEL ARMS SHOP: In this enclosure in Cuba's Sierra Maestra, so remote that even mules cannot reach it, weapons are repaired for forces of Fidel Castro.
+SECLUDED REBEL ARMS SHOP: In this enclosure in Cuba's Sierra Maestra, so remote that even mules cannot reach it, weapons are repaired for forces of Fidel Castro.
 
 Continued on Page 3, Catoon 5
 

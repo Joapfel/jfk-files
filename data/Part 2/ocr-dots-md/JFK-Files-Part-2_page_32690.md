@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32690.png
-
-Convert to MarkdownMarch 29, 1963
+March 29, 1963
 
 MEMORANDUM FOR ROBERT A. HURWITCH, Department of State
 SUBJECT: Missile Crisis Section of the President's Draft Report to Congress on US Participation in the UN During 1962

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7864.png
-
-Convert to Markdown1 - Mr. Wannall
+1 - Mr. Wannall
 Attn: Mr. Cregar
 
 1 - Mr. Bassett -

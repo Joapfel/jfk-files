@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1523.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MS. OCT 1958
 

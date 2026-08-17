@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13326.png
-
-Convert to Markdownbelieve that the information on Oswald was unusual enough to have
+believe that the information on Oswald was unusual enough to have
 caused recipients to take special measures which might conceivably
 have led to a closer scrutiny of Lee Harvey Oswald and his movements.
 Mr. Helms pointed out that the information on Oswald's visit to the

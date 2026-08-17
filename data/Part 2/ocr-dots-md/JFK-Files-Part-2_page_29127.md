@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29127.png
-
-Convert to MarkdownN \u0042 \u3053 \u0041 \u0042 \u3053 \u0041 Reference copy, JFK Collection: HSCA (RG 233)
+N \u0042 \u3053 \u0041 \u0042 \u3053 \u0041 Reference copy, JFK Collection: HSCA (RG 233)
 
 Page-2-Form 540 (1976)
 

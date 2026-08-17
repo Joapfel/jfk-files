@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8794.png
-
-Convert to MarkdownThe Chilean technician threw out a corrugated box brought there a few days previously by an Army truck escorted by the G-2. A-1 retrieved the box and noted it contained the address Acoustic Research, Inc. Cambridge, Mass. (The Agency checked with the firm and learned that the firm dealt in manufacture of high fidelity components for home consumption. Firm official said if box found its way to Cuba it no doubt was used for second time and original contents removed).
+The Chilean technician threw out a corrugated box brought there a few days previously by an Army truck escorted by the G-2. A-1 retrieved the box and noted it contained the address Acoustic Research, Inc. Cambridge, Mass. (The Agency checked with the firm and learned that the firm dealt in manufacture of high fidelity components for home consumption. Firm official said if box found its way to Cuba it no doubt was used for second time and original contents removed).
 
 [In [Don Heath] 22 March 1977 Memo on Miami Station Action to Aid USG Investigation of Murder of John F. Kennedy, [Heath] said [AMWEE-1] reported that on the night of the day of the Kennedy assassination [A-1] saw Osmani CIENFUEGOS drive up to the house [across the street] at about 0100 hours; he stayed several hours. The house at that time was occupied by an American expatriate technician who built audio surveillance gear for the CUIS.]
 

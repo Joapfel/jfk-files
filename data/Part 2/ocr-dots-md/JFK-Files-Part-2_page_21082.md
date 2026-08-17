@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21082.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Information provided by a sensitive CIA source has been very useful in following the activities of French agents in the U. S.
 

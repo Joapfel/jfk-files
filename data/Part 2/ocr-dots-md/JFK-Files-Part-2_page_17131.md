@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17131.png
-
-Convert to MarkdownCHICAGO
+CHICAGO
 FUTURE
 
 If it is now clear to the masses of

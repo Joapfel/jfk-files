@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27127.png
-
-Convert to Markdownthe counterintelligence function and conferred upon it the necessary measure of authority, autonomy and the essential secrecy required for the conduct of this activity. To better understand the need for reform, it is believed that a short historical presentation is essential. What is here submitted is based on voluminous files and documentation which record the shaky progress of counterintelligence as practiced by the U.S. Government following World War II until the present.
+the counterintelligence function and conferred upon it the necessary measure of authority, autonomy and the essential secrecy required for the conduct of this activity. To better understand the need for reform, it is believed that a short historical presentation is essential. What is here submitted is based on voluminous files and documentation which record the shaky progress of counterintelligence as practiced by the U.S. Government following World War II until the present.
 
 After October 1945 the concept of counterintelligence as a separate and equal function withered away. On 17 October of that year Brigadier General John A. Magruder, then the director of the Strategic Services Unit (a short-lived inheritor of O.S.S.), stated in a memorandum to Mr. John J. McCloy that the valuable O.S.S. liaison relationships abroad were deteriorating because foreign services were uncertain as to whether the United States would have a central intelligence service. General Magruder was an honorable and conscientious custodian of O.S.S.
 

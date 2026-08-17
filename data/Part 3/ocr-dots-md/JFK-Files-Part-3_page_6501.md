@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6501.png
-
-Convert to MarkdownMemorandum to Mr. Tolson
+Memorandum to Mr. Tolson
 Re: The Long Committee
 
 affecting CIA. (Apparently CIA got wind of some inquiries by the committee relative to their secret operation and went to the committee and warned them off.) Katzenbach contemplates asking for a list of the witnesses who will appear before the committee together with a brief summary of the expected testimony. On the basis of this, he will be able to advise Senator Long when he should steer clear of a sensitive area.

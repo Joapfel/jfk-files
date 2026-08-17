@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29695.png
-
-Convert to Markdown18-0000
+18-0000
 
 CARTER FOR PRESIDENT SUGGESTED THAT THE GOVERNMENT BE ABLE TO END UPON
 HENCEforth that it will be able to carry on its work, not only in peace but also

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28514.png
-
-Convert to MarkdownAs a result of these investigations, I have testified in the Municipal Court, Criminal Court Supreme Bench, and the Grand Jury systems in the City of Baltimore and State of Maryland. On most occasions, the Court recognizes me as an expert in the field of homicides and related death investigations.
+As a result of these investigations, I have testified in the Municipal Court, Criminal Court Supreme Bench, and the Grand Jury systems in the City of Baltimore and State of Maryland. On most occasions, the Court recognizes me as an expert in the field of homicides and related death investigations.
 
 During my assignment in the Homicide Squad, I have acted in the capacity of field supervisor for about 3 1/2 years, supervising 5 to 7 investigators and their assignments. Have also had the experience of acting undercover while with the unit and on two occasions I was hired as a paid assassin. During these operations I worked with several forms of electronic equipment and became familiar with it.
 

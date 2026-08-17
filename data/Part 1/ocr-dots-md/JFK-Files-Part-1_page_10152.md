@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10152.png
-
-Convert to Markdown12 June 63
+12 June 63
 
 LITANI-7's production (All of it):
 

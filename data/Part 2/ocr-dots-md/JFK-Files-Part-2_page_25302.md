@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25302.png
-
-Convert to Markdown1975
+1975
 
 Nº 203-75-
 03

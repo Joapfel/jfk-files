@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19920.png
-
-Convert to MarkdownMEMORANDUM RECEIPT
+MEMORANDUM RECEIPT
 
 7 June 1963
 

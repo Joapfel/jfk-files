@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6085.png
-
-Convert to Markdown-2-
+-2-
 
 8. Education:
 

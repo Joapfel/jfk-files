@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6245.png
-
-Convert to MarkdownMarital status
+Marital status
 
 Married
 JUANITA ABERNATHY

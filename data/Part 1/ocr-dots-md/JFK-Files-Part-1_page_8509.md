@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8509.png
-
-Convert to Markdown14:06:00
+14:06:00
 
 Rollo: C - 2193
 Fecha: Febrero 13 (MARTES) de 1968

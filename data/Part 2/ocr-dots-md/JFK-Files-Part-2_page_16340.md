@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16340.png
-
-Convert to MarkdownIn conducting this search, the following matters were considered:
+In conducting this search, the following matters were considered:
 
 The arrests were completed between approximately 5:30 a.m. and 6:00 a.m. and it would not be possible to prepare detailed affidavits for search warrant and appear before the U.S. Commissioner or a District Court judge for several hours.
 

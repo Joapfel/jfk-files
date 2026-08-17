@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14255.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **Agenda item 3:** The writer will brief the Board on the details of these penetrations. Dr. Baker will brief the Board on the technical judgments which have been made on the subject by the Baker Panel. (See enclosed draft report prepared by the Panel.) This Panel consists of the following individuals:
 

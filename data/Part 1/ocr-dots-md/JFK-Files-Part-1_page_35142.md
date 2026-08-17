@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35142.png
-
-Convert to MarkdownF c c h a
+F c c h a
 
 Check No. Total
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8066.png
-
-Convert to Markdown13-00000
+13-00000
 
 PRIORITY HANDLING
 INTERNAL USE ONLY

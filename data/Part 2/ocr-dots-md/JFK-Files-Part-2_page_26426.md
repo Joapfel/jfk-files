@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26426.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NOFORN/CONTINUED CONTROL/BACKGROUND USE ONLY
 

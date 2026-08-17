@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34804.png
-
-Convert to MarkdownDecember 1966
+December 1966
 
 TO : Mr. Flores
 

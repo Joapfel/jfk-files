@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10923.png
-
-Convert to MarkdownLyman B. Kirtkpatrick, Inspector General, Central Intelligence Agency (CIA), acting as a representative of the Director of Central Intelligence (DCI). The other four members of the Study Group represented the Department of State, Secretary of Defense, Bureau of the Budget, and the National Security Council (NSC).
+Lyman B. Kirtkpatrick, Inspector General, Central Intelligence Agency (CIA), acting as a representative of the Director of Central Intelligence (DCI). The other four members of the Study Group represented the Department of State, Secretary of Defense, Bureau of the Budget, and the National Security Council (NSC).
 
 The stated targets of examination by the Group were organizational and management aspects within the intelligence effort relating to all aspects of foreign intelligence. In the confines of these objectives the Bureau was not considered for examination by the Group in view of the Bureau's lack of operational jurisdiction in matters outside of this country. Mr. Belmont, acting for the Bureau, gave a briefing before the Group on 7/29/60 regarding the Bureau's relations with other United States intelligence agencies. There was no mention made of the Bureau in the report except in one of its recommendations relative to reorganization of the membership of the United States Intelligence Board (USIB) which will be dealt with in more detail later.
 

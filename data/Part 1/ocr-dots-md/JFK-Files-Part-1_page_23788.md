@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23788.png
-
-Convert to MarkdownAttachment to CP/4 251
+Attachment to CP/4 251
 Under Separate Cover
 
 **Identity A - Jacques Crippa**

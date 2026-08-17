@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23798.png
-
-Convert to Markdown1. Senator Huddleston. The assumption is if the media of the press is subverted, that it will affect the citizens, or they will suffer.
+1. Senator Huddleston. The assumption is if the media of the press is subverted, that it will affect the citizens, or they will suffer.
 
 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35509.png
-
-Convert to MarkdownNo. 1. June 65
+No. 1. June 65
 
 Received from
 

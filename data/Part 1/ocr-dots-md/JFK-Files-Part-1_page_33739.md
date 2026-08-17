@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33739.png
-
-Convert to MarkdownCzechoslavak groups in the controversy.
+Czechoslavak groups in the controversy.
 
 Mr. Barbour int.posed that should the negotiations indeed fail,
 and we be faced with a Czechoslovak situation in which there would be no

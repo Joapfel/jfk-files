@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11764.png
-
-Convert to Markdownadministration. Since terrorist activities such as bombings, riots and the like are in violation of statutes under Bureau's investigative responsibility it behooves us to make certain that our supervision is as tight and effective as possible.
+administration. Since terrorist activities such as bombings, riots and the like are in violation of statutes under Bureau's investigative responsibility it behooves us to make certain that our supervision is as tight and effective as possible.
 
 Inasmuch as DID is actively investigating the terrorists who are in violation of these laws, it follows that DID is better prepared to handle these criminal investigations and handle final prosecutive actions. Not only would duplicative supervisory action be avoided but the DID supervisor has at his fingertips a feel of the case, necessary background data and a full knowledge of sources who can develop needed evidence.
 

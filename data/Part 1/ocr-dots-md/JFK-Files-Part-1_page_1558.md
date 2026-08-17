@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1558.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There are enclosed Forms I-125 and background data,
 in duplicate, concerning the subject.

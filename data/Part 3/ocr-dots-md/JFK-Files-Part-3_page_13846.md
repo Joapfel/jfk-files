@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13846.png
-
-Convert to Markdowncarrying out duties; their (political) tendencies and names?
+carrying out duties; their (political) tendencies and names?
 
 16. Revolutionary organizations of your base. Who are the leaders? Names, and political affiliation.
 

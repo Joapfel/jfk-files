@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11532.png
-
-Convert to MarkdownPage
+Page
 
 Surveys, Projects and/or Intensification Programs (Continued)
 

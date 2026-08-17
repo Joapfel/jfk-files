@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14607.png
-
-Convert to MarkdownE. VILLANUEVA:
+E. VILLANUEVA:
 
 Manager of the Wall Street Investor Shop, located at 360 4th Avenue St., Havana. Appointed to this position by President Fidel Castro, 17 April 1958, of the Ministry of Domestic Trade (Ministerio). Source: Official Gazette (1958), 28 June 1958, page 63-4.
 

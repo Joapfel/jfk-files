@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35380.png
-
-Convert to Markdown10 October 1961
+10 October 1961
 
 MEMORANDUM FOR THE RECORD
 

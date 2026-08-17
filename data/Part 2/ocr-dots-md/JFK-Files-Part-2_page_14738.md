@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14738.png
-
-Convert to MarkdownSAC, Washington Field
+SAC, Washington Field
 
 CONFIDENTIAL
 

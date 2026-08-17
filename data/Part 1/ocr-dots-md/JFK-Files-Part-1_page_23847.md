@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23847.png
-
-Convert to Markdown27 April 1965
+27 April 1965
 
 Richard Morris Crichton,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31551.png
-
-Convert to Markdown14-0000
+14-0000
 
 16-A Supp. World-Hera Omaha, Nover
 

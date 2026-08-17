@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2184.png
-
-Convert to Markdown13. Instructions. Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
+13. Instructions. Instructions received by you from the Government in briefing, training or otherwise are a part of this contract and are incorporated herein, provided that such instructions are not inconsistent with the terms hereof.
 
 14. Reassignments. During your period of service under this agreement, it may be necessary for this organization to terminate an assignment for reasons beyond your control. in such event, you will be given every consideration for other assignments appropriate to Career Agents.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20396.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Demonstration Protesting United
 States Policy in Vietnam,

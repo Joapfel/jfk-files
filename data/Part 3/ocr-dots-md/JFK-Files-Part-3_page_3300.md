@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3300.png
-
-Convert to MarkdownFD-302 (Rev. 4-15-64)
+FD-302 (Rev. 4-15-64)
 
 FEDERAL BUREAU OF INVESTIGATION
 

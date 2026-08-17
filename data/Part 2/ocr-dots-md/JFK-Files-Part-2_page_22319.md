@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22319.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 payroll, and for the second time I was turned down by Mr. Hughes. I believe it was in September of 1969 that I finally called Mr. Meier in and requested his resignation and then I informed Mr. Hughes that he had resigned.
 

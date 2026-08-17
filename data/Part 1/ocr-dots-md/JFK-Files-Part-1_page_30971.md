@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30971.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>MENTIONED FOR INDEXING</td></tr><tr><td>RYBAT</td><td></td><td>NO MENTIONING REQUIRED</td></tr><tr><td colspan="2">Chief, WHD Division</td><td>ONLY QUALIFIED DISCLOSURE INDEXING</td></tr><tr><td colspan="2">Chief of Station, Mexico City</td><td>NOT REQUIRED</td></tr><tr><td colspan="2">Jeremy K. BENADUM/ Retirement</td><td>OFFICIAL</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th></th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>SECRET</td><td></td><td>MENTIONED FOR INDEXING</td></tr><tr><td>RYBAT</td><td></td><td>NO MENTIONING REQUIRED</td></tr><tr><td colspan="2">Chief, WHD Division</td><td>ONLY QUALIFIED DISCLOSURE INDEXING</td></tr><tr><td colspan="2">Chief of Station, Mexico City</td><td>NOT REQUIRED</td></tr><tr><td colspan="2">Jeremy K. BENADUM/ Retirement</td><td>OFFICIAL</td></tr></tbody></table>
 
 ACTION REQUIRED - REFERENCES
 

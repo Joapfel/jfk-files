@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4048.png
-
-Convert to MarkdownFP 65-951
+FP 65-951
 
 a policeman. He left the hotel room, got in his car, and proceeded down the streets of El Paso looking for a policeman who looked like he would shoot it out with him. NAGELL told STANGA that he did not see a patrolman, however, and decided that he would enter the State National Bank of El Paso and cause a big ruckus because he knew that a policeman was in the building guarding a Treasury Department money display. NAGELL entered the bank and fired two shots into a wall and then left the bank, fully expecting to be shot down by a passing policeman. However, he escaped to his car, which was parked in an alley, and gave up peaceably when arrested by the policeman who was guarding the money display in the bank. NAGELL told STANGA that his robbery of the bank was purely a suicide attempt and that he had no intention of robbing the bank for any monetary gain.
 

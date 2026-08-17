@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2117.png
-
-Convert to MarkdownNAM-88608-DoD-32988749-Page.91
+NAM-88608-DoD-32988749-Page.91
 
 JAN 13 6 42 PM '78
 

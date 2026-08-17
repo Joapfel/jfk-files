@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18947.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 to YAROCHEVSKIY about his failure to attend and the next day KARTOOF (KOTOV) apologized telephonically, indicating he had mixed up his dates. —C—
 

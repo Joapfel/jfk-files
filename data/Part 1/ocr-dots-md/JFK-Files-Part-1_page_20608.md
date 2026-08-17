@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20608.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>CONTRACT INFORMATION AND CHECK LIST<br/>(CONTINUED)<br/>NOTE: SEE INSTRUCTIONS ON FIRST SHEET.</td><td>OFFICE<br/>Gene Stevens<br/>TELEPHONE EXTENSION<br/>7157</td><td>DATE<br/>24 June 1965</td></tr></table>
 

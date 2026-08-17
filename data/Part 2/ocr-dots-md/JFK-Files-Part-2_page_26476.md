@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26476.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Student and youth leaders Andres Soliz Rada, Dulfredo Rua, Walter Quisbert Barrios, and Alberto de la Barra.
 

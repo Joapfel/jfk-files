@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19318.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME<br/>James H. Moore</td><td>TITLE<br/>Chief of Station</td><td>CAB-12<br/>86474,60</td></tr><tr><td>OFFICE OR D epartment</td><td>OFFICIAL STATION</td><td>AVAILABLE FOR TEMPORARY LEAVE ONLY (Personnel)</td></tr><tr><td>FZG</td><td>Calcutta</td><td></td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24873.png
-
-Convert to Markdownto those killed in the coup (Conein, 6/20, p. 72).*
+to those killed in the coup (Conein, 6/20, p. 72).*
 
 Conein was at the Joint General Staff Headquarters during most of the coup (I.G., C, pp. 41-42). At 1:40 p.m., the Generals proposed that Diem resign immediately, and guaranteed him and Nhu safe departure (Conein After-Action Report, p. 15). The palace was surrounded shortly afterwards, and at 4:30 p.m. the Generals announced the coup on the radio and demanded the resignation of Diem and Nhu. Diem called Lodge and inquired about the United States' position. Lodge responded that the United States did not yet have a view, and expressed concern for Diem's safety (Pentagon Papers, p. 221).
 

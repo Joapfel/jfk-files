@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31386.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 "For the purpose of this chapter:
 

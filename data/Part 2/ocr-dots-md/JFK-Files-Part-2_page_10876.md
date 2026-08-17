@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10876.png
-
-Convert to Markdown# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
+# SECTION 6. PUBLICATIONS, PRESS, AND PUBLIC CONTACTS
 
 9. In cases involving bombings having an apparent racial or religious basis with the resultant public interest, the SAC should issue a statement to the press indicating the SAC has arrived at the scene or is en route to actively assist local investigative authorities, making available to them every possible cooperative service of the FBI, including the Bureau's full laboratory and identification facilities, to further assist them by handling out-of-state leads, and to take charge of all investigative efforts that may indicate any Federal violation. At no time should this statement indicate that the criminal act is obviously outside the investigative jurisdiction of the FBI nor should full investigative responsibility for the incident be either assumed or declared. The issuance of this statement requires prior Bureau approval in every such instance, and the Bureau should be contacted telephonically and furnished known facts of the incident so a prompt statement can be authorized.
 

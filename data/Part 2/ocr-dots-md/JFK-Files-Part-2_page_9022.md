@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9022.png
-
-Convert to Markdown-10-
+-10-
 
 Reports of surveillance have been disseminated to all who have a requirement to know.
 

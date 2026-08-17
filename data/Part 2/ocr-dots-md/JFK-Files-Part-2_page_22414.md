@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22414.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Q Bought it back from the Soviets?
 

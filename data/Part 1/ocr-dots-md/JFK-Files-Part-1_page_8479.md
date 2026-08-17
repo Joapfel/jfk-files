@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8479.png
-
-Convert to MarkdownSOVIETS
+SOVIETS
 
 Valentin's friends, June 30, 1967.
 

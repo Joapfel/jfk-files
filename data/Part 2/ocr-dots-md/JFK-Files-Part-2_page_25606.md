@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25606.png
-
-Convert to MarkdownHW 509
+HW 509
 
 To : Terry Lenzner
 From : Bob Muse

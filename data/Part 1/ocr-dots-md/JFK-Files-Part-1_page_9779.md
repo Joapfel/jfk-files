@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9779.png
-
-Convert to Markdown29 April, 1968
+29 April, 1968
 
 SUBJECT: LIRING/4 Report of Contact with Sandoval and Marcue.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26156.png
-
-Convert to Markdownand so forth by public officials or
+and so forth by public officials or
 people connected with the regime in Vietnam
 so that the information-gathering process
 of the United States there was devoting an

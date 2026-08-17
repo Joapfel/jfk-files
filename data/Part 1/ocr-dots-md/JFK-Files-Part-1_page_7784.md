@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7784.png
-
-Convert to Markdownthe Soviet Embassy. Moreover, he said, even if the U.S. Embassy refused to give him any advice, at least it would make a record of his visit and anyone who was ever interested would have his heart in the right place. He simply did not want and couldn't afford to get into any trouble with the U.S. Embassy, he said.
+the Soviet Embassy. Moreover, he said, even if the U.S. Embassy refused to give him any advice, at least it would make a record of his visit and anyone who was ever interested would have his heart in the right place. He simply did not want and couldn't afford to get into any trouble with the U.S. Embassy, he said.
 
 After all, he had an American wife, he might want to go to the States to study sometime, and they might even want to go to the States to live someday. Seeing that Subject was indeed very serious, I became more serious myself and told him that just so he wouldn't worry, I'd write a memo to the proper Embassy department stating for the sake of the record that Subject had told me he planned to attend a Soviet Embassy reception, but wished the U.S. Embassy to know he was doing it solely out of curiosity and was in no way in sympathy with the Soviet Union. Subject seemed greatly relieved and thanked me very much.
 

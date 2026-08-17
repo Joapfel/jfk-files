@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11878.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief, CH/C/RR/OA - Michael H. Olejarz
 

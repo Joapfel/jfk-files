@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16939.png
-
-Convert to MarkdownSECRET: NO FORUM, NO DISCLOSURE
+SECRET: NO FORUM, NO DISCLOSURE
 
 13 SEP 1966.
 

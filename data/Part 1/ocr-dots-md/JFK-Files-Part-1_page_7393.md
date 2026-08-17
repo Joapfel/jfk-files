@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7393.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Howard Hunt
 

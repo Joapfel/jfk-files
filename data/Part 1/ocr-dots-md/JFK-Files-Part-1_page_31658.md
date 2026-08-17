@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31658.png
-
-Convert to Markdown22 April 1953
+22 April 1953
 
 MEMORANDUM FOR: DEPUTY DIRECTOR (FLANG)
 

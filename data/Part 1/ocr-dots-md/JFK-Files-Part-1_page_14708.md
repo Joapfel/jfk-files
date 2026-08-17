@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14708.png
-
-Convert to MarkdownOrestes Guillermo RUIZ Perez
+Orestes Guillermo RUIZ Perez
 
 U.S. 5 April 1957, overstayed his time, and on 11 February 1958 was ordered deported; claimed he would be killed if he returned to Cuba and did not show for deportation. Subsequent investigation showed he was in Cuba as of 2 March.
 

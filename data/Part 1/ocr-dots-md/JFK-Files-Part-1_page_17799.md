@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17799.png
-
-Convert to Markdowncont..
+cont..
 
 Yos Forfiristas, pues no se deja ganar para nada y luego cuando
 no hay en realidad un movimiento popular desde la base, organizado

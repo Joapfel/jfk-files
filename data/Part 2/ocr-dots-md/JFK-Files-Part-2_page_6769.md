@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6769.png
-
-Convert to MarkdownOCA 2149-92
+OCA 2149-92
 
 19 May 1992
 

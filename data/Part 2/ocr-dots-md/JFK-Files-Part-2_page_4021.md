@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4021.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 "As of the aforementioned date, and prior thereto, responsible authorities of the Department of Alcoholic Beverage Control were aware of the foregoing information. The two agents who handled special ownership investigations in the Los Angeles Metropolitan area (consisting of 3500 licensees) were OWEN J. MC CARD, a hanger-on and close friend of WILLIAM G. BONELLI, former Director of SBE, and myself. During the course of my investigations I received pressure from both MC CARD and certain superiors to fluff off on certain investigations, and to press others - depending on the licensee or who the hoodlums were in back of the business concerned. This I did not do. In my opinion this resulted directly in my dismissal from the department, regardless of what other ostensible reasons were tendered. It is a fact that I was shot as a result of one of my investigations even though it could have been avoided by myself. Certain reports of investigations which I turned in were not forwarded thru proper channels; some of them were destroyed; I was pulled off of some investigations before their completion (which were not reassigned); certain licensees were notified that I was investigating them; and I was aware of bribes being offered in quite a few instances. Some of the attorneys who acted as go-betweens in these affairs were as follows:
 

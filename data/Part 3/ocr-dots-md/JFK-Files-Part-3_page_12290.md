@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12290.png
-
-Convert to MarkdownEXPELLED
+EXPELLED
 
 So let this be heard throughout the many times he has been warned black community, of Atlantic City, by his comrades, about his work, New Jersey. That Leonard Weeks and about his duty to the people's is no longer a servant of the peo- children. He deserted the children the break- of the black community, there were days he would not attend the break- fast program, because he said that he was tired or that he overslept. Well we cannot adhear to this be- cause as revolutionaries we must prepare ourselves to be a match for a hundred. We must pre- pare to run ourselves to death if need he, so that the people shall he served, and to see to it that they truly have a right to the best. And we have no time for slip-shod niggers. We mustholdourselvesre- sponsible to the people.Every word, every act, and every policy must confirm to the people's interest, and if mistakes occur, they mustbe cor- rected, that is what being responsi- ble to the people means,
 

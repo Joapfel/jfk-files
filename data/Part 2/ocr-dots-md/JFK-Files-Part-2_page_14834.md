@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14834.png
-
-Convert to Markdown1/18/60
+1/18/60
 
 FRANK GRIGGS, et al.
 MELVIN W. SMITH - VICTIM

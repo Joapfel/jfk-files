@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25648.png
-
-Convert to Markdown# Jim Braden (Eugene Brading) And The Mafia
+# Jim Braden (Eugene Brading) And The Mafia
 
 Investigator Noyes began a thorough investigation of Braden based upon all available police records and documents.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33977.png
-
-Convert to MarkdownCUBA: PRIMER TERRITORIO ECONOMICAMENTE DEPENDIENTE DE LA URSS EN AMERICA
+CUBA: PRIMER TERRITORIO ECONOMICAMENTE DEPENDIENTE DE LA URSS EN AMERICA
 
 Los números no mienten. Y los números arrojan la verdad irrefutable de que, durante 8 años de dominación comunista, nuestra infortunada Isla se ha hecho cada vez más dependiente de la metrópoli rusa, estrechándose cada día más las ligaduras de dicha dependencia.
 

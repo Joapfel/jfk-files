@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10009.png
-
-Convert to MarkdownRECD
+RECD
 
 Mar 25 J DEC PH75
 

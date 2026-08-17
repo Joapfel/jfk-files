@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33740.png
-
-Convert to MarkdownMr. Vodeler indicated that he considered this move to be fortunate and appropriate, in view of the upheaval which has occurred in the matter of the Baltic broadcasts. He indicated his belief that if RTI is to continue, it is necessary that some form of Radio Free Europe broadcasts to Baltic countries be considered. He advised that the Baltic countries considered there had been discrimination against them, and they feel that it is only through RTI broadcasts that they can really speak to their own people; he advised that he considered the general situation most regrettable.
+Mr. Vodeler indicated that he considered this move to be fortunate and appropriate, in view of the upheaval which has occurred in the matter of the Baltic broadcasts. He indicated his belief that if RTI is to continue, it is necessary that some form of Radio Free Europe broadcasts to Baltic countries be considered. He advised that the Baltic countries considered there had been discrimination against them, and they feel that it is only through RTI broadcasts that they can really speak to their own people; he advised that he considered the general situation most regrettable.
 
 Miss Augustine indicated that in New York there was considerable hope that once the Baltic broadcast question was straightened out, such situations be avoided in the future, as it has been most embarrassing to all concerned, and has placed the good faith of RTI towards the Baltics in jeopardy.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35150.png
-
-Convert to Markdown# PROPAGANDA
+# PROPAGANDA
 ## CAMPAÑAS PARA RECOLECTAR FONDOS
 ### PAULA ALDO SOSA
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7066.png
-
-Convert to MarkdownTitle 18, USC, Section 2385, which proscribes, inter alia, advocacy of overthrowing the Government of the United States or the Govern- ment of any state, territory, District or possession thereof, or the Government of any political subdivision therein by force or violence.
+Title 18, USC, Section 2385, which proscribes, inter alia, advocacy of overthrowing the Government of the United States or the Govern- ment of any state, territory, District or possession thereof, or the Government of any political subdivision therein by force or violence.
 
 Activities Affecting Armed Forces, 18 USC 2388
 

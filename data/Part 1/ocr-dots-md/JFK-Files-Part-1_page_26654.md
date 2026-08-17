@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26654.png
-
-Convert to Markdown<table><thead><tr><td>INDEX: ☐ YES ☐ NO __________</td><td colspan="2">CLASSIFIED MESSAGE TOTAL COPIES __________</td></tr><tr><td colspan="3">REPRODUCTION PROHIBITED</td></tr><tr><th>FILE RTO ☐ RET. TO BRANCH ☐</th><th>PERSON/UNIT NOTIFIED</th><th>☐ 1</th><th>☐ 0</th></tr></thead><tbody><tr><td>DESTROY ☐ SIG.</td><td></td><td>☐ 7</td><td>☐ 0</td></tr><tr><td colspan="2">FROM Mexico City</td><td></td><td></td></tr><tr><th>ACTION WH-8</th><th>☑ RID COPY</th><th colspan="2">ADVANCE COPY ☐ ...... ☐ ...... ☐ ......</th></tr><tr><th>INFO FILE, V.K., CH-2, CH/PROP, D-4, D/J/H-3, WH/C-2, LI/APS, CZ/CO-2, CM/PEG</th><th></th><th>UNIT TIME BY</th><th></th></tr></tbody></table>
+<table><thead><tr><td>INDEX: ☐ YES ☐ NO __________</td><td colspan="2">CLASSIFIED MESSAGE TOTAL COPIES __________</td></tr><tr><td colspan="3">REPRODUCTION PROHIBITED</td></tr><tr><th>FILE RTO ☐ RET. TO BRANCH ☐</th><th>PERSON/UNIT NOTIFIED</th><th>☐ 1</th><th>☐ 0</th></tr></thead><tbody><tr><td>DESTROY ☐ SIG.</td><td></td><td>☐ 7</td><td>☐ 0</td></tr><tr><td colspan="2">FROM Mexico City</td><td></td><td></td></tr><tr><th>ACTION WH-8</th><th>☑ RID COPY</th><th colspan="2">ADVANCE COPY ☐ ...... ☐ ...... ☐ ......</th></tr><tr><th>INFO FILE, V.K., CH-2, CH/PROP, D-4, D/J/H-3, WH/C-2, LI/APS, CZ/CO-2, CM/PEG</th><th></th><th>UNIT TIME BY</th><th></th></tr></tbody></table>
 
 E C F . I 2C1937Z
 

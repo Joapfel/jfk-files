@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1902.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>14 REFERENCES List three persons living in the United States or Territories of the United States who are NOT related to you and who have definite knowledge of your qualifications and fitness for the position for which you are applying. Do not repeat names of supervisors listed under Item 10 (EXPERIENCE).</td>

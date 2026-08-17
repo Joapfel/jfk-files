@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25752.png
-
-Convert to Markdownb. Improvement of morale among internal anti-Castro elements. Better domestic political position as result of increased noise level.
+b. Improvement of morale among internal anti-Castro elements. Better domestic political position as result of increased noise level.
 
 b. Continued exacerbation of Castro without chance of delivering a mortal blow.
 

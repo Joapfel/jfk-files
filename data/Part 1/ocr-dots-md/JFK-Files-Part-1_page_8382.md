@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8382.png
-
-Convert to MarkdownJust prior to leaving the restaurant he said that after this he was going out and got drunk. (I don't remember where he said he was going, but it might have been Ollis). In conversation him, he hissed that he would not say a word, even to his mother or wife, so left the restaurant at 2:15. He wanted to give me a ride, or have me go get drunk with him, but I said that even though I wouldn't mind it, that three of my associates were waiting about three blocks away for my report, and that I had to tell them what happened... they were very anxious about this. He parted in the doorway and he drove off as I walked in the other direction. I later caught a cab to town and left it in the vicinity of my car.
+Just prior to leaving the restaurant he said that after this he was going out and got drunk. (I don't remember where he said he was going, but it might have been Ollis). In conversation him, he hissed that he would not say a word, even to his mother or wife, so left the restaurant at 2:15. He wanted to give me a ride, or have me go get drunk with him, but I said that even though I wouldn't mind it, that three of my associates were waiting about three blocks away for my report, and that I had to tell them what happened... they were very anxious about this. He parted in the doorway and he drove off as I walked in the other direction. I later caught a cab to town and left it in the vicinity of my car.
 
 REMARKS:
 

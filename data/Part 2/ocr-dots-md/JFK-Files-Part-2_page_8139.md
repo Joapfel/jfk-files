@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8139.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 SECRET
 
 BASIC : Mexico City 5247 (IN 93087)

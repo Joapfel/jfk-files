@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3039.png
-
-Convert to MarkdownFBI
+FBI
 
 Date: SEPTEMBER 10, 1975
 

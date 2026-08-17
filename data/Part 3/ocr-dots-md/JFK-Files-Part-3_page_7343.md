@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7343.png
-
-Convert to MarkdownHonorable Charles E. Wiggins
+Honorable Charles E. Wiggins
 
 NOTE:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1501.png
-
-Convert to Markdown4) Earnest Donnell
+4) Earnest Donnell
 Denham Springs, Louisiana
 
 5) Robert DePugh, Norborne, Missouri

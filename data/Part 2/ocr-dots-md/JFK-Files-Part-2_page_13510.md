@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13510.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
+RE: INTERVIEW OF RETIRED FBI SPECIAL AGENT (SA)
 
 Siedel stated that any of the information given to Siedel would not at some future time appear in print. To which Siedel stated he would not be personally responsible therefore. Siedel was informed the writer was not necessarily stating he would be personally responsible therefore. Siedel pointed out that he could not require a different answer to this question at the present time but went on to explain the writer could be subpoenaed for this purpose for open or closed testimony.
 

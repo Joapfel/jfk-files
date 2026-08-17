@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11623.png
-
-Convert to Markdownsubsequently refused to testify before a Federal Grand Jury. As a result, he was held in contempt and was committed to jail on 8/16/71 until such time as he purges himself by testifying.
+subsequently refused to testify before a Federal Grand Jury. As a result, he was held in contempt and was committed to jail on 8/16/71 until such time as he purges himself by testifying.
 
 Considerable evidence has been developed indicating employees of "The New York Times" have also violated Section 793(E) of the Espionage Statute in regard to their unauthorized possession of classified information and refusal to deliver the information to appropriate officials of the United States Government upon demand.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25263.png
-
-Convert to Markdown<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Vice President THO</td><td>11/2/63<br/>0420 hours</td><td>DIEM ✓</td></tr></table>
+<table><tr><td>PERSONS/ENTITIES:</td><td>DATES:</td><td>CATEGORIES:</td></tr><tr><td>Vice President THO</td><td>11/2/63<br/>0420 hours</td><td>DIEM ✓</td></tr></table>
 
 TOP SECRET
 

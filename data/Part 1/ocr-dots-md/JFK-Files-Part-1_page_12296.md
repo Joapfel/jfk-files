@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12296.png
-
-Convert to MarkdownFIN DEL CONVENIO
+FIN DEL CONVENIO
 
 Yo, Presidente entiendo que mediante la ejo-
 cucion de mis deberes he recibido informacion y material de in-

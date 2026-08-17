@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14226.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CSMA-23813
 

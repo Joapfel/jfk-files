@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5995.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 13 pages from Regulation No. 1-130 and HR #1 be reviewed for release.
 

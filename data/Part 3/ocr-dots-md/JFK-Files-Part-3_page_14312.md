@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14312.png
-
-Convert to MarkdownIn his further remarks to the Board members at this
+In his further remarks to the Board members at this
 meeting, Mr. McCone took up the subject of covert action
 programs which he then proceeded to describe to the extent
 that they involved aerial reconnaissance missions over China

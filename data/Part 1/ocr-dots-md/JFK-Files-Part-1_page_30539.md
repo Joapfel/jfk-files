@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30539.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 ACT
 

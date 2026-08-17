@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14656.png
-
-Convert to Markdownrefined by Lenin or Marx is no longer applicable: it must be brought up to date and placed in the current scale of technological evolution and world production. No one in Czechoslovakia wants to go to the USSR. Everybody, especially the students, wants to leave for Austria or Germany. The black market is up to date. The definition is very sad.
+refined by Lenin or Marx is no longer applicable: it must be brought up to date and placed in the current scale of technological evolution and world production. No one in Czechoslovakia wants to go to the USSR. Everybody, especially the students, wants to leave for Austria or Germany. The black market is up to date. The definition is very sad.
 
 Fidel's latest speech, published by Frensa Latina, was distributed through the Embassy, but they got hold of the copies and destroyed them. They say that leftist publications raise whatever they want or whatever interests them, and Fidel's speech was of no interest to them, since they did not analyze it thoroughly.
 

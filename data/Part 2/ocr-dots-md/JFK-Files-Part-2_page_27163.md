@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27163.png
-
-Convert to MarkdownSecret
+Secret
 
 178-10004-10416
 

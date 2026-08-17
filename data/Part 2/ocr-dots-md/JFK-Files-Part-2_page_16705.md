@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16705.png
-
-Convert to Markdown2387 W. MONROE ST.
+2387 W. MONROE ST.
 
 Page 6
 

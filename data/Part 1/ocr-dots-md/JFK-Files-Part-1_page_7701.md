@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7701.png
-
-Convert to Markdown17. OPERATIONAL PLANNING DATA:
+17. OPERATIONAL PLANNING DATA:
 
 a. Current Residence: Ignacio Esteva 18-1 (has lived at this address during his whole tour in Mexico) (1).
 

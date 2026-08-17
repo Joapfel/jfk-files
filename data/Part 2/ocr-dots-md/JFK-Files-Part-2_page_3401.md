@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3401.png
-
-Convert to Markdown33. WH/4 Prop Notes for 19 Aug 60, 22 Aug 60.
+33. WH/4 Prop Notes for 19 Aug 60, 22 Aug 60.
 
 34. Cable to Havana, Istanbul, Ankara, JMASH from Director, 19 Aug 60, DIR 46287 (OUT 60198).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14493.png
-
-Convert to Markdown14-00060
+14-00060
 
 <table><thead><tr><th colspan="2">SENDER WILL CHECK CLASSIFICATION</th><th colspan="2">TOP AND BOTTOM</th></tr><tr><td>UNCLASSIFIED</td><td>CONFIDENIAL</td><td>SECRET</td><td></td></tr></thead><tbody><tr><td colspan="4">OFFICIAL ROUTING SLIP</td></tr><tr><th>TO</th><th colspan="2">NAME AND ADDRESS</th><th>DATE</th><th>INITIALS</th></tr><tr><td>1</td><td colspan="2">John Smith, III</td><td></td><td></td></tr><tr><td>2</td><td colspan="2">Dv-3</td><td></td><td></td></tr><tr><td>3</td><td colspan="2"></td><td></td><td></td></tr><tr><td>4</td><td colspan="2"></td><td></td><td></td></tr><tr><td>5</td><td colspan="2"></td><td></td><td></td></tr><tr><td>6</td><td colspan="2"></td><td></td><td></td></tr><tr><td>ACTION</td><td>DIRECT REPLY</td><td>PREPARE REPLY</td><td>DISPATCH</td><td>RECOMMENDATION</td></tr><tr><td>APPROVAL</td><td>FILE</td><td>RETURN</td><td>CONCURRENCE</td><td>SIGNATURE</td></tr><tr><td></td><td>INFORMATION</td><td></td><td></td><td></td></tr><tr><td colspan="5">Remarks: This is my little pattern. Belle sent me a change will get something same here. No one is responsible for the amount of the bill, but we will pay it. Final performance.</td></tr><tr><td colspan="5">FOLD HERE TO RETURN TO SENDER</td></tr><tr><td colspan="2">FROM: NAME, ADDRESS AND PHONE NO.</td><td colspan="3">DATE</td></tr><tr><td colspan="2">E/18/1</td><td colspan="3"></td></tr><tr><td>UNCLASSIFIED</td><td>CONFIDENTIAL</td><td colspan="3">SECRET</td></tr></tbody></table>
 

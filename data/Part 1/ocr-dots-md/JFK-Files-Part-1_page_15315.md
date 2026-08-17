@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15315.png
-
-Convert to Markdownto prepare by hand the filigree net if the document needed it.
+to prepare by hand the filigree net if the document needed it.
 
 61. To the question of the debriefer concerning the expenses of all this immense work, David explained that all this costed him over 100,000 French rancs. Later he changed this sum to 140,000 to 150,000 F. Francs.
 

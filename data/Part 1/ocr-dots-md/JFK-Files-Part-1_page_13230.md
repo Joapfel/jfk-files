@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13230.png
-
-Convert to Markdownconscious. Subject demonstrated good security techniques while reporting on the activities" of Roberto ALEJOS concerning the attempted coup against Guatemala.
+conscious. Subject demonstrated good security techniques while reporting on the activities" of Roberto ALEJOS concerning the attempted coup against Guatemala.
 
 7. An FBI report of 30 September 1965 outlines the contacts that had been made by some Americans seeking to purchase pistols, blasting caps, hand gernades and silencers. This is the first indication in the 201 that Subject was involved with Frank Lang "Lefty" Rosenthal, Miami, who had the reputation of gambler and hoodlum associated with other hoodlums and jewel thieves in the Miami area.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7239.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td rowspan="2">BLE SEC DISSEMINATED BY</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23094.png
-
-Convert to MarkdownLa organización "Resistencia Cívica Anti-comunista" (RCA) en cuyo seno se agruparon el "Ejército de Liberación Nacional" (ELN) "Movimiento de Recuperación Revolucionaria" (MRR), "Agrupación Montecristi", y otros, era dirigida desde el exterior por la CIA, a través de su agente Nino Díaz.
+La organización "Resistencia Cívica Anti-comunista" (RCA) en cuyo seno se agruparon el "Ejército de Liberación Nacional" (ELN) "Movimiento de Recuperación Revolucionaria" (MRR), "Agrupación Montecristi", y otros, era dirigida desde el exterior por la CIA, a través de su agente Nino Díaz.
 
 En 1963, la CIA orientó al bloque RCA organizar y ejecutar acciones internas que aparentaran la existencia de una resistencia popular activa, con vista a solicitar la intervención armada a Cuba, en la reunión de Presidentes de países miembros de la OEA.
 

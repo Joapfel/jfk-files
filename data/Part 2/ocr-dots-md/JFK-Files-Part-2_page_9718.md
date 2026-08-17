@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9718.png
-
-Convert to MarkdownFrank Drager and Bill Carrol have built a small but well armed Army during the postwar consisting of persons who had become dissident with members in various above ground organizations.
+Frank Drager and Bill Carrol have built a small but well armed Army during the postwar consisting of persons who had become dissident with members in various above ground organizations.
 
 While on a National tour visiting various leaders in both the Right and Left Wings, Frank and Bill found themselves well received by most factions and found that the support had become overwhelming in favor of a true Rightist Revolutionary underground. Unfortunately many leaders were not personally contacted because the Federal idiots briefly interrupted our tour with some minor phony harassment charges. Those of you who had not been contacted have probably already heard of our many exploits into the enemies camp and understand exactly what we have in mind.
 

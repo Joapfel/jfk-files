@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26786.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CC1182
 

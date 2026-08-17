@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13713.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 WARD & PAUL
 

@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_17580.png
-
-Convert to Markdown<table><thead><tr><th>FORM<br>'55' 53a</th><th>CLASSIFICATION<br>SECRET</th><th>PAGE NO<br>2</th></tr></thead><tbody><tr><td></td><td>USE PREVIOUS EDITION<br>REPLACES FORMS</td><td></td></tr></tbody></table>
+<table><thead><tr><th>FORM<br>'55' 53a</th><th>CLASSIFICATION<br>SECRET</th><th>PAGE NO<br>2</th></tr></thead><tbody><tr><td></td><td>USE PREVIOUS EDITION<br>REPLACES FORMS</td><td></td></tr></tbody></table>

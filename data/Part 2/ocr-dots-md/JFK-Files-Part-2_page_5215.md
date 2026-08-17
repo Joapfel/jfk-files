@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5215.png
-
-Convert to MarkdownMr. CHAYES. No; I think in each case it will depend so much on the situation with the particular person. If a person comes in and he is very agitated or something of that kind, it might dictate a totally different approach than a different kind of thing.
+Mr. CHAYES. No; I think in each case it will depend so much on the situation with the particular person. If a person comes in and he is very agitated or something of that kind, it might dictate a totally different approach than a different kind of thing.
 
 Mr. DULLES. Wouldn't it be useful though to give—I don't want to suggest what the Secretary of State should do in this, but in the light of this experience, would there not be some benefit possibly in giving people in the field the result of the experience gained in this particular case?
 

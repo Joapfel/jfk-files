@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35519.png
-
-Convert to Markdown13 April 1965
+13 April 1965
 
 I think we owe following "El Medico y Cisted" bills on
 Radio Americas:

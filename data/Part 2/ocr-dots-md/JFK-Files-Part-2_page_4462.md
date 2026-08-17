@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4462.png
-
-Convert to Markdown# VI. WHAT SUPPORT FOR COLLECTION FACILITIES-WAS REQUIRED FROM OTHER AGENCIES? HOW WAS IT SECURED FROM THEM? WAS IT TIMELY AND EFFECTIVE? WHAT, IF ANYTHING, WAS LACKING?
+# VI. WHAT SUPPORT FOR COLLECTION FACILITIES-WAS REQUIRED FROM OTHER AGENCIES? HOW WAS IT SECURED FROM THEM? WAS IT TIMELY AND EFFECTIVE? WHAT, IF ANYTHING, WAS LACKING?
 
 The conduct of intelligence collection operations often has depended on timely and effective support from other U.S. government agencies. Several government agencies provided support to intelligence operations directed against the Cuban target on both a regular and a standby basis. In fact, each and every request for policy approved support was granted and carried out rapidly and effectively. For example, the Department of State has expedited the issuance of visas on selected cases at our request as well as granting visa waivers to individuals of operational interest to the Agency. In addition, Foreign Service personnel interview, debrief, and attempt to establish the bona-fides of potential intelligence assets who voluntarily contact a U.S. Embassy or Consulate. This is often done alone and some times in collaboration with an agency officer prior to introducing the agency officer for further development and exploitation as the case may require. These types of support are provided regularly by the Department of State and contribute considerably to the effectiveness of many complex intelligence operations.
 

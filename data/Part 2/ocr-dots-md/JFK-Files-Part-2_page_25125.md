@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25125.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 LODGE, Henry Cabot (Amb. to SVN)
 NHU

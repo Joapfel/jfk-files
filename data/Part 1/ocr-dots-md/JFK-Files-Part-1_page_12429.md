@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12429.png
-
-Convert to Markdown* **Tamaño**
+* **Tamaño**
 
 Hasta donde seteamos, los diamantes de Venezuela son mayormente puros. Examinando un lote el azar en operación de fiscalización Guía No. OG112, observamos la distribución siguiente:
 

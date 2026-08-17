@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4508.png
-
-Convert to MarkdownSeparate Cover Attachment to UFGA-21355
+Separate Cover Attachment to UFGA-21355
 
 IDEN- Reynaldo PICO Ramon (201-284658)
 

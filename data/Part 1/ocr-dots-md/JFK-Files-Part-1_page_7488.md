@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7488.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 TO: Director
 Federal Bureau of Investigation

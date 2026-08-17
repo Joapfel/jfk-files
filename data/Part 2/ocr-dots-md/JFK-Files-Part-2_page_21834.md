@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21834.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 taken during the Bay of Pigs operation) present Castro with a contaminated diving suit* (Colby, 5/21, pp. 38-39).
 

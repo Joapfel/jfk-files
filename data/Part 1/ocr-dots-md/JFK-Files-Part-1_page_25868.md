@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25868.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TORGOV and KUNOV spoke in general terms about MARTIN after the first meeting. TORGOV does not claim to know MARTIN well. MARTIN has been at the centre for approximately 6 to 8 months assigned to TORGOV's group. Prior to that he worked as a consultant in another area of the Academy of Sciences. TORGOV commented that MARTIN does much of his work at home. He said he felt sorry for MARTIN because he was not accepted by the Russians in the Academy. He also stated that he felt MARTIN was a basically honest man.
 

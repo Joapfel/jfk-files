@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16468.png
-
-Convert to Markdown75c
+75c
 
 ESSAYS FROM
 THE MINISTER OF DEFENSE

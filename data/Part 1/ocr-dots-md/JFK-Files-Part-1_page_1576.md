@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1576.png
-
-Convert to MarkdownFILEs :
+FILEs :
 
 Office of Security files on NOSENKO
 are maintained in the following

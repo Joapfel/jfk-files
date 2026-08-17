@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32145.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">AGENT REPORT<br/>(AR 381-130; FM 30-17)</th></tr><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT</td><td>2. DATE SUBMITTED</td></tr></thead><tbody><tr><td>GRIGGS, Kenneth C.<br/>PFC, RA 19 772 378 (C)<br/>DPOB: 25 December 1946, Korea</td><td>24 January 1968<br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>8008-9182 SSAN: 519-46-94</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">AGENT REPORT<br/>(AR 381-130; FM 30-17)</th></tr><tr><td>1. NAME OF SUBJECT OR TITLE OF INCIDENT</td><td>2. DATE SUBMITTED</td></tr></thead><tbody><tr><td>GRIGGS, Kenneth C.<br/>PFC, RA 19 772 378 (C)<br/>DPOB: 25 December 1946, Korea</td><td>24 January 1968<br/>3. CONTROL SYMBOL OR FILE NUMBER<br/>8008-9182 SSAN: 519-46-94</td></tr></tbody></table>
 
 4. REPORT OF FINDINGS
 

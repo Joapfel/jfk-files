@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7055.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. Source: Blanca Nogueras Figero (subsource not indicated). Spare parts from England are sent to Monterey (Mexico), then to Yucatan and after that to Isles Maleras and from there the Cuban fishermen take them to the Isle of Pines.
 

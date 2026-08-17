@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18322.png
-
-Convert to MarkdownWILLIAM P. BURKE
+WILLIAM P. BURKE
 
 APPENDIX "A"
 

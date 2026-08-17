@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22104.png
-
-Convert to Markdown263.
+263.
 
 was of such importance that special reports were written to the Central Committee of the CPSU. However, I cannot remember any specific incidents or events which these cables reported nor any specific evaluations or recommendations made in these cables.
 

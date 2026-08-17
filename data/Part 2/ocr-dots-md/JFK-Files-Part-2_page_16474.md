@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16474.png
-
-Convert to Markdownthis way: "We are advocates of the abolition of war, we do not want war; but war can only be abolished through war, and in order to get rid of the gun it is necessary to take up the gun."
+this way: "We are advocates of the abolition of war, we do not want war; but war can only be abolished through war, and in order to get rid of the gun it is necessary to take up the gun."
 
 The blood, sweat, tears and suffering of Black people are the foundations of the wealth and power of the United States of America. We were forced to build America, and if forced to, we will tear it down. The immediate result of this destruction will be suffering and bloodshed. But the end result will be the perpetual peace for all mankind.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22798.png
-
-Convert to Markdown1
+1
 
 by the White House to develop an Executive capability, I
 have no basis on which to dispute that record.

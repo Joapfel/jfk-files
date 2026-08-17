@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23101.png
-
-Convert to MarkdownF. C. Redlich, M.D.
+F. C. Redlich, M.D.
 
 conferences at the Academy of Sciences' Conference Hall and at the Scientific Council of the Ministry of Public Health.
 

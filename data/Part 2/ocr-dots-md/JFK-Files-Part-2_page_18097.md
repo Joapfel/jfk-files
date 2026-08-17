@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18097.png
-
-Convert to MarkdownHonorable Robert S. McNamara
+Honorable Robert S. McNamara
 
 NOTE:
 

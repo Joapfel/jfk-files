@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32920.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td colspan="2">MESSAGE FORM</td></tr><tr><td>TOTAL COPIES:</td><td>17</td></tr><tr><td colspan="2"><table><tbody><tr><td>SECRET</td></tr></tbody></table></td></tr><tr><td>RIG:</td><td>H. -<br/>ATTN: jaf</td></tr><tr><td>WDF:</td><td>WH/COG/COG/CICS</td></tr><tr><td>ct:</td><td>6835</td></tr><tr><td>AIE:</td><td>12 MAY 67</td></tr><tr><td colspan="2">TABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>[49 PER] ____________</td><td><input type="checkbox" checked disabled> INDEX <input type="checkbox" disabled> DESTROY <input type="checkbox" checked disabled> RETURN TO _______________ BRANCH <input type="checkbox" disabled> FILE DID</td></tr><tr><td><input type="text", value="C/WH/COG S-"></td><td><input type="checkbox" disabled> NO INDEX <input type="checkbox" checked disabled> FILE IN CS FILE NO.</td></tr><tr><td>□ RID COPY</td><td><input type="text", value="FILE VE"></td></tr><tr><td>SEC R E T<br/>[Classification]</td><td><input type="text", value="C/C1, C/F2, C/WH6"></td></tr><tr><td>(Date and time filed)</td><td>(Reference number)</td></tr></tbody></table>
 

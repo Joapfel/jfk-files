@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18672.png
-
-Convert to Markdowntherefore, relied upon the experience, expertise, and judgment
+therefore, relied upon the experience, expertise, and judgment
 of the various supervisors assigned to the office for the
 day-to-day direction of the various matters under investigation,
 including the investigation of the Black Panther Party.

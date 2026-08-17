@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13965.png
-
-Convert to MarkdownINFORMATION GAINED FROM SOURCES "ELGIN" ON 26 JANUARY 1970
+INFORMATION GAINED FROM SOURCES "ELGIN" ON 26 JANUARY 1970
 
 Desperanza BALLESTER Fernandez, Cuban Government Official
 

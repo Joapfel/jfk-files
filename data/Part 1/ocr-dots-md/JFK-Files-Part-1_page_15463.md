@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15463.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 PUB NO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21680.png
-
-Convert to Markdownof the letter and his departure from Moscow, it would
+of the letter and his departure from Moscow, it would
 have been remarkable if the KGB had learned this in-
 formation in time to call off the airport approach. The
 account of NOSENKO in the [KEYSERS] matter therefore

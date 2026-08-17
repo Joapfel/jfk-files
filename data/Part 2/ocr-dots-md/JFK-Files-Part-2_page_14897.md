@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14897.png
-
-Convert to MarkdownFebruary 5, 1960
+February 5, 1960
 
 STATUS OF SUN VALLEY, INCORPORATED
 JAMES RIDDLE HOFFA; ET AL.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21855.png
-
-Convert to Markdown13.
+13.
 
 this trip because SHAKHOV, who was suspected of possibly being a Western agent, was to be in the delegation. When the Eleventh Department was looking for a case officer to make this trip they wanted to have a chief of section because of the seriousness of the SHAKHOV case. When they asked in the Seventh Department [V.D.] CHELNOKOV agreed that I should take the assignment. There was no background or neighborhood investigation conducted on me in connection with my being approved for this trip.* My assignment was approved by the Eleventh Department, by the Personnel Office of the Second Chief Directorate, by the Central Personnel Office of the KGB and by the Central Committee of the CPSU."
 

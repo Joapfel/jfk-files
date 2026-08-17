@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7800.png
-
-Convert to Markdown1 July 1968
+1 July 1968
 
 MEMORANDUM FOR : The Record
 FROM : M. D. Stevens

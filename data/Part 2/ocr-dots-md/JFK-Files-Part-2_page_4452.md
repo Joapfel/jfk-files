@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4452.png
-
-Convert to Markdown13-00000
+13-00000
 
 4. A cultural attache of a West European Embassy in Havana who picks up information from other diplomats and from Cuban contacts on political matters. A sub-agent of this asset has also been a source of medium-level political information.
 

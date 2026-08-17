@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24943.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: Files
 FROM: Frederick Baron

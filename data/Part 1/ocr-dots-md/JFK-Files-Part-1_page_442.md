@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_442.png
-
-Convert to MarkdownSECRET
+SECRET
 
 operations in Africa as well as the Miami area. He was especially interested in whether the source knew any dates of forthcoming infiltration runs into Cuba in which Romero might be involved.
 

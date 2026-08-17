@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32544.png
-
-Convert to Markdown10 June 1965
+10 June 1965
 
 In compliance with FR-20-5 para. b(1), the writer hereby
 recites his intent to marry Miss Virginia Lobo, a Cuban citizen,

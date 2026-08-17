@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31763.png
-
-Convert to Markdown3. Scholarships to American universities this year will be $80-95$ to highly qualified exiles who have signed a pledge to return to their homelands after liberation.
+3. Scholarships to American universities this year will be $80-95$ to highly qualified exiles who have signed a pledge to return to their homelands after liberation.
 
 4. Textbooks to replace Communist textbooks are being prepared in stockpile and manuscript form.
 

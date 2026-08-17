@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12056.png
-
-Convert to Markdown- SECURITY
+- SECURITY
 
 MEMORANDUM TO: OD/OP/Sec
 

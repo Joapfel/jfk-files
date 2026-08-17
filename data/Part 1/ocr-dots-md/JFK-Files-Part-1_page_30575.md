@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30575.png
-
-Convert to MarkdownINCOMING
+INCOMING
 
 Copy Nr:_____________
 

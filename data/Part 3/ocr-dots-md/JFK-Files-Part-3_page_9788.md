@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9788.png
-
-Convert to Markdown# Memorandum J. Hotis to Mr. Dalbey
+# Memorandum J. Hotis to Mr. Dalbey
 RE: FBI AUTHORITY IN DOMESTIC INTELLIGENCE MATTERS
 
 And unlike the practice in criminal cases, our electronic surveillances in security matters are not submitted for prior court approval. For another, the exclusionary rule which provides the usual method of judicial control over investigative procedures, is not often available in security cases. Since the goal is largely preventive, these cases seldom come before the courts. As a result, the public, the courts, and the Congress have very little information about how we operate in domestic intelligence matters. and what we do with the information acquired.

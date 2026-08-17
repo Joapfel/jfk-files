@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12029.png
-
-Convert to MarkdownForm No. A2-8
+Form No. A2-8
 (Dec. 1947)
 
 OUTGOING CLASSIFIED MESSAGE

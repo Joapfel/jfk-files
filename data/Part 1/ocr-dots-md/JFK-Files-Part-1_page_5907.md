@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5907.png
-
-Convert to Markdown<table><tr><td>SECRET</td><td>UTA-13503</td></tr></table>
+<table><tr><td>SECRET</td><td>UTA-13503</td></tr></table>
 
 FUTURE PLANS
 

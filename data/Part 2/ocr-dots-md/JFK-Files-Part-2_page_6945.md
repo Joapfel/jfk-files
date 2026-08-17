@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6945.png
-
-Convert to Markdownsection 6, in which case release of the material shall be postponed, and this decision shall not be subject to judicial review."
+section 6, in which case release of the material shall be postponed, and this decision shall not be subject to judicial review."
 
 There is no limitation on the duration of postponement by the President. Suggest that the maximum period of time be that portion of the President's term which remains.
 

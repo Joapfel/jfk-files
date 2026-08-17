@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10769.png
-
-Convert to Markdown<table><tr><td>CATG</td></tr></table>
+<table><tr><td>CATG</td></tr></table>
 
 <table><tr><td>SECRET</td></tr></table>
 

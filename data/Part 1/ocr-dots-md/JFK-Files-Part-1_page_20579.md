@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20579.png
-
-Convert to MarkdownAttachment to Fitness Report of Howard Hunt 31 March 63 - 31 March 64
+Attachment to Fitness Report of Howard Hunt 31 March 63 - 31 March 64
 
 Section C (Continued)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21600.png
-
-Convert to MarkdownFILE:
+FILE:
 
 When the legal attache asks a foreign intelligence service for coverage of an FBI target, it asks for any information rather than specifying the data. This is because foreign services may be penetrated by the KGB.
 

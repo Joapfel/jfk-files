@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30343.png
-
-Convert to Markdownyes, in the beginning, in '69, in April. But this lump I received in '70, '71. '71.
+yes, in the beginning, in '69, in April. But this lump I received in '70, '71. '71.
 
 The Chairman. So that the record is clear, you received $80,000 for the period of time you were under arrest.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17588.png
-
-Convert to MarkdownSECRET KAPOK
+SECRET KAPOK
 
 Attachment
 HRA-A-12936

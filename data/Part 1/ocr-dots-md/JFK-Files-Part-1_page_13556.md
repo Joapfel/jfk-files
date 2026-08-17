@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13556.png
-
-Convert to MarkdownENHAJADA CUHANA.- 14-92-14.
+ENHAJADA CUHANA.- 14-92-14.
 17-abril-62.
 M13-L13.-
 

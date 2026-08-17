@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_756.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OPERATIONAL AND SOURCE COVER SHEET
 

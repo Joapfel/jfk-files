@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10983.png
-
-Convert to MarkdownRE,
+RE,
 Hyda, Xabana
 Camp. Luis Alberé.
 Departamento de Relaciones Culturales

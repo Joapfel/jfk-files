@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10573.png
-
-Convert to Markdown# DEMOCRACIA Y COMUNISMO
+# DEMOCRACIA Y COMUNISMO
 
 EL ECO, se escribe con letra de pueblo, con ocento de libertad y por eso emplea el mensaje directo a los obreros y campesinos, a los estudiantes, militares, profesionales, propietarios y a todas las clases que integran la sociedad democrática.
 

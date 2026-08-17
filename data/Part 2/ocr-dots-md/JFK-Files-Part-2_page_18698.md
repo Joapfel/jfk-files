@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18698.png
-
-Convert to Markdown4. The results of each entry, including the information obtained and the identities of the agencies and/or individuals to whom the information was disseminated.
+4. The results of each entry, including the information obtained and the identities of the agencies and/or individuals to whom the information was disseminated.
 
 5. The materials in 1 through 4 above which may pertain to any surreptitious entry directed at the following targets:
 

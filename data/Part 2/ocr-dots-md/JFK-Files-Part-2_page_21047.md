@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21047.png
-
-Convert to MarkdownSECRET
+SECRET
 
 26. ACQ: VENEZUELA, CARACAS (2 MARCH 1978) FIELD NO:
 

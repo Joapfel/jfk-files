@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_783.png
-
-Convert to MarkdownJuly 18, 1975
+July 18, 1975
 
 be resolved before the August recess so that the staff
 can fully prepare the materials for our use when we

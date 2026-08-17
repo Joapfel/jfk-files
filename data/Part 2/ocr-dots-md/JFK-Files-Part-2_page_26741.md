@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26741.png
-
-Convert to MarkdownA. No. He was on a duty status the day before, on sick leave, and then on duty status the following day.
+A. No. He was on a duty status the day before, on sick leave, and then on duty status the following day.
 
 BY MR. MANFREDI:
 

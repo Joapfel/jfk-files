@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11863.png
-
-Convert to Markdown# PART II
+# PART II
 ## "SECRET - NO FOREIGN DISSEMINATION"
 
 ### [W. FOREIGN COUNTERINTELLIGENCE (FCI) ASSETS

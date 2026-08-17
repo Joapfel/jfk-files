@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4711.png
-
-Convert to MarkdownCONF. D D D D D D
+CONF. D D D D D D
 
 SECRET
 

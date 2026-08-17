@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17064.png
-
-Convert to Markdown8. LIEMPTY-9 (201-136454) is the only agent operating from the LICALLA site. He does all the photography, maintains logs and prepares observation reports. He also maintains contact with the principal agent. LIEMPTY-9 is a part-time insurance salesman and is self-employed in the accounting business, which he conducts at the LICALLA site.
+8. LIEMPTY-9 (201-136454) is the only agent operating from the LICALLA site. He does all the photography, maintains logs and prepares observation reports. He also maintains contact with the principal agent. LIEMPTY-9 is a part-time insurance salesman and is self-employed in the accounting business, which he conducts at the LICALLA site.
 
 9. Raymond H. GERENDE (201-119523) has been the principal agent for this project. He is a Mexican national contract agent who is self-employed as an English teacher and also works as a salesman for a light bulb manufacturer. GERENDE has been mainly responsible for maintaining contact with the LIEMPTY agents, passing instructions to them, and collecting the product for passing to the Station case officer. He has also paid them and handled all other administrative matters. He is being terminated by the end of FY 1970 for security reasons (see Problems, paragraph 1).
 

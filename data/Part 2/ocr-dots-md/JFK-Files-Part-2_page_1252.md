@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1252.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><thead><tr><th colspan="7">VERIFIED RECORD OF OVERSEAS SERVICE</th></tr><tr><td colspan="7">TO: Office of Personnel, Statistical Reporting Branch, ROOM 192 Curie Hall</td></tr><tr><th>EMPLOYEE SERIAL NO.</th><th>NAME OF EMPLOYEE</th><th>MIDDLE</th><th>OFFICE/COMPONENT</th><th rowspan="3"></th><th rowspan="3"></th><th rowspan="3">51</th></tr><tr><th>LAST</th><th>FIRST</th><th></th></tr><tr><td>(Print)</td><td>7-24</td><td></td></tr></thead><tbody><tr><td>07894</td><td>SMITH</td><td>JOBPH</td><td>B</td><td></td><td></td><td></td></tr></tbody></table>

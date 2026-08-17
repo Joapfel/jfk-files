@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16909.png
-
-Convert to Markdown14-00009
+14-00009
 
 MEMORANDUM FOR: Acting Chief, Division D
 SUBJECT : Limesa/Limust

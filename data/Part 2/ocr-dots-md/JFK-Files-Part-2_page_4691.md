@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4691.png
-
-Convert to MarkdownSECRET
+SECRET
 
 going to do it, there would be a new DCI in 24 hours -- or thereabouts.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22500.png
-
-Convert to MarkdownSECRET
+SECRET
 
 McCord recommended that Wiley had a personal acquaintance with a number of the well-known ex-Communist Party key functionaries, such as Louis Budenz, as well as a personal acquaintance with the heads and research people in all of the Federal Congressional Committees, and State Investigating Committees in New York State.
 

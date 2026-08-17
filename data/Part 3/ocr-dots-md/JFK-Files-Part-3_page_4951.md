@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4951.png
-
-Convert to Markdown11/11/75
+11/11/75
 
 AIRTEL
 

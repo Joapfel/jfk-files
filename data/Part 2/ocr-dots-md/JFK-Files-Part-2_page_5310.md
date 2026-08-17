@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5310.png
-
-Convert to MarkdownSECRET
+SECRET
 
 William H. McNair @ DO
 Linda C. Cipriani @ DCI

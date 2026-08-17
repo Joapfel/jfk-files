@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12001.png
-
-Convert to Markdown7. Post records of contacts with potential informants so that the cases will not become delinquent.
+7. Post records of contacts with potential informants so that the cases will not become delinquent.
 
 8. During [contacts] with potential informants, if it develops individual does not have the necessary capabilities, discontinue efforts.
 

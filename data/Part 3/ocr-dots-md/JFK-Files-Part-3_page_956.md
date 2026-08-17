@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_956.png
-
-Convert to Markdown11. **Problem** - Should the FBI have foreign officers reporting directly to the Director?
+11. **Problem** - Should the FBI have foreign officers reporting directly to the Director?
 
 **Policy** - The FBI has had Agents stationed abroad in American Embassies since 1940. This has not been a secret or classified fact. They are known as Legal Attaches and are not operational. They do not conduct investigations but depend upon law enforcement and security agencies of the host government for coverage of FBI leads overseas. They maintain regular liaison with such agencies in countries where stationed, as well as in other countries that they visit on road trips.
 

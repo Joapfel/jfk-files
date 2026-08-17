@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10513.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE COMMIT
 
 02-116395-56

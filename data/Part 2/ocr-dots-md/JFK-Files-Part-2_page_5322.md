@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5322.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The Board accepted the Agency's and ARRB staff's recommendations on 204 additional documents.
 

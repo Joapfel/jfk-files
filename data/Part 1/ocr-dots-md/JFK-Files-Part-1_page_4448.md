@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_4448.png
-
 for Spanish-speaking affairs--and Bernard BARKER, who they think is the key man ("A CIA agent recruiter"), together.
 
 HARPER also visited Felipe FAZOR, a well-known

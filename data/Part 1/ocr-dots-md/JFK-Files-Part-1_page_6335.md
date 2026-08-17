@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6335.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 CTA - 170
 26 April 1968

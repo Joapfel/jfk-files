@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31098.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>STANDARD FORM 52<br/>PLEASE READ THE<br/>D. C. CIVILIAN TRADE UNION<br/>RESERVES AND PERSONNEL<br/>AGLIAL CHAPTER 0</td>
     <td colspan="4">REQUEST FOR PERSONNEL ACTION</td>

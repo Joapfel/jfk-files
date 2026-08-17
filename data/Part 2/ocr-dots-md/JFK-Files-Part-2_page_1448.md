@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1448.png
-
-Convert to Markdown16 February 1971
+16 February 1971
 
 MEMORANDUM FOR: Director of Personnel
 

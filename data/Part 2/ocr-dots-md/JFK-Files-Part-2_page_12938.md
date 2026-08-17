@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12938.png
-
-Convert to Markdown1-Mr. Adams
+1-Mr. Adams
 2-Mr. Mintz
 (1-Mr. Hotis)
 1-Mr. Wannall

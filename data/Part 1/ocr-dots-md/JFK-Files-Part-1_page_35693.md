@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35693.png
-
-Convert to Markdownpresident and that his man, Lagoaro Mora, would be one of
+president and that his man, Lagoaro Mora, would be one of
 the vice-presidents. (A cable on this subject was sent
 to Headquarters from Paris.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_212.png
-
-Convert to Markdown**Counterintelligence Programs**
+**Counterintelligence Programs**
 
 On September 21, 1965, the Dalsemer Real Estate Company, specifically Ben Powdermaker and Dick Dalsemer, were contacted regarding recent vandalism damage, i.e., two windows broken by unknown persons, incurred by a building owned by them at 3260 North Broad Street, Philadelphia, and rented by the Philadelphia Chapter of the W.E.B. DuBois Clubs of America (DCA). They were advised that such damage might continue because of friction in the neighborhood if the DCA continued to rent the building. The desired result was to have the month-by-month lease terminated.
 

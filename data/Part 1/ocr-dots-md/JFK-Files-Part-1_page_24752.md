@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24752.png
-
-Convert to MarkdownTwo of LEONOV's most interesting contacts from his first tour in Mexico were:
+Two of LEONOV's most interesting contacts from his first tour in Mexico were:
 
 a. Fidel CASTRO. CASTRO, who was in exile in Mexico from 1953-56, was arrested by the Mexican police in June 1956, and a police search revealed LEONOV's calling card in CASTRO's possession.¹
 

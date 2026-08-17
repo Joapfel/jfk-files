@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9256.png
-
-Convert to Markdown# DE 157-3075
+# DE 157-3075
 
 ## INFORMANTS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15987.png
-
-Convert to MarkdownOn February 8, 1969, BOBBY LEE RUSH, Chicago BPP leader, was arrested by Urbana, Illinois, Police Department on charge of unlawful use of weapons and no firearms registration identification card. RUSH was released upon payment of $200, which represented 10% of the $2,000 bond set. RUSH was fined $25.00 and cost of $15.00.
+On February 8, 1969, BOBBY LEE RUSH, Chicago BPP leader, was arrested by Urbana, Illinois, Police Department on charge of unlawful use of weapons and no firearms registration identification card. RUSH was released upon payment of $200, which represented 10% of the $2,000 bond set. RUSH was fined $25.00 and cost of $15.00.
 
 3/7/69)
 

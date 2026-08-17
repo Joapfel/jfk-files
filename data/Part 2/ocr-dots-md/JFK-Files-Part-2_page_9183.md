@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9183.png
-
-Convert to Markdownthe Iron Cross and also discussed the fact that this motorcycle gang originated on a farm in California. Eton, also exhibited a sample of zero-page articles and clippings in a sorority hall trade reference to the fact that he was involved in activities and demonstrations reported in these clippings. Eton also stated that he had been a member of the farm club.
+the Iron Cross and also discussed the fact that this motorcycle gang originated on a farm in California. Eton, also exhibited a sample of zero-page articles and clippings in a sorority hall trade reference to the fact that he was involved in activities and demonstrations reported in these clippings. Eton also stated that he had been a member of the farm club.
 
 LARRY STAFFORD further declared that ENON exhibited a box in his residence which could contain explosive chemicals distributed to blueYLEgives and included Lord several notes of that appeared to be white matter. ENON told about the fact that he required one remaining ingredient to be included in an explosive or incendiary bomb and that this ingredient was to arrive soon in the mail. ENON concentrated the end product of these chemicals as being some type of incendiary composition, which, when lit, produced a burning extract of each a high temperature, that it could melt any bronze or steel statue..
 

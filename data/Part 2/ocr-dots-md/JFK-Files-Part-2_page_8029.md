@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8029.png
-
-Convert to MarkdownIt's the first lie detector that
+It's the first lie detector that
 can be used on a dead
 man. It works on tapes and
 other voice recordings

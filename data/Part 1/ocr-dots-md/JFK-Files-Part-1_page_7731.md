@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7731.png
-
-Convert to Markdown14-00000
+14-00000
 
 7.08 The kind of man who is often quite late—and indifferent about it—inclined to be short and curt in his greetings and is sometimes awkward when he enters a room.
 

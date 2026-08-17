@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14503.png
-
-Convert to Markdown14-08990
+14-08990
 
 C.A.R. LINSFORD:mdu
 CO. MH COG/OPS

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9469.png
-
-Convert to MarkdownG. Locally Stated Aims and Policy
+G. Locally Stated Aims and Policy
 
 LARRY POWELL, member of the Detroit NCCF, conducted the political education classes on July 5, 1970, at which time the topic of discussion was the center page of the July 4, 1970, issue of "The Black Panther" newspaper. Those in attendance were instructed as follows:
 

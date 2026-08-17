@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5794.png
-
-Convert to Markdown13-00000
+13-00000
 
 The Honorable George Tenet
 September 14, 1998

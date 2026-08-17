@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7196.png
-
-Convert to MarkdownPaul:
+Paul:
 
 1. I have reviewed the entire LOGINOV file and have made copies of all pertinent LIENVOY clips for the following P files and have included a note to that effect in each of these files:
 

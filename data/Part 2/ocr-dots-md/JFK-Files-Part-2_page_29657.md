@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29657.png
-
-Convert to Markdown# Classification
+# Classification
 
 (This is a secret document and cannot be used for commercial extraction from CIA-controlled documents)
 

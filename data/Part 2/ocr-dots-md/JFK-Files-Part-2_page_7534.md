@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7534.png
-
-Convert to MarkdownPage 167: "Saul" said he left for the U.S. in Nov 1963 but would not say how or where he crossed the border. On evening of the 20th of Nov he was in Dallas.
+Page 167: "Saul" said he left for the U.S. in Nov 1963 but would not say how or where he crossed the border. On evening of the 20th of Nov he was in Dallas.
 
 Page 177: "Saul" described how he shot President Kennedy from 2nd story window of County Records Bldg.,
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4373.png
-
-Convert to Markdownde nadie... Yo creo que eso es fundamental para el futuro de los que se están lanzando por el camino de la guerra.
+de nadie... Yo creo que eso es fundamental para el futuro de los que se están lanzando por el camino de la guerra.
 
 Y porque mi organización está constituida por hombres de todas las procedencias, por hombres de todas las edades y por hombres de todas las clases sociales, nosotros tenemos fuerza moral para lanzar un mensaje de esperanza al futuro de Cuba.
 

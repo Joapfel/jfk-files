@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_370.png
-
-Convert to Markdown#1 Retired from CI staff in 1969. Last known address unknown
+#1 Retired from CI staff in 1969. Last known address unknown
 
 #2 Retired under cover from FI Staff. Last Known Address (slee71) 3607 Jones Bridge Road, Chevy Chase, MD 20015
 

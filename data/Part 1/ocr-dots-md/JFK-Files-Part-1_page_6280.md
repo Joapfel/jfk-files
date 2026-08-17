@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6280.png
-
-Convert to MarkdownE4512
+E4512
 
 CONGRESSIONAL RECORD—Introductions of Remarks May 20, 1970
 

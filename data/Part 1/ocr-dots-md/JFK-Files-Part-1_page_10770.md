@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10770.png
-
-Convert to MarkdownFebruary 15, 1972
+February 15, 1972
 
 SEIU Jones and Punchies for the Republics of Australia and Venezuela.
 

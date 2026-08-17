@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_614.png
-
-Convert to Markdown14-00000
+14-00000
 
 SECRET 122250Z CITE MEXICO CITY 1886
 DIRECTOR

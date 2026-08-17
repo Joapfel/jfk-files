@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26015.png
-
-Convert to MarkdownCABLE SECRETARIAT DISSENT
+CABLE SECRETARIAT DISSENT
 
 **PERMITTING**
 

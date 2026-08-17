@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16865.png
-
-Convert to MarkdownItem number three consisted of a shopping bag containing invoices returned from the FBI Laboratory of numerous items previously submitted, as well as large manilla envelopes which had originally been received on January 19, 1970, by the writer from FRANCIS G. ANDRES, attorney for the Black Panther Party.
+Item number three consisted of a shopping bag containing invoices returned from the FBI Laboratory of numerous items previously submitted, as well as large manilla envelopes which had originally been received on January 19, 1970, by the writer from FRANCIS G. ANDRES, attorney for the Black Panther Party.
 
 All of the above items are to be retained in the bulky exhibit file until such time that all litigation in this matter has been completed, it being noted that on June 10, 1970, a civil suit was filed in Federal District Court by Mrs. IBERIA HAMPTON, mother of deceased FRED HAMPTON, seeking damages in HAMPTON's death of $3,755,000.
 

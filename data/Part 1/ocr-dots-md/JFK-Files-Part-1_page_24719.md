@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24719.png
-
-Convert to Markdown**Distribution:**
+**Distribution:**
 
 Orig & 1 - SR/O/WN for 201-132,139
 2- WH/1

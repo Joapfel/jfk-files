@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27323.png
-
-Convert to MarkdownAAAA - Memo for Deputy Director for Admin. - SECRET
+AAAA - Memo for Deputy Director for Admin. - SECRET
 
 BBBB - Memo for Deputy Dir. for Management and Services
 Subj: Soviet Bloc Div Request for Training Assistance Involving

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9122.png
-
-Convert to Markdown## Hotels and Resorts
+## Hotels and Resorts
 
 ### Cadena Mella S.A.
 Mella brothers

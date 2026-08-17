@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11927.png
-
-Convert to Markdown4-E
+4-E
 
 As a result of Bureau counterintelligence action, an Aeroflot official who was a GRU officer was hurriedly removed from the U. S. under Soviet guard by the Soviets. In addition, an Intourist official, a suspected KGB officer, was also recalled from the U. S. because he was also blamed by the Soviets for the security breach involving the aforementioned Aeroflot official. Thus, one counterintelligence operation caused the removal from the U. S. of two Soviet Intelligence Service operatives.
 

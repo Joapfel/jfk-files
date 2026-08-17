@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1011.png
-
-Convert to MarkdownMARTINO, John
+MARTINO, John
 
 1. MEMO FOR THE RECORD (6 Sept 77, Russ Holmes)
 

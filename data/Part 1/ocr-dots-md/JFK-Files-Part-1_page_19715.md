@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19715.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 4. In searching for an area where Mr. O'Connell might strive for further improvement, I am hard put to find any in the light of his consistently high performance record. I do believe, however, that Mr. O'Connell has lost or appears to have lost some of his enthusiasm and eager initiative which marked his performance for the first six months in this position. It is possible that this is due to the fact that the problems we encounter today require more measured and considered judgment as opposed to enthusiasm and initiative. Nonetheless I would like to see Mr. O'Connell strive for a better balance in these essential performance characteristics

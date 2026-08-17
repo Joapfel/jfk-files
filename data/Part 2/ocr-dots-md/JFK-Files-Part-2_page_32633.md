@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32633.png
-
-Convert to Markdownsources, that they are telling the guerrilla warfare students and their leaders to obtain their own weapons at home.
+sources, that they are telling the guerrilla warfare students and their leaders to obtain their own weapons at home.
 
 One of our agents who was in the original group of Brazilian trainees said he was trained exclusively in the use and maintenance of the Garand M-1 rifle and M-3, Browning and Hotchkiss machineguns. His group was told that these were the weapons Brazilian guerrillas would be able to buy, steal, or capture from the security forces at home. Similarly, an Argentine trainee, an agent, said their instructors told them Cuba would not be sending weapons because there was a plentiful source of supply for any determined guerrilla movement in its own homeland. Leaders of militant groups in Venezuela, Brazil, and Peru who have gone to Cuba seeking assistance have been told by the Cuban leaders that Cuba is willing to furnish funds, training, and technical assistance. Reference to weapons is pointedly omitted. This is reported to us by our agents in these same groups.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14034.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Reina do Sur, Baja California
 

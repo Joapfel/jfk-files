@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16740.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 IN 8173C - PAGE 2
 

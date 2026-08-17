@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9706.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 barnyard type and not to police officers. He stated they
 obtained pigs which they killed and carried into a Jewish

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25403.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Aug 29 3 C2 PM '69
 

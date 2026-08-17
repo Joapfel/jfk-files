@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26515.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. One of our established sources of proven reliability, high in the ranks of the Venezuelan Communist Party ((a veteran party member and leader of the FALN)), says the Central Committee agreed in January that a "peaceful solution to the present situation in Venezuela is out of the question."
 

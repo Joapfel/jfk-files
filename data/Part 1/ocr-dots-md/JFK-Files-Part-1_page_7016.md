@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7016.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DISTRIBUTION STATEMENT: All Rights Reserved. No Part of this publication may be reproduced without prior written permission from Parachute Journal, PO Box 13259, Las Vegas, NV 89149, U.S.A.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7855.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 (g) Memorandum, dated 16 May 1968; Subject: Investigation in Japan of Report of Suspicious Action of Another Subject who was Originally Described as Resembling Suspected Assassin; contains information provided by the Japanese National Police Agency; exempt under (b)(3)(a), (b)(6), and (b)(1)(5B)(1).
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11879.png
-
-Convert to Markdown## "SECRET - NO FOREIGN DISSEMINATION"
+## "SECRET - NO FOREIGN DISSEMINATION"
 
 33. Discontinued assets
     a. When services of asset are discontinued, mark name card "canceled." Destroy symbol card. Never destroy name card.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2736.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 <table><thead><tr><td>NAME OF EMPLOYEE (Last-First-Middle)</td><td>NAME AND RELATIONSHIP OF DEFENDENT*</td><td>CLAIM NUMBER</td></tr></thead><tbody><tr><td>Kent, William M.</td><td>Self</td><td>77-0324</td></tr></tbody></table>
 

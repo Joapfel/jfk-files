@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10182.png
-
-Convert to MarkdownSF 476
+SF 476
 
 NR J10 SF PLAIN
 

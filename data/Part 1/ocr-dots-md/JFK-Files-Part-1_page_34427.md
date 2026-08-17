@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34427.png
-
-Convert to MarkdownFBI report dated 22 Aug. 63 (Wash. D.C.)
+FBI report dated 22 Aug. 63 (Wash. D.C.)
 Date for Security, 1475 Senate (Committee)
 FB) report dated 25 Oct. 63 (Wash. D.C.)
 Re: Exchange of Intelligence Pioneering

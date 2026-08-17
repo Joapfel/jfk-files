@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5476.png
-
-Convert to MarkdownSECRET
+SECRET
 S E C R E T - 2
 
 Mr. J. B. Adams

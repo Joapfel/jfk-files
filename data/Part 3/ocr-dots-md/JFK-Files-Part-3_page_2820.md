@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_2820.png
-
-Convert to MarkdownEND
+END
 
 FBI MM JWB CLR

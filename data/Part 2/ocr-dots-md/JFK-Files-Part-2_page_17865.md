@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17865.png
-
-Convert to MarkdownLTL LPI. PASH D.
+LTL LPI. PASH D.
 HOT FOR ONE
 
 END

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4811.png
-
-Convert to Markdown# Policiales/Judiciales
+# Policiales/Judiciales
 
 ## Orlando Bosch no variará su vida como terrorista
 

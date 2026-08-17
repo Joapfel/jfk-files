@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1616.png
-
-Convert to MarkdownDIV/D-511/76
+DIV/D-511/76
 
 17 November 1976
 

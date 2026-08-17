@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5196.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: (U) Identity of Human Sources
 

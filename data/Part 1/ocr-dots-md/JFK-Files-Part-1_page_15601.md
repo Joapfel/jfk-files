@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15601.png
-
-Convert to Markdown10 March 1961
+10 March 1961
 
 SECRET
 

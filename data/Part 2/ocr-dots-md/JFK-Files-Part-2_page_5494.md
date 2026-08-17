@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5494.png
-
-Convert to MarkdownSECURITY REMINDER
+SECURITY REMINDER
 
 1. I, Walter C. McCabe, have been reminded that, by virtue of my duties with the Central Intelligence Agency, I have been the recipient of classified information and information concerning intelligence sources and methods, and that my Entrance on Duty Secrecy Agreement requires me to protect such data. Moreover, I have been given an opportunity to review my Entrance on Duty Secrecy Agreement.
 

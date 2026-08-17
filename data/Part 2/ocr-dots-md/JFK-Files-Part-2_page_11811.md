@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11811.png
-
-Convert to Markdowntions of statement which apply to particular individual or organiza-
+tions of statement which apply to particular individual or organiza-
 tion. Of course, entire statement should be filed in informant's sub-
 file. This procedure should be employed unless logical reason
 dictates otherwise.

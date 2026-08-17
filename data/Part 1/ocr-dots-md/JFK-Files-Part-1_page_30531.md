@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30531.png
-
-Convert to Markdown(SPECIATE AIR OR SEA PATCH)
+(SPECIATE AIR OR SEA PATCH)
 
 <table><tr><td>SECR</td></tr><tr><td>CLASSIFICATION</td></tr></table>
 

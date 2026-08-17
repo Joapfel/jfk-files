@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28933.png
-
-Convert to Markdowne. The Marine has no firm offer of employment he has indicated that his former employer will entertain offering employment with a suitable salary to provide the necessary support of his mother.
+e. The Marine has no firm offer of employment he has indicated that his former employer will entertain offering employment with a suitable salary to provide the necessary support of his mother.
 
 3. In evaluation of all facts available, it is the opinion of the Board that Private First Class OSWALD meets the requirements of paragraph 10273.10CM for release from active duty.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5240.png
-
-Convert to Markdownwhich would include the total number of cases presented to the Federal Grand Jury during the prior two week period, identifying each case by San Francisco file number, Bureau file number and title; the number of cases completed and awaiting Federal Grand Jury action; number of new cases received for investigation and general comments concerning the attitude of the USA's Office and U.S. District Courts concerning these matters. Also you should comment on any favorable publicity being given these matters by the local press media.
+which would include the total number of cases presented to the Federal Grand Jury during the prior two week period, identifying each case by San Francisco file number, Bureau file number and title; the number of cases completed and awaiting Federal Grand Jury action; number of new cases received for investigation and general comments concerning the attitude of the USA's Office and U.S. District Courts concerning these matters. Also you should comment on any favorable publicity being given these matters by the local press media.
 
 In the refusal cases the Bureau should be specifically advised of the status of a case within five months after the violation. The USA should be requested to advise of the investigative action he intends to take in each case and this information reported in the individual file.
 

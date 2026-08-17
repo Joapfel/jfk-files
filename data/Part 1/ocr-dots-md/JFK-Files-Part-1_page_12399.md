@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12399.png
-
-Convert to MarkdownGARDNER R. HATHAWAY
+GARDNER R. HATHAWAY
 C/WH/3
 5337/1128
 16 OCT 1972

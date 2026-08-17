@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13938.png
-
-Convert to MarkdownSAC, Albany
+SAC, Albany
 
 November 26, 1969
 

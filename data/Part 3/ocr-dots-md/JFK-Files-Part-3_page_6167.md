@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6167.png
-
-Convert to MarkdownLetter to SAC, Philadelphia
+Letter to SAC, Philadelphia
 
 RE: DR. DERK BODDE
 100-387911

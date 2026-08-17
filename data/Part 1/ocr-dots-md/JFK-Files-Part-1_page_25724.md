@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25724.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>DATE : 23 FEB 63</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: EN &amp; S</td></tr><tr><td>INFO : C1/CA, CO &amp; S/c &amp; S</td></tr></table>
 

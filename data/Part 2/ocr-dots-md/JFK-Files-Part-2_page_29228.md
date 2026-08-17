@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29228.png
-
-Convert to Markdownin New Orleans, believed to be on Iberville Street. Jorge Medina was working in Criminal Court in Havana, went crazy.
+in New Orleans, believed to be on Iberville Street. Jorge Medina was working in Criminal Court in Havana, went crazy.
 
 Carlos Jose Bringuier also gave the following information relating to himself.
 

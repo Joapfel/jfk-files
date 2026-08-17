@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5554.png
-
-Convert to MarkdownMEMORANDUM FOR MR. SULLIVAN
+MEMORANDUM FOR MR. SULLIVAN
 
 RE: DOSNAR
 

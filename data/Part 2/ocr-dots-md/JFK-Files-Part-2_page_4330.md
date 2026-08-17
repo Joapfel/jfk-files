@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4330.png
-
-Convert to MarkdownTues
+Tues
 
 23
 LAST MONTH

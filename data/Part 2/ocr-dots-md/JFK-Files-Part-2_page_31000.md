@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31000.png
-
-Convert to MarkdownSECRET
+SECRET
 
 OFFICE: Strategic Services June 26, 1945
 It is understood for us to know you defend

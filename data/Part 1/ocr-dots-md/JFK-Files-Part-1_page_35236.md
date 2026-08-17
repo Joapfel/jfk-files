@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35236.png
-
-Convert to MarkdownMiami, 6 September 1960
+Miami, 6 September 1960
 
 Executives
 Democratic Revolutionary Front

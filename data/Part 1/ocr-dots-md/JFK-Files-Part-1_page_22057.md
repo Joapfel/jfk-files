@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22057.png
-
-Convert to MarkdownWhen questioned on the 15th of April 1965, NOSENO added no new details except that, at the time of the approach, he understood Mikhetsin had not reported the KGB letter to his superiors at the American Embassy; he said that there was no information to this effect from the microphones or telephone talks in the U.S. Embassy.
+When questioned on the 15th of April 1965, NOSENO added no new details except that, at the time of the approach, he understood Mikhetsin had not reported the KGB letter to his superiors at the American Embassy; he said that there was no information to this effect from the microphones or telephone talks in the U.S. Embassy.
 
 (c) Information from Other Sources
 

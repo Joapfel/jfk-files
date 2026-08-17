@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6776.png
-
-Convert to Markdown# 2.- Los estímulos externos en la expansión económica de Latinoamérica
+# 2.- Los estímulos externos en la expansión económica de Latinoamérica
 
 El comercio exterior ha ejercido siempre una influencia predominante sobre las fluctuaciones cíclicas de la economía latinoamericana. Así en 1932, en el climax de la gran depresión, las exportaciones de la región disminuyeron en un 65% en relación con 1929, mientras las importacientes disminuyeron en un 75%.¹ No obstante, una comparación entre el nivel del comercio exterior en este año de crisis y el período que estamos analizando, mostraría una cuadro deformado de su importancia en la expansión económica de 1945-57. De ahí que los datos de 1934-38, cuando se había producido un grado de recuperación aceptable, nos darán una base mejor para establecer comparaciones. Durante este último período el promedio anual de exportaciones e importaciones en conjunto llegaron a 3,500 millones de dólares, cifras recordadas, o 5,250 millones en dólares de 1950.²
 

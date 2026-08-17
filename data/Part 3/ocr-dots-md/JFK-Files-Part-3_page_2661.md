@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2661.png
-
-Convert to Markdown2506
+2506
 
 to Federal positions. As a matter of fact, the only time I
 ever see an FBI agent is when he comes around and flashes his

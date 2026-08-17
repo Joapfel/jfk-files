@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35151.png
-
-Convert to MarkdownF R . N T E R E V O L U C T O M A R I O - D E L G O P A T I C O
+F R . N T E R E V O L U C T O M A R I O - D E L G O P A T I C O
 D E P A R T M E N C O D E L I N A N Z A S D E M I A L I
 
 "PAULA AND SOSA"

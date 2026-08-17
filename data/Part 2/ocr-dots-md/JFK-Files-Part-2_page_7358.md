@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7358.png
-
-Convert to Markdown# SECRECY AGREEMENT
+# SECRECY AGREEMENT
 
 I, ___________, in accepting employment or assignment with the Select Committee to Study Governmental Operations with Respect to Intelligence Activities, recognize the special trust and confidence placed in me to protect classified information from unauthorized disclosure.
 

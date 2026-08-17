@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11924.png
-
-Convert to Markdowntrist, "actively engaged in the service of the government."
+trist, "actively engaged in the service of the government."
 
 Irving Green, attorney for Carlucci and Hanna, said the prosecutors, Robert L. Telesboum and Daniel J. Snyder, knew Merola was a government agent and therefore "perpetrated a fraud upon the trial court."
 

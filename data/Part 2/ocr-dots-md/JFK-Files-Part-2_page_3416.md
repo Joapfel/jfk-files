@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3416.png
-
-Convert to MarkdownHR 1-11e
+HR 1-11e
 
 27 March 1964
 p. 23

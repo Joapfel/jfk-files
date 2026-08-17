@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2993.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 SITNIKOV, Mikhail G. 276
 SKVORTSOV, Nikolay Semenovich 135, 167, 170, 172-174, 198, 199

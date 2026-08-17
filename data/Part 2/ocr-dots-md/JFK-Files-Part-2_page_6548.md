@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6548.png
-
-Convert to Markdown**Regional Surveillance** -- The OAS or the Caribbean nations should take the initiative in organizing, as a part of a Caribbean security arrangement, a surface ship and aerial surveillance of the coastal and offshore waters of the Caribbean nations. These patrols should be progressively moved out from the shores of the nations being protected into the Caribbean approaches to Cuba, tying in with an OAS proclaimed zone in which movement of subversive agents, materials, forces, or arms is prohibited. Toward the end of the crescendo, they should operate close to the shores of Cuba.
+**Regional Surveillance** -- The OAS or the Caribbean nations should take the initiative in organizing, as a part of a Caribbean security arrangement, a surface ship and aerial surveillance of the coastal and offshore waters of the Caribbean nations. These patrols should be progressively moved out from the shores of the nations being protected into the Caribbean approaches to Cuba, tying in with an OAS proclaimed zone in which movement of subversive agents, materials, forces, or arms is prohibited. Toward the end of the crescendo, they should operate close to the shores of Cuba.
 
 There should be increasing surveillance and control of land boundaries.
 

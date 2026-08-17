@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9033.png
-
-Convert to Markdown4.
+4.
 
 ## residence
 

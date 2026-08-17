@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32737.png
-
-Convert to Markdownworkability by demonstrating conclusively the solidarity and determination of the American Republics when their security is endangered. The rapid, decisive action taken by the American Republics under the Rio Treaty strengthened the hand of the United States in making its case before world opinion, in dealing in the Security Council with the crisis, and in negotiating with the Soviets.
+workability by demonstrating conclusively the solidarity and determination of the American Republics when their security is endangered. The rapid, decisive action taken by the American Republics under the Rio Treaty strengthened the hand of the United States in making its case before world opinion, in dealing in the Security Council with the crisis, and in negotiating with the Soviets.
 
 The United Nations played a three-fold role: as a forum for exposing Soviet duplicity and for enlisting diplomatic support of the United States position; as an instrument for international consultation and as a site for negotiation; and, as an institution willing and able, on short notice, to provide inspection and verification services.
 

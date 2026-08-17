@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23657.png
-
-Convert to MarkdownIt's all de novo when it gets up to the Full Committee anyway.
+It's all de novo when it gets up to the Full Committee anyway.
 
 Mr. Kirbow. I simply indicated to the Chairman earlier that I didn't want to have a reservation like that and not point it out to him because I didn't want the absent member to appear to be sandbagging the subcommittee.
 

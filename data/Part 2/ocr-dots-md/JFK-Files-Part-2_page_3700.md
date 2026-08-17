@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3700.png
-
-Convert to Markdown13-0000
+13-0000
 
 TOP SECRET DINAR
 

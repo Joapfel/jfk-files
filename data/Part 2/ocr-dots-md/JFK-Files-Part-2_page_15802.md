@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15802.png
-
-Convert to MarkdownSource advised on the above date that numerous unidentified individuals have been in contact with Panther Headquarters, 2350 West Monroe Street, requesting information pertaining to what funeral arrangements had been made. All those contacting the Headquarters were instructed that they should not be sympathetic toward the Panthers because of the killing of HAMPTON, but should furnish money to be used for bail on those arrested.
+Source advised on the above date that numerous unidentified individuals have been in contact with Panther Headquarters, 2350 West Monroe Street, requesting information pertaining to what funeral arrangements had been made. All those contacting the Headquarters were instructed that they should not be sympathetic toward the Panthers because of the killing of HAMPTON, but should furnish money to be used for bail on those arrested.
 
 This source also stated the local chapter had been in contact with numerous Chicago radio stations in an effort to secure air time on "talk program" type shows in order to discuss the Panther version of HAMPTON's death. No commitments have been made by local radio stations.
 

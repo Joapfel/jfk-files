@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11528.png
-
-Convert to Markdown1 January, 1958
+1 January, 1958
 
 Subject: LIRING/3 Report of Address of Mario Mendez, aka "Rómulo".
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15617.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 On December 6, 1969, the Chicago PD source and advised various memorial services were being held in the ghetto area of Chicago for Hampton but no incidents or arrests were reported. The PD source also advised that Hampton was waked at the A.A. Rayner and Sons Funeral Parlor, 3654 West Roosevelt Road during the evening of December 7, 1969.
 

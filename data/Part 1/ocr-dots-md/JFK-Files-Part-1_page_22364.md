@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22364.png
-
-Convert to MarkdownThe NOSENKO case has not been discussed with GOLITSYN since the 29 June 1964 interview, thus he has not been questioned further on the circumstances which led to the encounters with NOSENKO described by him, nor have the results of subsequent detailed reinterrogations of NOSENKO - discussed at length in the foregoing sections of this paper - been made available to him for review, analysis, or comment.
+The NOSENKO case has not been discussed with GOLITSYN since the 29 June 1964 interview, thus he has not been questioned further on the circumstances which led to the encounters with NOSENKO described by him, nor have the results of subsequent detailed reinterrogations of NOSENKO - discussed at length in the foregoing sections of this paper - been made available to him for review, analysis, or comment.
 
 ## 2. Resume and Discussion of Information*
 

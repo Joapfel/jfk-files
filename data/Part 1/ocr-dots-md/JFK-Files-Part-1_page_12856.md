@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12856.png
-
-Convert to MarkdownCIA
+CIA
 
 0 mean DISSENT BY:
 0 means

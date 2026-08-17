@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17693.png
-
-Convert to Markdownthrough the U.S. HU-1-853, 4 March 1957, is an example of this type of coverage. Notice of this arrival first appeared in the traffic on 26 February 1957. HU-1-6812 is referred to as an example of this station's coverage of unusual Soviet "courier" travel, in part based on LI-FAT.
+through the U.S. HU-1-853, 4 March 1957, is an example of this type of coverage. Notice of this arrival first appeared in the traffic on 26 February 1957. HU-1-6812 is referred to as an example of this station's coverage of unusual Soviet "courier" travel, in part based on LI-FAT.
 
 ### J. Various Spot Reports
 

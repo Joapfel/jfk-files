@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15883.png
-
-Convert to MarkdownG. When an indefinite hold was placed on AESENTINEL by higher Agency authority, one team member was re-oriented and placed on conservation in a cover job. Undersigned ultimately conducted this agent back to his Scandinavian home where resettlement was achieved with a minimum of arrangements, however, Subject was transferred to AF Division for projected operational use in central Africa. This, if memory serves, was accomplished in late 1960.
+G. When an indefinite hold was placed on AESENTINEL by higher Agency authority, one team member was re-oriented and placed on conservation in a cover job. Undersigned ultimately conducted this agent back to his Scandinavian home where resettlement was achieved with a minimum of arrangements, however, Subject was transferred to AF Division for projected operational use in central Africa. This, if memory serves, was accomplished in late 1960.
 
 4. Personal Qualities and Motivation Factors of Possible Operational Exploitability
 

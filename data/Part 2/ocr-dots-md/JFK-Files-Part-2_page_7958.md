@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7958.png
-
-Convert to MarkdownEric Starvo Galt, aka Harvey
+Eric Starvo Galt, aka Harvey
 Lowmyer and John Willard
 
 (Eyes drawn in by FBI artist)

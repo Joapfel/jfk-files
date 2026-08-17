@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14645.png
-
-Convert to Markdownan Vegetable Strategy and Agriculture in Cuba, (Begin in 3 Years.) France and the U. S. are about to send analist and engineer airmen 10,000 men in Batacay.
+an Vegetable Strategy and Agriculture in Cuba, (Begin in 3 Years.) France and the U. S. are about to send analist and engineer airmen 10,000 men in Batacay.
 
 Report No. 2035
 

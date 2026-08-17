@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5778.png
-
-Convert to Markdown**INFORMATION RECEIVED FROM BUREAU INFORMANT 200**
+**INFORMATION RECEIVED FROM BUREAU INFORMANT 200**
 
 Data of Special Interest:
 

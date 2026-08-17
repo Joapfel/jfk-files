@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21395.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Frank Mabry, Jr. (protect identity) advised on 9/29/66, that he had been told that Richard Gibson had been living in the Crystal Hotel, Paris, France, and had been working out of the La Royale Cafe, Paris. Mabry stated that he was attempting to obtain a letter of introduction to Gibson from Max Stanford, former secretary to Mabry, as he planned to travel to Paris, and also to convince Stanford that he could be a courier for the Revolutionary Action Movement. (100-442684).
 

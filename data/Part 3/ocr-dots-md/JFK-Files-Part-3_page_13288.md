@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13288.png
-
-Convert to MarkdownSECRET/Sensitive
+SECRET/Sensitive
 
 Memorandum by Paul Hoch Concerning CIA Activities and the Warren Commission Investigation
 

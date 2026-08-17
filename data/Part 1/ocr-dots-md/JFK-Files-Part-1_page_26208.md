@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26208.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 January 1970
 

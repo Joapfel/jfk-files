@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11420.png
-
-Convert to Markdown<table><tr><td></td><td>Ad Hoc Staff</td></tr><tr><td colspan="2">75-181</td></tr></table>
+<table><tr><td></td><td>Ad Hoc Staff</td></tr><tr><td colspan="2">75-181</td></tr></table>
 
 **United States Senate**
 

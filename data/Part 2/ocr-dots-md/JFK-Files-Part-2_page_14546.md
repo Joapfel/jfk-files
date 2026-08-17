@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14546.png
-
-Convert to MarkdownLetter to Washington Field
+Letter to Washington Field
 Re: Intelligence Coverage of Diplomatic
 Representatives of Friendly Foreign Nations
 

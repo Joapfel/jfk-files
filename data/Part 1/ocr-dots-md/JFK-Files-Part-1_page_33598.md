@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33598.png
-
-Convert to MarkdownSELECT
+SELECT
 SECRET INTERNATIONAL
 
 LETTER OF CONFIRMATION

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4852.png
-
-Convert to MarkdownSECRET
+SECRET
 
 to hide. And try to help them understand why some of these activities go on the way they do.
 

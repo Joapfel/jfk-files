@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24781.png
-
-Convert to Markdown<table><tr><td>MESSAGE FORM<br>TOTAL COPIES:<br><br>SECRET</td></tr><tr><td colspan="2">ROUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table>
+<table><tr><td>MESSAGE FORM<br>TOTAL COPIES:<br><br>SECRET</td></tr><tr><td colspan="2">ROUTING AND/OR INITIALS - SEEN BY</td></tr><tr><td>1</td><td>6</td></tr><tr><td>2</td><td>7</td></tr><tr><td>3</td><td>8</td></tr><tr><td>4</td><td>9</td></tr><tr><td>5</td><td>10</td></tr></table>
 
 CABLE SECRETARIAT DISSEMINATION
 

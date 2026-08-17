@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17470.png
-
-Convert to MarkdownThe rally for FRED HAMPTON was held on this date, 6/12/69, from 3:00 PM to 5:45 PM at the Lido Theatre in Maywood. The microphones and sound system were set up by GREGORY PERKINS who then left to go to work. The rally was run by WILLIAM HAMPTON, FRED's older brother. There were nearly 200 people present including whites, blacks, and Mexicans. Represented were the BPP from Chicago, the Brown Berets, someone from SDS who made a speech, several students from a college somewhere, a few clergymen including a Negro preacher from Melrose Park who read a note from FRED HAMPTON's mother.
+The rally for FRED HAMPTON was held on this date, 6/12/69, from 3:00 PM to 5:45 PM at the Lido Theatre in Maywood. The microphones and sound system were set up by GREGORY PERKINS who then left to go to work. The rally was run by WILLIAM HAMPTON, FRED's older brother. There were nearly 200 people present including whites, blacks, and Mexicans. Represented were the BPP from Chicago, the Brown Berets, someone from SDS who made a speech, several students from a college somewhere, a few clergymen including a Negro preacher from Melrose Park who read a note from FRED HAMPTON's mother.
 
 LEO HOWARD spoke, WILLIAM HAMPTON spoke, an SDS leader spoke, a representative from the Brown Berets spoke and PAUL WADE spoke. All spoke about the plights of HAMPTON and a collection was taken up. There was much concern about the fact that HAMPTON was moved to some jail about 300 miles away.
 

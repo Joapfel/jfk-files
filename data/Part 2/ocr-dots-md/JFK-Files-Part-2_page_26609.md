@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26609.png
-
-Convert to Markdownh. The forthcoming Afro-Asian visits by Chou En-lai and Chen Yi have awakened suspicions that the Chinese are in hot pursuit of a second Bandung-type conference--a more rewarding enterprise from their point of view.
+h. The forthcoming Afro-Asian visits by Chou En-lai and Chen Yi have awakened suspicions that the Chinese are in hot pursuit of a second Bandung-type conference--a more rewarding enterprise from their point of view.
 
 3. USSR
 

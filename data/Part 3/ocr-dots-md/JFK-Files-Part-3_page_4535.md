@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4535.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>FD-36 (WY). 5-22-64)</td>

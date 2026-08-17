@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29081.png
-
-Convert to Markdown# PART I - Renter's Credit - All questions must be answered
+# PART I - Renter's Credit - All questions must be answered
 
 See Instructions, Page 2, for Allowable Credits
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11783.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>62-116395-583</td>
     <td>Encl. 1</td>

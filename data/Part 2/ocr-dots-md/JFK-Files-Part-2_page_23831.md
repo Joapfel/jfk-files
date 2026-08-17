@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23831.png
-
-Convert to Markdown1. there, giving the Committee authority to establish guidelines,
+1. there, giving the Committee authority to establish guidelines,
 2. to establish for large proprietaries, should they become
 3. necessary.
 

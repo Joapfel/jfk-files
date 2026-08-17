@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31168.png
-
-Convert to Markdown14-0000
+14-0000
 
 <html><body><table><tr><td>CLASSIFICATION</td></tr></table></body></html>
 

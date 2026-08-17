@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11403.png
-
-Convert to Markdown**Trotskyist Unit**
+**Trotskyist Unit**
 George J. Lex, Jr.
 Three Special Agents
 Unit Chief

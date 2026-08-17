@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16744.png
-
-Convert to Markdown8. Ithaca 12 ga sawed off 13" S/N 175084
+8. Ithaca 12 ga sawed off 13" S/N 175084
    Mfg. by Ithaca in 1908 and no records were
    kept at that time
 

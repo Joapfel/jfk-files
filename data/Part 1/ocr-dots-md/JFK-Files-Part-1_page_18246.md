@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18246.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DIR INFO LIMA QUIT CITE WAVE 0167
 TYPIC AMMOP

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4834.png
-
-Convert to Markdown14-00000
+14-00000
 
 FORM 30008
 7-31 MFG. 10/75

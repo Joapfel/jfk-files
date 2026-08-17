@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2373.png
-
-Convert to Markdownsupport assets. Also included are foreign correspondents, representatives of foreign tourist firms, and foreign tourists.
+support assets. Also included are foreign correspondents, representatives of foreign tourist firms, and foreign tourists.
 
 A summary of the foreign leads arbitrarily defined as of major significance shows nineteen leads highly placed or formerly highly placed in their own government, four code clerks, eight cases involving definite American interest, and four access agents to Americans. It also shows nine instances of clandestine KGB activity against foreign missions in Moscow, including actual KGB clandestine access into certain Western Embassies (but not the British or American Embassies).
 

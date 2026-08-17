@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32177.png
-
-Convert to Markdown# DECLARATION OF APPOINTEE
+# DECLARATION OF APPOINTEE
 
 This form is to be completed before entrance on duty. Answer all questions. Any false st. sent in this declaration will be grounds for cancellation of application or dismissal after appointment. Imp. sent in criminal offense and will be prosecuted accordingly.
 

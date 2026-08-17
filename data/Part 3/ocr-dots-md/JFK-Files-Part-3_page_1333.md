@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1333.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>FD-36 (Rev. 7-27-76)</td>
         <td style="text-align:right; vertical-align:top;">

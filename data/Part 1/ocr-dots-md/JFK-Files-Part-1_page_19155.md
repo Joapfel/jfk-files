@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19155.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td>REPORT OF INTERVIEW</td></tr></table>
 

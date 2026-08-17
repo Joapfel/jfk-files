@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16840.png
-
-Convert to Markdown<table><tr><td>DISPATCH</td></tr></table>
+<table><tr><td>DISPATCH</td></tr></table>
 
 <table><tbody><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr><tr><td>SECRET</td><td>MARRED FOR INDEXING</td></tr><tr><td></td><td>NO DETERMINED REQUIRED</td></tr><tr><td></td><td>ONLY QUALIFIED DESK CAN BE SOUEXISING</td></tr><tr><td></td><td>AICTORS</td></tr></tbody></table>
 

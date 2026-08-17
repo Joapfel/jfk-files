@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10206.png
-
-Convert to MarkdownOFFICE MEMORANDUM • UNITED STATES GOVERNMENT
+OFFICE MEMORANDUM • UNITED STATES GOVERNMENT
 
 TO :Director, Federal Bureau of Investigation
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22024.png
-
-Convert to Markdown## PERSONS/ENTITIES:
+## PERSONS/ENTITIES:
 
 <table><tr><td>DATES:</td></tr><tr><td>Oct. 6, 1960</td><td>CATEGORIES: Special Group<br>MONGODB<br>Presidential Authorization<br>Card 3 of 3</td></tr></table>
 

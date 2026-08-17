@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18787.png
-
-Convert to Markdown6 February 1947
+6 February 1947
 
 MEMORANDUM FOR THE ACTING CHIEF, FBZ
 Through: ACOPS

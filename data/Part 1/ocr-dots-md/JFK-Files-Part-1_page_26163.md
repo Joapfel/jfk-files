@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26163.png
-
-Convert to MarkdownLo mismo contra Genaro Vázquez, que contra Regis Debray o Mario Menéndez, el nuevo presidente oficial —tobas en dos personas alcohólo— importanta.
+Lo mismo contra Genaro Vázquez, que contra Regis Debray o Mario Menéndez, el nuevo presidente oficial —tobas en dos personas alcohólo— importanta.
 
 que la solidaridad revolucionaria y no de la limosna infamante, otorgada por malus conciencias que buscan una precaria tranquillidad. Independientemente de que siga usted encontrando «ele- mentales razones humanas» o se le hayan agotado las que exhi- bió, esta carta tiene importan- cia para mi dignidad personal y por ello esperaré a que la pu- blicue hasta el jueves, pero re- servándome copia y el derecho de hacerla pública por otros mo- dios en caso necesario. —Aten- tamente, Victor Rico Galán».
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17038.png
-
-Convert to Markdown20 MAY 1976
+20 MAY 1976
 
 MEMORANDUM FOR: Chief, Western Hemisphere Division
 

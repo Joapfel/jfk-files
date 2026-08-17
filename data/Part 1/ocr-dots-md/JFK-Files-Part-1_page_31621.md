@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31621.png
-
-Convert to Markdown10, Attn: Mr. Eurkeo
+10, Attn: Mr. Eurkeo
 
 VIA : Chief, EE
 

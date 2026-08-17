@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11090.png
-
-Convert to MarkdownProof that the subject has such knowledge of the revolu-
+Proof that the subject has such knowledge of the revolu-
 tionary purposes of the organization may be existent in
 several forms, several of which are discussed below:
 

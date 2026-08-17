@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6284.png
-
-Convert to MarkdownD. In making any excisions or other alterations of requested materials, CIA shall be bound by 18 U. S. C. Subsection 1505 and all other applicable statutes.
+D. In making any excisions or other alterations of requested materials, CIA shall be bound by 18 U. S. C. Subsection 1505 and all other applicable statutes.
 
 ## II. Request Procedure
 

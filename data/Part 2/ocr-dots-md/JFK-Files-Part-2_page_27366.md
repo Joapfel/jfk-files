@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27366.png
-
-Convert to MarkdownSECRET
+SECRET
 
 W - Cable to Dir from Trujillo - 16 May 61 SECRET
 

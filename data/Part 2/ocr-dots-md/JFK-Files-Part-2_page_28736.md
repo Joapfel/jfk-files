@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28736.png
-
-Convert to MarkdownAlphonse Indelicato for the crime of perjury in the first degree.
+Alphonse Indelicato for the crime of perjury in the first degree.
 Dominick Trinchera for the crime of criminal contempt in the first degree.
 Jerry Langella for the crime of criminal contempt in the first degree.
 Vic Orena for the crime of perjury in the first degree.

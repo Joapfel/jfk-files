@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20826.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th colspan="3">Continuation of children:</th>

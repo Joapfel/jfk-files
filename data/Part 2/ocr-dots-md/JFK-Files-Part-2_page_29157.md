@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29157.png
-
-Convert to Markdown**Reference copy, JFK Collection: HSCA (RG 233)**
+**Reference copy, JFK Collection: HSCA (RG 233)**
 
 CALIFORNIA
 # PROFIT (OR LOSS) FROM BUSINESS OR PROFESSION

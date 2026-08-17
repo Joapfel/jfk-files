@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5805.png
-
-Convert to MarkdownCIA SPECIAL COLLECTION
+CIA SPECIAL COLLECTION
 
 RELEASE IN FULL
 

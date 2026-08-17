@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19059.png
-
-Convert to MarkdownAnlage 2
+Anlage 2
 
 **Gesellschaft für das Verlags-**
 **"Deutsche Nachrichten" (Di) GmbH.**

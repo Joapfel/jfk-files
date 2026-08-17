@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_851.png
-
-Convert to Markdown## II. BACKGROUND OF FEDERAL ELECTRONIC SURVEILLANCE LAW
+## II. BACKGROUND OF FEDERAL ELECTRONIC SURVEILLANCE LAW
 
 The term electronic surveillance encompasses both wiretapping (tap), i.e., the interception of a telephone conversation by a third party, and microphone surveillance (bug), i.e., the interception of a nontelephone conversation by means of a microphone which can lead either to a recorder or merely transmit the conversation to a third party, or both. Both wiretapping and microphone surveillance can be conducted with or without the knowledge and consent of the parties to the conversation. Consensual monitoring, i.e., tapping or bugging with the consent of one of the parties to the conversation, has generally been held to be legal, and is not considered in the following discussion.
 

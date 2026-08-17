@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11627.png
-
-Convert to MarkdownJuly 26, 1963
+July 26, 1963
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 130

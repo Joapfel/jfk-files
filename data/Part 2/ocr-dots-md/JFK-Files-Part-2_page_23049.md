@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23049.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 a small boat could not recover its position and get back to the
 mother ship to be picked up and it was adrift or came in to one

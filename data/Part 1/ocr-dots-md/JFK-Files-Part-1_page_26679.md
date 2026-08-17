@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26679.png
-
-Convert to MarkdownDE TO, DE 'MAGISTRATURA'.
+DE TO, DE 'MAGISTRATURA'.
 EST. DE PROCESOS FINALES.
 DÍAZ.
 351.840/2392.

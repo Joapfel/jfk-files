@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35725.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 2. Juan Rigoberto RUIZ Villegas
 

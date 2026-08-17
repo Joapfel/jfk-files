@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7192.png
-
-Convert to MarkdownSECRET
+SECRET
 
 usually espionage. This subordination degraded the function
 to its lowest level, to such necessary but elementary work

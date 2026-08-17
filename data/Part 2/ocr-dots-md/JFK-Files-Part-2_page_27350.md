@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27350.png
-
-Convert to MarkdownA-I (B)
+A-I (B)
 
 A- Memo from Knoche to Belin - 7 Mar 75
 

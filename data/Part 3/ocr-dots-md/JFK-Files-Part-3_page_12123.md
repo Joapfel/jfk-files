@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12123.png
-
-Convert to MarkdownIt is suggested that in order for the Bureau to receive full credit for statistical accomplishments attributable to all FBI informants, the new form devised by the New Left and Internal Security Sections should include statistical accomplishment data as currently required on FD-405.
+It is suggested that in order for the Bureau to receive full credit for statistical accomplishments attributable to all FBI informants, the new form devised by the New Left and Internal Security Sections should include statistical accomplishment data as currently required on FD-405.
 
 Comments of Section Chiefs Arbor W. Gray, Robert J. Shackelford and Assistant Director Charles D. Brennan are requested.
 

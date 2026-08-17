@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30810.png
-
-Convert to Markdown# SEC. 25. GENERAL QUALIFY (Continued)
+# SEC. 25. GENERAL QUALIFY (Continued)
 
 ## B. HAVE YOU ANY SPECIAL KNOWLEDGE OR TRAINING WITH RESPECT TO:
 

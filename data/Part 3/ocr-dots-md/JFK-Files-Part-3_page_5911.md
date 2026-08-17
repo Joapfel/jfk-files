@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5911.png
-
-Convert to MarkdownMr. J. B. Adams
+Mr. J. B. Adams
 
 10/17/75
 

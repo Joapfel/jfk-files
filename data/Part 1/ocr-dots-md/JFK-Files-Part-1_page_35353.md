@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35353.png
-
-Convert to MarkdownPAYROLL
+PAYROLL
 
 AMOUNTS DUE
 BY OFFICE NO. 4

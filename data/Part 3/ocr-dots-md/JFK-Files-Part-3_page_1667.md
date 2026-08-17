@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1667.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Mr. Foster
 1 - Legal Counsel Div.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26782.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>ORIG:</td><td>N.J. Kaufman:mon</td></tr><tr><td>UNIT:</td><td>WJ/1</td></tr><tr><td>EXT:</td><td>4500</td></tr><tr><td>DATE:</td><td>11 May 65</td></tr></table>
 

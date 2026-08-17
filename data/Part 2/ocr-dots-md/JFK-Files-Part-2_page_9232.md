@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9232.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 There are also approximately six community workers who are young high school age blacks who are interested in the BPP and help sell BPP newspapers and solicit donations to the Party. They hold no official Party status and their interest in the Party's work vacillates and their work is irregular and inconsistent.
 

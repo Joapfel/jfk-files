@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32380.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Claims are without foundation and the second item which refutes the report contained in the Life Magazine article of 8 February.
 

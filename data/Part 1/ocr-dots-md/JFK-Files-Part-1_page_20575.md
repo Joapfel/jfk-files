@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20575.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">SENDER WILL CHECK CLASS CATION TOP AND BOTTOM</td>
     </tr>

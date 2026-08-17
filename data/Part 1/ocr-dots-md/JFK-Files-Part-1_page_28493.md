@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28493.png
-
-Convert to Markdown5 March 1951
+5 March 1951
 
 TO: Mr. Harold Pfeifer
 

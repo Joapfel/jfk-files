@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11672.png
-
-Convert to MarkdownBy Bureau airtel 11-6-70, all continental offices were instructed to submit a biweekly airtel regarding underground BPP operations within each field office. This specific requirement was removed by Bureau airtel 4-29-71. However, all offices were admonished to keep the Bureau advised of any developments in this area.
+By Bureau airtel 11-6-70, all continental offices were instructed to submit a biweekly airtel regarding underground BPP operations within each field office. This specific requirement was removed by Bureau airtel 4-29-71. However, all offices were admonished to keep the Bureau advised of any developments in this area.
 
 "The Black Panther" newspaper, official organ of the BPP, had been printed in San Francisco since 1967 until recently when the printing was changed to New York City. The Bureau receives a sufficient quantity of the paper from New York to disseminate it to interested agencies and all Legal Attaches. New York also furnishes one copy of each weekly issue to all field offices. This newspaper in the past has been the best indication of current Party line; therefore, this program is essential to our intelligence gathering efforts.
 

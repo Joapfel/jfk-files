@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25461.png
-
-Convert to MarkdownML: Big Cubans.
+ML: Big Cubans.
 
 FS: Well when you talk about big Cubans can you name some?
 

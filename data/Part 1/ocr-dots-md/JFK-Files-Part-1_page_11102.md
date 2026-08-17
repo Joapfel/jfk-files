@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11102.png
-
-Convert to Markdown7067
+7067
 
 Enbajada de Cuba: 250795.-
 

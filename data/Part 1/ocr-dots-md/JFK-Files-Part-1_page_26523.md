@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26523.png
-
-Convert to MarkdownPOR VICTOR RICO GALAN
+POR VICTOR RICO GALAN
 
 En un editorial reciente, Siempre censuró con energía la conducta de nuestras autoridades policacas en el aeropuerto, por los malos tratos y las vejaciones a que son sometidos los viajeros procedentes de ciertos países, sobre todo de Cuba y de España. Aceptaba nuestra revista como cosa normal la vigilancia sobre visitantes potencialmente peligrosos, pero acusaba a las innúmoras policadas que el mexicano padece de realizar mal esa función o no realizarla en absoluto, a cambio de actuar con una insolencia y una prepotencia intolerables.
 

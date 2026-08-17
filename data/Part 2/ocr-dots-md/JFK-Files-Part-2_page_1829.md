@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1829.png
-
-Convert to MarkdownB-L-C-R-E-T
+B-L-C-R-E-T
 
 WRITING WORKSHOP (INTERMEDIATE) NO. 2
 TRAINING EVALUATION

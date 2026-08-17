@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3177.png
-
-Convert to Markdown1789
+1789
 
 to this. We have instructions, clear guidelines; instructions
 to our field offices that they are not to use an informant for

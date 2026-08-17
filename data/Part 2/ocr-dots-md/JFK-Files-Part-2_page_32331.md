@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32331.png
-
-Convert to Markdowne. Costa Rica and Honduras were provided one
+e. Costa Rica and Honduras were provided one
 Cassna 185 aircraft each for medical civic action and
 internal security purposes.
 

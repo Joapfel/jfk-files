@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2051.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>SECTION E.</th><th colspan="3">GENERAL</th></tr><tr><td>I. NAME<br/>(Last)</td><td>(First)</td><td>(Middle)</td><td>2. DATE OF BIRTH<br/>19 March 1957</td><td>3. SEX<br/>M</td><td>4. SERVICE DESIGNATION<br/>(DI)</td></tr></thead><tbody><tr><td colspan="3">NOEL, James A.</td><td colspan="3">8. OFFICIAL POSITION TITLE<br/>Area Ops Ofcr - Branch Chief</td></tr><tr><td>7. GRADE<br/>08-15</td><td colspan="2">8. DATE REPORT DUE IN OP<br/>9 Nov 1957</td><td colspan="3">9. PERIOD COVERED BY THIS REPORT (inclusive dates)<br/>21 Oct 56 - 20 Oct 57</td></tr><tr><td colspan="2">10. TYPE OF REPORT<br/>(Check one)<br/><table border="1" style="width:100%; border-collapse: collapse;"><tr><td>A. INITIAL</td><td>REASSIGNMENT-SUPERVISOR</td></tr><tr><td>B. MONUAL</td><td>REASSIGNMENT-EMPLOYEE</td></tr></table></td><td colspan="3">SPECIAL (Specify)</td></tr></tbody></table>
 

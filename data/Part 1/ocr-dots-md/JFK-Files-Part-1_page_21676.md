@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21676.png
-
-Convert to Markdownapproach occurred at the "end of 1960."
+approach occurred at the "end of 1960."
 
 NOSENKO, during current interviews, has given an acceptable account of the STORSBERG case. He has stated that he cannot precisely date the approach to STORSBERG, but that it occurred before the approach at the Moscow airport to James KEYSERS (June 16, 1961) because otherwise no action would have been taken against KEYSERS.
 

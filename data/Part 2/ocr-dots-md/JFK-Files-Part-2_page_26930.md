@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26930.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. directed towards any domestic activity. They are in support of overseas communications.
 2

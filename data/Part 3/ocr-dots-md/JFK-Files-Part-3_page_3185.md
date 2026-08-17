@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3185.png
-
-Convert to Markdowngsh
+gsh
 
 1797
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16637.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>PREPAYMENT</td>

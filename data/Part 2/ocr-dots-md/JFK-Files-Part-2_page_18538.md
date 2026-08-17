@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18538.png
-
-Convert to Markdown<html><body>3791 (6.75)</html>
+<html><body>3791 (6.75)</html>
 
 NW 88326 DocId:32989627 Page 136
 

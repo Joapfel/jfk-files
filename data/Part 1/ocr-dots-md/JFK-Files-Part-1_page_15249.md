@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15249.png
-
-Convert to Markdown# PART TWO (Operational Data)
+# PART TWO (Operational Data)
 
 ## Biographical
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1415.png
-
-Convert to Markdown1 July 1976
+1 July 1976
 
 MEMORANDUM FOR: Director of Security
 FROM : (~~Sherwood R. Bosworth~~) External Activities Branch

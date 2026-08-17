@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5808.png
-
-Convert to MarkdownWashington Post Article, dtd 30 Nov. 49
+Washington Post Article, dtd 30 Nov. 49
 
 "CHAMBERS has testified that he approached BERLE in 1939 to warn him of
 Communist activities in the U.S.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18277.png
-
-Convert to MarkdownATTACHMENT "B"
+ATTACHMENT "B"
 
 Debriefing of Santiago SANCHEZ, de la Torre
 

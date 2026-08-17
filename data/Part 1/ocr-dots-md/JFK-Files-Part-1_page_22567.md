@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22567.png
-
-Convert to MarkdownSECRET-YES ONLY
+SECRET-YES ONLY
 
 these interrogations was the name of American Consul Hill in connection with the telegram that General Diaz wanted to send to Betancourt.
 

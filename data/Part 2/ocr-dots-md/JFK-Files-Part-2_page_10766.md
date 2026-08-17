@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10766.png
-
-Convert to MarkdownFEDERAL PUBEAU OF INVESTIGATH
+FEDERAL PUBEAU OF INVESTIGATH
 
 Date 8/24/71
 

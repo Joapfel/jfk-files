@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33663.png
-
-Convert to MarkdownAmerican Personnel
+American Personnel
 
 countries by working through American education system on all levels, coordinating research in this field.
 

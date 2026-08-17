@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23364.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Tweedy. This is mostly discussion of [機密]。
 

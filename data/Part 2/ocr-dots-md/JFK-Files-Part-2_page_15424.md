@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15424.png
-
-Convert to MarkdownMemorandum Donahoe to Belmont
+Memorandum Donahoe to Belmont
 
 Re: INTELLIGENCE COVERAGE OF
 FRIENDLY FOREIGN COUNTRIES

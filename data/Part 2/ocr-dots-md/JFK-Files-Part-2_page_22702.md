@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22702.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 call him on the phone and say, I think you should know the
 following, and there would be a notification that Mr. Hoover

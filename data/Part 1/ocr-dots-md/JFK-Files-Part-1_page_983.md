@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_983.png
-
-Convert to MarkdownHSCA Request, 11 November 77 (OLC #77-4963) for documents:
+HSCA Request, 11 November 77 (OLC #77-4963) for documents:
 
 1. Book on anti-Castro Cuban organizations and anti-Castro Cuban activity in the U.S. during the approximate period 1959-1965.
 

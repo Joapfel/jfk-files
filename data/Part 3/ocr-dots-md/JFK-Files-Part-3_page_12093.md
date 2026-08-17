@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12093.png
-
-Convert to MarkdownRACIAL SECTION
+RACIAL SECTION
 
 | | Cases | Men | Average |
 | :--- | ---: | ---: | ---: |

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32958.png
-
-Convert to Markdown# 62388
+# 62388
 
 2 June 1966
 

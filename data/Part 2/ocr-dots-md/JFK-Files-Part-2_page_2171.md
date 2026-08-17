@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2171.png
-
-Convert to MarkdownSUMMARY OF EMPLOYMENT
+SUMMARY OF EMPLOYMENT
 
 James A. Noel
 

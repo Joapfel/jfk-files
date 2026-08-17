@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16461.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DETAILED JUSTIFICATION AND ASSESSMENT
 

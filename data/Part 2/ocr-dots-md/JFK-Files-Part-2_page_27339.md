@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27339.png
-
-Convert to MarkdownA - Memo from Spitz to Olsen - 25 APR 75
+A - Memo from Spitz to Olsen - 25 APR 75
 
 B - Ltr from Olsen to Lindenberg - 2 Jun 75
 

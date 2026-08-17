@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10250.png
-
-Convert to MarkdownAntecedentes
+Antecedentes
 
 En el mes de abril de 1968, Fagacésico y Peralta, en su viaje a Guatemala,它们看到在他们的占领区的人民中有一部分是FARín的成员。在他们到达时，他们已经占领了该市。
 

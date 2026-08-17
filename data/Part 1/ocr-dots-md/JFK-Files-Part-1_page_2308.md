@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2308.png
-
-Convert to MarkdownThe following relevant questions were asked on test five:
+The following relevant questions were asked on test five:
 
 Since 1953 do you know of any other KGB recruitments in the American Embassy besides ANDREY and [HOWARD]? No.
 

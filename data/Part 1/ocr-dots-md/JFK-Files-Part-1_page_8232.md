@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8232.png
-
-Convert to Markdown# Silver Resources Corporation
+# Silver Resources Corporation
 
 Silver Resources Corporation (Silverco) is a New York corporation organized by a group of mining and financial companies to invest in silver in all its forms: silver mines, mining claims, shares of other silver companies and bullion.
 

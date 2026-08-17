@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34618.png
-
-Convert to Markdown31 December 1974
+31 December 1974
 
 MEMORANDUM FOR: General Counsel
 

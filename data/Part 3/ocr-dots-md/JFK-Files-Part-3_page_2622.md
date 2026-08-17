@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2622.png
-
-Convert to Markdownof the Constitution to have a neutral third party magistrate screen use of certain investigative techniques. And the informant is such a technique. He functions sort of like a general warrant, and I don't see why requiring court approval would violate the role envisaged for the courts.
+of the Constitution to have a neutral third party magistrate screen use of certain investigative techniques. And the informant is such a technique. He functions sort of like a general warrant, and I don't see why requiring court approval would violate the role envisaged for the courts.
 
 And as I leave, I would like to get your reactions to my feelings.
 

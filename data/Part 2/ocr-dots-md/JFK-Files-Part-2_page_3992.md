@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3992.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, Research Branch, SRS
 

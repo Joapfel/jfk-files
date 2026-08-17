@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33543.png
-
-Convert to Markdown14-0000-
+14-0000-
 
 <table><thead><tr><td colspan="3">CABLE SEC DISSENT BY PER TOTAL COPIES PIN BY</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>SECRET</td><td>CHILL</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED BY RECRU'ED BY DAT / 5 20<sup>L</sup></td><td colspan="2">PRODUCTION BY OTHER THAN INSINUING OFFICE IS PROHIBITED</td></tr><tr><th>ACTION UNIT</th><th>REF. FILE.</th><th>VR.</th><th>AGENCY MESSAGE</th></tr><tr><td>C/WH8</td><td></td><td>HANSEN, GEORG, GISSER, E.L. 9</td><td></td></tr><tr><th>ACTION #</th><th>INFO</th><th>RS/SG 3</th><th></th></tr></tbody></table>
 

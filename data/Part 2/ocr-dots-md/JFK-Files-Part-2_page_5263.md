@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5263.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Courtesy Visit of JFK Assassination Records Review Board, 16 October 1996
 

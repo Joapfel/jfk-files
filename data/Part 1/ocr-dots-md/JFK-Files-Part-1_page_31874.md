@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31874.png
-
-Convert to MarkdownSTANDARD FORM No. 64
+STANDARD FORM No. 64
 
 Office Memorandum • UNITED STATES GOVERNMENT
 

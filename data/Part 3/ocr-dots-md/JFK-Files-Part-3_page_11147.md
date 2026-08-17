@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11147.png
-
-Convert to Markdown# ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
+# ALL INFORMATION CONTAINED HEREIN IS UNCLASSIFIED
 DATE 1-18-91 BY SP2ALM
 
 <table><thead><tr><th></th><th>FIELD OFFICES</th></tr></thead><tbody><tr><td>MEMPHIS</td><td>OKLAHOMA CITY SAN ANTONIO</td></tr><tr><td>MIAMI</td><td>OMAHA SAN DIEGO</td></tr><tr><td>MILWAUKEE</td><td>PHILADELPHIA SAN FRANCISCO</td></tr><tr><td>MINNEAPOLIS</td><td>PHOENIX SAN JUAN</td></tr><tr><td>MOBILE</td><td>PITTSBURGH SAVANNAH</td></tr><tr><td>NEWARK</td><td>PORTLAND SEATTLE</td></tr><tr><td>NEW HAVEN</td><td>RICHMOND SPRINGFIELD</td></tr><tr><td>NEW ORLEANS</td><td>SACRAMENTO TAMPA</td></tr><tr><td>NEW YORK</td><td>ST. LOUIS WASHINGTON, D.C.</td></tr><tr><td>NORFOLK</td><td>SALT LAKE CITY TOTAL 59</td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16805.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORIG: A.C. DELANEZ
 UNIT: OCI

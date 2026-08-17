@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13593.png
-
-Convert to MarkdownFILING SYSTEM
+FILING SYSTEM
 
 The following will explain the Tables of Contents concerning FBI forms which are being furnished in lieu of the actual forms at this time. This procedure is being followed because the forms number nearly 2,000 and many will probably be of no interest to the Committee. If the Committee will review these Tables of Contents and advise which forms it desires to see, appropriate steps will then be taken to make them available to the Committee Staff. The Tables of Contents headed "FBI Form Book" lists all FBI FD (Field Division) forms which are in use throughout the field. The remaining Tables of Contents list those forms applicable to the work of specific FBI Divisions at Headquarters. For example, forms with the prefix "1" are used in Division One (Identification); those with prefix "2" are used in Division Two (Training); etc.
 

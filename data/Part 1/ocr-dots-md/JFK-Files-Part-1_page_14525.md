@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14525.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PERMITTING ACTION</th></tr></thead><tbody><tr><td></td><td>Chief, Western Hemisphere Division</td><td>SECRET</td><td>MARSH FOR INCREASING</td></tr><tr><td>INFO.</td><td>Chief, Europe Division;<br/>COS, WH/Miami; COB, DO New York</td><td></td><td>NO INDICATING REQUIRED</td></tr><tr><td>FROM</td><td rowspan="2">Chief of Station, Madrid</td><td></td><td>ONLY QUALIFIED DESK<br/>CAN JUDGE INCREASING</td></tr><tr><td>SUBJECT</td><td>MICROFILM</td><td></td></tr><tr><td colspan="4">TYPIC/QUTIMID/U.S. Company in Touch with Cuban Embassy, Madrid</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PERMITTING ACTION</th></tr></thead><tbody><tr><td></td><td>Chief, Western Hemisphere Division</td><td>SECRET</td><td>MARSH FOR INCREASING</td></tr><tr><td>INFO.</td><td>Chief, Europe Division;<br/>COS, WH/Miami; COB, DO New York</td><td></td><td>NO INDICATING REQUIRED</td></tr><tr><td>FROM</td><td rowspan="2">Chief of Station, Madrid</td><td></td><td>ONLY QUALIFIED DESK<br/>CAN JUDGE INCREASING</td></tr><tr><td>SUBJECT</td><td>MICROFILM</td><td></td></tr><tr><td colspan="4">TYPIC/QUTIMID/U.S. Company in Touch with Cuban Embassy, Madrid</td></tr></tbody></table>
 
 ACTION REQUIRED - REFERENCES
 

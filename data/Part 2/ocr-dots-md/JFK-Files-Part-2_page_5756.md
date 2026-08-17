@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5756.png
-
-Convert to MarkdownRobert M. McNamara, Jr., Esq.
+Robert M. McNamara, Jr., Esq.
 
 July 15, 1998
 

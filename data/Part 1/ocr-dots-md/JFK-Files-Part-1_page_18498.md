@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18498.png
-
-Convert to Markdown18 June 1959
+18 June 1959
 
 MEMORANDUM FOR: Director of Personnel
 ATTENTION: Chief, Records and Services Division

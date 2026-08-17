@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34513.png
-
-Convert to MarkdownACKNOWLEDGEMENT AND RELEASE
+ACKNOWLEDGEMENT AND RELEASE
 
 WHEREAS, IDEN 1 , a former citizen of the Union
 

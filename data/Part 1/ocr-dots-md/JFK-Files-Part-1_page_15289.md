@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15289.png
-
-Convert to MarkdownDEBRIEFING
+DEBRIEFING
 
 of
 

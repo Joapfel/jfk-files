@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6252.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 NOTE FOR: J. Barry Harrelson @ DA
 Gloria M. Boyd @ DA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17563.png
-
-Convert to Markdown# J. Conclusion
+# J. Conclusion
 
 It is the opinion of the Mexico City Station that the support provided to other Station operations, the CE information obtained, and the positive intelligence gathered by Project LIFEAT will justify the expenditure of KUBARK assets in terms of funds, personnel, time and security risk. The information produced by this operation has materially contributed to several priority objectives of the Station's Related Mission Directive.
 

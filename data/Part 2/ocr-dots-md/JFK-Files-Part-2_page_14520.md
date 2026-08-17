@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14520.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 TO : Mr. L. V. Boardman
 DATE: 10-13-55

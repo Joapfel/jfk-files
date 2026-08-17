@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9482.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 The NCCF has one Breakfast Program which is currently located at the Ministry of Information, 12847 14th Street, Detroit, and serves approximately 32 children, five days a week.
 

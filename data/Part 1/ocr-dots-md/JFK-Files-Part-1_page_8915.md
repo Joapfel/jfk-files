@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8915.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>TO: C. Bustos:chk<br/>U/M: WH/3/Mexico<br/>IXI: 5940<br/>DATE: 5 May 1964</td><td></td><td>S E C R E T</td></tr><tr><td colspan="2">TO : MEXICO CITY<br/>FROM: DIRECTOR<br/>CONF: W48<br/>INFO: C10A, OS2, VR, F&G</td><td>6MaySt 7 49z<br/>SCH.SEN<br/>ROUTINE</td></tr></table>
 

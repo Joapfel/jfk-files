@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13309.png
-
-Convert to MarkdownP. 16
+P. 16
 
 Has CIA pursued independent investigations of the assassination
 and developed any new information not already provided to the

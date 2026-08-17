@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19804.png
-
-Convert to MarkdownNR 001 BS CODE
+NR 001 BS CODE
 
 1255 AM NITEL 2-13-72 TJT
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9330.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (10) SIZE OF BOOK? A maximum of 75 pages of photos. This would give some 36 or 37 two-page sets of Hitler-Stalin photos.
 

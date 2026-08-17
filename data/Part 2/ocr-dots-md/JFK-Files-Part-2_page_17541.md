@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17541.png
-
-Convert to MarkdownThe location of their Breakfast for Children Program is North Hoyne Street and West Washington Boulevard. While BPP is currently claiming to feed 100 children each day, in fact the program has almost ceased to operate.
+The location of their Breakfast for Children Program is North Hoyne Street and West Washington Boulevard. While BPP is currently claiming to feed 100 children each day, in fact the program has almost ceased to operate.
 
 10/69)
 

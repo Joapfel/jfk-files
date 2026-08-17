@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10398.png
-
-Convert to Markdownprotect foreign visitors. Recently, John Hary was detailed
+protect foreign visitors. Recently, John Hary was detailed
 to the Secretary of the Treasury along with four other Agency
 employees. We have even, in rare instances, detailed our
 people to Congressional Staffs for short periods of time.

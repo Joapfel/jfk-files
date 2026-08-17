@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4286.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 The monitoring of this surveillance will be conducted in accordance with instructions contained in your letter dated July 14, 1969, captioned "Electronic Surveillances."
 

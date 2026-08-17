@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11520.png
-
-Convert to Markdown(a) When the original information is not contained elsewhere in your office
+(a) When the original information is not contained elsewhere in your office
 
 (b) Serial one of a file regardless of its nature
 

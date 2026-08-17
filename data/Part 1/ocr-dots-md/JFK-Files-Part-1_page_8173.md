@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8173.png
-
-Convert to Markdown23 May 1961
+23 May 1961
 
 MEMORANDUM FOR: Chief, Central Cover Group
 

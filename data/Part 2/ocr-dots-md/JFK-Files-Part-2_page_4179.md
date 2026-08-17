@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4179.png
-
-Convert to Markdown6.
+6.
 
 Turning to the domestic scene, we will have a deficit of about $12
 of $12½ billion. We have made an effort to hold the deficit down and

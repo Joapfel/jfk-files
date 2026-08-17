@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3438.png
-
-Convert to Markdown26 May 1964
+26 May 1964
 
 ABWORLD MEETING IN WASHINGTON, D.C. 19 May 1964
 

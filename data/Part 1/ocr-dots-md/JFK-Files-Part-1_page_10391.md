@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_10391.png
-
-Convert to MarkdownSECRET
+SECRET
 
 C.A.O.C.

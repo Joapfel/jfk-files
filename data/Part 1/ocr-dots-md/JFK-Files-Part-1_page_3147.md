@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3147.png
-
-Convert to MarkdownBuena Visa
+Buena Visa
 
 Buena Aire, 9 de junio de 1970
 La promoción el periodo de perma-

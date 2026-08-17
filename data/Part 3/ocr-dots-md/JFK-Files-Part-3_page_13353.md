@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13353.png
-
-Convert to MarkdownSTURGIS: Yes, sir, Mr. Olsen, I am willing to take a polygraph on the subject of either conspiracy on my part or the attempt on the
+STURGIS: Yes, sir, Mr. Olsen, I am willing to take a polygraph on the subject of either conspiracy on my part or the attempt on the
 
 attempt to assassination of President Kennedy, Martin Luther King,
 

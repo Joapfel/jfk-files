@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21449.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 O: RITA PERKINS
 I: ER/2/CE

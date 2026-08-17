@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25763.png
-
-Convert to MarkdownCENTRAL INTELLIGENCE AGENCY
+CENTRAL INTELLIGENCE AGENCY
 
 Deputy Director (Plans)
 Cost of Cuban Operations

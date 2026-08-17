@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30466.png
-
-Convert to Markdown1-41
+1-41
 
 Mr. Goldsmith. What were your primary responsibilities when you were down there? You were not involved in the photo-surveillance operation; you were not involved -- excuse me for interrupting you.
 

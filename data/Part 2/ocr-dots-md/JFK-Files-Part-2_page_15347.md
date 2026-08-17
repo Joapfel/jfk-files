@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15347.png
-
-Convert to Markdown# Office Mer.
+# Office Mer.
 
 • UNITED STATES GOVERNMENT
 

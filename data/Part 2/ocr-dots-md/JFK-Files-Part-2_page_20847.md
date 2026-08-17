@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20847.png
-
-Convert to MarkdownPAGE FOUR
+PAGE FOUR
 
 ADMINISTRATIVE
 

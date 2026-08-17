@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13593.png
-
-Convert to Markdown10:50
+10:50
 
 ROGELIO RODRIGUEZ de la Embajada Cubana, informó a FLECTOR ANA YÁE de Prensa Latina, sobre la llegada del Diputado brasileño JOSÉ LIAO, quien va de paso para La Habana.
 

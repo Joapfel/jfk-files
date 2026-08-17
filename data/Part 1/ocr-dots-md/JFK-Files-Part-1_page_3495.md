@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3495.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 CSUB-3/660,494
 

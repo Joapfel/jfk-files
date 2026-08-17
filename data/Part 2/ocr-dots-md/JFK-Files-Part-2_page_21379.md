@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21379.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 - Mr. D. Ryan
 

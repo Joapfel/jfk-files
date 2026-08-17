@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13397.png
-
-Convert to MarkdownThe Department of State
+The Department of State
 has no objection to the
 release or declassification
 of this document from

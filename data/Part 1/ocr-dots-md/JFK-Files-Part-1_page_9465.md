@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9465.png
-
-Convert to MarkdownAdditions:
+Additions:
 
 From England:
 

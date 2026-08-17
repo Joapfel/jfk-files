@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32454.png
-
-Convert to MarkdownSECRET-NO FOREIGN DISSEM
+SECRET-NO FOREIGN DISSEM
 
 Cuban Developments
 

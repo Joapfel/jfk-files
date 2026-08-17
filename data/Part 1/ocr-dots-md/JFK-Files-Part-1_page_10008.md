@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10008.png
-
-Convert to MarkdownMENDEZ, ROLANDO
+MENDEZ, ROLANDO
 
 SEX M DOB 12
 CUBA

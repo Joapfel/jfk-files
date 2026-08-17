@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4269.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO : Office of Finance
 FROM : WH/C/CA

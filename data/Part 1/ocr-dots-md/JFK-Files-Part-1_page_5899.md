@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5899.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. **SILENTS:** He called in the morning to ask for information on this man. According to Reichhardt, LORIE says that he was first from the DIER for anti-communist activities and was expected to arrive in Miami last night. LORIE is worried about his because of his previous post as No. 2 man in the CIA. The Cuban card confirms that he held the latter post.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6166.png
-
-Convert to Markdown# Africa Research Group
+# Africa Research Group
 
 8 Cedar St., Charlestown, MA 02129
 

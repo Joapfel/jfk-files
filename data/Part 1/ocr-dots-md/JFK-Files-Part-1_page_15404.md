@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15404.png
-
-Convert to Markdown Miami, Fla. Oct. 27 1964
+Miami, Fla. Oct. 27 1964
 
 Mr. John F. one
 Director

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_67.png
-
-Convert to MarkdownVIA: AIR
+VIA: AIR
 
 DISPATCH NO. HPSA-1519
 

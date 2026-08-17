@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11700.png
-
-Convert to MarkdownProgram is designed to maintain an up-to-date record of location and activities of individuals included therein, by means of established Security Index procedures and reporting, in order that we are in a position to move swiftly should the apprehension or special handling of these persons become necessary.
+Program is designed to maintain an up-to-date record of location and activities of individuals included therein, by means of established Security Index procedures and reporting, in order that we are in a position to move swiftly should the apprehension or special handling of these persons become necessary.
 
 ## Positive Results Achieved
 

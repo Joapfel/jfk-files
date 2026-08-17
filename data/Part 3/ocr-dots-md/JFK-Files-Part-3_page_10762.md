@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10762.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 
 RE: RACIAL MATTERS
 

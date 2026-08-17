@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13890.png
-
-Convert to MarkdownOctober 2, 1964
+October 2, 1964
 
 | ITEM | TIME | SUBJECT |
 | :--- | :--- | :--- |

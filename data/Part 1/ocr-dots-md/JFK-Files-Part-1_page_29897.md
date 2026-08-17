@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29897.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>1. NAME (CAP - MRS - MR - O) / GIVE FIRST NAME, (OFFICER IF APPLICABLE)</th>

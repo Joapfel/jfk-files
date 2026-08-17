@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32830.png
-
-Convert to Markdown<table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>25 MARCH 1968</td></tr></tbody></table>
+<table><thead><tr><td>DATE</td></tr></thead><tbody><tr><td>25 MARCH 1968</td></tr></tbody></table>
 
 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28420.png
-
-Convert to MarkdownSECRET
+SECRET
 (Non-cancellable)
 
 <table><thead><tr><th colspan="10">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td colspan="10">AES: 17 APRIL 1959</td></tr><tr><td>1. Serial No.</td><td colspan="4">8. Name (Last-First-Middle)</td><td>3. Date Of Birth</td><td colspan="2">4. Vt. Prof.</td><td>5. Sex</td><td colspan="2">6. CS-FOD</td></tr><tr><td>522592</td><td colspan="4">ZAMBERNARDI ROBERT</td><td>Mo.- Do.- Yr.<br/>05/05/35</td><td>None-D<br/>5 Pt-1<br/>10 Pt-2</td><td>Cod<br/><b>1</b></td><td>M</td><td>1</td><td>Mo. 07 Du. 30 Yr. 56</td></tr><tr><td>7. SCD</td><td colspan="3">8. CSC Retmt.</td><td colspan="2">9. CSC Or Other Legal Authority</td><td colspan="2">10. Appt. Affidav</td><td colspan="2">11. FEGLI</td><td colspan="2">12. TCD</td></tr><tr><td>Mo.<br/>08</td><td>Da.<br/>02</td><td>Yr.<br/>54</td><td colspan="2">Yes-1<br/>No - 2</td><td>Code<br/>1</td><td colspan="2">Yes-1<br/>No-2</td><td>Code<br/><b>1</b></td><td>Mo.<br/>07</td><td>Da.<br/>30</td><td>Yr.<br/>56</td><td>Yes-1<br/>No-2</td><td>Code<br/><b>2</b></td></tr></tbody></table>

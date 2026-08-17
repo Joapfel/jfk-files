@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13784.png
-
-Convert to Markdownd. Does the Fourth Amendment permit the issuance of judicial warrants for electronic surveillance on grounds other than ordinary probable cause where national security intelligence purposes are advanced to justify the surveillance?
+d. Does the Fourth Amendment permit the issuance of judicial warrants for electronic surveillance on grounds other than ordinary probable cause where national security intelligence purposes are advanced to justify the surveillance?
 
 e. To what extent are the specific procedures of Title III of the Omnibus Crime Control Act of 1968 inappropriate for electronic surveillance conducted for national security intelligence purposes?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31588.png
-
-Convert to MarkdownSECRET
+SECRET
 Security Information
 
 5. We will maintain close coordination on all matters relating to Radio Liberation broadcasts to the occupation troops and solicit your comments and suggestions on our broadcasts to the US&R proper and on all other matters.

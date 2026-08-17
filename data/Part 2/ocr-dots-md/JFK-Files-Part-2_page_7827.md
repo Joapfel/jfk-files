@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7827.png
-
-Convert to MarkdownS-1-C-N-E-T
+S-1-C-N-E-T
 
 RAY, JAMES
 SEX: M

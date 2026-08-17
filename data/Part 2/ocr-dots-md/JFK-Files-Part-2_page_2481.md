@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2481.png
-
-Convert to MarkdownCOVER and Related Operational lead/US Company Contract
+COVER and Related Operational lead/US Company Contract
 with Sonatrach
 
 COLLECTION DIVISION

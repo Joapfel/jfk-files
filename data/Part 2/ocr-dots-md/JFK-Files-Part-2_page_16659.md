@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16659.png
-
-Convert to MarkdownDEPARTMENT OF PUBLIC SAFETY
+DEPARTMENT OF PUBLIC SAFETY
 
 ROSS V. RANDOLPH
 Director

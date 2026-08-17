@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23735.png
-
-Convert to Markdownof their clandestine skills can well all the available promotions.
+of their clandestine skills can well all the available promotions.
 
 most of them, that they are ahead and I think that is a
 problem. You see it in the armed services all the time,

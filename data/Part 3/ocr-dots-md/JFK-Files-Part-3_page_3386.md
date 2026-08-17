@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3386.png
-
-Convert to MarkdownF. <u>An Inspector General.</u> In addition to the above options, an independent Inspector General should be created to investigate improprieties by the FBI. This option is advanced by those concerned about the inadequacy of the FBI's investigation of the disappearance of former Director Hoover's personal files, its limited inquiry into the so-called Atlantic City convention case, and the absence of any internal investigation of the abuses in the King case.
+F. <u>An Inspector General.</u> In addition to the above options, an independent Inspector General should be created to investigate improprieties by the FBI. This option is advanced by those concerned about the inadequacy of the FBI's investigation of the disappearance of former Director Hoover's personal files, its limited inquiry into the so-called Atlantic City convention case, and the absence of any internal investigation of the abuses in the King case.
 
 In weighing this option, the Committee should consider
 the following issues:

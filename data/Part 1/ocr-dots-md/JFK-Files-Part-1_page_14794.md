@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14794.png
-
-Convert to MarkdownC=0-N=F-I-D=T=N=F-I-A=L
+C=0-N=F-I-D=T=N=F-I-A=L
 When Filled In
 
 (1975)

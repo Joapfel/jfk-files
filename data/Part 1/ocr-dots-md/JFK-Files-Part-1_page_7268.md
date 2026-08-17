@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7268.png
-
-Convert to Markdown1-11712
+1-11712
 201-55412
 
 Carter:

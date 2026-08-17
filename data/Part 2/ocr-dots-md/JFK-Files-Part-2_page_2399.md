@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2399.png
-
-Convert to MarkdownSEC. 6. MARITAL STATUS (Cont'd)
+SEC. 6. MARITAL STATUS (Cont'd)
 
 DATE OF BIRTH April 30,1920 PLACE OF BIRTH Glennpool , Okla. . USA City State Country
 RACIAL ORIGIN THROUGH FATHER German THROUGH MOTHER French and English

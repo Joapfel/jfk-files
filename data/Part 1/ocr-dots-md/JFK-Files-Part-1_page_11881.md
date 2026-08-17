@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11881.png
-
-Convert to Markdown7 February 1966
+7 February 1966
 
 SUBJECT: AMLUNT/2
 201-334081

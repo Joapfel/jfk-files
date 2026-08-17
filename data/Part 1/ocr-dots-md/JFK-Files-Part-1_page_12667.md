@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12667.png
-
-Convert to Markdown<table><thead><tr><td>STAFF</td></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
+<table><thead><tr><td>STAFF</td></tr></thead><tbody><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>3</td></tr><tr><td>3</td><td>6</td></tr></tbody></table>
 
 SECRET 1820302 FEB 76 STAFF
 

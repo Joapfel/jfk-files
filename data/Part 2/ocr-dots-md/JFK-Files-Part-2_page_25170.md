@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25170.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 NSC EXECUTIVE COMMITTEE
 HELMS, Richard

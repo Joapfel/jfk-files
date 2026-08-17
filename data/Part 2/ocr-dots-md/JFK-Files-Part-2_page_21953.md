@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21953.png
-
-Convert to MarkdownThere was considerable communication among the various plotting elements. As Thomas Karamessines testified:
+There was considerable communication among the various plotting elements. As Thomas Karamessines testified:
 
 > I might add here that it seemed that a good dozen or more, maybe 20 Chilean senior officers were privy to what was going on (in addition to President Frei and they were all talking to one another exchanging views and trying to see how best to mount the kind of coup that they wanted to see take place. (Karamessines testimony, p. 10)
 

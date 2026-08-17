@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2385.png
-
-Convert to Markdownthat NOSENKO was not Deputy Chief of the First Section in 1960 has
+that NOSENKO was not Deputy Chief of the First Section in 1960 has
 been noted and commented on in another section of this summary.
 
 GOLITSYN has furnished certain information which he re-

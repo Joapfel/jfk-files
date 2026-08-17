@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6961.png
-
-Convert to MarkdownFederal News Service, JUNE 4, 1997
+Federal News Service, JUNE 4, 1997
 
 A great deal of this was fueled in 1992 by a movie entitled "JFK." That movie contained many distortions of the facts and circumstances surrounding the death of our president. As a result of that movie, my office was deluged with thousands of letters and telegrams by Americans calling for the release of these sealed files.
 

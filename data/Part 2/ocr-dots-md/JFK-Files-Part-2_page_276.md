@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_276.png
-
-Convert to MarkdownSECRET
+SECRET
 
 LICOOKY Project Progress Report
 

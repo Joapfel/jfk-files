@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1400.png
-
-Convert to MarkdownSECRET
+SECRET
 
 (KHN: 12 OCT 73
 

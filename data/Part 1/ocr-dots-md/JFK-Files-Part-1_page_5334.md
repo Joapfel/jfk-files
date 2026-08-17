@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5334.png
-
-Convert to MarkdownNew York, N.Y.
+New York, N.Y.
 
 Mme Clémard Joseph Charles
 Port-au-Prince

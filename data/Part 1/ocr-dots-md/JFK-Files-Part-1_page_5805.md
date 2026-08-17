@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5805.png
-
-Convert to Markdown# McCarthy Suggests Borders Of Nation Be Closed to Coe
+# McCarthy Suggests Borders Of Nation Be Closed to Coe
 
 By G. Milton Kelly
 Associated Press Reporter

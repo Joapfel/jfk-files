@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7240.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # ORIGIN AND DISPOSITION OF THE HUSTON PLAN
 

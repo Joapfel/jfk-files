@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21180.png
-
-Convert to Markdownthat NOSENKO claimed KOSOLAPOV traveled to Helsinki in early
+that NOSENKO claimed KOSOLAPOV traveled to Helsinki in early
 1960 for a double purpose (1) to probe for a new way to get in
 touch with American code clerks and (2) to make contact with
 PAUL JENNER [S] who was to come to Moscow via Helsinki. NOSENKO

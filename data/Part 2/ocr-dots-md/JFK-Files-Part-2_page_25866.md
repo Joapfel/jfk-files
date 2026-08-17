@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25866.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr><td>8-12/1 Meetings with the President-25 Oct 61-31 July 62</td><td>#1</td></tr>
     <tr><td>8-12/1 Meetings with the President 31 July 62-29 Nov 62</td><td>#2</td></tr>

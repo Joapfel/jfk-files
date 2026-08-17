@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5211.png
-
-Convert to Markdown- 13 -
+- 13 -
 
 # PART B: GAMBLING MATTERS
 

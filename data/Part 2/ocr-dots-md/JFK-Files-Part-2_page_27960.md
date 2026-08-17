@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27960.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: Congressman Louis Stokes
 

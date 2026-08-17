@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7709.png
-
-Convert to Markdown14-00000
+14-00000
 
 24. LNPURE memorandum, 28 Feb 1967
 

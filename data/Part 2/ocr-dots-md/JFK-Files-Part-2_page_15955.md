@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15955.png
-
-Convert to MarkdownNo longer can we sit back and accept humiliation and exploitation of these racist money hungry pirates.
+No longer can we sit back and accept humiliation and exploitation of these racist money hungry pirates.
 
 "We must know, understand, deal with the system that has created these horrible conditions for Black People. Capitalism is the mother that nurses this monster into being. Yes! Capitalism created this Fascist Police State along with the dehumanization processes that has murdered millions of Black People and mentally crippled millions of Black People. This system must be destroyed before it destroys all of us. The beast is on her last leg and she is pulling us down into a bottomless cesspool with her. This beast is falling because of the lies she has told and the blood shed all over the world."
 

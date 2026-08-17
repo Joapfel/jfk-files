@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23366.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BIOGRAPHICAL SKETCH - ROSS L. CROZIER
 

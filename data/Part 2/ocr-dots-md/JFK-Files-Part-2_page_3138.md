@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3138.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 senior officer or any position to be filled that they
 would fill it without any hesitation whatsoever." <u>116</u>/<br/>

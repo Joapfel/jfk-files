@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22321.png
-
-Convert to Markdown1. Mr. Liebengood. Do you know who accompanied Meier and F. Donald Nixon on this trip to the Dominican Republic, the celebrated trip?
+1. Mr. Liebengood. Do you know who accompanied Meier and F. Donald Nixon on this trip to the Dominican Republic, the celebrated trip?
 
 2.
 

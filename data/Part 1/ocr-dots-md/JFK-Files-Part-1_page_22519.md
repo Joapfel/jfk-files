@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22519.png
-
-Convert to MarkdownSECRET-eyes only
+SECRET-eyes only
 
 Trujillo had been killed and that it was time for Roman to make his move to take over the government. Roman knew only that there had been a shooting involving Trujillo and that Trujillo was missing. He did not know whether General Diaz' group was involved in it or not. He was reluctant to move until he was sure that Trujillo was dead. By the time Roman concluded that Trujillo must be dead, it was too late for him to act; Hector Trujillo and Johnny Abbes had already taken charge. Roman did make a couple of feeble tries at engineering a take over, but it is apparent that he had no real advance plan nor any appreciable chances of succeeding.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30599.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. D105A do I 432-469
    1/9/61 request for liaison

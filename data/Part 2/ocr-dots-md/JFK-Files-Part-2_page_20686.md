@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20686.png
-
-Convert to MarkdownAPRINTED
+APRINTED
 
 ABORTION PROJECT COALITION
 

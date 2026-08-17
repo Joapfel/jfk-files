@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9449.png
-
-Convert to MarkdownANNE PANNELL
+ANNE PANNELL
 Women and the world.
 
 Walter McCorden

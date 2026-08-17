@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11318.png
-
-Convert to Markdown<table><tr><td>27-116395-62</td></tr></table> NW 88608 DocId:32989628 Page 336
+<table><tr><td>27-116395-62</td></tr></table> NW 88608 DocId:32989628 Page 336
 
 THE OFFICE OF THE PRESIDENT
 UNITED STATES DEPARTMENT OF COMMERCE

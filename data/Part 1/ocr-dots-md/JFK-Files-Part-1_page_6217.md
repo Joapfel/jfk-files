@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6217.png
-
-Convert to Markdown# I) DELEGACION DEL D.R.E.
+# I) DELEGACION DEL D.R.E.
 
 Hasta nuestro viaje a Caracas el delegado era Enrique Baloyr, quien fue sustituido debido a su decision de venir a seguir estudios en Estados Unidos. El nuevo delegado es Lizarro Parlas, quien es miembro del DRE. Desde 1960 en Cuba dentro de la Pre-Universitaria y luego en accion y Sabanaje. En el exilio participo dentro de la seccion militar y mds tarde en Santo Domingo como delegado ocupado en resolver los asuntos pendientes después de la paralizacion del plan militar. Lleva alrededor de un mes en Venezuela.
 

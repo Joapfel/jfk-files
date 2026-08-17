@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27900.png
-
-Convert to Markdown<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Kenneth S. McHargh<br/>12/31/78</td><td></td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>301-46-2531</td><td>☐ Appointment</td></tr><tr><td rowspan="2">Employing Office or Committee/Subcommittee</td><td>☐ Salary Adjustment</td></tr><tr><td>☐ Title Change</td></tr><tr><td rowspan="2">Assassinations</td><td>☒ Termination (At close of business on effective date)</td></tr><tr><td>☐ Leave without pay (Beginning with effective date above and ending close of business)</td></tr></tbody></table>
+<table><thead><tr><th>Employee Name (First-Middle-Last)</th><th>Effective Date</th></tr></thead><tbody><tr><td>Kenneth S. McHargh<br/>12/31/78</td><td></td></tr><tr><th>Employee Social Security Number</th><th>Type of Action</th></tr><tr><td>301-46-2531</td><td>☐ Appointment</td></tr><tr><td rowspan="2">Employing Office or Committee/Subcommittee</td><td>☐ Salary Adjustment</td></tr><tr><td>☐ Title Change</td></tr><tr><td rowspan="2">Assassinations</td><td>☒ Termination (At close of business on effective date)</td></tr><tr><td>☐ Leave without pay (Beginning with effective date above and ending close of business)</td></tr></tbody></table>
 
 (If type of action is an Appointment, Salary Adjustment, or Title Change, complete appropriate information below.)
 

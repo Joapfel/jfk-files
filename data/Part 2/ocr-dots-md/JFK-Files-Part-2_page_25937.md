@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25937.png
-
-Convert to Markdown530 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
+530 ORGANIZED CRIME AND ILLICIT TRAFFIC IN NARCOTICS
 
 It has also been obvious to us that the Trafficante organization has controlled the Blackburn operation for at least the last 10 years. From our examination of seized records, and from the fact that in all raids on the checkup houses we have arrested persons having close family ties with the Trafficante organization who were acting as auditors for his interests. In addition, there has been heavy tele- phone toll traffic between the Trafficantes in Tampa and the Blackburn group in Orlando.
 

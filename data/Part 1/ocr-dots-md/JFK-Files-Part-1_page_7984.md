@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7984.png
-
-Convert to MarkdownTO: The Secretary of State
+TO: The Secretary of State
 Attention: Mr. E. Toalin Bailey
 Director, Office of Security
 

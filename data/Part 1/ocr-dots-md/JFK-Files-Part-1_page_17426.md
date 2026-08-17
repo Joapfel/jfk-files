@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17426.png
-
-Convert to Markdown13JUN
+13JUN
 
 TO:
 

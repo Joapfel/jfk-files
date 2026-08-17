@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21083.png
-
-Convert to Markdownhad a discussion with Mr. Belmont. Essentially, McCone is most interested in technical coverage of individuals and installations of non-Soviet countries. He has left the impression that in his opinion such coverage could be expanded in the U.S. and thereby produce more intelligence and more sources. Our coverage in this field at the present time is quite extensive. With regard to CIA, we have the understanding that if the agency desires particular technical coverage, we will give each request the necessary consideration.
+had a discussion with Mr. Belmont. Essentially, McCone is most interested in technical coverage of individuals and installations of non-Soviet countries. He has left the impression that in his opinion such coverage could be expanded in the U.S. and thereby produce more intelligence and more sources. Our coverage in this field at the present time is quite extensive. With regard to CIA, we have the understanding that if the agency desires particular technical coverage, we will give each request the necessary consideration.
 
 FRENCH ACTIVITIES [CS] 
 

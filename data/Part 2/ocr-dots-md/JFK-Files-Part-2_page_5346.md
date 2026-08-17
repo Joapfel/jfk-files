@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5346.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 26 November 1997
 

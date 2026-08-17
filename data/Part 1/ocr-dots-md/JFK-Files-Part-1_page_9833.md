@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9833.png
-
-Convert to Markdown10 February, 1968
+10 February, 1968
 
 Subject: Briefing in Communications and Security of LIRING/4.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17123.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. I recommend approval of the project and the transfer of the contract agents as outlined above. The Division is requested to take cognizance of the suggestions of the CI Staff and FI/OPS in the paragraphs above relative to the security and the overall direction of the surveillance activities to make them more efficient.
 

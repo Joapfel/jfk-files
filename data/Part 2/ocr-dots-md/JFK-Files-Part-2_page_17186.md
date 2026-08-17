@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17186.png
-
-Convert to MarkdownStep 9. Proceeding with all deliberate speed, leave the area at once.
+Step 9. Proceeding with all deliberate speed, leave the area at once.
 
 GRENADES AND BOMES, ANTI-PROPERTY AND ANTI-PERSONNEL
 

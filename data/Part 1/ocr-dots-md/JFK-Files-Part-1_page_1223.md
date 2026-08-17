@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1223.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>CRIG : W. DELIVERY/ALM</td></tr><tr><td>INIT : SAS/106</td></tr><tr><td>Y: 7646</td></tr><tr><td>ATE : 30 SEPT 63</td></tr></table>
 

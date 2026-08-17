@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27980.png
-
-Convert to MarkdownRESUME
+RESUME
 
 Rita LaVerne Morton
 5056 Silver Hill Court

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5560.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 **NOTE FOR:** J. Barry Harrelson
 **FROM:** Fredrick C. Wickham @ DO

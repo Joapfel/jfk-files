@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17071.png
-
-Convert to Markdown23. Everyone in leadership positions must read no less than two hours per day to keep abreast of the changing political situation.
+23. Everyone in leadership positions must read no less than two hours per day to keep abreast of the changing political situation.
 
 24. No chapter or branch shall accept grants, poverty funds, money, or any other aid from any government agency without contacting the National Headquarters.
 

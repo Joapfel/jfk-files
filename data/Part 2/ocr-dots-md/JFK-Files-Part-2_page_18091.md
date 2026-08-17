@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18091.png
-
-Convert to MarkdownHonorable Dean Rusk
+Honorable Dean Rusk
 
 NOTE:
 

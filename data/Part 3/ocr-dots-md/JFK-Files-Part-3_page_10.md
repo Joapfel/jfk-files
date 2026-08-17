@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10.png
-
-Convert to Markdownreacted immediately to the "quotable Khrushchev" item and said he would get right to the President with this. A few days later he instructed OCI to keep the White House "up to the minute" on Cyprus developments.
+reacted immediately to the "quotable Khrushchev" item and said he would get right to the President with this. A few days later he instructed OCI to keep the White House "up to the minute" on Cyprus developments.
 
 "Hours will make the difference," he said.
 

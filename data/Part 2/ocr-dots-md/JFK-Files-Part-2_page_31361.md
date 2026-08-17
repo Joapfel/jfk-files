@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31361.png
-
-Convert to Markdown07JRC-1
+07JRC-1
 
 DISTRIBUTION:
 

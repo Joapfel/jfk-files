@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7630.png
-
-Convert to MarkdownCOPIES MADE
+COPIES MADE
 
 11. Contact Arrangements. Subject-agreed to call me to set up a luncheon date after her next date with LOGINOV. We will meet at the entrance to the Pergola at the time and date specified. I gave her one 870 extension and asked that she use the name "Mary" when calling.
 

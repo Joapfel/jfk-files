@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14373.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>MARKED FOR INDEXING</td></tr><tr><td>NOT NECESSARY</td></tr><tr><td>ONLY QUALIFIED DESK CAN BE READ</td></tr><tr><td>MICROFILM</td></tr></tbody></table>
 

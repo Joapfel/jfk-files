@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10817.png
-
-Convert to MarkdownAt approximately 4:35 a.m., August 22, 1971, the Selective Service office in the surrounding area located on the 6th floor, U. S. Post Office, 101 Market Street, Camden, New Jersey, was entered by Special Units of the Federal Air Force of Investigation. S.S. McMillan, S. DeSmedt and Thomas R. Sturtevant entered the immediate area and parapet surrounding the Selective Service Office by way of the building fire escape. S.M. Roark, H. Waller and Joe R. Glingerich entered the Selective Service Office through the front door, which entered onto the 5th floor corridor.
+At approximately 4:35 a.m., August 22, 1971, the Selective Service office in the surrounding area located on the 6th floor, U. S. Post Office, 101 Market Street, Camden, New Jersey, was entered by Special Units of the Federal Air Force of Investigation. S.S. McMillan, S. DeSmedt and Thomas R. Sturtevant entered the immediate area and parapet surrounding the Selective Service Office by way of the building fire escape. S.M. Roark, H. Waller and Joe R. Glingerich entered the Selective Service Office through the front door, which entered onto the 5th floor corridor.
 
 Upon entrance into this space, SAS Dremaud and Tierney, Waller and Glingerich announced the FBI's presence and instructed everyone to remain as they were until told to do otherwise.
 

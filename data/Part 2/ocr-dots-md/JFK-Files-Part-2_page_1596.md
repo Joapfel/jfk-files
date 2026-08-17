@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1596.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a. Medical Benefits. Subject will receive such dental and medical benefits as may be necessary to maintain his physical status for his eventual use on his assigned mission. Costs to be borne by SR/DOB Station Funds.
 

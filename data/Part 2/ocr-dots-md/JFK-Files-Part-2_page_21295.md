@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21295.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WFO 65-8517
 MAT:jet

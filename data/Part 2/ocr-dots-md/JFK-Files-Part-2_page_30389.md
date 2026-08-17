@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30389.png
-
-Convert to MarkdownMr. Tovar. Berween the Soviet-East European Division and CI Staff we should be aware of it. The two were most primarily concerned with the USSR. I think one or the other of us would inform the Bureau. This is not our primary concern: The Americans, even when they have been naughty boys, having gone to USSR and decided to return, we still don't have necessarily a professional interest in that type of person.
+Mr. Tovar. Berween the Soviet-East European Division and CI Staff we should be aware of it. The two were most primarily concerned with the USSR. I think one or the other of us would inform the Bureau. This is not our primary concern: The Americans, even when they have been naughty boys, having gone to USSR and decided to return, we still don't have necessarily a professional interest in that type of person.
 
 Mr. Goldsmith. What is the responsibility of the CI Staff within the CIA?
 

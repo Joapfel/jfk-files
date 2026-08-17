@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24959.png
-
-Convert to Markdown14-00000
+14-00000
 
 ## Government officials would say that Mr. Itkin, despite his investigators, is free-spending ways over the Mr. Itkin has been under paid and several years, did not, as expected, actually pay the total contract price, and for as is known, absent a lot that he was accused of by have 1 per cent (one per cent) of money from his business. Fall in Dec., Mr. Itkin, Mr. Marcus, and Coralia.
 

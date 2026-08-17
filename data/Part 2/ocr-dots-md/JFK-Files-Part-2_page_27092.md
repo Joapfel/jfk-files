@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27092.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 O. Notification of the President
 

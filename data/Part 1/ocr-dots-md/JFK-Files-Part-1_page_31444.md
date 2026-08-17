@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31444.png
-
-Convert to Markdowna. They are useful insofar as they contain ideas that have not occurred to TONIC's own people or in reference to events that are not a matter of public knowledge.
+a. They are useful insofar as they contain ideas that have not occurred to TONIC's own people or in reference to events that are not a matter of public knowledge.
 
 b. In most cases the guidance papers arrive so late that TONIC is already engaged in treating the next stage in the development of the propaganda theme suggested.
 

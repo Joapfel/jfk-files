@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4537.png
-
-Convert to MarkdownRE: GUS ALEX
+RE: GUS ALEX
 ANTI-RACKETEERING
 
 It has been reported by the Swiss Central Police Bureau that Alex's employer, De Luxe Cigarette Service, Incorporated, certified that he has worked in their publicity department since 1957 and has never given any reason for complaints.

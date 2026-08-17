@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23449.png
-
-Convert to Markdown# Supply Drops - Cuba
+# Supply Drops - Cuba
 
 Gen. Cabell explained that the Pinar de Rio supply mission had not taken place because of the absence of specified communication from the DZ, and the Escambray operation had been canceled because of weather. He said that these missions are still planned, and assumed that the Group had no objections. The members so signified.
 

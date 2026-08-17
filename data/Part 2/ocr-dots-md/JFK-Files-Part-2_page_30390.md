@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30390.png
-
-Convert to Markdowna lot of activities which impact on operations but we are not in the true sense of the term an operating element.
+a lot of activities which impact on operations but we are not in the true sense of the term an operating element.
 
 So, having said that, the primary field of activity for the CI Staff is research and analysis, and then the other, what we refer to as operations coordination. Now, that is sort of the term which does not -- research and analysis is clear. We examine and analyze cases, essentially cases. We are not scrutinizing people. We are looking at intelligence operations, old and current, primarily things that are not terribly current. We don't tend to follow current operations in the analytic sense. We take old cases and look them over to see if mistakes were made, to see if we can derive lessons from mistakes made in the past. We publish papers for the Agency's community at large, all in the R&A field.
 

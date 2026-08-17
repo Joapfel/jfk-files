@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10555.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SENATOR CHARLES MC CURDY MATHIAS
 

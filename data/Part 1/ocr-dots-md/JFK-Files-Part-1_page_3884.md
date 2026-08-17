@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3884.png
-
-Convert to MarkdownJohnson of Costa Rica and he (Ouber) was the Kennedy.
+Johnson of Costa Rica and he (Ouber) was the Kennedy.
 I'm lucky that they are stupid and that they are not aware
 of the fact that an attack is being created and they are
 not prepared for that emergency. I am prepared." Ouber

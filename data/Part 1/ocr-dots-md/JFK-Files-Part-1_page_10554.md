@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10554.png
-
-Convert to Markdown14 November 1967
+14 November 1967
 
 EXCERPTS FROM: Memorandum for the Record
 

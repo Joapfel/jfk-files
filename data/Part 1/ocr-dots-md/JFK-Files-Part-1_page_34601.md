@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34601.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Because of mounting pressure from the press, which included much speculation that Nosenko was a high level scientist or disarmament expert, it was decided that the State Department would make a brief announcement acknowledging Nosenko's request for asylum in the U.S. and identifying him as a member of the KGB. This was done on 10 February. On 11 February, the Soviet Government delivered a note to the American Embassy in Moscow asking how Nosenko left Switzerland and requesting an immediate interview with him and his release.
 

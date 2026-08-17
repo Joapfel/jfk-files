@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9989.png
-
-Convert to Markdown14-00000
+14-00000
 
 **Cap:** Sure, what is it you wish to talk to me about?
 

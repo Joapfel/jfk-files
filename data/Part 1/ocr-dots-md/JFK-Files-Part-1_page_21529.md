@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_21529.png
-
 SAVITSKI sent me to the Deputy of the Chief of the Second Directory
 SHUBNIAKOV, who told me that there was signed an order and I was
 accepted in the 1 department of 2 chief directory as a case officer.

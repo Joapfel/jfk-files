@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9126.png
-
-Convert to MarkdownCorporación de Comercio Extranjero
+Corporación de Comercio Extranjero
 C. F. M. Co.
 
 a) Cortlydes Vinillos, S.A.

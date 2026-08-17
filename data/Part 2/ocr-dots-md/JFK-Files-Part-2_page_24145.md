@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24145.png
-
-Convert to Markdown58. WUBACH
+58. WUBACH
 
 A newly established New York corporation with offices in mid-town Manhattan which is styled as a management consulting firm; was created to replace WUBODKIN and WUCURULE (above); used by New York Base personnel for employment attribution and office space.
 

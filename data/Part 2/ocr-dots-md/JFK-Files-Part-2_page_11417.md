@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11417.png
-
-Convert to MarkdownXIII. Violation of penal laws arising out of activities as a subversive
+XIII. Violation of penal laws arising out of activities as a subversive
 
 XIV. Active service in armed forces supported by a subversive movement, such as service in the Loyalist Forces during the Spanish Civil War which were supported by communism
 

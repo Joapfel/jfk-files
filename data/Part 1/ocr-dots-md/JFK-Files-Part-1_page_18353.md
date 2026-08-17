@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18353.png
-
-Convert to MarkdownREPORT OF
+REPORT OF
 EFFICIENCY·RATING
 
 U.S. CIVIL SERVICE COMMISSION

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32864.png
-
-Convert to Markdown**Miguel -** El problema es que en las escuelas, con mi forma de pensar tan poco no dirá muchos resultados. No se la valiente para eso.
+**Miguel -** El problema es que en las escuelas, con mi forma de pensar tan poco no dirá muchos resultados. No se la valiente para eso.
 
 **Guillermo -** (Talks about how successful they've been, very difficult to understand what it is).... que tu estes con un科学de Inteligencia de un piso que esta tratando de .....
 

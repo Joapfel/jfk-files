@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19374.png
-
-Convert to MarkdownFORM NO. 35 2
+FORM NO. 35 2
 OCT 1648
 
 OUTGOING CLASSIFIED MESSAGE

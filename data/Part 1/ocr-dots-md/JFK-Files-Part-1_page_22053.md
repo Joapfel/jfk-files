@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22053.png
-
-Convert to Markdownfrom the United Arab Republic and had returned alone a few days later, when she was picked up by ZUJUS. Since ZUJUS was a cryptographer, the manager of America House decided to interview the woman. She told him that she was from Vienna and was travelling with her employer, a Czech. The manager then reported to the Security Officer, who learned from the Austrian Embassy that no passport had been issued to this woman. The Security Officer went to America House, and asked Lillian for her passport; she replied that she had forgotten it, and she then left saying she was going to her hotel for the passport. She never returned to America House.*
+from the United Arab Republic and had returned alone a few days later, when she was picked up by ZUJUS. Since ZUJUS was a cryptographer, the manager of America House decided to interview the woman. She told him that she was from Vienna and was travelling with her employer, a Czech. The manager then reported to the Security Officer, who learned from the Austrian Embassy that no passport had been issued to this woman. The Security Officer went to America House, and asked Lillian for her passport; she replied that she had forgotten it, and she then left saying she was going to her hotel for the passport. She never returned to America House.*
 
 The U.S. Army report of its debriefing of ZUJUS states
 

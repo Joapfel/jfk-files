@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12385.png
-
-Convert to MarkdownCSC1-316/00339-73
+CSC1-316/00339-73
 
 b. Chief of the General Information Division, which has been assigned to Lie. Joaquín Chaffardet.
 

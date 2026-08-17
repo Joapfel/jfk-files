@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25505.png
-
-Convert to MarkdownML: clothes were all laundered anyway from the ship and (contd.): I hadn't even unpacked because I was worried about missing two days at school.
+ML: clothes were all laundered anyway from the ship and (contd.): I hadn't even unpacked because I was worried about missing two days at school.
 
 FS: Yeah.
 

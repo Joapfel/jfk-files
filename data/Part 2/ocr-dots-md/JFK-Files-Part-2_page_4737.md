@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4737.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: No. No. The one next to the -- it's on the corner. Big building, before they built the Hart Building. Well, I forget. It was the guy who came up with that -- from Indiana, I think it was, or Illinois -- but anyway, they had taken over the auditorium in that building and they were a so-called secure area. They had safes and what have you all over the place and they had taken the seats out and what have you. And I was in there, I went in there, talking to Schwarz and some of his cohorts, then suddenly out of the clear blue sky he says, "Well, let's walk over to the Capitol Building. The Committee is going to go into session and they want to talk to you." And I said, "You mean just like that?" He said, "Yeah, you got nothing to hide, have you?" And I said, "No, I got nothing to hide." He said, "Yeah, I was thinking you might as well go and talk to them directly." So after spending a couple of hours with Schwarz and company, I was ushered across the street and we walked all the way over to the Capitol Building and went up to the fourth floor or whatever it was and testified that night. I was told to stand up, and sworn in, and we went to town.
 

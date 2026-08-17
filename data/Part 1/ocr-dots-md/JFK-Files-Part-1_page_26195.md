@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26195.png
-
-Convert to MarkdownCONF
+CONF
 
 CS 311/03173-65 15 Mar 65 "reporting so far accurate"
 "Rico went to Merida during the first few days of February to make a personal investigation of the situation caused by the decrease in the price of henequen..." Rico wrote "Yucatan: Our leader is Hunger" in Issue #10, 3 Mar 65, or *Siempre*.

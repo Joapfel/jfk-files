@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4923.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. SOURCE OF PARAGRAPH 6-71 AN OFFICIAL CHILEAN SERVICE;
 

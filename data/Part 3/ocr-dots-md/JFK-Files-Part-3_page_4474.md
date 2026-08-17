@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4474.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 At Philadelphia, Pa.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8678.png
-
-Convert to MarkdownATTACHMENT A
+ATTACHMENT A
 
 CHRONOLOGY of FINDINGS (125 Pages)
 

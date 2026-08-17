@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21521.png
-
-Convert to MarkdownSEC...
+SEC...
 
 time are contained in a separate section of this summary, but it is
 considered that the recent interviews of NOSENKO satisfactorily sub-

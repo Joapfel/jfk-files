@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24320.png
-
-Convert to MarkdownI certify that to the best of my knowledge and belief funds advanced to this project have been or are being used for the purposes for which they were drawn and further advances are warranted.
+I certify that to the best of my knowledge and belief funds advanced to this project have been or are being used for the purposes for which they were drawn and further advances are warranted.
 
 In these instances appropriate evidence of receipt of funds by the instrumentality or its representatives normally will constitute full accounting for use of the funds and no memorandum accounting procedure need be used.
 

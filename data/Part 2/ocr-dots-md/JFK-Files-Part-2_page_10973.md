@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10973.png
-
-Convert to MarkdownDecember 27, 1955
+December 27, 1955
 
 MANUAL OF RULES AND REGULATIONS
 REVISION 160

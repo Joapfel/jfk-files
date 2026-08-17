@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17228.png
-
-Convert to MarkdownHAROLD KEITH BELL
+HAROLD KEITH BELL
 
 The April 28, 1969, edition of the "Rockford Morning Star," a Rockford, Illinois, daily newspaper, contained an article by reporter Jerry Idaszak concerning the Black Panther Party (BPP) in Rockford, Illinois. In the article Charles Lincoln Powell, Minister of Information of the BPP identified Harold Bell as the Captain of Defense of the Rockford Branch of the BPP.
 

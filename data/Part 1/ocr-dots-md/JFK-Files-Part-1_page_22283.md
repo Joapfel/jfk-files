@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22283.png
-
-Convert to Markdown690.
+690.
 
 - NOSENKO identified George VAN LAETHEM as an Assistant Air Attache in 1953 or 1954; he was a target of another U.S. Embassy Section officer, and an unsuccessful KGB development operation was carried out against him. NOSENKO did not know that VAN LAETHEM was actually an Assistant Army Attache, who left Moscow in March 1953 and was succeeded by NOSENKO's own target Walter MULE (see above). What NOSENKO additionally did not know is that in Moscow VAN LAETHEM was the Attache cryptographic security officer, the superior of Dayle SMITH (the subject of NOSENKO'S "ANDREY" lead--see below) and a friend of the motor pool sergeant Roy RHODES, a KGB agent. NOSENKO furthermore did not know that on 19 March 1955, again as an Army Attache, and only two years after being transferred from Moscow, VAN LAETHEM was again sent to Moscow, ostensibly on a PCS assignment but actually on temporary duty. During this latter assignment, when NOSENKO by his own account should have been responsible for him, VAN LAETHEM was in Moscow to review the entire electronics program at the Embassy. (VAN LAETHEM'S second tour in Moscow involved the planned use of the electronic equipment which was seized in Stalingrad while VAN LAETHEM was still in Moscow.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29182.png
-
-Convert to MarkdownMICHIGAN DECLARATION OF ESTIMATED INCOME TAX FOR INDIVIDUALS-1974
+MICHIGAN DECLARATION OF ESTIMATED INCOME TAX FOR INDIVIDUALS-1974
 
 For calendar year 1974 or fiscal year ending __________, 19______ STATE OF MICHIGAN
 Department of Treasury

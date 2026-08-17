@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3343.png
-
-Convert to Markdownorder to agree on ... the measures which should be taken for the common defense and for the maintenance of the peace and security of the Continent."
+order to agree on ... the measures which should be taken for the common defense and for the maintenance of the peace and security of the Continent."
 
 The Declaration adopted by the Tenth Inter-American Conference at Caracas, Venezuela, March 1954, states:
 

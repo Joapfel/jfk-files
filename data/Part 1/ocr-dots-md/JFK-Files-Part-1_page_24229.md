@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24229.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 3. BA Emory College 1950; Foreign graduate study 1951-52.
 

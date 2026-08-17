@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1461.png
-
-Convert to MarkdownRE: JAMES EARL RAY;
+RE: JAMES EARL RAY;
 Dr. MARTIN LUTHER KING, JR. - VICTIM
 
 The Committee indicated that they might desire

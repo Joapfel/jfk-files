@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12718.png
-
-Convert to Markdown(e) Names shall be included in security index only when investigation has established and reports show sufficient facts and evidence to justify inclusion of each subject in security index.
+(e) Names shall be included in security index only when investigation has established and reports show sufficient facts and evidence to justify inclusion of each subject in security index.
 
 (f) Contents of security index must be accurate and correct at all times. Matters pertaining to its preparation and maintenance must be given preferred, expeditious, continuous, and detailed attention.
 

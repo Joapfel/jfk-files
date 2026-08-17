@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11378.png
-
-Convert to MarkdownCONCURRENCES:
+CONCURRENCES:
 
 Counter Intelligence Staff
 

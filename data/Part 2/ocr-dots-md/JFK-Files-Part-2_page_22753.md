@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22753.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 By the same token, it induced people to bring their cases to us for analysis. They came to see us many times to see the defectors, the stable of defectors that we had for interrogation.
 

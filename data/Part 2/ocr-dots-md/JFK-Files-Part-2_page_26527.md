@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26527.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # MAJOR POINTS OF INTEREST TO THE UNITED STATES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11503.png
-
-Convert to Markdownfacilities list, including in all cases the agency having
+facilities list, including in all cases the agency having
 security responsibility. Copies of reports for the Marine
 Corps should be disseminated locally to ONI.
 

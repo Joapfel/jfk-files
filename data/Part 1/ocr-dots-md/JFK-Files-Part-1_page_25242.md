@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25242.png
-
-Convert to MarkdownNEW YORK TIMES
+NEW YORK TIMES
 SUNDAY, MAY 5, 1963
 
 # NEWS OF THE WEEK

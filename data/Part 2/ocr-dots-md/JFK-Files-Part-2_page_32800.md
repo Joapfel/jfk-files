@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32800.png
-
-Convert to Markdown31 December 1963
+31 December 1963
 
 CIA HAS NO OBECTION TO
 DECLASSIFICATION AND/OR

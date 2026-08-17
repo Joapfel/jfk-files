@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9004.png
-
-Convert to MarkdownEn la Ciudad de México, Distrito Federal, siendo las 18 diecinueles horas del día 23, veintitres de Noviembre de 1963 mil novecientos sesenta y tres, el suscripto Capitán FELIPE NANDO GUTIERREZ BARRIOS, Subdirector Federal de Seguridad, que actúa legalmente con testigos de asistencia, HACE CONSTAR:
+En la Ciudad de México, Distrito Federal, siendo las 18 diecinueles horas del día 23, veintitres de Noviembre de 1963 mil novecientos sesenta y tres, el suscripto Capitán FELIPE NANDO GUTIERREZ BARRIOS, Subdirector Federal de Seguridad, que actúa legalmente con testigos de asistencia, HACE CONSTAR:
 
 Que habiendo sido presentada en esta Oficina la señora SILVIA TIRADO DE DURAN, edna al objeto de ser interrogada sobre los hechos que a continuación se expresan, se procedió a devanar la presentada auta así como --:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20336.png
-
-Convert to MarkdownSEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
+SEC. 4. CHILDREN OR DEPENDENTS (Include partial dependents):
 
 1 NAME Lus Maria Hidalgo RELATIONSHIP Daughter AGE 12
 CITIZENSHIP U.S. ADDRESS Same as applicant.

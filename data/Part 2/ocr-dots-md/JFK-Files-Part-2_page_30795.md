@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30795.png
-
-Convert to Markdown11110787
+11110787
 
 3/20/64
 

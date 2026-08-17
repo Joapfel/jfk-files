@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24932.png
-
-Convert to MarkdownApproved by
+Approved by
 Drafting
 Subcommittee
 

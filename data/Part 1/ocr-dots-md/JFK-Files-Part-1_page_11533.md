@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11533.png
-
-Convert to Markdown14-06/600
+14-06/600
 
 NOT SUITABLE FOR MICROFILM
 

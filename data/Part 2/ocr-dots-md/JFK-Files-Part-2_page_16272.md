@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16272.png
-
-Convert to Markdown**WALTER ALLEN**
+**WALTER ALLEN**
 
 CONFIDENTIAL
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6811.png
-
-Convert to MarkdownHalperin Denies Giving
+Halperin Denies Giving
 Reds Advice on Latins
 
 MOSCOW, Sept. 5 (AP) — Maurice H. Halperin, former United States Government official who now lives in Moscow, yesterday accused the State Department of issuing a "deliberate and malicious distortion" about his status here.

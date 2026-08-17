@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6598.png
-
-Convert to MarkdownLA 157-2325
+LA 157-2325
 
 Source advised the DAVIS resides at 1107 1/2 West 87th Street, Los Angeles, California with DEACON ALEXANDER (STANLEY SAMUEL ALEXANDER), Negro youth organizer for the Southern California District Communist Party (SCDCP). Source stated that DAVIS is not employed at the present time but that she is traveling periodically between Los Angeles and San Diego.
 

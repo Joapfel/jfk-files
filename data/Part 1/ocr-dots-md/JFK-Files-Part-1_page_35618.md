@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35618.png
-
-Convert to Markdown101 Madeira Avenue
+101 Madeira Avenue
 Coral Gables, Fla.
 
 INVOICE 64-6-2

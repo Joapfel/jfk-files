@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32066.png
-
-Convert to Markdown# ADMINISTRATIVE Internal Use Only
+# ADMINISTRATIVE Internal Use Only
 
 ## REPORT OF SERVICE ABROAD
 

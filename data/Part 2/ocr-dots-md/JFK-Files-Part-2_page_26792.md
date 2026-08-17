@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26792.png
-
-Convert to MarkdownSECRET
+SECRET
 
 when we refer to extra-legal activities?
 

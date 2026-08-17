@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30996.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5/24/78
 

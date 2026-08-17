@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6881.png
-
-Convert to MarkdownThe fact that agency classification policies often cannot withstand scrutiny even within the executive branch points to the root of the problem. The problem is not that classifiers are dishonest or acting in bad faith; in general, they are doing a thankless job the best they can.
+The fact that agency classification policies often cannot withstand scrutiny even within the executive branch points to the root of the problem. The problem is not that classifiers are dishonest or acting in bad faith; in general, they are doing a thankless job the best they can.
 
 The problem rather is the natural and often unconscious tendency of all bureaucracies to limit the flow of information to outsiders. As Sen. Moynihan observed, "The problem is that organizations within a culture of secrecy will opt for classifying as much as possible, and for as long as possible."³ If they go unchecked, agencies will hoard information beyond all reason, which is how we got to where we are today.
 

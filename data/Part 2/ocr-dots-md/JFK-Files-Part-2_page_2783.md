@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2783.png
-
-Convert to Markdownpolicy, CCS will not okay engaging in recruitment activities
+policy, CCS will not okay engaging in recruitment activities
 people who are under cover of legitimate firms (such as my
 cover firm, WWIS). The risk, he said, is too great, adding
 that where recruitment responsibilities are envisaged, a

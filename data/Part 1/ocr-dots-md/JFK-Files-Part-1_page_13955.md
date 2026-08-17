@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13955.png
-
-Convert to MarkdownCuban Mission to the United Nations
+Cuban Mission to the United Nations
 6 East 67th Street
 New York, New York
 

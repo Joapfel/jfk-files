@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27970.png
-
-Convert to MarkdownApril 27, 1977
+April 27, 1977
 
 Mrs. Rita L. Morton
 Select Committee on Assassinations

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32306.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 EYES ONLY
 

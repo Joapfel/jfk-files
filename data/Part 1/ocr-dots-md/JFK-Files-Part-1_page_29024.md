@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29024.png
-
-Convert to Markdown1 SEP 1966
+1 SEP 1966
 
 MEMORANDUM FOR: CSPS/β
 SUBJECT : Recommendation for Promotion of Charlotte Bustos-Videla

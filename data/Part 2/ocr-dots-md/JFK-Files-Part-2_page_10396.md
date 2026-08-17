@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10396.png
-
-Convert to Markdown07 MAY 1973
+07 MAY 1973
 
 MEMORANDUM FOR: Director of Central Intelligence
 VIA : Deputy Director for Management and Services

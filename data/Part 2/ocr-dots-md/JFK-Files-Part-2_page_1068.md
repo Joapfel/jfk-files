@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1068.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <!-- Requesting Office Information -->
         <tr>

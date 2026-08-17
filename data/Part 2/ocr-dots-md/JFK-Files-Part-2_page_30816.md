@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30816.png
-
-Convert to MarkdownSECRET
+SECRET
 
 11110783
 8 APRIL 1964

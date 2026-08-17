@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1184.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 4. As an additional security precaution to provide a safe haven, and after consultation with the Acting Chief of Station, a key to an apartment in the same building leased by Mrs. Marjorie Lennox, an Embassy secretary, was obtained. Mrs. Lennox was told that access to her apartment was needed for photographic surveillance purposes.
 

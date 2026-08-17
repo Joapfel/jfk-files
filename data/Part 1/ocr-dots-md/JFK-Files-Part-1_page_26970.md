@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26970.png
-
-Convert to Markdown# The Atlanta Journal
+# The Atlanta Journal
 Covers Dixie Like the Dew
 Since 1883
 

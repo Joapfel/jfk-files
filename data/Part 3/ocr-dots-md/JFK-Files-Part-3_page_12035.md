@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12035.png
-
-Convert to Markdown# THE KEY BLACK EXTREMIST PROGRAM
+# THE KEY BLACK EXTREMIST PROGRAM
 
 On December 23, 1970, the Key Black Extremist Program was initiated, with the Director's approval, to intensify our coverage of certain black extremists who are extremely active and most vocal in their calls for terrorism and violence. As the program started about 90% were included. With Bureau approval others may be added by the field. This program is to provide intensified coverage of the day-to-day activities and future plans of these people and to assure that all possible violations of law on their parts are vigorously investigated when they are within our jurisdiction and are referred promptly to the appropriate agency when they are not.
 

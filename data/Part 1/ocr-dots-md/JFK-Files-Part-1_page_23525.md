@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23525.png
-
-Convert to Markdown<table><tr><td>SECURITY INFORMATION</td></tr><tr><td>CLASSIFICATION</td></tr></table>
+<table><tr><td>SECURITY INFORMATION</td></tr><tr><td>CLASSIFICATION</td></tr></table>
 
 VIA: Air Pouch
 (SPECIFY AIR OR SEA POUCH)

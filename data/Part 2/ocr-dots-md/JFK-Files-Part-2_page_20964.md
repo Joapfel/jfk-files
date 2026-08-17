@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20964.png
-
-Convert to Markdown57DEC291972
+57DEC291972
 
 <table>
     <tr>

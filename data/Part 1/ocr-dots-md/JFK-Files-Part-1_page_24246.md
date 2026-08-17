@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24246.png
-
-Convert to Markdown# -4-
+# -4-
 
 All functions. These are a typical New Yorker's habits. The instructor, also a New Yorker, is guilty of the identical actions. We are highly kinetic in our movements and as for looking both ways while crossing a cross-way street, we follow the old Marine Corps adage: "There's always one B.O.B. this doesn't cut the ward". By whosebst coincidence, when the instructor was on his way to the airport site to deliver the surveillance team's report, he violated his own rule of looking both ways in crossing a cross-way street and was tazed over by a hippie on a loaded bike -- going the wrong way. Only the large heavy film case the instructor was carrying kept him from being knocked flat.
 

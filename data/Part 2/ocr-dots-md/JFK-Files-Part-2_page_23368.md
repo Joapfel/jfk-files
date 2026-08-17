@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23368.png
-
-Convert to Markdown1. Mr. Baron. In this cable, in the first paragraph, it says:
+1. Mr. Baron. In this cable, in the first paragraph, it says:
 2. "We wish give every possible support in eliminating Lumumba from any possibility resuming governmental position or if he falls in Leoop" -- meaning Leopoldville -- "setting himself in Stanleyville or elsewhere."
 
 3. First, for the record, any time your pseudonym "Jadwin" or your name "Tweedy" appears in the upper lefthand corner of a cable or your signature appears on the bottom, you dispatched that cable? Is that not right?

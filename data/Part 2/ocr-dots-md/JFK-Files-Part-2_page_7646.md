@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7646.png
-
-Convert to Markdownmatters. In other words, I want to make it clear we do not regard patriotic citizens as informants.
+matters. In other words, I want to make it clear we do not regard patriotic citizens as informants.
 
 Mr. STERN. I take it you also would not have regarded Lee Oswald as an in- formant from the contacts with him that you have told us about and the other agents have told us about?
 

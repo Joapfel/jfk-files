@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9780.png
-
-Convert to Markdown1 - Mr. J. A. Mintz
+1 - Mr. J. A. Mintz
 
 1 - Mr. W. R. Wannall
 

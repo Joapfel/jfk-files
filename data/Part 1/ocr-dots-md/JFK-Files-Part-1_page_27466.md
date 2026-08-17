@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27466.png
-
-Convert to Markdown# CIA Resume - David L. Christ---
+# CIA Resume - David L. Christ---
 
 Primary emphases were on new advanced components, devices, systems and concepts for intelligence support activities. Basic orientation -- advanced systems concepts based on microtechnology.
 

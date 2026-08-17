@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5483.png
-
-Convert to MarkdownOFFICE OF THE
+OFFICE OF THE
 DEPUTY ATTORNEY GENERAL
 
 June 16, 1975

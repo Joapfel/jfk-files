@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15267.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 French francs, and the Belgians, thinking Subject to be an escaped prisoner of war, helped Subject in the instructions or how to proceed, and Subject took the train to the French-Belgian frontier, arriving in the vicinity of Valenciennes. While still on the train, Subject had to go through a control point in the forbidden zone near St. Quentin. At this time he was helped by the conductor of the train and the postal clerk. Subject successfully passed through this difficult point, concealed in a mail sack. At Valenciennes a check of the passengers was made by a German control officer who somehow seemed to overlook Subject's presence, and did not ask Subject any questions. From this point on Subject had no difficulty and arrived in Paris and proceeded to his home.
 

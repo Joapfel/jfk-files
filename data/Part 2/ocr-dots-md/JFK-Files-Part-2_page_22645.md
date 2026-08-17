@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22645.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. Senator Baker. Did he have a prominent responsibility?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27276.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>STANDARD FORM 52<br/>PROPOSED BY THE<br/>U. S. AIR SERVICE CORPORATION<br/>AUGUST 19-DECEMBER 1944<br/>MANUAL CHAPTER 3</td>
     <td>SECRET<br/>5/19/54<br/>750K</td>

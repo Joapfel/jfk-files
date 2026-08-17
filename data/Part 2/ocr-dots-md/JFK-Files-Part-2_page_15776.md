@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15776.png
-
-Convert to MarkdownMARTY FAYE
+MARTY FAYE
 
 Yes, but you see, the government doesn't go through a considered effort to wipe out the Socialist Party in the United States.
 

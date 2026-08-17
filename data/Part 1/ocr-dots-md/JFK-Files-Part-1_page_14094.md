@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14094.png
-
-Convert to MarkdownDecember 1959
+December 1959
 
 WORKING EXPERIENCE:
 

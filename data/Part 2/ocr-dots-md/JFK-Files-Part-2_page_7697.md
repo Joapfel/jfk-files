@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7697.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 31 January 1975
 

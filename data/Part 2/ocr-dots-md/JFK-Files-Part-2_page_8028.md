@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8028.png
-
-Convert to MarkdownWILL YOU HELP?
+WILL YOU HELP?
 
 Yes, you. It may come as a surprise that you'd be asked ... but as a reader of Computers & Automation you are in a unique position to help us.
 

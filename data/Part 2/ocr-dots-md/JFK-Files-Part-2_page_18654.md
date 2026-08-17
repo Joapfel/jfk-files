@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18654.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 In response to the second request in your letter, my answer is restricted to communications between the White House and the FBI as it would not be appropriate for me to attempt to respond for other agencies under your jurisdiction.
 

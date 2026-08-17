@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26760.png
-
-Convert to MarkdownReel 72-MICO-32
+Reel 72-MICO-32
 
 7 may 1965
 

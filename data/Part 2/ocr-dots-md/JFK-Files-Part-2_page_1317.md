@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1317.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>Executive Registry</td>
    </tr>

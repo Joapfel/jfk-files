@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10826.png
-
-Convert to MarkdownPH 52-7165 Sub S
+PH 52-7165 Sub S
 
 fugitive, was on the premises and requested admission. CUNNINGHAM refused Special Agents entrance and blocked the doorway. While blocking the doorway, CUNNINGHAM struck SA ROBERT H. WALLER in the left side of the face with his elbow and then pushed his hand into the face of SA WALLER. CUNNINGHAM continued to block the doorway and continued his assault on SA WALLER.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24404.png
-
-Convert to Markdownobtaining the removal of the ban on me in Switzerland which prevents me from fulfilling pressing professional duties.
+obtaining the removal of the ban on me in Switzerland which prevents me from fulfilling pressing professional duties.
 
 I wish to make it most clear here that I am in no way connected with any political organization or bodies in Switzerland or elsewhere and am an established and well-known professional international journalist.
 

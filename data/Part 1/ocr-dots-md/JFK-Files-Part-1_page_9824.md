@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9824.png
-
-Convert to Markdown2.
+2.
 
 script, since she pretended to be curious about the spelling of the name. According to L/4, L/2 snatched up the match-box with expressions of appreciation, and continued to listen with interest. L/4 continued that the Greek explained to her the difficulties and complexities of working with the Mexicans in procuring sulphur and other critical products, but she confessed to L/2 that she knew nothing about such matters and felt very confused. She commented, however, that the Greek appeared quite relaxed and willing to answer her questions. She added that when she turned the conversation on Cuba, the Greek replied that he was interested naturally as a good revolutionary, but frankly was very disappointed ("decepcionado") at the treatment received by the LIRING officials he had met, including L/2. L/4 continued that the Greek had commented that he had many dealings with foreign officials in his normal business operations but had never encountered the discourtesy shown by L/4's officers, who did not even answer his telephone calls. L/4 concluded with a statement that she felt the Greek was no longer interested in Cuba and assumed that he had obtained whatever information he needed from other sources.
 

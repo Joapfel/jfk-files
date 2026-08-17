@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3818.png
-
-Convert to MarkdownREQUEST FOR PAYMENT
+REQUEST FOR PAYMENT
 OF
 CONFIDENTIAL FUNDS
 

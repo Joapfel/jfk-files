@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18750.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 when news releases were made by the Bureau. He was advised that an inquiry which he might make through this office in connection with his employment should be made through normal channels, and not through agents to whom he is furnishing information. JAFFE fully understands that he is not to be the recipient of any personal consideration in matters of public interest being investigated by the Bureau. Furthermore, he fully understands the necessity for this, and at no time has indicated that he expected to be the recipient of any personal favors.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4029.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 that he could leave the hospital AMA. In view of the chronic
 nature of his illness the future prognosis must be guarded as

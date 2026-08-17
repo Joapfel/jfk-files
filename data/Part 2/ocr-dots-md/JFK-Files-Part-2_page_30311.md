@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30311.png
-
-Convert to Markdown1. IUR SECRET
+1. IUR SECRET
 
 2.
 

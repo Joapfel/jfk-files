@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24592.png
-
-Convert to Markdown(1) ESRECESS-19
+(1) ESRECESS-19
 
 (2) No source, passport
 

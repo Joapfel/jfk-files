@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6396.png
-
-Convert to Markdown06/10/97
+06/10/97
 
 ASSASSINATION RECORDS
 REVIEW BOARD

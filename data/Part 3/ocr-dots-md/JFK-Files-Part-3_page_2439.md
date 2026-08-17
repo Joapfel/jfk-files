@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2439.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SET OUT IN SAN FRANCISCO LETTER TO BUREAU DATED JULY 25, 1956.
 

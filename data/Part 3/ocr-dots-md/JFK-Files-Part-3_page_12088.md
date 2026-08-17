@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12088.png
-
-Convert to Markdown| Section | Desk Agents | Cases | Average Cases Per Agent |
+| Section | Desk Agents | Cases | Average Cases Per Agent |
 | :--- | :---: | :---: | :---: |
 | Internal Security | 13 | 3627 | 279 |
 | Nationalities Intelligence | 13 | 3692 | 284 |

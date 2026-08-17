@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25670.png
-
-Convert to Markdownprofess to have seen his death as a grave setback to
+profess to have seen his death as a grave setback to
 more hopeful relations between the two countries.
 The John Kennedy of 1963 was not, in their judgment,
 the same man who was inaugurated in 1961, but a

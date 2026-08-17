@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8644.png
-
-Convert to Markdownand only the copy of the Moon Valley Agency Contract with S will clarify
+and only the copy of the Moon Valley Agency Contract with S will clarify
 many questions one would like to ask right now. Nevertheless, it appears
 to be probable that an Agency Contract was promised to S.
 

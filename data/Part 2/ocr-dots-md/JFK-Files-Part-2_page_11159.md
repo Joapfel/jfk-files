@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11159.png
-
-Convert to Markdown(5) Character
+(5) Character
 
 (a) Key figures and top functionaries
 Internal Security (or Racial Matters if subject is a black nationalist)] - followed by the letters designating the organizational affiliation or nationalistic tendencies.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7803.png
-
-Convert to Markdown<table><thead><tr><th>FORM<br>8-64<br>1401</th><th>CLASSIFICATION<br>USE PREVIOUS EDITION.</th><th>PAGE NO<br>2</th></tr></thead><tbody><tr><td colspan="3">SECRET/DESRIPTIZED</td></tr></tbody></table>
+<table><thead><tr><th>FORM<br>8-64<br>1401</th><th>CLASSIFICATION<br>USE PREVIOUS EDITION.</th><th>PAGE NO<br>2</th></tr></thead><tbody><tr><td colspan="3">SECRET/DESRIPTIZED</td></tr></tbody></table>
 
 the above, the Station made an effort to explore the possibility of using a contact which LIRELIC-1 had with a PBRUMEN citizen in Acapulco to gain another window into LIRING. This PBRUMEN citizen owns a small hotel in the Mexican resort occasionally visited by LIRING personnel. Although LIRELIC-1 himself once delivered a package sent by his Acapulco friend and managed to have one or two meetings with representatives of the LIRING Commercial Section (to discuss the possibility of "trading" with PBRUMEN), it was decided in the end that LIRELIC-1's access to LIRING was too superficial to be of any great benefit. This decision was bolstered by the departure for PBRUMEN in April 1968 of LIRELIC-1's PBRUMEN friend, who left for what appears to be an extended visit to try to solve complicated personal problems. Thus, with the "shelving" of possible operational activities against LIRING, LIOGLE became LIRELIC-1's only target in April of this year.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_313.png
-
-Convert to Markdown682. Entrada.-1208.-Ignacio Sánchez Lerma pregunta al Viceconsul si llegó su perniso do regreso a Cuba y Miraval Indioa - quo n°.- 730.-
+682. Entrada.-1208.-Ignacio Sánchez Lerma pregunta al Viceconsul si llegó su perniso do regreso a Cuba y Miraval Indioa - quo n°.- 730.-
 
 730. Entrada.-HF plegunta por Chichay y MD informa que hoy - no trabajó.- 739.-
 

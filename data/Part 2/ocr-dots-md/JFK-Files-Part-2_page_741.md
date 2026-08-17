@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_741.png
-
-Convert to MarkdownSECRET
+SECRET
 (5 hne 10d i)
 
 <table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30244.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILED IN)
 
 <table><thead><tr><th colspan="3">1. EXP. SERIAL NO.</th><th>2</th><th>NAME</th><th>3. ASSESSMENT ORG.</th><th>4.-FUNDS</th><th>5. ALLOTMENT</th></tr></thead><tbody><tr><td colspan="3">158124</td><td></td><td>MCCORD JAMES W JR</td><td>OS/EC 1</td><td>V-20</td><td></td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28705.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 OF CALL
 
 TO:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14133.png
-
-Convert to Markdownthat no high-level penetration of the Cuban Government had been achieved. In answer to a question from the Attorney General, General Lansdale said that intelligence indicated that although there was widespread dissatisfaction with Castro, there was no rallying point for active opposition.
+that no high-level penetration of the Cuban Government had been achieved. In answer to a question from the Attorney General, General Lansdale said that intelligence indicated that although there was widespread dissatisfaction with Castro, there was no rallying point for active opposition.
 
 The Attorney General and Mr. Johnson emphasized the need for an effort to obtain hard intelligence on subversive activities by the Castro regime in the Hemisphere, Mr. McCone noting that such efforts to date had been fruitless.
 

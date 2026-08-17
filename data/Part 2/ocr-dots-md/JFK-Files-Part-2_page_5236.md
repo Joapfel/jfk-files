@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5236.png
-
-Convert to Markdown31 October 1997
+31 October 1997
 
 Request for Additional Funds for the JFK Assassination Records Review Project, through 31 September 1998.
 

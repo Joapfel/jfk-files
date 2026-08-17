@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17184.png
-
-Convert to MarkdownTake an old sock (large). Soak in a mixture of 3 parts potassium chlorate to two parts sugar, moistened with water. Allow sock to be thoroughly soaked in mixture, then dry. Keep dry cosk away from heat. CUATION: POTASSIUM CHLORATE IS VERY VOLATILE. IT CAN IGNITE ALMOST SPONTANEOUSLU IN THIS MIXTURE. IT CAN BE IGMITTED OR DETONATED BY A SINGLE SPARK, OR EXCESSIVE HEAT, OR MERELY BY THE FRICTION OF STIRRING THE INGREDIENTS TOGETHER. HANDLE WITH UTMOST CAUTION.
+Take an old sock (large). Soak in a mixture of 3 parts potassium chlorate to two parts sugar, moistened with water. Allow sock to be thoroughly soaked in mixture, then dry. Keep dry cosk away from heat. CUATION: POTASSIUM CHLORATE IS VERY VOLATILE. IT CAN IGNITE ALMOST SPONTANEOUSLU IN THIS MIXTURE. IT CAN BE IGMITTED OR DETONATED BY A SINGLE SPARK, OR EXCESSIVE HEAT, OR MERELY BY THE FRICTION OF STIRRING THE INGREDIENTS TOGETHER. HANDLE WITH UTMOST CAUTION.
 
 With a hydrometer, take acid from container and fill
 1/5 to 1/4 of a quart bottle. (Coke bottles don't break

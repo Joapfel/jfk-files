@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32581.png
-
-Convert to MarkdownSECRET
+SECRET
 
 This document consists of 18 pages
 No. 13 of 44 Copies, Series A

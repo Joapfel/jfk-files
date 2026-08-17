@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9676.png
-
-Convert to MarkdownDate of transcription 2/21/74
+Date of transcription 2/21/74
 
 FRANK AUGUST DRAGER, JR. was interviewed while
 incarcerated in the Saugamon County Jail. He was furnished

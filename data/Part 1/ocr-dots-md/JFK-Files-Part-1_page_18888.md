@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18888.png
-
-Convert to Markdown14-0000
+14-0000
 
 WAR DEPARTMENT
 OFFICE OF STRATEGIC SERVICES UNIT

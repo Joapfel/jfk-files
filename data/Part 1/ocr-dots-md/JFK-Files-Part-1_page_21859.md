@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21859.png
-
-Convert to MarkdownCase Officer:
+Case Officer:
 
 NOSENKO: Never in my life I will go in contact [with CIA] in Moscow or the USSR, never in my life. I also know about Langelle and POPOV;* I know this matter. When it was abroad it was fine, but when you decided to meet him in Moscow... You want more than I came with the intention of saying. You want to change this to a long-term relationship. Understand me. I am now the chief of a section. Before my departure [from Moscow] a decision was being reached-- and I have just spoken with my wife in Moscow-- I am supposed to become the deputy chief of a department. Do you understand what this is?
 

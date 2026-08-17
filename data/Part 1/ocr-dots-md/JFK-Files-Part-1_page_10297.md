@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10297.png
-
-Convert to Markdowninfluence of an exposition to display his products and at the same time persuade a leading member of his profession to permit him to work in his establishment (for a profit of $1,000). LIKING/3 then suggested a better possibility - an exposition in Montreal, Canada, where he had contact with a person who could arrange matters for him. LERING/3 confessed that he favored Canada for another personal reason.
+influence of an exposition to display his products and at the same time persuade a leading member of his profession to permit him to work in his establishment (for a profit of $1,000). LIKING/3 then suggested a better possibility - an exposition in Montreal, Canada, where he had contact with a person who could arrange matters for him. LERING/3 confessed that he favored Canada for another personal reason.
 
 He explained that LERING's father was suffering from what appeared to be terminal cancer of the throat or esophagus and that I/4 was very anxious to see him before he died. I/4 had sent several times that she planned to request a visa for travel to New York since it was out of the question for her father to travel to Mexico City to visit her.
 

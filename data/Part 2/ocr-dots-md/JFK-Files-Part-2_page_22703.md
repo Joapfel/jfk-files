@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22703.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 760011515
 

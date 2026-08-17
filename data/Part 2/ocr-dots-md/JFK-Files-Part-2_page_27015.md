@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27015.png
-
-Convert to Markdown6. Aspects of the Air and Ground War in Laos, 1965-1967 (160)
+6. Aspects of the Air and Ground War in Laos, 1965-1967 (160)
 
 7. Logistics Support for Operations in Laos, March 1961 - June 1968 (OL-9)
 

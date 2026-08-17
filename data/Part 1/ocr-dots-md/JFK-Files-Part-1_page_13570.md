@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13570.png
-
-Convert to Markdown13 19
+13 19
 
 17:35 De parte de EDUARDO JARDOS, piden a ROGELIO LOBRIGUEZ, los subas para prensa latina que hoy trae de Cuba en Agregado Cultural. ROGELIO dice que el agregado está charlarde con el Emajador, y que posteriormente llevará esos nuevos a Prensa Latina.
 

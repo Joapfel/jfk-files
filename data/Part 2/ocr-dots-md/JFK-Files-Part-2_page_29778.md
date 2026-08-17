@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29778.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 8/5/77
 

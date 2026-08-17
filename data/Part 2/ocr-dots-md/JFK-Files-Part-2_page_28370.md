@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28370.png
-
-Convert to MarkdownRESUME OF
+RESUME OF
 
 KEVIN SEAN DOYLE
 

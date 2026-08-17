@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15202.png
-
-Convert to MarkdownMR. A. H. BELMONT
+MR. A. H. BELMONT
 R. O. L'ALLIER
 
 July 21, 1960

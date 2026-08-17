@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18389.png
-
-Convert to Markdown14-0000
+14-0000
 
 ## SEC. 24. MISCELLANEOUS
 

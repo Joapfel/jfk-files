@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35475.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 1. On 17 May 1963, Richard Mccarthy,社会主义革命家,美国的资产阶级军事jadherer,在密苏里州州长办公室为基辛格先生接见了三名中国记者。他向这三名记者提供了有关毛泽东同志的信息资料。
    A. The three Chinese记者were: 毛泽东同志的 Principle zhuxian (中文版), 翻译马克思主义, 马列斯主义和文化革命运动的代表, 党的最高领导层; 记者黄一(英文版), 资料由新华社提供; 记者张三, 问题记者, 主要负责该文件的翻译工作。

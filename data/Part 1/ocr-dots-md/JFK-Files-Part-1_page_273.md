@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_273.png
-
-Convert to Markdown14-00000
+14-00000
 
 EASBY, R. obert L. (T) White, Alan P.
 BENEDUM, J. K. Benadum, Jeremy K. (T) Munro, George Frederick

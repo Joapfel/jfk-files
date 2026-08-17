@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23967.png
-
-Convert to MarkdownI have both children home now. This is mid-term, so the little boy
+I have both children home now. This is mid-term, so the little boy
 is out.
 
 My exact address: Stockley Hall an apartment house on Prince

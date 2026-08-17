@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31545.png
-
-Convert to MarkdownLaw offices of
+Law offices of
 J. ANTHONY FARGUE
 (6) East 42nd Street
 New York 17, N.Y.

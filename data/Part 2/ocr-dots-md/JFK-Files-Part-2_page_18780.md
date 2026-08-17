@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18780.png
-
-Convert to Markdown11/7/58
+11/7/58
 
 PLAIN TEXT
 

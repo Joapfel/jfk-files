@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31773.png
-
-Convert to MarkdownSITTING OF FACTS ON RADIO FRE TERRITORIES
+SITTING OF FACTS ON RADIO FRE TERRITORIES
 
 Radio Free Europe (RFE) was established as a separate corporation of RFE when the latter was incorporated on July 11, 1950. 223,000 been on the air since mid-July 1950. At the close of 1950, 272 broadcasts were totaling 7½ hours daily, programs of 1½ hours each being addressed to the people of Poland, Czechoslovakia, Hungary, Austria and Bulgaria. The total cost of this first period, from 17 May 1950 to 30 June 1950, was $64,237.87, operating and capital costs being roughly even. The next year will be seen those same costs rise in the same ratio - capital to operating - to a total of $4,958,895.23.
 

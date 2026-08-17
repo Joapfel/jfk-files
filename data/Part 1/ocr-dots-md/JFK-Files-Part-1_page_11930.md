@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11930.png
-
-Convert to MarkdownJohn T Holt
+John T Holt
 John Skye-wood Rhoades
 Hormson R. Hollywood
 Douglas R. Reynolds

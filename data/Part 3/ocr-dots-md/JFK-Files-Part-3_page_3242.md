@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3242.png
-
-Convert to Markdownintelligence on persons or groups who may endanger the President's safety. A formal agreement between the FBI and the Secret Service sets forth the types of intelligence information provided by the Bureau. However, this agreement states that:
+intelligence on persons or groups who may endanger the President's safety. A formal agreement between the FBI and the Secret Service sets forth the types of intelligence information provided by the Bureau. However, this agreement states that:
 
 The FBI will not conduct investigation of individuals or groups solely for the purpose of establishing whether they constitute a threat to the safety of the President and certain other persons unless there is an indication of a violation of Title 18, U. S. Code, Section 1751, or other statute over which the FBI has jurisdiction. (Tab A)
 

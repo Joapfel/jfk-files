@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1325.png
-
-Convert to MarkdownC-O-N-F-I-D-E-H-T-I-A-L
+C-O-N-F-I-D-E-H-T-I-A-L
 
 12 July 1972
 

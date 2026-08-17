@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14976.png
-
-Convert to MarkdownCIA INTERNAL USE ONLY
+CIA INTERNAL USE ONLY
 SECRET
 (When Filled In)
 

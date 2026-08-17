@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8209.png
-
-Convert to Markdown2 OCT 1959
+2 OCT 1959
 
 P.O. Box 8105
 Southwest Station

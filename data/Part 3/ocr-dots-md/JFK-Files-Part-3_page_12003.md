@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12003.png
-
-Convert to Markdown# Positive Results Achieved
+# Positive Results Achieved
 
 Determination as to the validity of an individual's inclusion in this program is constantly under review. Since the last inspection, critical attention has been given this matter with the result that the number of persons on the Cuban Special Section of the Index has been reduced from 193 as of 3/16/70 to 96 as of 12/15/70. These 96 persons are judged to be the hard-core pro-Cubans, action against whom in a Cuban emergency would be mandatory. Of these 96, 27 are Cuban aliens. Each subject of pending security investigation with Cuban ramifications is considered for inclusion in the Index.
 

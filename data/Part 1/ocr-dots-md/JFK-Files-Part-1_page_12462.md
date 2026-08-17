@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12462.png
-
-Convert to Markdown<table><thead><tr><th colspan="7">SECTION X</th></tr><tr><td>FULL NAME</td><td>SEX</td><td>YEAR OF BIRTH</td><td>PLACE OF BIRTH</td><td>NATIONALITY AT BIRTH</td><td colspan="2"></td></tr></thead><tbody><tr><td>Jorge Luis POSADA</td><td>X</td><td>1965</td><td>Miami, Florida</td><td>USA</td><td colspan="2"></td></tr><tr><td>Janet POSADA</td><td>X</td><td>1970</td><td>Caracas, Venezuela</td><td>Venezuelan</td><td colspan="2"></td></tr><tr><td colspan="4"></td><td></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td></td><td colspan="2"></td></tr></tbody></table>
+<table><thead><tr><th colspan="7">SECTION X</th></tr><tr><td>FULL NAME</td><td>SEX</td><td>YEAR OF BIRTH</td><td>PLACE OF BIRTH</td><td>NATIONALITY AT BIRTH</td><td colspan="2"></td></tr></thead><tbody><tr><td>Jorge Luis POSADA</td><td>X</td><td>1965</td><td>Miami, Florida</td><td>USA</td><td colspan="2"></td></tr><tr><td>Janet POSADA</td><td>X</td><td>1970</td><td>Caracas, Venezuela</td><td>Venezuelan</td><td colspan="2"></td></tr><tr><td colspan="4"></td><td></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td></td><td colspan="2"></td></tr><tr><td colspan="4"></td><td></td><td colspan="2"></td></tr></tbody></table>
 
 *SUBSEQUENT CITIZENSHIPS HELD BY ANY CHILD (Identify child and give his, or her, present address)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16215.png
-
-Convert to Markdown14-00000
+14-00000
 
 # General Investment Corporation
 Throughout the Pacific

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18813.png
-
-Convert to Markdown9/18/58
+9/18/58
 
 PLAIN
 AIRTEL

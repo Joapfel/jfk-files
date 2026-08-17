@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14166.png
-
-Convert to Markdown(74. 8/31/62 Continued)
+(74. 8/31/62 Continued)
 
 # "3. Political and psychological impact of a Soviet missile establishment in Cuba"
 

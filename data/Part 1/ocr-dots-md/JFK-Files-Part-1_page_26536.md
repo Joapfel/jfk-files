@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26536.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 and counsel against letting doctrine replace action. The tape clearly reveals RICO to be at once a very intellectual leftist who also has his feet planted quite firmly on the ground. His approach is pragmatic, not theoretical. The text of the tape indicates that it was made sometime after February and before mid-October 1963.
 

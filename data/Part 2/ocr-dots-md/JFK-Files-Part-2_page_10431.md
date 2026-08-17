@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10431.png
-
-Convert to Markdown**Young:** Harry Eisenbeiss and Clarus Rice of CRS had frequent contacts with Young during the summer of 1972 in connection with Executive Order 11652 and the implementing NSC directive. This involved visits by Young to CIA to discuss information storage and retrieval and several meetings of an inter-agency group dealing with the implementation of the Executive Order and directive.
+**Young:** Harry Eisenbeiss and Clarus Rice of CRS had frequent contacts with Young during the summer of 1972 in connection with Executive Order 11652 and the implementing NSC directive. This involved visits by Young to CIA to discuss information storage and retrieval and several meetings of an inter-agency group dealing with the implementation of the Executive Order and directive.
 
 3. In accordance with my instructions, several Offices reported domestic activities which might appear questionable to outsiders. Their responses are attached. Most of these activities are clearly within the Agency's charter, but there are a few which could be viewed as borderline.
 

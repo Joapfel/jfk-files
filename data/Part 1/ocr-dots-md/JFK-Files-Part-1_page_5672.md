@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5672.png
-
-Convert to Markdown<table><tr><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
+<table><tr><td>C-O-N-F-I-D-E-N-T-I-A-L</td></tr></table>
 
 # Domestic Collection Division
 ## Foreign Intelligence Information Report

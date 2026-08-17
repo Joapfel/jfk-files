@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29682.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, Transactions & Records Branch/OP
+MEMORANDUM FOR: Chief, Transactions & Records Branch/OP
 
 FROM: Chief, External Training Branch/RS/TR
 

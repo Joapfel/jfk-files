@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7586.png
-
-Convert to Markdown**INFORMATION REPORT**
+**INFORMATION REPORT**
 
 **CENTRAL INTELLIGENCE AGENCY**
 

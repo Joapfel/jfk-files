@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29115.png
-
-Convert to MarkdownWAGE AND TAX STATEMENT
+WAGE AND TAX STATEMENT
 
 1968
 

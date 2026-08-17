@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25065.png
-
-Convert to MarkdownSTREET - EYES ONLY
+STREET - EYES ONLY
 
 25 August 1960
 

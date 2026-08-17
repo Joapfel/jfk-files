@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20128.png
-
-Convert to Markdown1 - Mr. R. L. Shackelford
+1 - Mr. R. L. Shackelford
 1 - Mr. A. W. Gray (Grigalus)
 
 CODE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33982.png
-
-Convert to MarkdownUNIVAD Monthly, Issue No. 38, June, 1967.
+UNIVAD Monthly, Issue No. 38, June, 1967.
 
 **PRINT PAGE:**
 

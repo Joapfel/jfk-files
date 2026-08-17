@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18392.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>NAME (MR., MRS., ONE GIVER NAME INITIALS), AND SURNAME</td>

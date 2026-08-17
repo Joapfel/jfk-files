@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6855.png
-
-Convert to MarkdownGATES: No, sir, not in keeping with those safeguards.
+GATES: No, sir, not in keeping with those safeguards.
 
 REP. THORNTON: I know, Director Gates, that you've recently released, as you told us, some materials regarding Oswald. Can you make a commitment here to promptly release all of the files about the CIA's operations against Fidel-Castro in the late '50s and early '60s?
 

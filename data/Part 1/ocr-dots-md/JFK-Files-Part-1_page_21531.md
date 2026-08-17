@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21531.png
-
-Convert to Markdownofficer of 2 section. This section was new created (the work against tourists). The chief of 7 department - PERFILEV, the chief of the 2 section - GUSKOV.
+officer of 2 section. This section was new created (the work against tourists). The chief of 7 department - PERFILEV, the chief of the 2 section - GUSKOV.
 
 In 1956 I was accepted as a candidate in the Communist Party, soon received a rank of a senior lieutenant and got a promotion - a senior case officer.
 

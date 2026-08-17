@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28823.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="5">REQUEST FOR PERSONNEL ACTION</th></tr><tr><td>NAME</td><td>POSITION</td><td>DUE DATE</td><td>PRIOR TO</td><td>REASON</td></tr></thead><tbody><tr><td>Robert T. SHAW</td><td>Political Officer<br>(Vice Consul when confirmed)</td><td>6-18-25</td><td></td><td>B-01-56<br>Vice Consul approved for promotion to Political Officer with Salary of $7490 and regular leave.</td></tr><tr><td>No DEPARTMENTAL RESIDENCY</td><td>OFFICE OF CONCILIATION<br>DELEGATE OF THE PRESIDENT</td><td></td><td>X</td><td>Negales</td></tr><tr><td></td><td>CITY OF NEW YORK, N.Y.</td><td></td><td></td><td></td></tr></tbody></table>
 

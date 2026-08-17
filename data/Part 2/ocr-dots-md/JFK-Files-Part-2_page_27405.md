@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27405.png
-
-Convert to Markdown2 pages, both front and back,
+2 pages, both front and back,
 
 21. Book cable dated 4 July 1968 (Director #13667) (5 pages)
 

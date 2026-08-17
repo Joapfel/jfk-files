@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29752.png
-
-Convert to MarkdownClassification: TOP SECRET
+Classification: TOP SECRET
 
 1146/ See Section VI, C above.
 

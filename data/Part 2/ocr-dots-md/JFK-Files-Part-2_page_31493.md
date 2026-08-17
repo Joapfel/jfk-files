@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31493.png
-
-Convert to Markdown# CITIZENS COMMITTEE TO PRESERVE AMERICAN FREEDOMS
+# CITIZENS COMMITTEE TO PRESERVE AMERICAN FREEDOMS
 
 The Guide to Subversive Organizations and Publications, revised and published December 1, 1961, prepared and released by the Committee on Un-American Activities, United States House of Representatives, contains the following on Page 43 concerning "Citizens Committee to Preserve American Freedoms":
 

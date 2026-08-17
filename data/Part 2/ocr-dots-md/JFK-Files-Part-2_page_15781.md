@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15781.png
-
-Convert to MarkdownSPRINGFIELD, ILLINOIS
+SPRINGFIELD, ILLINOIS
 
 JANUARY 23, 1960
 

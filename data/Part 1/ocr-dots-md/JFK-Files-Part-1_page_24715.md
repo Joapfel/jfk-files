@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24715.png
-
-Convert to Markdowndescribe him as disingenuous with his present rank at the Embassy. Some bio data is now available, but further development is definitely warranted. He is friendly and approachable. His value lies in (a) his leading role in other Embassy officers and providing bio data about them; (b) his being disgruntled and providing information wittingly; (c) his being an intelligence officer.
+describe him as disingenuous with his present rank at the Embassy. Some bio data is now available, but further development is definitely warranted. He is friendly and approachable. His value lies in (a) his leading role in other Embassy officers and providing bio data about them; (b) his being disgruntled and providing information wittingly; (c) his being an intelligence officer.
 
 (2) Henri de *Coignac*. Met on several occasions. Have made tentative tennis date. Is very close to the Ambassador. The nature of his relationship or the services provided to the Ambassador have to be determined.
 

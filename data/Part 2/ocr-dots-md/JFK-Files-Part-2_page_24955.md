@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24955.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 TO: William G. Miller
 Fritz Schwarz

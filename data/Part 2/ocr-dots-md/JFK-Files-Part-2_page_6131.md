@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6131.png
-
-Convert to Markdown56 Md. L. Rev. 1, *3
+56 Md. L. Rev. 1, *3
 
 Carr, Baring the Heart of Nixon, Boston Globe, Dec. 20, 1995, Arts & Film at 33, available in 1995 WL 5966891; Stephen Hunter, Resurrecting Nixon, Balt. Sun, Dec. 20, 1995, at 1E, available in LEXIS, News Library, Majpap File; Barbara Shulgasser, "Nixon': It Has All the Charm of a Lab Rat, San. Fran. Examiner, Dec. 20, 1995, at C1, available in LEXIS, Nexis Library, Newspaper File; Kenneth Turan, "Nixon,' the Enigma, L.A. Times, Dec. 20, 1995, at F1, available in LEXIS, News Library, Lat File; Crossfire (CNN television broadcast, Dec. 27, 1995), available in LEXIS, Nexis Library, Transcript File.
 

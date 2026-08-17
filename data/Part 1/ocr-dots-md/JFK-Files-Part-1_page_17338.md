@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17338.png
-
-Convert to Markdown10:46 las oficinas de call center, pueden hay pernojos que attendedia cualquier asunto.
+10:46 las oficinas de call center, pueden hay pernojos que attendedia cualquier asunto.
 
 10:55 (NEW) Hijo de JOSÉ CANEJO ARANDA, desde FROMA Latina y por encima de JUANGLIÁN, ha ido a comunica al Hotel Fruazont con la "Fy. TINOSI para decirle que debe alojar en la casa de Juárez, donde seguramente octava una comoda. La TINOSI informó que likely hay en la madrugada en la tarjeta de las 21:30 h. y se extraía de que de fío no les hayan enviado un cable comunicado su llaveada. Acercó dice no haber recibido neither lo lamento, pues hubieron ido a esperarla.
 

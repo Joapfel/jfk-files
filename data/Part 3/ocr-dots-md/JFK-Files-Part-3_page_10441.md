@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10441.png
-
-Convert to Markdown# PAGE TWO AT 100-0
+# PAGE TWO AT 100-0
 
 ## POSITION
 

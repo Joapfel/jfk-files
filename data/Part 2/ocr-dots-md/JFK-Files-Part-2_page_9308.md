@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9308.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 KENNETH HORSTON, Detroit BPP, contacted YVONNE KING, BPP Chicago, in an effort to have her appear at a rally for the Detroit 15 on June 25, 1971, at Detroit. KING indicated she would probably appear, however, had to clear it through BPP headquarters, Oakland, California.
 

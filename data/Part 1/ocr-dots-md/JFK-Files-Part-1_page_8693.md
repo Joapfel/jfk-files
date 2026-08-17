@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8693.png
-
-Convert to Markdown9.01.15 Al fumar
+9.01.15 Al fumar
 
 (a) Deja acumular mucha ceniza en el cigarrillo
 Sacude la ceniza normalmente

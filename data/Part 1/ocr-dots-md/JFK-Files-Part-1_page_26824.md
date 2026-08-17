@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26824.png
-
-Convert to MarkdownSEBASTIAN KANELL
+SEBASTIAN KANELL
 
 With Guatemala's
 Guerilla Fighters

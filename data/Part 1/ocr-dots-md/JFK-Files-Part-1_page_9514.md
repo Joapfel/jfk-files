@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9514.png
-
-Convert to Markdownand thinks that the other European nations would shoor away from
+and thinks that the other European nations would shoor away from
 the whole concept. He says that even to Germans the wretched
 building is only a symbol of the failure and futility of the
 Weimar Republic.

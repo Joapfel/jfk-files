@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16504.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>CHG:</td>
     <td colspan="2">WILLIAM STURBITTS:ak</td>

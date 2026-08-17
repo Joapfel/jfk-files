@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5437.png
-
-Convert to MarkdownA. For officers who are still alive he states that the proofs required to postpone release of a name are three in number and all three must be met:
+A. For officers who are still alive he states that the proofs required to postpone release of a name are three in number and all three must be met:
 
 i. The officer must be living outside of the U.S.
 

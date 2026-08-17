@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7006.png
-
-Convert to MarkdownTo: Director
+To: Director
 Federal Bureau of Investigation
 Attention: Mr. J. O. James
 

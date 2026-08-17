@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15962.png
-
-Convert to Markdownin process of being selected, and subject to change at all times.
+in process of being selected, and subject to change at all times.
 
 1/29/69)
 

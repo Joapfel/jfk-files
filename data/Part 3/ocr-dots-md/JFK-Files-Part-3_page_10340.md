@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10340.png
-
-Convert to Markdownnames of individuals whose employment or former employment by,
+names of individuals whose employment or former employment by,
 or association with a department or agency, does not remain secret
 or for individuals whose present or future activities on behalf of the
 department or agency do not require that previous cover arrangements

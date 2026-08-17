@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8558.png
-
-Convert to MarkdownAugust 2, 1969
+August 2, 1969
 
 Contact Report
 Subject: Jimmy SABORI (P-15,830)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33795.png
-
-Convert to Markdown<table><tr><td>SECRET</td></tr><tr><td>Security Information</td></tr></table>
+<table><tr><td>SECRET</td></tr><tr><td>Security Information</td></tr></table>
 
 19 May 1952
 

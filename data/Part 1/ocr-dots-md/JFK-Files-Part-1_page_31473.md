@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31473.png
-
-Convert to Markdownc. It is unacceptable that private consent of CIA should be required as to the appointment of new directors and officers.
+c. It is unacceptable that private consent of CIA should be required as to the appointment of new directors and officers.
 
 d. The money given to NCFE by CIA is given first to the 1948 Foundation and this money is then donated to NCFE. CIA therefore has no right to inquire into policies or expenditures although "normally we would consult our friends".
 

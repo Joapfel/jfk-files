@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21764.png
-
-Convert to Markdown# TOP SECRET SENSITIVE
+# TOP SECRET SENSITIVE
 
 ## F. SABOTAGE SUPPORT PLAN
 

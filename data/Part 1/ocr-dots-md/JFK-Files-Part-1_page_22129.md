@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22129.png
-
-Convert to Markdownbut FRIPPEL provided nothing useful on these occasions.*
+but FRIPPEL provided nothing useful on these occasions.*
 Whereas NOSENKO had normally met FRIPPEL in the company of
 CHELNOKOV during FRIPPEL's Moscow tour, he went alone to the
 two 1963 meetings.

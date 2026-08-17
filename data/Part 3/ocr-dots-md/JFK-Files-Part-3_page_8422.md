@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8422.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE DIRECTOR OF CENTRAL INTELLIGENCE
 

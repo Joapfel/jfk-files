@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21863.png
-
-Convert to MarkdownHedgman summarized his testimony on this question in his second appearance:
+Hedgman summarized his testimony on this question in his second appearance:
 
 I probably had authority to act on my own but ... it was possible that I had to go back and get clearance for my action. (Hedgman, 8/25/75, p. 11; see also 8/21/75, p. 39.)
 

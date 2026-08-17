@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15658.png
-
-Convert to Markdownto work best with a person whom he respects and with whom he enjoys a friendly but authoritative relationship.
+to work best with a person whom he respects and with whom he enjoys a friendly but authoritative relationship.
 
 105. There is no reason why this person cannot be handled by an experienced, mature case officer.
 

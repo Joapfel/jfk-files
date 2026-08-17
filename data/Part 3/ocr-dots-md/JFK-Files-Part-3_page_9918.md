@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9918.png
-
-Convert to MarkdownMemorandum from the Attorney General to the
+Memorandum from the Attorney General to the
 Director, FBI, dated May 20, 1954, captioned "Microphone
 Surveillance." Seehearings before the Subcommittee on
 Administrative Practice and Procedure of the Committee on

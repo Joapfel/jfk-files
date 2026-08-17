@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10940.png
-
-Convert to MarkdownE. CURRENT CAPABILITIES OF CIA IN THE FOREIGN INTELLIGENCE COLLECTION FIELD IN THE UNITED STATES
+E. CURRENT CAPABILITIES OF CIA IN THE FOREIGN INTELLIGENCE COLLECTION FIELD IN THE UNITED STATES
 
 In order that there may not be any misunderstanding regarding CIA's capabilities to collect foreign intelligence in the United States, we should first clarify that one of the components of the Agency which has offices in the United States does not engage in this particular activity. The Office of Security, which is responsible for personnel and physical security, maintains several offices in the United States under authorized Treasury Department cover. Personnel of this office conduct investigations of applicants, firms or individuals who may be utilized by CIA on a contract basis to support intelligence operations overseas.
 

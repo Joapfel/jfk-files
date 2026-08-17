@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33305.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>CABLE DEC ISSEE BY PER</td>

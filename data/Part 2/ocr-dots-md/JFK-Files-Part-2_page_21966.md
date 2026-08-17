@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21966.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 (Notes of meeting) Kissinger told Karamessines that "our handling of the problem during the earlier meeting had been perfect and he added we were doing fine and keep it up." (Memorandum for the Record/Chile, 22 September 1970, by Thomas Karamessines)
 

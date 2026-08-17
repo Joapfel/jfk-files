@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30187.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Since October 1968, as Chief of a division responsible for
 the Agency's physical security program he had primary responsibility

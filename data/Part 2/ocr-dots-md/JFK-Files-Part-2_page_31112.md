@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31112.png
-
-Convert to Markdown① Nov. 4, 1960
+① Nov. 4, 1960
 Cable to Director Jr: MASH
 
 MASH planning infiltrate first DRE team

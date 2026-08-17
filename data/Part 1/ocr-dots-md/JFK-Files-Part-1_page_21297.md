@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21297.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 7 February 1961
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23490.png
-
-Convert to MarkdownTo: Files
+To: Files
 
 From: Frederick Baron
 

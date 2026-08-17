@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11951.png
-
-Convert to Markdown# G. INFORMANTS' INFORMATION
+# G. INFORMANTS' INFORMATION
 
 ## 1. General instructions re oral and written information
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22724.png
-
-Convert to Markdown# B. Targets
+# B. Targets
 
 (1) Subject will commence by serving as cutout for Hugger, who has always held out great promise but never been properly developed or directed.
 

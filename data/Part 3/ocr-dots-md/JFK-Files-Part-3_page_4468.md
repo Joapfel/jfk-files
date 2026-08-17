@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4468.png
-
-Convert to MarkdownPH 92-444
+PH 92-444
 
 Prior to May 1959, ANGELO BRUNO told Philadelphia Confidential Informant T-2 that he, BRUNO, was one of the interest holders in the Hotel Plaza Gambling Casino and that this casino had received permission to reopen in June 1959. It was said that in August 1959 the following gambling casinos continued to be opened in Havana for operation:
 

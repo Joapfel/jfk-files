@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11833.png
-
-Convert to MarkdownRetyped page of memo W. R. Wannall to C. D. Brennan dated 8/12/71 re: same subject
+Retyped page of memo W. R. Wannall to C. D. Brennan dated 8/12/71 re: same subject
 
 # Memorandum to Mr. C. D. Bromham
 RE: FOREIGN Liaison Desk (FLD)

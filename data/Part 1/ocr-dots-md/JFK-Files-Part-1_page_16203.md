@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16203.png
-
-Convert to Markdown Friends of Abaco, on 10 June 1974 sponsored a resolution in behalf of the Abaco Independence Movement on the floor of the British House of Lords, following conversations with WERBELL in Washington in late May.
+Friends of Abaco, on 10 June 1974 sponsored a resolution in behalf of the Abaco Independence Movement on the floor of the British House of Lords, following conversations with WERBELL in Washington in late May.
 
 5. Despite the seeming innocence of the enterprise, however, we have observed that WERBELL, in particular, has made a concerted effort to involve persons formerly affiliated with this Agency in the activities of the Friends of Abaco in support of Abaco's independence. On several occasions, involving at least two former officers of this organization, MULDOON and ROUSSOS cited above, WERBELL has introduced them as presumably active Agency officials in such a fashion as to imply, according to the persons involved, that either this Agency or the United States Government supports the aims of the Friends of Abaco.
 

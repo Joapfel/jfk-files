@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17897.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">DISPATCH</td><td>CLASSIFICATION</td><td>TO ORDER AND NO.</td></tr><tr><td colspan="2">Cltl., Wt Div. 10</td><td>S E C R E T</td><td>HMMA-11537</td></tr><tr><td colspan="3">FROM Chief of Station, Mexico City</td><td>12 November 1958</td></tr><tr><td colspan="3">SUB Project LIFEAT<br/>Request for Spare Parts</td><td>[BOS] - (CHECK ONE)<br/>X NO MORE THAN REQUIRED</td></tr><tr><td colspan="3">ACTION REQUIRED Station Mexico<br/>That the Items Below be procured and Forwarded to/</td><td>INDEED CAN BE ADOPTED BY QUALIFIED NO DEMANDED</td></tr></table>
 

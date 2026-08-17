@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13834.png
-
-Convert to MarkdownNOTE CONTINUED:
+NOTE CONTINUED:
 
 of the names were misspelled but we have been able to fairly
 well establish that the individuals they are interested in

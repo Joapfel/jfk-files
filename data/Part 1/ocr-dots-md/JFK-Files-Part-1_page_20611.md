@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20611.png
-
-Convert to Markdown7 December 1965
+7 December 1965
 
 MEMORANDUM FOR: Mr. E. Howard Hunt
 SUBJECT: BSC Claim

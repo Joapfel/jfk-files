@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18415.png
-
-Convert to Markdown9 December 1953
+9 December 1953
 
 REDACTED FOR SECRETARY, O/C/MR
 

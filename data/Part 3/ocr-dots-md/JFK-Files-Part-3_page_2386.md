@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2386.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Foreign communist support of revolutionary protest movements in the United States can be manifested in a number of ways. Since the Communist Party, USA, is under the domination and control of the Soviet Union, it can be used more and more as a vehicle to support these movements. Similarly, the Progressive Labor Party and other pro-Chinese Communist groups can be utilized by Communist China as a channel for rendering support to protest movements in the United States. Other traditional channels which can be used more are the communist-bloc diplomatic establishments and the clandestine intelligence services operated by the communists within the United States.
 

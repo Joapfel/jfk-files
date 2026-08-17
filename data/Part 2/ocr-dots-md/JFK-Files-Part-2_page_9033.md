@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9033.png
-
-Convert to MarkdownVillalba has stated that his plan calls for expanding and accelerating subversive activities in Argentina culminating in a complete take over within two years. There is no indication that Peron himself has agreed so this plan. It has been reported that leaders of the Communist Party of Argentina have been greatly annoyed by the tendency of the Castro regime to support the revolutionary Peronists without having consulted the Communist Party of Argentina.
+Villalba has stated that his plan calls for expanding and accelerating subversive activities in Argentina culminating in a complete take over within two years. There is no indication that Peron himself has agreed so this plan. It has been reported that leaders of the Communist Party of Argentina have been greatly annoyed by the tendency of the Castro regime to support the revolutionary Peronists without having consulted the Communist Party of Argentina.
 
 It is reported that the so-called Army of National Liberation (ANL) of Argentina, which is a relatively small Castroist organization directed from Ojuela by John William Cabezo, has in recent weeks been negotiating for the purchase of arms and has been offered submachine guns, bazkoks and other weapons by two or three private suppliers. It was reported, however, that the ANL was having difficulty getting enough dollars from Cuba to make significant purchases possible.
 

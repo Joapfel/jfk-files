@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30341.png
-
-Convert to Markdown1. Mr. Edgar. And it is your testimony that after 1967, '68,
+1. Mr. Edgar. And it is your testimony that after 1967, '68,
 2. when those interrogations took place, you gave accurate,
 3. truthful statements?
 

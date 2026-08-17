@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6238.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="4">Sequestered Collection Box 23, Folder-9 P.6</td>
    </tr>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8035.png
-
-Convert to MarkdownDate of transcription
+Date of transcription
 
 6-18-75
 

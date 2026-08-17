@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5472.png
-
-Convert to Markdownevils. The list of names of his alleged supporters in meaningless. His adherents in the army are not identified and are suspect.
+evils. The list of names of his alleged supporters in meaningless. His adherents in the army are not identified and are suspect.
 
 His referral in this, and in a previous report, to Castro and Balaguier as his competitors in a race to overthrow Duvalier is considered to be nonsense. All this is calculated to force the U.S. hand in his favor.
 

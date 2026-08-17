@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11095.png
-
-Convert to MarkdownRegarding the observations of the Intelligence Division concerning the making available the amount of manpower dedicated to counterintelligence and domestic intelligence work in the FBI, the Legal Counsel Division has the following observations:
+Regarding the observations of the Intelligence Division concerning the making available the amount of manpower dedicated to counterintelligence and domestic intelligence work in the FBI, the Legal Counsel Division has the following observations:
 
 (1) Based on our analysis and conversations this Division has had with Fred B. Griffith of the Inspection Division, it appears that the information contained in this memorandum may be classified confidential under Executive order 11652.
 

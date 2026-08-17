@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19124.png
-
-Convert to Markdown**Front National**
+**Front National**
 
 Headquarters: 18 Allée Jean Gambetta
 

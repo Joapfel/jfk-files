@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6596.png
-
-Convert to Markdown(9) State suggested exploitation by USIA and CIA of items appearing in the FBIS daily summary. (Housing and labor -- made arrangements to put us on distribution.)
+(9) State suggested exploitation by USIA and CIA of items appearing in the FBIS daily summary. (Housing and labor -- made arrangements to put us on distribution.)
 
 (10) CIA brought up the unhappy impact of Moscovo's speech inferring that Cuba should be forgotten and that we should get on with the Alliance For Progress. State indicated that a correction was being made to show that Moscovo was misquoted.
 

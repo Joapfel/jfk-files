@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25155.png
-
-Convert to Markdown**PERSONS/ENTITIES:**
+**PERSONS/ENTITIES:**
 
 DIEM
 COLBY, WILLIAM

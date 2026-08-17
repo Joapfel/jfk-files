@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12808.png
-
-Convert to MarkdownV. 12 Apr 73
+V. 12 Apr 73
 
 E 2
 

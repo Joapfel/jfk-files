@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20567.png
-
-Convert to MarkdownSECRET When Filled In: OFFICIAL USE ONLY (unfilled filled in) |
+SECRET When Filled In: OFFICIAL USE ONLY (unfilled filled in) |
 
 <table><thead><tr><th colspan="10">QUALIFICATIONS SUPPLEMENT TO PERSONAL HISTORY STATEMENT</th></tr><tr><td colspan="10">READ INSTRUCTIONS CAREFULLY BEFORE COMPLETING TYPE OR PRINT AVOID USING LIGHT COLORED INKS</td></tr><tr><th colspan="5">SECTION I<br>BIOGRAPHIC AND POSITION DATA</th><th colspan="4"></th><th colspan="2">AGENCY OVERSEAS SERVICE</th></tr><tr><td>EMP SE# NO.</td><td>2 NAME</td><td>POSITION TITLE</td><td>SER</td><td>DATE OF BIRTH</td><td>SCHEDULE GRADE STEP</td><td>OFFICE OF ASSIGNMENT</td><td>LOCATION CURRENTLY</td><td>NAME</td><td>PHONE NUMBER</td></tr></thead><tbody><tr><td>C13842</td><td>HUNT E HOWARD</td><td>JR</td><td></td><td>10/09/18</td><td>GS -15-07</td><td></td><td>NEW YORK, N.Y.</td><td>HASH,</td><td>D.C.</td></tr><tr><td>D</td><td></td><td>CRS OFFICER</td><td>EUR</td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31342.png
-
-Convert to MarkdownFOR INVOICE
+FOR INVOICE
 
 Robert Wignen
 1207-849-6348

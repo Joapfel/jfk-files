@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4549.png
-
-Convert to MarkdownIN WITNESS WHEREOF, I hereby submit my name and age and birth date of A. D. 1955 in the presence of attesting witnesses.
+IN WITNESS WHEREOF, I hereby submit my name and age and birth date of A. D. 1955 in the presence of attesting witnesses.
 
 (SEAL)
 

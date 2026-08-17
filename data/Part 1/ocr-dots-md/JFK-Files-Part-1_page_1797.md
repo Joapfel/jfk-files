@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1797.png
-
-Convert to Markdownall matters involving [x] 24
+all matters involving [x] 24
 
 [ ] Further, this officer should have full control authority over [x] 24
 

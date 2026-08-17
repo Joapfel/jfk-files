@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30676.png
-
-Convert to MarkdownSECRET
+SECRET
 
 [no CIA people in the consulor section].
 

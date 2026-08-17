@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32786.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 EYES ONLY
 
 17. Section D, p. 3. Six men, to form the initial nucleus, have been assessed in depth. Further assessment of candidates inside and outside Cuba is in progress, and it is expected that ten of these will be recruited by 15 February.

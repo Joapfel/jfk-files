@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7729.png
-
-Convert to Markdown3 - Mr. J. R. Mintz
+3 - Mr. J. R. Mintz
 (Mr. J. B. Hotis)
 (Mr. P. V. Daly)
 

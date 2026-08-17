@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16236.png
-
-Convert to Markdown9. When arrested BLACK PANTHER MEMBERS will give only name and address and will sign nothing. Legal first aid must be understood by all Party members.
+9. When arrested BLACK PANTHER MEMBERS will give only name and address and will sign nothing. Legal first aid must be understood by all Party members.
 
 10. The Ten Point Program and platform of the BLACK PANTHER PARTY must be known and understood by each Party member.
 

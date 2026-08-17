@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_849.png
-
-Convert to Markdownforth in the statute. Current procedure is to submit to
+forth in the statute. Current procedure is to submit to
 the Attorney General a copy of the affidavit the FBI proposes
 to submit to the court, with a cover memorandum setting forth
 the background of the case. The affidavit has been worked out

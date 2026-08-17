@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16808.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG: John M. Whitten: ja</td>
     <td></td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10528.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES: 71</th></tr></thead><tbody><tr><td>ORIG: GEORGE KULSTAD:eb</td><td>S-E-C-R-E-T</td></tr><tr><td>INT'L: WE/7/HT</td><td></td></tr><tr><td>CNT: 5595</td><td></td></tr><tr><td>DATE: 23 JULY 1968</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">MESSAGE FORM<br>TOTAL COPIES: 71</th></tr></thead><tbody><tr><td>ORIG: GEORGE KULSTAD:eb</td><td>S-E-C-R-E-T</td></tr><tr><td>INT'L: WE/7/HT</td><td></td></tr><tr><td>CNT: 5595</td><td></td></tr><tr><td>DATE: 23 JULY 1968</td><td></td></tr></tbody></table>
 
 <html><body><table><tr><td colspan="4">ROUTING AND/OR COPY A/S - SEEN BY</td></tr><tr><td>1</td><td></td><td></td><td></td></tr><tr><td>2</td><td></td><td></td><td></td></tr><tr><td>3</td><td></td><td></td><td></td></tr><tr><td>4</td><td></td><td></td><td></td></tr><tr><td>5</td><td></td><td></td><td></td></tr><tr><td>6</td><td></td><td></td><td></td></tr><tr><td>7</td><td></td><td></td><td></td></tr><tr><td>8</td><td></td><td></td><td></td></tr></table></body></html>
 

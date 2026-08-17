@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33806.png
-
-Convert to Markdown6 May 1952
+6 May 1952
 
 MEMORANDUM FOR: INTERNATIONAL ORGANIZATION'S DIVISION
 

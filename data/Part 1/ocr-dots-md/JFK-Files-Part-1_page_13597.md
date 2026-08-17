@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13597.png
-
-Convert to Markdown16:30
+16:30
 
 JOSE ARTURO DE LA PERA ha estado tratando con insistencia en ponerse en contacto con el cubano ROGELIO RODRIGUEZ LOPEZ, y al no encontrarlo le deja recado en el sentido de que le va a escribir para que lo manden el boletín de información de Cuba, pues él va a salir fuera de la ciudad, pero cuando regrese le dará la dirección para que se lo manden, porque está la presión un poco fuerte aquí, pues ayer estaban recogidos todo lo que salía de la Embajada, periódicos y todo eso, y por eso él no entró. Agrega que lleva a Conahuila varios boletines del número 4 de información sobre Cuba, pero que también quiere el número 5 donde viene información sobre las tecas. OLGA toma el recado y se lo pasará a ROGELIO.
 

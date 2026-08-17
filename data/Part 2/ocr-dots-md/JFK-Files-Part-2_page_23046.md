@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23046.png
-
-Convert to MarkdownPhone (Area 202) 544-6000
+Phone (Area 202) 544-6000
 
 1. Mr. Baron. Let us pick out some specifics and discuss them briefly here.
 2

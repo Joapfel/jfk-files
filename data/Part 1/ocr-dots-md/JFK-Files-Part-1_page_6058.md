@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6058.png
-
-Convert to Markdown«Fidel Castro...
+«Fidel Castro...
 
 (Continuação da página) dos todos os operários. Aqui é que não aceita tal convite e tido como contra-revolucionario se tornando as consequências de seu ato. E claro que a grande matéria prefere ouvir as demagogias de seu falso líder a ter que enfrentar "el parodio!
 

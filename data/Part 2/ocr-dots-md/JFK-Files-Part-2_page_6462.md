@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6462.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 APPENDIX
 DISCUSSION

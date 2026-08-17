@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23454.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. It is recommended that the opposition in the Dominican Republic be provided the arms as requested.
 

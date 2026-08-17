@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23529.png
-
-Convert to Markdownnoted that McCone never made any oration upon the immorality of assassinating Castro. He remembered the August 10 meeting and said that "assassination was not shot down". When pressed for details at this point, and after being shown the Lansdale (8/13/62) and Harvey (8/14/62) memoranda, he said he wanted to think about the meeting before he made any more statements about who said and did what. He noted, however, that in 1966 while in Peru with Robert Kennedy that Kennedy, in a fleeting retort to a series of questions about U. S. assassination attempts against Castro, said "Tell him (the interpreter) I saved his (Castro's) life."
+noted that McCone never made any oration upon the immorality of assassinating Castro. He remembered the August 10 meeting and said that "assassination was not shot down". When pressed for details at this point, and after being shown the Lansdale (8/13/62) and Harvey (8/14/62) memoranda, he said he wanted to think about the meeting before he made any more statements about who said and did what. He noted, however, that in 1966 while in Peru with Robert Kennedy that Kennedy, in a fleeting retort to a series of questions about U. S. assassination attempts against Castro, said "Tell him (the interpreter) I saved his (Castro's) life."
 
 At the conclusion of the interview he turned over to the Committee various documents related to Cuba which he had found in his personal papers. Those are appended to this summary.
 

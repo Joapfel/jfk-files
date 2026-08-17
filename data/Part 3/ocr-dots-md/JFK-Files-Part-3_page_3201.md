@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3201.png
-
-Convert to Markdown1813
+1813
 
 actions under COINTELPRO that any violent act occurred, and I
 have not been presented with any by the staff from their far

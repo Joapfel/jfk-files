@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32217.png
-
-Convert to MarkdownSECRET
+SECRET
 (U S air Force)
 
 <table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24904.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><td>CROSS REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER</td><td>DATE</td></tr></thead><tbody><tr><td></td><td>HMS - 4723</td><td>05 MAY 1966</td></tr><tr><td></td><td>CLASSIFICATION</td><td>HQS FILE NUMBER</td></tr><tr><td></td><td>SECRET</td><td>201-253203</td></tr></tbody></table><table><thead><tr><th colspan="2">Distribution:</th></tr></thead><tbody><tr><td>1 - WH/Pers</td><td>w/att</td></tr><tr><td>1 - WH/1</td><td>w/att</td></tr><tr><td>1 - CCS/NC</td><td>wo/att</td></tr><tr><td>1 - WH/REG</td><td>wo/att</td></tr></tbody></table>
 

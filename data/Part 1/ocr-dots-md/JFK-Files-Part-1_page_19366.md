@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19366.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CASH 3509 OUT 5.40pct.
 

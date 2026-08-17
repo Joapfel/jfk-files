@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2051.png
-
-Convert to MarkdownMr. Boris D. TARASOFF
+Mr. Boris D. TARASOFF
 OS #104 887 08
 SS# 079-05-9624
 DOB: 2 November 1908

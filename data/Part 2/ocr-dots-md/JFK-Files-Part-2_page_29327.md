@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29327.png
-
-Convert to MarkdownPHILLIPS, page 4.
+PHILLIPS, page 4.
 
 spent looking for opportunities to recruit Cubans who came to
 Mexico City. The shop also ran a debriefing center for Cubans

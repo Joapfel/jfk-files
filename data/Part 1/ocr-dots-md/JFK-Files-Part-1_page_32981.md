@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32981.png
-
-Convert to MarkdownHogarama Discount
+Hogarama Discount
 
 2235 W. FLAGLER STREET
 MIAMI, FLORIDA 33135

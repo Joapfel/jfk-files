@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23710.png
-
-Convert to MarkdownI would certainly want to know whether or not the chief law enforcement officer of the country thought they were legal or illegal, or if there was a question about it.
+I would certainly want to know whether or not the chief law enforcement officer of the country thought they were legal or illegal, or if there was a question about it.
 
 Senator Mathias. I have a real question if I were Attorney General whether I would sign what we would call for here.
 

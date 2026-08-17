@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14572.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NILDA: Didn't you call here a few days ago?
 

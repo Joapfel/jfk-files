@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24928.png
-
-Convert to Markdownthe doctrine to the internal decision-making process of
+the doctrine to the internal decision-making process of
 the Government is absurd. Any theory which, as a matter
 of doctrine, places elected officials on the periphery of
 the decision-making process is an invitation to error, an

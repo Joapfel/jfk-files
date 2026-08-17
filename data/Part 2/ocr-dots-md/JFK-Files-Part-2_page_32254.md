@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32254.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. Maximizing the political isolation of the Castro regime from other free world states, and especially from states of the OAS. Whenever possible, U.S. actions against Cuba should be multilateral, preferably based upon the Treaty of Reciprocal Assistance (Rio Pact) or on resolutions adopted by the Organization of American States. The newly-won hemispheric solidarity on the Cuban issue should not be jeopardized by seeking OAS actions of marginal value and which might split the hemisphere.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32595.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 DLS: 8 OCT 63

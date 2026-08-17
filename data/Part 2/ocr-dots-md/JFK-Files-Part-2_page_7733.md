@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7733.png
-
-Convert to Markdownor the CI Department of the First Chief Directorate, KGB, to prepare for assignment to the KGB residency under Soviet Embassy cover in Helsinki, Finland, as the CI officer working against foreign intelligence services.
+or the CI Department of the First Chief Directorate, KGB, to prepare for assignment to the KGB residency under Soviet Embassy cover in Helsinki, Finland, as the CI officer working against foreign intelligence services.
 
 August 1960: Subject was assigned to the KGB residency in Helsinki, under the name KLIMOV (his true name was compromised through the 1954 defection of Petr DERYABIN in Vienna), and with the cover title of Third Secretary.
 

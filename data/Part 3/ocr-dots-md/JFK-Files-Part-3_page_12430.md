@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12430.png
-
-Convert to MarkdownRE: INTERVIEW OF RETIRED FBI SA BY OSC
+RE: INTERVIEW OF RETIRED FBI SA BY OSC
 
 "**A.** I did at various times handle investigations concerning individual Klan members. I did not handle the Klan as an organizational matter. It is my recollection that in reporting on the activities of an individual Klan member the character of the case would have been indicated as Ku Klux Klan - Racial Latter."
 

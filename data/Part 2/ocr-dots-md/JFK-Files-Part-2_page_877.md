@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_877.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # FITNESS REPORT - JEROME FOX
 ## SECTION C, NARRATIVE COMMENTS (Continued)

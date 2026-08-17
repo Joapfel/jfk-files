@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11804.png
-
-Convert to Markdownexperience, the preparation of a case for presentation to the SACB requires the services of one Supervisor on a full-time basis. Thus, it is anticipated that the Department's action pursuant to Executive Order 11605 will substantially increase the work load of the Internal Security Section.
+experience, the preparation of a case for presentation to the SACB requires the services of one Supervisor on a full-time basis. Thus, it is anticipated that the Department's action pursuant to Executive Order 11605 will substantially increase the work load of the Internal Security Section.
 
 7. In evaluating adequacy of both Special Agent and clerical personnel the following criteria were used:
 

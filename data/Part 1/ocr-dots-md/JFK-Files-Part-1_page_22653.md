@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22653.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>TO<br/>INFO</td><td>S-E-C-P-L-T</td><td>HR-4-4026</td></tr><tr><td>FROM</td><td>Chief of Station, San Jose</td><td>HEADQUARTERS FILE NO.<br/>201-32723</td></tr><tr><td>SUBJECT</td><td colspan="2">Operational/field Traces<br/>CORIERO Calderon Family</td></tr><tr><td>ACTION REQUIRED</td><td colspan="2"></td></tr><tr><td>REFERENCE(S)</td><td colspan="2">FCS-H- 1730</td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>TO<br/>INFO</td><td>S-E-C-P-L-T</td><td>HR-4-4026</td></tr><tr><td>FROM</td><td>Chief of Station, San Jose</td><td>HEADQUARTERS FILE NO.<br/>201-32723</td></tr><tr><td>SUBJECT</td><td colspan="2">Operational/field Traces<br/>CORIERO Calderon Family</td></tr><tr><td>ACTION REQUIRED</td><td colspan="2"></td></tr><tr><td>REFERENCE(S)</td><td colspan="2">FCS-H- 1730</td></tr></tbody></table>
 
 1. Field traces reveal the following on the CORIERO Calderon family:
 

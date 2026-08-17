@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12697.png
-
-Convert to Markdown(b) Priority III cases must be opened for verification of residence and employment on annual basis. Review case file for any necessary action including re-evaluation of subject's status, or possible rede-signation as priority I or II.
+(b) Priority III cases must be opened for verification of residence and employment on annual basis. Review case file for any necessary action including re-evaluation of subject's status, or possible rede-signation as priority I or II.
 
 When pertinent information is submitted to Bureau for dissemination, FD-305 and FD-376 should accompany cover communication.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19008.png
-
-Convert to MarkdownSAMUEL ADASON JAFFE
+SAMUEL ADASON JAFFE
 
 Possible Current KGB Approach to Jaffe by
 Boris Sedov

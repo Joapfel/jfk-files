@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23931.png
-
-Convert to Markdown14-00000
+14-00000
 
 > for press purposes. He wanted to take portraits of all the Africans. He got their names. He had a tremendous file there. (laughing) And he also had a wire-photo machine which worked right out of his studio. He did Phombeah and another, Yellow while I was there.
 

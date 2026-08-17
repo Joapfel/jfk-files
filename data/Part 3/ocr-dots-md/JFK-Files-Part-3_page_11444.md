@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11444.png
-
-Convert to MarkdownRE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+RE: U. S. SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
 
 Letter from SAC, Charlotte, to Director, FBI, captioned "Counterintelligence Program, Internal Security, Disruption of Hate Groups (Confederate Knights of the Ku Klux Klan), Charlotte Division," dated January 30, 1969. (157-9-8-151)
 

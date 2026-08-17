@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17494.png
-
-Convert to MarkdownFor the future, the Station has hopes of employing LIFETAT assets in "hot mike" operations which will require access to telephone净
+For the future, the Station has hopes of employing LIFETAT assets in "hot mike" operations which will require access to telephone净
 
 - centrals and calls. It is the opinion of the Station that the support provided by the Station operations, the CI/GE information, and the ability to cover sensitive targets without revealing our interest to Liaison services justifies the expenditure of funds, time, and personnel under this project. The overall performance of all agents in the complex continued to be good; no security problems were encountered which were not solved by the personnel involved.
 

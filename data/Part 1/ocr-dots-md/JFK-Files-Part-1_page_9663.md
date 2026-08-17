@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9663.png
-
-Convert to MarkdownJuly 6, 1964
+July 6, 1964
 
 LYLE STUART
 AREVALO

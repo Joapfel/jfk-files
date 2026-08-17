@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10026.png
-
-Convert to Markdown62-116395-56
+62-116395-56
 
 NW 88608 DocId:32989628 Page 303
 

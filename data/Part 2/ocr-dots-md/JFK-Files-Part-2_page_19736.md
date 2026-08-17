@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19736.png
-
-Convert to MarkdownFEDERAL DUECO UP
+FEDERAL DUECO UP
 COMMUNICATIONS DIV.
 
 NOV 20 1971

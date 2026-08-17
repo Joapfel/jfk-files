@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31384.png
-
-Convert to Markdown07D 18-1
+07D 18-1
 
 displayed in the AFATL museum. Sgt MOBLEY was therefore
 instructed by COOK to proceed to transportation and pick up

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2554.png
-
-Convert to MarkdownJune 30, 1975
+June 30, 1975
 
 6. a list of all local police departments and personnel contacted relative to this COINTELPRO;
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34224.png
-
-Convert to Markdown"Subversion in Uruguay and Nontrucous Terror in Venezuela". The blueprint for violence in Uruguay is part of the general plan for Latin American subversion drafted in Cuba. The steps taken by the Uruguayan Government have chocked the early dangers of Castro-Communist subversion, but it is significant that the Communists should have moved their target more to the south in order to provoke a Dominican-style civil strife.
+"Subversion in Uruguay and Nontrucous Terror in Venezuela". The blueprint for violence in Uruguay is part of the general plan for Latin American subversion drafted in Cuba. The steps taken by the Uruguayan Government have chocked the early dangers of Castro-Communist subversion, but it is significant that the Communists should have moved their target more to the south in order to provoke a Dominican-style civil strife.
 
 The alarinable character taken by Venezuelan Red terror is also meaningful: a young housewife murdered by a bomb placed inside a Christmas present consistent of an image of the Virgin Mary.
 

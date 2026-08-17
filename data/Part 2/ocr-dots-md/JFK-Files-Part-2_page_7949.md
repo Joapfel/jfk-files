@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7949.png
-
-Convert to Markdown# Sassination Tapes
+# Sassination Tapes
 
 NEXT PAGE 47.
 

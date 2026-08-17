@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21672.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. receive the narcotics and where.
 2. However, this immediately got us into an internal security

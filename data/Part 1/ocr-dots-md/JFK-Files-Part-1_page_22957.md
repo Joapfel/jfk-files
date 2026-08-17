@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22957.png
-
-Convert to MarkdownSEC. 9. MOTHER-IN-LAW
+SEC. 9. MOTHER-IN-LAW
 
 FULL NAME Dora (First) Cordero Calderon (Middle) Cordero Calderon (Last)
 LIVING OR DECEASED Living DATE OF DECEASE HA CAUSE HA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20746.png
-
-Convert to Markdown# Fitness Report - David A. Phillips
+# Fitness Report - David A. Phillips
 
 ## Section D., Continued:
 

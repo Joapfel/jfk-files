@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23540.png
-
-Convert to Markdown2 May 1961
+2 May 1961
 
 As indicated by the combined INR/ONE estimate, anti-Castro activity within Cuba will probably be muted at least for the next several months. Most individuals whose loyalty is in any way suspect have been arrested. A recent report from the Swiss Ambassador indicated that political prisoners now number 100,000. All internal services will continue to work on a theory of repression plus undoubtedly swift and brutal penalties. Consequently, it will be very difficult to carry on any clandestine operations and it is doubtful that such operations can have any significant impact in weakening the Castro regime.
 

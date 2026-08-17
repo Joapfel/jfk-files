@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16616.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 January 29, 1970, memo to you:
 

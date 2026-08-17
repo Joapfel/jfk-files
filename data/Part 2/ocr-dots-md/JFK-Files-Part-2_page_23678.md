@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23678.png
-
-Convert to MarkdownHW 50955 DocId:32423509
+HW 50955 DocId:32423509
 
 1 to exploitation for such purposes and whether in that shading
 2 the Committee would want to take a position about recruitment

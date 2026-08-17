@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33334.png
-
-Convert to MarkdownWorkers in hardhats and bearing pitchforks march in Santiago in support of the Allende administration during brief nationwide strikes by pro- and anti-Marxist elements in mid-June 1973.
+Workers in hardhats and bearing pitchforks march in Santiago in support of the Allende administration during brief nationwide strikes by pro- and anti-Marxist elements in mid-June 1973.
 
 -Wide World Photos
 

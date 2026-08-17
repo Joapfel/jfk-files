@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7339.png
-
-Convert to Markdown13-00000
+13-00000
 
 SUBJECT: Guidelines for Members of the Select Committee and Their Staffs While Traveling Abroad
 

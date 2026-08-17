@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28553.png
-
-Convert to MarkdownMEMORANDUM IN LIEU OF FITNESS REPORT
+MEMORANDUM IN LIEU OF FITNESS REPORT
 
 **SUBJECT**: Tennent H. Bagley, GS-16, Employee Number 056043, DOB: 11 November 1925; Chief of Station; Career; Service Designation: D.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10811.png
-
-Convert to MarkdownPH 52-7165 SUB S.
+PH 52-7165 SUB S.
 
 SARAH JANE TOSI
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13381.png
-
-Convert to MarkdownSTURGIS: I knew Jerry for years. Jerry did see the ad and did make contact with me and naturally I accepted him as a recruit because then because of the ad.
+STURGIS: I knew Jerry for years. Jerry did see the ad and did make contact with me and naturally I accepted him as a recruit because then because of the ad.
 
 OLSEN: How did it happen then that he got turned over to the United States Government?
 

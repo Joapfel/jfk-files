@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15803.png
-
-Convert to MarkdownThe release concluded the next course of action by the BPP will be to intensify information to the people because another revolutionary brother had been slain in the streets by the fascist "pigs" of this country and the people have to seize the time and take power.
+The release concluded the next course of action by the BPP will be to intensify information to the people because another revolutionary brother had been slain in the streets by the fascist "pigs" of this country and the people have to seize the time and take power.
 
 On December 5, 1969, Sergeant HALLERAN, 21st Police District, Chicago, Illinois, advised that on that date, at 5:30 AM that morning, a raid had been conducted on the apartment of BOBBY RUSH, Deputy Minister of Defense, Illinois BPP. The apartment is located at 2030 South State Street, Chicago, and was unoccupied at the time of the raid. The whereabouts of RUSH is unknown.
 

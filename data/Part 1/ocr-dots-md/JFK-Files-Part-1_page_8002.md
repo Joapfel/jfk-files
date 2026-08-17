@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8002.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Subject: Activities of the Juventud Socialista
 

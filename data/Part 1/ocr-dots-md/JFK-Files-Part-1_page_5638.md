@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5638.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br/>TOTAL COPIES:</td><td></td></tr><tr><td colspan="2">S-E-C-R-E-T</td></tr><tr><td>ORIG: RUTH LEHMAN; nvs</td><td>SOU.ING AND/OR INITIALS • SEEN BY</td></tr><tr><td>UNIT: VE/7/HT</td><td>1 5</td></tr><tr><td>EXT: 5595/1349</td><td>2 6</td></tr><tr><td>DATE: 1 AUGUST 1969</td><td>3 7</td></tr><tr><td colspan="2"><table><tbody><tr><td>CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>BY DKB PER F</td></tr><tr><td>FILE IN CS FILE NO.</td></tr></tbody></table></td></tr><tr><td>COMP:</td><td></td></tr><tr><td>W48</td><td>FILE.VR. PLAN Ds. f2. a.c.w. c.w.s. c/wA</td></tr></table>
 

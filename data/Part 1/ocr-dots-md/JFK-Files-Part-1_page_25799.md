@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25799.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 curiosity that LIPSTICK-14 and LIJERSEYS-2 and 12 may have. This
 procedure is believed desirable due to the confining nature of the

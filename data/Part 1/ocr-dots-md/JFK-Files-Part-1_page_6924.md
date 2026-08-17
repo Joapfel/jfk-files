@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6924.png
-
-Convert to MarkdownCLASSIFIED MESSAGE 7
+CLASSIFIED MESSAGE 7
 
 <table><tr><td>DATE : 17 OCT 1966</td></tr><tr><td>25</td></tr><tr><td>TO : DIRECTOR</td></tr><tr><td>FROM : MEXICO CITY (MR. BRADY AND MR OGDEN WH DIV)</td></tr><tr><td>ACTION : WH 5 NOTIFIED 0115 13 OCT '66)</td></tr><tr><td>INFO : CI,CI/OPS, CI/IC, FI, FI/OPS EE 4, NEA 4, SR 4, WE 4,S/C 2, CI,SP</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17250.png
-
-Convert to MarkdownRE: BLACK PANTHER PARTY
+RE: BLACK PANTHER PARTY
 
 CONFIDENTIAL
 

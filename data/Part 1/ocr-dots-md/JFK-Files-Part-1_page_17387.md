@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17387.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG</td>
     <td colspan="2">Bustos:js</td>

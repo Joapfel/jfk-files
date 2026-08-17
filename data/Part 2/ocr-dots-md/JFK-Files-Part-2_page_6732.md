@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6732.png
-
-Convert to Markdown• If they do not, the other service may escape damage fully or to some degree.
+• If they do not, the other service may escape damage fully or to some degree.
 
 * This is the critical question that a foreign country must answer and it is the critical information that we must protect vis-à-vis defectors in our fold.
 

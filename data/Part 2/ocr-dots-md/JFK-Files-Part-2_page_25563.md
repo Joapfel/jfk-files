@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25563.png
-
-Convert to MarkdownSEL COMM
+SEL COMM
 File:
 
 December 19, 1975

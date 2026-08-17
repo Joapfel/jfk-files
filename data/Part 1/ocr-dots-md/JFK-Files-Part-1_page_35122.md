@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35122.png
-
-Convert to MarkdownESTADO "II"
+ESTADO "II"
 
 iloja No. 2
 

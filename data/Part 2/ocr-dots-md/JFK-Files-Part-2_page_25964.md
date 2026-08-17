@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25964.png
-
-Convert to Markdown8. Juno 1961
+8. Juno 1961
 
 MEMORANDUM FOR THE RECORD
 

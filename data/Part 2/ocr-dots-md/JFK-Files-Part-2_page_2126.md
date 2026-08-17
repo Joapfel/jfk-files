@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2126.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. See A. (General Information)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_337.png
-
-Convert to Markdown14-00000
+14-00000
 
 MC PHEE, Raymond
 6003 Big Oake Road

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_52.png
-
-Convert to Markdown13-00000
+13-00000
 
 INDIA 1 00
 

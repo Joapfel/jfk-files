@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13303.png
-
-Convert to MarkdownSECRET
+SECRET
 
 APARTMENT 27 OF
 THE PERITE BUILDING

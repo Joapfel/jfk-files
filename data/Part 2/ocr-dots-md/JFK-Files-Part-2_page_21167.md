@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21167.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 being handled by ARTEMEV of the SCD.
 

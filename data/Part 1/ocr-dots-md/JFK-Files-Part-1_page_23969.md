@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23969.png
-
-Convert to Markdowna madhouse, you know. (
+a madhouse, you know. (
 (He's now in jail?)),
 
 Now in jail, no charges against him. I understand the US Embassy is trying to get him out (laughing). I don't know whether Dr. Ramsey was actually an agent of some kind, although he had too many confusions to be really a good agent. Yes, too confused. There was too much wrong.

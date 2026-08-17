@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11974.png
-
-Convert to MarkdownFrom Mitch Lawrence
+From Mitch Lawrence
 
 Regarding Joe Merola: Information passed on
 to Lt. Van Buskirk per our discussion. Van

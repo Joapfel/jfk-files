@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29168.png
-
-Convert to Markdown## SEC. 12. POSITION DATA
+## SEC. 12. POSITION DATA
 
 A. KIND OF POSITION APPLIED FOR: Administrative position with Latin America, Economist, Statistician, or temporarily as a Stenographer.
 

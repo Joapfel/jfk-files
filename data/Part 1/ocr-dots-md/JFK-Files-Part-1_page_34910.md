@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34910.png
-
-Convert to Markdown<table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO<br/>Chief, Western Hemisphere Division</td><td>SECRET</td><td>MARRED FOR INDEXING<br/>NO INDEXING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE F.1.T.</td><td></td><td>MICROFILM</td></tr><tr><td>SUBJECT<br/>TYPIC/AMBUD Operational Documentation for AMBUD Dependency Payment Cases</td><td>ACTION REQUIRED REFERENCES</td><td>ACTION REQUIRED: None</td></tr></tbody></table>
+<table><thead><tr><th>DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO<br/>Chief, Western Hemisphere Division</td><td>SECRET</td><td>MARRED FOR INDEXING<br/>NO INDEXING REQUIRED<br/>ONLY QUALIFIED DESK CAN JUDGE INDEXING</td></tr><tr><td>FROM<br/>Chief of Station, JMWAVE F.1.T.</td><td></td><td>MICROFILM</td></tr><tr><td>SUBJECT<br/>TYPIC/AMBUD Operational Documentation for AMBUD Dependency Payment Cases</td><td>ACTION REQUIRED REFERENCES</td><td>ACTION REQUIRED: None</td></tr></tbody></table>
 
 Forwarded herewith are reproductions of documents pertaining to the following Hero & Martyr cases:
 

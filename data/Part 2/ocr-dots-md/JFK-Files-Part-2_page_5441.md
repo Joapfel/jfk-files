@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5441.png
-
-Convert to Markdownlevel of concern to this section and its criteria than the previous two, not recognizing the plain fact that the criteria of all three sections are inextricable. It sets out four separate criteria which, if CIA satisfies its burden, i.e. provides sufficient evidence to prove any one of them, will operate to postpone a true name until the year 2010. Note again, the criteria required are four separate ones, each separated by a comma and between numbers 3 and 4 and "OR." They are:
+level of concern to this section and its criteria than the previous two, not recognizing the plain fact that the criteria of all three sections are inextricable. It sets out four separate criteria which, if CIA satisfies its burden, i.e. provides sufficient evidence to prove any one of them, will operate to postpone a true name until the year 2010. Note again, the criteria required are four separate ones, each separated by a comma and between numbers 3 and 4 and "OR." They are:
 
 i. The officer must be currently engaged in clandestine activities; OR,
 

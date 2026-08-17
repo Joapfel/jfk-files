@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25240.png
-
-Convert to MarkdownPERSONS/ENTITIES:
+PERSONS/ENTITIES:
 
 DATES:
 11/1/63

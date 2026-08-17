@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25606.png
-
-Convert to MarkdownDate:
+Date:
 
 Mr. Raymond H. Correndo
 

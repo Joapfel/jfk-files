@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6435.png
-
-Convert to Markdown13-00000
+13-00000
 
 # Operation "NO LOVE LOST"
 

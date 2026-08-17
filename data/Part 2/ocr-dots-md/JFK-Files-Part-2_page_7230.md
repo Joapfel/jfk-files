@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7230.png
-
-Convert to Markdown<table><tr><td>UN BY</td></tr><tr><td>STAFF</td></tr><tr><td>1</td><td></td><td></td></tr><tr><td>2</td><td></td><td>5</td></tr><tr><td>3</td><td></td><td>6</td></tr></table>
+<table><tr><td>UN BY</td></tr><tr><td>STAFF</td></tr><tr><td>1</td><td></td><td></td></tr><tr><td>2</td><td></td><td>5</td></tr><tr><td>3</td><td></td><td>6</td></tr></table>
 
 T 389706
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13390.png
-
-Convert to Markdownto contact Howard Anderson; both these men were captured and were
+to contact Howard Anderson; both these men were captured and were
 sentenced and executed in Penovalario(?).
 
 OLSEN: What were they sent into Cuba for?

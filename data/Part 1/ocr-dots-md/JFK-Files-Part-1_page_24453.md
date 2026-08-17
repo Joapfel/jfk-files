@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24453.png
-
-Convert to Markdown<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>TO</td><td>Chief, WE</td></tr><tr><td>CC</td><td></td></tr><tr><td>CORRECE</td><td>Chief of Station, London</td></tr><tr><td>RECIPIENT</td><td>KEYWAY Payoh<br/>Jacoque VEROES & Richard T. CIBSON Expelled from Switzerland</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCE: OELW - 20852 (9 December 1963)</td></tr></table>
+<table><tr><td colspan="2">DISPATCH</td></tr><tr><td>CLASSIFICATION</td><td>SECRET</td></tr><tr><td>TO</td><td>Chief, WE</td></tr><tr><td>CC</td><td></td></tr><tr><td>CORRECE</td><td>Chief of Station, London</td></tr><tr><td>RECIPIENT</td><td>KEYWAY Payoh<br/>Jacoque VEROES & Richard T. CIBSON Expelled from Switzerland</td></tr><tr><td>ACTION REQUIRED</td><td>REFERENCE: OELW - 20852 (9 December 1963)</td></tr></table>
 
 1. LCBEFORE reported on 17 January 1964 that Subjects, both of whom are mentioned in reference dispatch concerning <u>Revolution Africaine</u> (CIBSON is a US citizen) and were working from that publication's Lausanne office, have left Switzerland at the request of the Swiss Government. According to LCBEFORE, VEROES departed Switzerland on 25 November 1963 for Latin America (possibly Brazil), and CIBSON departed on 15 December 1963.
 

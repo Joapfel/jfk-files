@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28911.png
-
-Convert to MarkdownINSTRUCTIONS
+INSTRUCTIONS
 
 This form requests information to permit the Social Security Administration to determine whether the veteran had active military or naval service during World War II (September 16, 1940-- July 24, 1947) or post-World War II (July 25, 1947--December 31, 1956) for which military service wage credits may be granted.
 

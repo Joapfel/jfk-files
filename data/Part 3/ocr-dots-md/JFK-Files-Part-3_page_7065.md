@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7065.png
-
-Convert to MarkdownOffice of the Attorney General
+Office of the Attorney General
 Washington, D. C.
 
 September 14, 1967

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30348.png
-
-Convert to MarkdownHEADQUARTERS
+HEADQUARTERS
 UNITED STATES ARMY, EUROPE
 Office of the Provost Marshal
 N. Y., U.S. Forces

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12758.png
-
-Convert to MarkdownSECRET
+SECRET
 
 T 820180
 PAGE 03-03

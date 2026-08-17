@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31613.png
-
-Convert to Markdown2.
+2.
 
 The constitution further states that this new
 organization shall be a membership organization open to

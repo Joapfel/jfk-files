@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9423.png
-
-Convert to Markdown"Free the Detroit 15"
+"Free the Detroit 15"
 
 Newspaper article from "The Black Panther" titled "Out With the Old Fascists, in with the New".
 

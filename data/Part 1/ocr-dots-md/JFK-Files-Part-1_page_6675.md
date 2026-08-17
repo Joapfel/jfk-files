@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6675.png
-
-Convert to MarkdownSECRETARIO
+SECRETARIO
 
 SUBARUTO DE INFORMACION
 

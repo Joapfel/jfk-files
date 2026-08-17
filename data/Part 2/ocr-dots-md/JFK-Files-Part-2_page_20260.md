@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20260.png
-
-Convert to Markdown<table><thead><tr><td>DATE FON</td></tr></thead><tbody><tr><td>AGENCY: G-2, ONI, OSI, SEC. SER.<br/>RAO (SD. CORD CD)</td></tr></tbody></table>
+<table><thead><tr><td>DATE FON</td></tr></thead><tbody><tr><td>AGENCY: G-2, ONI, OSI, SEC. SER.<br/>RAO (SD. CORD CD)</td></tr></tbody></table>
 
 FBI
 

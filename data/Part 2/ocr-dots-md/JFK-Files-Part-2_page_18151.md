@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18151.png
-
-Convert to Markdown# SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+# SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 be located concerning any instructions by Mr. Sullivan and/or
 Mr. C. D. Brennan to subordinates in 1967 to revise any earlier

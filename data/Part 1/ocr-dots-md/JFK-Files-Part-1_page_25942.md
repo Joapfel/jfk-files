@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25942.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>ADVICE BY IID PER JCR</td><td>TOTAL COPIES RUN BY</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT AFFIRED</td></tr><tr><td colspan="2"><table><tr><td>SECRET</td></tr></table></td></tr><tr><td>ADVISE COPY IS DETERMINED (ID, SDO, LA) BY RS AT 9:14:02</td><td>AGENCY MESSAGE</td></tr><tr><td>LA 27<br/>ACTION #</td><td><table><tr><td>FILE, VR, DDD, PS/EG2, IP/AN, IID, OPS/INT 5, CI 4,<br/>SS 4, SS/SOG 4, LSN/ID, OPS/IT6 4.</td><td></td><td></td><td></td><td></td></tr></table></td></tr><tr><td>T 689952 EIA614</td><td>PAGE 01 IN 828992</td></tr><tr><td></td><td>CARAI172137Z FEB 76 CARA 29119</td></tr></tbody></table>
 

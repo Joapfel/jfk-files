@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25363.png
-
-Convert to Markdown# The Washington Merry-Go-Round
+# The Washington Merry-Go-Round
 
 THE WASHINGTON POST Monday, Jun. 18, 1971 B7
 

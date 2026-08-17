@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34030.png
-
-Convert to Markdown14-0000
+14-0000
 
 they had a $ 12,000,000 deficit on the trade balance with Cuba and now Cuba was in a $ 300,000 short. The Free World, which had to pay, with the aid of Castro, the money for the sugar, but the Castro era was not a happy one.
 

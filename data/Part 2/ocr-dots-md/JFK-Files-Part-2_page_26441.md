@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26441.png
-
-Convert to Markdown<table><tr><td>TELEGRAM</td></tr></table>
+<table><tr><td>TELEGRAM</td></tr></table>
 
 <table><tr><td>INFORMATION REPORT</td></tr></table>
 

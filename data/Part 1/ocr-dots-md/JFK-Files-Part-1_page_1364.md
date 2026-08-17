@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1364.png
-
-Convert to MarkdownSECRET
+SECRET
 
 frequently mentioning the name of other CIA officers with
 whom he was acquainted.

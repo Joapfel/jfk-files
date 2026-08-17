@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11779.png
-
-Convert to MarkdownADDENDUM: 5-A-lc
+ADDENDUM: 5-A-lc
 
 **ASSISTANT DIRECTOR C. D. BRENNAN:** In February, 1971, I issued instructions that each Section Chief submit monthly case load figures for his Section to the Branch Chiefs to be furnished to me with the Branch Chief's analysis as a basis for establishing a logical and current method of periodically assessing work loads and manpower needs within the Division. Inasmuch as it was intended these figures would serve as a guide for possible manpower changes to meet fluctuating and ever-changing problems, it was essential that figures presented be accurate and equally essential that like matters be tabulated uniformly.
 

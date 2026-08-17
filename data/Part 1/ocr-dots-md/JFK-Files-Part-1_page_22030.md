@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22030.png
-
-Convert to Markdown**NOSENKO:** He spoke with the Resident and the Deputy Resident. He discussed this question with them and they said they would see about it, but we were told that the Residency has more important questions.
+**NOSENKO:** He spoke with the Resident and the Deputy Resident. He discussed this question with them and they said they would see about it, but we were told that the Residency has more important questions.
 
 **Question:** What was more important than the work against code clerks?
 

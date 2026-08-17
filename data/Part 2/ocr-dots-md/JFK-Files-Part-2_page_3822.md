@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3822.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8 February 1968
 

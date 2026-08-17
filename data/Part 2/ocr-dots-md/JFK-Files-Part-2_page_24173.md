@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24173.png
-
-Convert to MarkdownSECRET,
+SECRET,
 
 ENTITIES DISSOLVED
 

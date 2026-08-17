@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27131.png
-
-Convert to MarkdownWH/COG 362-74
+WH/COG 362-74
 
 25 January 1974
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6152.png
-
-Convert to Markdown12. Report dated 8 June 1967, Cincinnati, Ohio; Field office file CI 100-13602; Bufile 100-438262. Subject: Larry Wolf Rubin
+12. Report dated 8 June 1967, Cincinnati, Ohio; Field office file CI 100-13602; Bufile 100-438262. Subject: Larry Wolf Rubin
 
 13. Report dated 7 July 1967, Detroit, Michigan; (no file #s) Subject: Students for a Democratic Society
 

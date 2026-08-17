@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30061.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 APR: DUE: JAN. 29 1973
 Area - 7-20-1949 - 10:00 - C.C. -

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15030.png
-
-Convert to MarkdownA discussion held in Bad Godesberg on March 12th, 1963, between Mr. E. Neumann, Chief of ICEM Mission in Germany and Mr. J. Riley of Australia revealed the following procedure taken by ICEM on refugee applicants for migration to South America under the ICM Special Program:
+A discussion held in Bad Godesberg on March 12th, 1963, between Mr. E. Neumann, Chief of ICEM Mission in Germany and Mr. J. Riley of Australia revealed the following procedure taken by ICEM on refugee applicants for migration to South America under the ICM Special Program:
 
 1. Applicant, if a refugee, must be recognized under UN High Commissioner's Mandate as a bona fide political refugee. (Note: All refugees holding a neiseausweis automatically fall under the Mandate.)
 

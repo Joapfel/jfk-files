@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22393.png
-
-Convert to MarkdownAccording to A. M. Koltin, the sequence of events leading up to NKORO's certification with the Soviets was as follows:
+According to A. M. Koltin, the sequence of events leading up to NKORO's certification with the Soviets was as follows:
 
 - On the morning of 10 February by the Soviet Brusilovgrad Office, a note from the U.S. White House Department requesting an interview with NKORO, but no reply was given.
 

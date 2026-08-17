@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2410.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 During 1967, Julius Lester traveled to Hanoi, North Vietnam, as a member of the International Affairs Department of SNCC. His trip was sponsored and paid for by the Bertrand Russell Peace Foundation, London, England.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21884.png
-
-Convert to Markdown42.
+42.
 
 H. Reactions of NOSENKO's Family
 

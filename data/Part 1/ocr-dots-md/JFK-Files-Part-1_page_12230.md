@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12230.png
-
-Convert to MarkdownSTAFF
+STAFF
 
 <table><tr><td></td><td>RE FILE VR</td><td colspan="3"></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td>ACTION:</td><td>F</td><td></td><td></td><td></td></tr><tr><td>O</td><td></td><td></td><td></td><td></td></tr></table>
 

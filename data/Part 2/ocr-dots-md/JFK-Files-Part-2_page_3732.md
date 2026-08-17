@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3732.png
-
-Convert to Markdowntenure, there were microphones in his regular office, his inner office, his dining room, his office in East Building, and his study at his residence on White Haven Street. I do not know who would be willing to raise such an issue, but knowledge of such operations tends to spread, and certainly the Agency is vulnerable on this score.
+tenure, there were microphones in his regular office, his inner office, his dining room, his office in East Building, and his study at his residence on White Haven Street. I do not know who would be willing to raise such an issue, but knowledge of such operations tends to spread, and certainly the Agency is vulnerable on this score.
 
 11. Also under the heading of old business, I well remember the hue and cry raised, especially by Carl Kaysen in the White House, when the Agency injected a contaminating agent in Cuban sugar bound for the Soviet Union. Shortly after the Cuban missile crisis, there was a disposition in Washington to reexamine the Bay of Pigs, and the fact that several Alabama National Air Guard officers lost their lives in the Bay of Pigs was surfaced with surprisingly little excitement at the time.
 

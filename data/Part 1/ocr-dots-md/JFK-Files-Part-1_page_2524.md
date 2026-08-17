@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2524.png
-
-Convert to MarkdownSECRET
+SECRET
 
 F. NOSENKO's claims, that in 1962 he was Chief of the American-British Commonwealth Section and was thereafter a Deputy Chief of the Seventh Department, are not credible. (Previous conclusion)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_546.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. Mrs. Erdenebat Ojon, Mongolia
 8. Konstantin Shugnov, USSR

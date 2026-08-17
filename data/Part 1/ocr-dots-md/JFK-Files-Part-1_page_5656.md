@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5656.png
-
-Convert to Markdown**CONTROLLED DISSEMINATION**
+**CONTROLLED DISSEMINATION**
 
 CONFIDENTIAL
 

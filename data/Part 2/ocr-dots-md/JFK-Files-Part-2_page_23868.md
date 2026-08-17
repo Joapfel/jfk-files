@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23868.png
-
-Convert to Markdown1 more than one source, then he receives them from more than one
+1 more than one source, then he receives them from more than one
 2 source, but if he is a grantee of a Federal program --
 3 Mr. Maxwell. But the problem is receiving funds through
 4 educational and/or cultural programs.

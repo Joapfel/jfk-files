@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22151.png
-
-Convert to MarkdownJohn Andrey Shubin and his year of birth dates which NOSEenko brought to the 1964 in Geneva. NOSENKO identified SHUBIN as a of Russian extraction, a Russian speaker. Professor in New York City. According to personally involved in SHUBIN's fourth trip 1962 or 1963. SHUBIN had become known to agent during his third visit to the Soviet
+John Andrey Shubin and his year of birth dates which NOSEenko brought to the 1964 in Geneva. NOSENKO identified SHUBIN as a of Russian extraction, a Russian speaker. Professor in New York City. According to personally involved in SHUBIN's fourth trip 1962 or 1963. SHUBIN had become known to agent during his third visit to the Soviet
 
 Professor of economics at New York University—previously known to the FBI
 

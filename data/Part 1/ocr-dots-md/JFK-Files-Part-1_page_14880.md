@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14880.png
-
-Convert to Markdownto have children. Actually, however, he did not want children as
+to have children. Actually, however, he did not want children as
 individuals in themselves but he assumed that the marriage would
 produce a child whom he exactly imagined and which would be a
 reproduction of himself. However, the first child turned out to be a

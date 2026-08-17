@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5485.png
-
-Convert to MarkdownTo Bert Mills:
+To Bert Mills:
 
 I object violently. To the revelatim of my name
 regardless of the Law, Here are some reasons:

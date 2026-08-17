@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7265.png
-
-Convert to Markdownto Moscow could consequently be made at relatively little
+to Moscow could consequently be made at relatively little
 additional expense.
 
 c) Subject continued that if he did go to Moscow,

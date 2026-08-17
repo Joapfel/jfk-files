@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3576.png
-
-Convert to MarkdownSECRET
+SECRET
 
 071937Z JUL 68 CITE MANAGUA 6617 (TRECKLER ACTING)
 

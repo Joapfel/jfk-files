@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_127.png
-
-Convert to MarkdownASSIFIED MESSAGE
+ASSIFIED MESSAGE
 
 TOTAL COPIES /S
 

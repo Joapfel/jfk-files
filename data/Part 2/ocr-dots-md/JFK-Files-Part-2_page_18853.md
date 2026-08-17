@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18853.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 WFO indices are negative regarding Mrs. JAFFE, JOSEPHINE WINTER (u) JAFFE, nee JOSEPHINE CLARK WINTER, aka Mrs. SAMUEL ADASON JAFFE.
 

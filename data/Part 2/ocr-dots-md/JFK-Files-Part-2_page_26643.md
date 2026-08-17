@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26643.png
-
-Convert to Markdown# TOP SECRET TRINE
+# TOP SECRET TRINE
 
 ## Soviet Submarine-Launched Missiles
 

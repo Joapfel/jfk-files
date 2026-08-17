@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1791.png
-
-Convert to MarkdownComptroller, and the Assistant to the DCI for Coordination and
+Comptroller, and the Assistant to the DCI for Coordination and
 Intelligence Community Guidance. This Committee, from a
 policy standpoint, would review proposed major projects and
 maintain a continuous review of all major activities and make

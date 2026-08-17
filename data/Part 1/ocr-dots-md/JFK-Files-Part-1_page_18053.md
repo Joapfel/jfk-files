@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18053.png
-
-Convert to Markdowncoupled with the visual observations, were effective in providing timely operational information. In addition, over 8,000 feet of pulse camera film is produced annually, recording the image of each visitor to the Consulate. The years of experience of the principal agent have given him intimate knowledge of the target personalities. He often brings matters to the immediate attention of the Station without having been levied the specific requirement to do so. As a result, the Station is aided greatly in keeping abreast of the day to day activities of the Cuban compound.
+coupled with the visual observations, were effective in providing timely operational information. In addition, over 8,000 feet of pulse camera film is produced annually, recording the image of each visitor to the Consulate. The years of experience of the principal agent have given him intimate knowledge of the target personalities. He often brings matters to the immediate attention of the Station without having been levied the specific requirement to do so. As a result, the Station is aided greatly in keeping abreast of the day to day activities of the Cuban compound.
 
 5. In recent months, the LIONION Project was useful to the Station in checking out statements made by ESMARROW-1.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30145.png
-
-Convert to MarkdownSec II, Par. 2.
+Sec II, Par. 2.
 
 From 1 Jan 1938 To 1 May 1939 Total Months 5
 Class. Grade (if in Federal Service) Salary 0.6% per yr.

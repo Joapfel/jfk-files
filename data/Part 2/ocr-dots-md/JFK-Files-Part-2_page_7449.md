@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7449.png
-
-Convert to Markdownc. Recruit third nationals and Latin American diplomats to be assigned or transferred to bloc countries.
+c. Recruit third nationals and Latin American diplomats to be assigned or transferred to bloc countries.
 
 d. Obtain communications intelligence on bloc diplomatic traffic.
 

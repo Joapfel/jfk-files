@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22247.png
-
-Convert to Markdownhe had known in Moscow. He has not been interviewed directly on the basis of the NOSENKO lead, nor has he reported a recruitment approach.
+he had known in Moscow. He has not been interviewed directly on the basis of the NOSENKO lead, nor has he reported a recruitment approach.
 
 NOSENKO reported that KGB agent № 7649, who is either an agent or a solid contact of the KGB, was working for the Indian
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15968.png
-
-Convert to MarkdownVOLUME II: January 1967 - September 1973
+VOLUME II: January 1967 - September 1973
 
 **CLOSED**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16352.png
-
-Convert to MarkdownThe following items were taken in a search incidental to an arrest of various individuals at Black Panther Headquarters, 2350 West Madison Street, Chicago, Illinois:
+The following items were taken in a search incidental to an arrest of various individuals at Black Panther Headquarters, 2350 West Madison Street, Chicago, Illinois:
 
 KNIVES
 

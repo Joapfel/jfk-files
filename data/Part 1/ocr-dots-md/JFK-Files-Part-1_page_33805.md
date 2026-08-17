@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33805.png
-
-Convert to Markdown<table><tr><td>Recording Secretary</td></tr><tr><td>2-8852</td></tr></table>
+<table><tr><td>Recording Secretary</td></tr><tr><td>2-8852</td></tr></table>
 
 SECRET
 Security Information

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30624.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. transcription generally are summary rather than translation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23669.png
-
-Convert to MarkdownSenator Hart. I don't think this little dotted line means a damned thing, frankly. I've never seen an organization like that work in my life.
+Senator Hart. I don't think this little dotted line means a damned thing, frankly. I've never seen an organization like that work in my life.
 
 This is the --
 Ms. Culbreth. That's OK.

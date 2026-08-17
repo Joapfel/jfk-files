@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8085.png
-
-Convert to MarkdownTELEPOUCH
+TELEPOUCH
 
 13. RADIO HABANA, 5 APRIL, 1967 P.M.
 

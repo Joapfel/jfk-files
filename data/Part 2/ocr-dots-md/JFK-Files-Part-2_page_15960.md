@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15960.png
-
-Convert to Markdown4
+4
 
 10. What is to Be Done - V. I. LENIN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6300.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 24 February 1997
 

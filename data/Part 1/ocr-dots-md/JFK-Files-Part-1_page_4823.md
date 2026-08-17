@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4823.png
-
-Convert to Markdown5 March 1976
+5 March 1976
 
 MEMORANDUM FOR: C/LA/CAM
 FROM: C/LAD

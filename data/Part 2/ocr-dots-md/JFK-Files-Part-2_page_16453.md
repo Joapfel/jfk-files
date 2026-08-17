@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16453.png
-
-Convert to MarkdownHuey Newton interview
+Huey Newton interview
 originally published in
 
 THE MOVEMENT

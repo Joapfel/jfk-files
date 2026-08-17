@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5185.png
-
-Convert to MarkdownA pesar de la inverosimilitud admitida por el C.iller, se manifestó que tal situación, además de grave y canalicada, no podía conceirse ni aquíiera como verión intercada, por cuanto el Gobierno chileno ha reiterado su gratitud incongrovertible para el Ministro Facio y el Gobierno contario cence, por sus leales intervenciones y nobles actitudes evidenciadas en la Asamblea General de la OEA, recientemente realizada et Santiago.
+A pesar de la inverosimilitud admitida por el C.iller, se manifestó que tal situación, además de grave y canalicada, no podía conceirse ni aquíiera como verión intercada, por cuanto el Gobierno chileno ha reiterado su gratitud incongrovertible para el Ministro Facio y el Gobierno contario cence, por sus leales intervenciones y nobles actitudes evidenciadas en la Asamblea General de la OEA, recientemente realizada et Santiago.
 
 El Canciller, compartiendo mis aversaciones, me solicitó lo coordinara una entrevista para el día Domingo, con el Embajador de Chile en Guatemala, General (R) En.Sylvio Salgado Ramirez, a quien deseaba participarlo los comentarios referidos, mixto si se considera que el exiliado cubano Orlando Bosch Avila lanzó la verión del complot en dicho país y, además, es portador de un Panasorte chileno, obteniéndome ilícitamente y con nombre diferente.
 

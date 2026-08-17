@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2669.png
-
-Convert to Markdown1. Mr. Schwarz. But on the question, let's take the opening of an investigation into a domestic group.
+1. Mr. Schwarz. But on the question, let's take the opening of an investigation into a domestic group.
 2.
 3. Is it basically consistent with practicality to make the test immediate threat of a serious Federal crime involving violence?
 4.

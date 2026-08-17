@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32541.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. WE Division strongly believes that on the basis of his past performance and proven capability, Mr. Williamson is the kind of officer whom the Agency should retain. We therefore, recommend that you favorably endorse his request and forward it to the Deputy Director of Central Intelligence for consideration.
 

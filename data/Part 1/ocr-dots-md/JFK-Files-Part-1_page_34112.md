@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34112.png
-
-Convert to Markdown# PROBLEMS WITH THE LORSTER EXPORTS
+# PROBLEMS WITH THE LORSTER EXPORTS
 
 Upon my arrival here I was surprised to learn the extent of the detailed information possessed by ALIMTEX REVOLUTIONARIA and its Economic Research Bureau. This information is accurate and I am able to add more information to that known by the U.R.
 

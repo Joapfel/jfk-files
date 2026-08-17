@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_16852.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">SECRET</th><th>OPENING BALANCE</th></tr></thead><tbody><tr><td>C/10</td><td>DISPATCH SYMBOL AND NUMBER<br/>HTS-7316<br/><br/>CATION<br/>SECRET</td><td>DATE<br/><br/>HCS THE ROVER</td></tr><tr><td>C/M/REG<br/>C/M/1</td><td>ORIGINATING CHG 1:851<br/>CHIEF C/W/H - J. D. Mains Kh - 24 August 1971<br/><br/>CONTACTING CHG 1:<br/>D/C/M/I<br/>21-8-72<br/>L. Leon fn</td><td>DATENUM<br/>7763</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">SECRET</th><th>OPENING BALANCE</th></tr></thead><tbody><tr><td>C/10</td><td>DISPATCH SYMBOL AND NUMBER<br/>HTS-7316<br/><br/>CATION<br/>SECRET</td><td>DATE<br/><br/>HCS THE ROVER</td></tr><tr><td>C/M/REG<br/>C/M/1</td><td>ORIGINATING CHG 1:851<br/>CHIEF C/W/H - J. D. Mains Kh - 24 August 1971<br/><br/>CONTACTING CHG 1:<br/>D/C/M/I<br/>21-8-72<br/>L. Leon fn</td><td>DATENUM<br/>7763</td></tr></tbody></table>

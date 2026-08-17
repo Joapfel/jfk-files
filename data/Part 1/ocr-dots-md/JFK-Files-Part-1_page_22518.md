@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22518.png
-
-Convert to MarkdownSECRET-ERAS ONLY
+SECRET-ERAS ONLY
 
 General Roman, who was to take over the government after Trujillo's death, was not told that the assassination was to be attempted on May 30th. After the slaying, General Diaz tried to telephone General Roman but could not reach him. Diaz then took the car with Trujillo's body still in its trunk and drove to Roman's house. He saw so many soldiers in the vicinity that he gave up and returned home, leaving the car in the driveway with the body still in the trunk, where it was later found by the police.
 

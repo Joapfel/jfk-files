@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2536.png
-
-Convert to Markdown7 Oct. 1977
+7 Oct. 1977
 
 As of this date a full search has been made of CPD for the about of subject's file. Our records indicate that it was charged out to Jim Hutchinson in July probably in reference to question raised by Terry Hutchinson on dependent travel. He has searched and his very has searched OGC with no success.
 

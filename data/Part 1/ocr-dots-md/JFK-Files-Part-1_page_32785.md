@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32785.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Office of Security/Alien Affairs Staff
 Attention: Mr. Louis Weinchowski

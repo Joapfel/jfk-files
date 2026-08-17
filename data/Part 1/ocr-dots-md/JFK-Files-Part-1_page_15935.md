@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15935.png
-
-Convert to MarkdownACTION: EE 6
+ACTION: EE 6
 
 INFO : CI, CI/OPS, FI, COC, AF 4, SR 6, S/C 2
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8702.png
-
-Convert to Markdown10.01.10 Como pasajero en un automóvil, ¿es persona que permanecen muy en calma y relativamente indiferente a la manera de manejar del conductor? No ____ Si ✓ ____
+10.01.10 Como pasajero en un automóvil, ¿es persona que permanecen muy en calma y relativamente indiferente a la manera de manejar del conductor? No ____ Si ✓ ____
 
 10.01.11 Es una persona que
 

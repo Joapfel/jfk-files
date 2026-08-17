@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26598.png
-
-Convert to MarkdownSEAL
+SEAL
 
 Victor Rico Galan was born 6 February 1928 at El Ferrol, Spain, and came to Mexico as a Spanish "niño" (year unknown). He became a Mexican citizen and is now a prominent leftist journalist for Siempre and Politica. He lives at Providencia 930, Mexico City. He is head of the National Press and Propaganda Committee of the Movimiento de Literación Nacional (MILAN). He was a member of the Committee for Solidarity with the Cuban Revolution and of the Periodistas Amigas de Cuba in 1961.
 

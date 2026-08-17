@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32584.png
-
-Convert to Markdowncarry refugees from Habana to Central America. CMA, as a
+carry refugees from Habana to Central America. CMA, as a
 result, stated that they had no intention of proceeding
 further with this project.
 

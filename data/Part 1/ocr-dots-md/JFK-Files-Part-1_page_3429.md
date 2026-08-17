@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3429.png
-
-Convert to MarkdownReport # DD-068.
+Report # DD-068.
 
 TO: [REDACTED]
 

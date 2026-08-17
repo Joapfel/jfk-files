@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10623.png
-
-Convert to MarkdownFORM 8-41 12A-3 Use Previous Editions
+FORM 8-41 12A-3 Use Previous Editions
 
 CLASSIFIED MESSAGE
 

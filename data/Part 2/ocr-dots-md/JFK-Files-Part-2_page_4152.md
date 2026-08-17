@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4152.png
-
-Convert to Markdown3 April
+3 April
 
 MEMORANDUM FOR THE RECORD
 

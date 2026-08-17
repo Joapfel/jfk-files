@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17537.png
-
-Convert to MarkdownThe Indianapolis Division of the Federal Bureau of
+The Indianapolis Division of the Federal Bureau of
 Investigation (FBI) advised on October 1, 1969, JEWEL
 COOK, WILLIE CALVIN and CLEVELAND COOK were all arrested
 in Indianapolis, Indiana, where they had travelled to

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22076.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 <table><thead><tr><th colspan="2">PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>MCCONE<br>HELMS<br>BUNDY<br>R. KENNEDY</td><td>HOOVER</td><td>Mar 2, 1964</td><td>Special Group<br>Mongoose</td></tr></tbody></table>
 

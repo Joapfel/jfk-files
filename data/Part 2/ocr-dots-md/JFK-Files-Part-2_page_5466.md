@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5466.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (When Filled In)
 
 6. I understand that for all grievances and complaints there are established procedures within the Agency permitting appeal by any employee of the Agency and to carry any such grievance or complaint outside the Agency will be considered a violation of the undertaking set forth above in paragraph 3. If the appeal procedures are inadequate in any situation, I am aware that the Inspector General is at all times available to any employee with a legitimate criticism, grievance, or complaint.

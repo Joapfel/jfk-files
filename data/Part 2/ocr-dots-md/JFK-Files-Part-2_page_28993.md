@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28993.png
-
-Convert to Markdown# Part II Pre-1970 and Post-1969 Capital Loss Carryovers
+# Part II Pre-1970 and Post-1969 Capital Loss Carryovers
 
 ## Section A.—Short-term Capital Losses Identified
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1217.png
-
-Convert to MarkdownCOORDINATING OFFICERS
+COORDINATING OFFICERS
 
 <table><tr><td>DE AFT</td></tr></table>
 

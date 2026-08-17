@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17909.png
-
-Convert to MarkdownVIA. Air Pouch
+VIA. Air Pouch
 (SPECIFY AIR OR SEA PURCH)
 
 DISPATCH NO.

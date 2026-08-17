@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3418.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>u5 SECRET</td></tr><tr><td>TO : DIRECTOR<br/>FROM : JMHAVE<br/>ACTION: DC/WH/SA 3<br/>INFO : DDP, VR</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>u5 SECRET</td></tr><tr><td>TO : DIRECTOR<br/>FROM : JMHAVE<br/>ACTION: DC/WH/SA 3<br/>INFO : DDP, VR</td></tr></tbody></table>
 
 <table><thead><tr><th colspan="4">ROUTING</th></tr></thead><tbody><tr><td>1</td><td>2</td><td>3</td><td>4</td></tr><tr><td>2</td><td>3</td><td>4</td><td>5</td></tr><tr><td>3</td><td>4</td><td>5</td><td>6</td></tr><tr><td>E0B CI</td><td>E1S SI</td><td>L2 BP</td><td>CL C1 EH HS</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34828.png
-
-Convert to Markdown22 June 1968
+22 June 1968
 
 MEMORANDUM FOR: Chief, WH/Cuba
 

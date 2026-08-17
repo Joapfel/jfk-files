@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9601.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 was addressed to the SAO, indicated that STEVENS was in
 control of at least part of what was left of the former

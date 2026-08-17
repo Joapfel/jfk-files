@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32435.png
-
-Convert to Markdown4 October 1962
+4 October 1962
 
 # MEMORANDUM: Cuban Subversion in Other Latin American Countries
 

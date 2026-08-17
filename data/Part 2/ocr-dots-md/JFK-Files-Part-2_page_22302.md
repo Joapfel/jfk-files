@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22302.png
-
-Convert to Markdown1960.
+1960.
 
 Mr. Madigan. It was sometime after you had begun in '54
 with your Agency operation?

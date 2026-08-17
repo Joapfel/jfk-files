@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24725.png
-
-Convert to Markdown73. N.Y., Kolodny
+73. N.Y., Kolodny
 Texas House St.
 Telephones 36-32-1, 3, 4
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10833.png
-
-Convert to MarkdownNY 52-10018
+NY 52-10018
 
 Eyes
 Complexion

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30511.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Osenko IF 5-26
 talked to L. upk. bird pack

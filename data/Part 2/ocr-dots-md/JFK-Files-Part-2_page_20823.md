@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20823.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 BOWAAC headquarters continues to be located at 419 Boylston Street, Boston, Room 323.
 

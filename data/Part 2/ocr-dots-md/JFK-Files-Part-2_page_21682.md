@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21682.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Houston. It was a memo of DITEL's that I saw.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23825.png
-
-Convert to Markdown1 think we can make the point that terrorism may constitute a greater threat now.
+1 think we can make the point that terrorism may constitute a greater threat now.
 
 2
 

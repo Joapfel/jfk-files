@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11246.png
-
-Convert to MarkdownII. Race
+II. Race
 White and Caucasian W
 Negro N
 Chinese C

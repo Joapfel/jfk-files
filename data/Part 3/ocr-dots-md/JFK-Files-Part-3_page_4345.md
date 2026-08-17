@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4345.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 Detailed information was developed regarding a [BPP] speaking tour in Canada during November, 1969, which would realize approximately $3,000 for the organization. Also, data was developed that two [BPP] members on the speaking tour were using false identification in Canada and were arrested by Canadian officials. Information revealed that the [Chicago BPP] was experiencing difficulty with the establishment of a health center because of harassment by a Chicago youth gang. The installation provided data concerning proposed weekly demonstrations in connection with the antiriot conspiracy trial which was being held in Chicago and of efforts on the part of the [BPP] to fill the courtroom with sympathizers.
 

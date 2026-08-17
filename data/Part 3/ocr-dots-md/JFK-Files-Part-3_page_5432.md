@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5432.png
-
-Convert to Markdown**QUESTION:** Mr. Kelley, were any of these done in conjunction with the CIA? With their knowledge?
+**QUESTION:** Mr. Kelley, were any of these done in conjunction with the CIA? With their knowledge?
 
 **ANSWER:** I know of none. Now, subsequently, perhaps there may have been information which did go to them but, not insofar as the origin of the information, I'm confident of that. We were not in partnership with CIA.
 

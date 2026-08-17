@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27441.png
-
-Convert to MarkdownC-O-N-F-I-D-E-N-T-I-L
+C-O-N-F-I-D-E-N-T-I-L
 
 DATE: 25 August 1979
 PROT: 7-213

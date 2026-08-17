@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23151.png
-
-Convert to MarkdownSECRET
+SECRET
 
 because of his previous peace activities, and because he has not been a part of any revolutionary action group. The doctor and spiritual guide who constantly accompanies CASTRO is Doctor VALLEJO /Dr. Rene VALLEJO Ortiz/. With BUSTAMANTE, LOPEZ Sanchez /Dr. Jose LOPEZ Sanchez/ and ARAUJO /Dr. Leopoldo E. ARAUJO Bernal/ as well, there collaborates Doctor Armando de CORDOVA /Dr. Armando de CORDOVA y de Castro/, high official of the Ministry of Public Health. I do not know the contacts of Doctor BUSTAMANTE abroad but I assume that there are many because for more than five years he dedicated himself with the influence and financial support of the medical college /National Medical College/ to establishing relations all over the world, attending congresses and meetings as a member of the various commissions, but as I reported previously, /in SW #1077 without publicity and working and directing covertly the /activities/ of his ad hoc puppets.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21830.png
-
-Convert to Markdownexact month) he was ordered to go to Guatamela to train the
+exact month) he was ordered to go to Guatamela to train the
 Cuban airborne brigade that eventually was parachuted into Cuba
 six hours in advance of the landing at the Bay of Pigs. This
 training was conducted at a site in the Guatamelan jungle called

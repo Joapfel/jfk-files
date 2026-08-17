@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27073.png
-
-Convert to MarkdownCLASSIFIED MESSAGE TOTAL COPIES: 25
+CLASSIFIED MESSAGE TOTAL COPIES: 25
 
 <table><thead><tr><th colspan="2">SECRET</th></tr><tr><td>PERSON/UNIT NOTIFIED:</td><td></td></tr><tr><td>ADVANCE COPY:</td><td>UNIT:</td></tr><tr><td>☐ ISSUED</td><td>☐ FORGED</td></tr></thead><tbody><tr><td>1</td><td>3</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>
 

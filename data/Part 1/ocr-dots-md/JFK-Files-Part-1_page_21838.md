@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21838.png
-
-Convert to Markdownh. KOSENCRO'S Operational Activities (1958-1959) 698
+h. KOSENCRO'S Operational Activities (1958-1959) 698
 
 (i) General 698
 

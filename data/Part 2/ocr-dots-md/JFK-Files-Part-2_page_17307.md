@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17307.png
-
-Convert to Markdown# "RIGHT ON" TO THE SPURGEON 'JAKE' WINTERS FREE MEDICAL CARE CENTER
+# "RIGHT ON" TO THE SPURGEON 'JAKE' WINTERS FREE MEDICAL CARE CENTER
 
 "The Spurgeon 'Jake' Winters Medical Center has been planning a free People's Clinic, and we have been giving our support." —Satchell our
 

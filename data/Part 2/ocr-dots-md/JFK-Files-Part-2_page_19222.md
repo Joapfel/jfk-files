@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19222.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Partial List of Sponsors
 

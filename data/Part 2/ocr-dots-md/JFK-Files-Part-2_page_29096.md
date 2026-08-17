@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29096.png
-
-Convert to Markdown# Samuel and Phyllis Ruby
+# Samuel and Phyllis Ruby
 
 ## SUPPLEMENT TO SCHEDULE D
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15236.png
-
-Convert to MarkdownMemorandum to Mr. Sullivan
+Memorandum to Mr. Sullivan
 Re: INTELLIGENCE COVERAGE OF FOREIGN COUNTRIES
 
 65-63113

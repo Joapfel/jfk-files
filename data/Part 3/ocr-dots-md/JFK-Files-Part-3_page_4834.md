@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4834.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Determine subscriber to telephone number LO 5-7433. Conduct credit, criminal and indices checks.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8542.png
-
-Convert to Markdown005
+005
 
 LOGUINOV, Valentin P.11712
 

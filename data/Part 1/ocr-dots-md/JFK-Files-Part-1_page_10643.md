@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10643.png
-
-Convert to Markdown<table><thead><tr><th>1844720</th></tr></thead><tbody><tr><td>PAFR - <br> .0000000 .00000000 <br> ============== <br> 11111-1111111-11111 </td></tr><tr><td>3 2222222222222222 <br> 3333333333333333 </td></tr><tr><td>.0000000000000000 <br> ============== <br> 0000000000000000 </td></tr><tr><td>201 04 26 69</td></tr></tbody></table>
+<table><thead><tr><th>1844720</th></tr></thead><tbody><tr><td>PAFR - <br> .0000000 .00000000 <br> ============== <br> 11111-1111111-11111 </td></tr><tr><td>3 2222222222222222 <br> 3333333333333333 </td></tr><tr><td>.0000000000000000 <br> ============== <br> 0000000000000000 </td></tr><tr><td>201 04 26 69</td></tr></tbody></table>
 
 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28703.png
-
-Convert to MarkdownSEC. LT
+SEC. LT
 (Non-negotiable)
 
 <table><tr><td colspan="2">PERS. SERIAL NO.</td></tr><tr><td>055495</td><td>BIOGRAPHIC PROFILE (PART 2)</td></tr></table>

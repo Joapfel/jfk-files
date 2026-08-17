@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19583.png
-
-Convert to MarkdownSF 100-59802
+SF 100-59802
 GOW/sms
 
 On January 31, 1968, at a meeting of the Marin County Chapter of the Women's International League For Peace and Freedom (WILPF), SF 2955-S advised that during a general discussion concerning the Brigade, it was felt that the group did not want the Brigade to become another formalized group, but rather keep the Brigade as a loose organization, and as an umbrella group for the WILPF.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29770.png
-
-Convert to MarkdownSept. 4, 1978
+Sept. 4, 1978
 
 & the undersigned,
 Donald E. Dussel,

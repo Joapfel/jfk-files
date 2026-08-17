@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13992.png
-
-Convert to Markdownthe Army, Assistant Secretary of Defense, Director of Defense
+the Army, Assistant Secretary of Defense, Director of Defense
 Mobilization and Presidential Assistant for National Security
 Affairs. He noted, too, that with Coyne on behalf of the Board,
 Mr. Gray has made on-the-scene reviews of intelligence activities

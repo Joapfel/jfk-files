@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10151.png
-
-Convert to MarkdownSummary -
+Summary -
 
 LITAMIL-7
 

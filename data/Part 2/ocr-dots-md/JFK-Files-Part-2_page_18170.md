@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18170.png
-
-Convert to Markdownhis contacts with numerous individuals in diplomatic circles. He was again told that all of this information was reduced to writing and I understood that it was disseminated to other government agencies, including the U. S. Mission to the UN and the State Department. Wallach wanted to know how I knew this to be the case. I explained that FBI policy required dissemination of information to other government agencies and I felt certain that this policy was followed in the case of memoranda prepared as a result of my contacts with Jaffee.
+his contacts with numerous individuals in diplomatic circles. He was again told that all of this information was reduced to writing and I understood that it was disseminated to other government agencies, including the U. S. Mission to the UN and the State Department. Wallach wanted to know how I knew this to be the case. I explained that FBI policy required dissemination of information to other government agencies and I felt certain that this policy was followed in the case of memoranda prepared as a result of my contacts with Jaffee.
 
 Wallach asked if Jaffee was an informant and I told him that Jaffee might more properly be called a Source of Information.
 

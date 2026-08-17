@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23463.png
-
-Convert to MarkdownDate:
+Date:
 
 Mr. Arthur G. Vaivada
 

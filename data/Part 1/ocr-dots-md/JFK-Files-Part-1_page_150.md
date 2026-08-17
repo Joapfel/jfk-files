@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_150.png
-
-Convert to Markdown(d) [L] turned over to B (for return) a handbill put out by the Escuela Normal Rural de Santa Teresa, Coahuila, dated 10 June 1963, explaining that schools invitation to Fidel Castro to act as sponsor of the 1958-1963 graduating class. Copy attached.
+(d) [L] turned over to B (for return) a handbill put out by the Escuela Normal Rural de Santa Teresa, Coahuila, dated 10 June 1963, explaining that schools invitation to Fidel Castro to act as sponsor of the 1958-1963 graduating class. Copy attached.
 
 (1) L turned over a pornographic cartoon (for return) distributed by pro-Castro elements in Tampico. Copy not attached.
 

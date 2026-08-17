@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29329.png
-
-Convert to MarkdownPHILLIPS, page 6
+PHILLIPS, page 6
 
 relationship would have been at least partially responsible
 for reporting such a visit to Headquarters.

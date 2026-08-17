@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6896.png
-
-Convert to Markdownwiretap authorization question cannot be resolved.
+wiretap authorization question cannot be resolved.
 
 The heavily redacted Grunewald files further disclosed that Grunewald became the subject in 1953 of a third FBI wiretap. In 1952, a House Committee held public hearings on the subject of influence peddling that centered on Grunewald's activities, among others. This inquiry proved embarrassing to the Truman Administration and was exploited by the Republicans during the 1952 presidential and congressional campaigns. In 1953, the new Republican-controlled House revisited this issue. Particularly interested in Grunewald, the so-called Kean Committee sought assistance from the Justice Department. The heavily redacted records (see Appendix C), however, preclude answers to the questions as to why concurrent with this congressional inquiry Attorney General Herbert Brownell had requested and authorized this wiretap and whether the Justice Department's assistance to the Committee included information learned from this wiretap. (I have only appended a summary of one FBI report to the Attorney General, based on this wiretap. The released transcripts of this 1953 wiretap, in contrast to those released to me involving the 1941 and 1945 taps, were heavily redacted—the FBI withheld on personal privacy grounds the names and intercepted conversations of Grunewald's telephone partners, rendering the released transcripts virtually incomprehensible and of minimal research value.)
 

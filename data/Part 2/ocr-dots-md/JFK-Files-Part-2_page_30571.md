@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30571.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5C File. SECRET
 

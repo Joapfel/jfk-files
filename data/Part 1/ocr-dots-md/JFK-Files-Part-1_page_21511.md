@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21511.png
-
-Convert to MarkdownSECRET
+SECRET
 
 To: Knowledge was there any misleading information in the CECILIAOV papers? No.
 

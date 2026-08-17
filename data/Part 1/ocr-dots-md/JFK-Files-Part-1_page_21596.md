@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21596.png
-
-Convert to Markdownbe considered by them as the only or at least the best means of
+be considered by them as the only or at least the best means of
 achieving the desired end and of having a very high probability
 of success.
 

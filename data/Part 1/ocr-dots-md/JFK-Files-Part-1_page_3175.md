@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3175.png
-
-Convert to Markdown# SPECIAL REPORT
+# SPECIAL REPORT
 
 ## I.- SUBJECT
 

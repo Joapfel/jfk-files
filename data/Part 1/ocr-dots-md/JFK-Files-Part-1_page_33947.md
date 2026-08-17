@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33947.png
-
-Convert to MarkdownParis, March 3, 1952
+Paris, March 3, 1952
 
 Dear Bob,
 

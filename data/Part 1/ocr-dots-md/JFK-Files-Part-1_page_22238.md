@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22238.png
-
-Convert to Markdown646.
+646.
 
 discussion below. This subject, too, must be considered neutral evidence in the bona fides assessment.
 

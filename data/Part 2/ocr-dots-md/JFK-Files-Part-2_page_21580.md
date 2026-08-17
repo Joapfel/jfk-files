@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21580.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 operations that terminated in the mid-sixties that involved
 interceptions of propaganda from other countries to the US?

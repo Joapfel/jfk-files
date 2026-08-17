@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21679.png
-
-Convert to MarkdownContrary to this assertion, a review of the official memorandum, dated 16 June 1961, of [Colonel URBAN] reflects that [KEYSERS] was not informed by [URBAN] of the "allegations of homosexuality in order not to aggravate the possibility of a rash act by him while within the Soviet Union."
+Contrary to this assertion, a review of the official memorandum, dated 16 June 1961, of [Colonel URBAN] reflects that [KEYSERS] was not informed by [URBAN] of the "allegations of homosexuality in order not to aggravate the possibility of a rash act by him while within the Soviet Union."
 
 (c) On page 236 of the previous summary, the statement is made that, "[NOSERKO] asserted that he relied on information procured from microphones [KEYSERS] failure to report receipt of the defection invitation) he was in error."
 

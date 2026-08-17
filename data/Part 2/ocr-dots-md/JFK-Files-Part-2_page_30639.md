@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30639.png
-
-Convert to Markdown96
+96
 
 LIFE AT by Paul V. Levister.
 

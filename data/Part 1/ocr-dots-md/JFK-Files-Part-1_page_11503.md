@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11503.png
-
-Convert to MarkdownQuechua LIRING-4:
+Quechua LIRING-4:
 
 Es porque ni mucha el asco de peze esco
 Binte.- Prenda que la waga hasta alhora pez

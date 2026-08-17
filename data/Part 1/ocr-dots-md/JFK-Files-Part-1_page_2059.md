@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2059.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>TRANSMITTAL SLIP</td>
     <td>DATE<br/>13 Mar '78</td>

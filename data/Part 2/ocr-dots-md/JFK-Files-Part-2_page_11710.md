@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11710.png
-
-Convert to MarkdownA. PRESS RELEASES
+A. PRESS RELEASES
 
 Employees are forbidden to furnish to the press either directly or indirectly
 any information concerning Bureau matters without prior authorization from the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25844.png
-
-Convert to Markdown# APPENDIX I
+# APPENDIX I
 
 ## PROJECT LISTICK
 ### SCHEDULE OF INSTRUCTION

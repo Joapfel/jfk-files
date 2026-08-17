@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15554.png
-
-Convert to Markdown<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><th>DATE :<br/>9 APR 61</th><td></td><th>Routing<br/><table><tbody><tr><td>1</td><td>C.70</td><td>4</td></tr><tr><td>2</td><td>LHAW</td><td>5</td></tr><tr><td>3</td><td>LHW</td><td>6</td></tr></tbody></table></th></tr></thead><tbody><tr><td>TO : DIRECTOR L-1077</td><td>FROM : LEOPOLDVILLE</td><td>APR 9 1338Z 61</td></tr><tr><td>ACTION : C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 1100, 9 APR 61)</td><td>JINFO : COP, C/CA, C/C1, C/F1 2, C/EE 3, S/C 2</td><td>PRIORITY</td></tr><tr><td></td><td></td><td>IN 33155</td></tr></tbody></table>
+<table><thead><tr><th colspan="3">CLASSIFIED MESSAGE</th></tr><tr><th>DATE :<br/>9 APR 61</th><td></td><th>Routing<br/><table><tbody><tr><td>1</td><td>C.70</td><td>4</td></tr><tr><td>2</td><td>LHAW</td><td>5</td></tr><tr><td>3</td><td>LHW</td><td>6</td></tr></tbody></table></th></tr></thead><tbody><tr><td>TO : DIRECTOR L-1077</td><td>FROM : LEOPOLDVILLE</td><td>APR 9 1338Z 61</td></tr><tr><td>ACTION : C/AF 3 (TEMPO COPY SLOTTED FOR AF AT 1100, 9 APR 61)</td><td>JINFO : COP, C/CA, C/C1, C/F1 2, C/EE 3, S/C 2</td><td>PRIORITY</td></tr><tr><td></td><td></td><td>IN 33155</td></tr></tbody></table>
 
 PRITY DIR CITE LEOP 1155
 

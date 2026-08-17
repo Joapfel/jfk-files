@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23859.png
-
-Convert to Markdown14-0000G
+14-0000G
 
 ORIG : A. Goodrich
 UNIT : CI/ICC

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7342.png
-
-Convert to MarkdownSUBJECT: Guidelines for Members of the Select Committee and Their Staffs While Traveling Abroad
+SUBJECT: Guidelines for Members of the Select Committee and Their Staffs While Traveling Abroad
 
 There have been already and there will continue to be members of the Senate Select Committee (SSC) who wish to travel abroad and talk to U.S. embassy and intelligence personnel. It is essential that we agree on guidelines to avoid serious diplomatic and security problems.
 

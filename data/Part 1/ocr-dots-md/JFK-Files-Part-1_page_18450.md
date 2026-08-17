@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18450.png
-
-Convert to MarkdownSECRET
+SECRET
 
 13 DEC.
 

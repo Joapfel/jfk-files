@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17943.png
-
-Convert to MarkdownREC'D RECD
+REC'D RECD
 DIVISION
 MAR 25 1975 5:00PM'75
 

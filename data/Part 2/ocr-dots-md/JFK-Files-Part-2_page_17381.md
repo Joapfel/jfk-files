@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17381.png
-
-Convert to MarkdownBLACK PANTHER PARTY
+BLACK PANTHER PARTY
 
 Nothing was really decided at this meeting,
 except to meet again on February 8, 1969, after which

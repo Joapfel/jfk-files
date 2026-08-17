@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23756.png
-
-Convert to Markdown2
+2
 
 Senator Huddleston: Could we make some kind of a footnote
 

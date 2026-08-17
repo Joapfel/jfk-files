@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19371.png
-
-Convert to MarkdownTSIN CO9
+TSIN CO9
 
 OF FUNDS IN PARCH NUMBER 5.
 

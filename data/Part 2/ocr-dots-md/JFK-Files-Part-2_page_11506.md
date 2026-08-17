@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11506.png
-
-Convert to Markdown(6) Character
+(6) Character
 
 (a) Key figures and top functionaries
 Internal Security - followed by the letters designating the organizational affiliation or nationalistic tendencies.

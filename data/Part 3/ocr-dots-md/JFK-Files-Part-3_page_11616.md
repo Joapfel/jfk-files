@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11616.png
-
-Convert to Markdown4-E
+4-E
 
 Party (PSO), Armed Revolutionary Independence Movement (MIRA),
 Armed Commandos for Liberation (CAL), and the Nationalist Party

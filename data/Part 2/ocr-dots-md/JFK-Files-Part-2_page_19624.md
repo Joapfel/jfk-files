@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19624.png
-
-Convert to MarkdownNR 037 NY CODE
+NR 037 NY CODE
 
 5-30 PM URGENT 4-8-71 MJW
 

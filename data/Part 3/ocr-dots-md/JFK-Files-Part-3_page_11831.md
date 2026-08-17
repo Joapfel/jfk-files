@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11831.png
-
-Convert to Markdown1 - Mr. Sullivan
+1 - Mr. Sullivan
 1 - Mr. Mohr
 1 - Mr. Callahan
 1 - Mr. Fonder

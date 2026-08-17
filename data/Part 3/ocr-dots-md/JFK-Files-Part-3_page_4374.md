@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4374.png
-
-Convert to Markdown# Memorandum for the Attorney General
+# Memorandum for the Attorney General
 
 between Supreme Commander Huey P. Newton and Minister of Information Eldridge Cleaver. This split between two conflicting factions has the potential for violence, which presents a danger to the black communities. The Washington, D. C., chapter of the BPP has aligned itself with Newton; however, some members have openly discussed their possible support of Cleaver.
 

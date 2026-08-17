@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27216.png
-
-Convert to MarkdownG-C-H Files
+G-C-H Files
 
 H. Previous CIA Reports
 Two memos (one TOP SECRET)

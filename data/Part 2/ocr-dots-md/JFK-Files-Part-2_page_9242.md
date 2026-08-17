@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9242.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 An article which appeared in the February 17, 1973, edition of the "Michigan Chronicle" entitled "Panthers Appeal for Support of Prison Busing Program" quoted ROLLIN REID, a BPP member as saying "The Community should do more to support the program. Basically we cannot get more community support because of the old BPP image of leather coats and guns. People think we are thugs."
 

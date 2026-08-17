@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17094.png
-
-Convert to Markdown# LETTER TO BOBBY FROM HIS WIFE
+# LETTER TO BOBBY FROM HIS WIFE
 
 Bobby:
 

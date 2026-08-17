@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5169.png
-
-Convert to Markdown- 7 -
+- 7 -
 
 for information or services concerning any case
 handled on his desk and in this way will be aware of the

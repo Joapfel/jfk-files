@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8064.png
-
-Convert to Markdownpresented at an Executive Session, or classi-
+presented at an Executive Session, or classi-
 fied papers, and other materials received by
 the staff or its consultants while in the em-
 ploy of the Committee shall be made public,

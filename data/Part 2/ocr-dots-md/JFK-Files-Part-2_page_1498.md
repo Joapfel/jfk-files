@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1498.png
-
-Convert to MarkdownB-15-23
+B-15-23
 
 # TRAINING SUMMARY
 ## CLANDESTINE SERVICES REVIEW NO. 14

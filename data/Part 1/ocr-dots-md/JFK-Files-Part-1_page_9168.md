@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9168.png
-
-Convert to Markdown# COORDINATION OF INFORMATION
+# COORDINATION OF INFORMATION
 
 J.I.C., meeting, May 12, 1942 - Statement of Mrs. Clare Luce
 

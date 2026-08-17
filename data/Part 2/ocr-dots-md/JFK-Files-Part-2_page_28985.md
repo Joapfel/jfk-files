@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28985.png
-
-Convert to MarkdownSchedule C (Form 1040) 1975
+Schedule C (Form 1040) 1975
 
 SCHEDULE C-2.—Explanation of Lines 7 and 9
 

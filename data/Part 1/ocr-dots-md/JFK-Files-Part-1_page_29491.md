@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29491.png
-
-Convert to Markdown5. Any questions regarding this matter should be directed to the undersigned at Room 4E42, Headquarters Building, extension 5961.
+5. Any questions regarding this matter should be directed to the undersigned at Room 4E42, Headquarters Building, extension 5961.
 
 William R. Kotapish
 

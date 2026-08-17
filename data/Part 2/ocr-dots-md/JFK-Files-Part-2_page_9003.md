@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9003.png
-
-Convert to Markdowncomo las que inicialmente señaló, a fin de provocar una reacción
+como las que inicialmente señaló, a fin de provocar una reacción
 energica desde el punto de vista político de parte de los Esta--
 dos Unidos de Norteamérica, en contra del Gobierno de FIDEL CAS-
 TRU RUZ, y que no tuvo otro motivo más que el profundo odio que

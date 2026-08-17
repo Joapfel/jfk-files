@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1428.png
-
-Convert to MarkdownSECRET
+SECRET
 (WHEN FILLED IN)
 
 <table><thead><tr><td colspan="2">1. EMP. SERIAL NO.</td><td>2</td><td>NAME</td><td>3. ASSIGNED ORGAN.</td><td>4. FUNDS</td><td>5. ALLOTMENT</td></tr></thead><tbody><tr><td colspan="2">160947</td><td colspan="2">WHEELER ROBERT P</td><td>DDP/FE -11</td><td>V-20</td><td></td></tr></tbody></table>

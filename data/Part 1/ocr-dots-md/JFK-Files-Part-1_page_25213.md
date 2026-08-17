@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25213.png
-
-Convert to MarkdownWASHINGTON POST
+WASHINGTON POST
 
 Mr. Stephen ROSENfeld
 

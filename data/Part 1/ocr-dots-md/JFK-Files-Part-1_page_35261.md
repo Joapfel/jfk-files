@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35261.png
-
-Convert to Markdown# FREnte RevolucIONario DEmOcratico
+# FREnte RevolucIONario DEmOcratico
 DEpartamento DE FINanzas DE MIAMI
 
 Agosto 1 al 31 de 1960

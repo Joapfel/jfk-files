@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24267.png
-
-Convert to Markdownminority groups should form their own organizations separate from the RU. QRPHONE said Wright is very bitter toward the Black Panther movement and thinks that Eldridge Cleaver is "bad" and that Huey Newton and Bobby Seale are "corrupt".
+minority groups should form their own organizations separate from the RU. QRPHONE said Wright is very bitter toward the Black Panther movement and thinks that Eldridge Cleaver is "bad" and that Huey Newton and Bobby Seale are "corrupt".
 
 ## SAN FRANCISCO
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9865.png
-
-Convert to MarkdownNR 010 SE PLAIN
+NR 010 SE PLAIN
 
 FEBRUARY 20, 1976 GWA 21 1973
 

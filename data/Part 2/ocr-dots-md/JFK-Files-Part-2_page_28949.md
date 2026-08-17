@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28949.png
-
-Convert to MarkdownBENEFIT SUMMARY
+BENEFIT SUMMARY
 
 Form approved by
 Comptroller General, U. S., October 25, 1950

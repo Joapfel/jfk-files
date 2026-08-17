@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_19.png
-
-Convert to Markdownup information." ODI, we need of course, continued to put out its regular
+up information." ODI, we need of course, continued to put out its regular
 
 Dominican publications. It was during the FDDIANN crisis that word was received that the President's Daily Brief had taken firm root in the White House. HXUAX
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_528.png
-
-Convert to MarkdownSECRET
+SECRET
 
 in dialectics, which she has found to be particularly useful in understanding the study group discussion and to permit her participation.)
 

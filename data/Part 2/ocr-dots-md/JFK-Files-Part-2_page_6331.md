@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6331.png
-
-Convert to Markdown(f) Artifacts.
+(f) Artifacts.
 
 § 1400.5 Requirement that assassination records be released in their entirety.
 

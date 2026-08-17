@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10874.png
-
-Convert to MarkdownL. ALTERNATIVES
+L. ALTERNATIVES
 
 In addition to the recommended plan set forth in
 preceeding sections, there are several alternative courses

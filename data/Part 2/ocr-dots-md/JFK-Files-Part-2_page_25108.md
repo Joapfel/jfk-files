@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25108.png
-
-Convert to MarkdownINTERVIEW AND MEETING SUMMARY
+INTERVIEW AND MEETING SUMMARY
 
 # Interview and Meeting Summary - "Victor Hedgeman" w/Bill Bader, August 22, 1975, S201
 

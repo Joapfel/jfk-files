@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10716.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 IN 29176 FSO
 

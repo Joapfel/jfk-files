@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3345.png
-
-Convert to MarkdownSECRET
+SECRET
 
 The U. S. could assist rebel groups covertly to overthrow the present government and re-establish a friendly government. Concurrently, it could take all possible measures to alert all friendly nations and the U.S. people and branches of the U. S. Government to the danger of the threat
 

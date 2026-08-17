@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17956.png
-
-Convert to MarkdownSECRET
+SECRET
 
 7. Personal involved in the tapping of the lines are:
 

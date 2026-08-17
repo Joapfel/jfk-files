@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17084.png
-
-Convert to MarkdownAt the height of the rally, about 75 BPP and New Left people, along with 200 to 225 individuals were observed in the plaza area of the Federal Building. BOB RUSH, Deputy Minister of Defense spoke along the theme that the government should be on trial for conspiracy against the BPP. RUSH offered the raids on Panther offices throughout the nation as evidence. The rally was dismissed without incident.
+At the height of the rally, about 75 BPP and New Left people, along with 200 to 225 individuals were observed in the plaza area of the Federal Building. BOB RUSH, Deputy Minister of Defense spoke along the theme that the government should be on trial for conspiracy against the BPP. RUSH offered the raids on Panther offices throughout the nation as evidence. The rally was dismissed without incident.
 
 Agents of the FBI observed a demonstration at Cook County Hospital, 1835 West Harrison Street, Chicago. This demonstration was sponsored, according to leaflet, by the Young Lords, the BPP and the Revolutionary Youth Movement (RYM II) faction of Students for a Democratic Society (SDS), on October 10, 1969. LYNN FRENCH, Chicago BPP member, spoke and stated that the BPP could perform a better service for the indigent people of the ghetto, instead of the Cook County Hospital, if the BPP was allowed to obtain a day care and health center. The group dispersed without incident.
 

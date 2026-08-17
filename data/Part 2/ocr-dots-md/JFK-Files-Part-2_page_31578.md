@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31578.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 think "we" want them to die. "If we kept silent, we would be disloyal to them. We march against this war because we believe that our loyalty to humanity and to our country is far more important than any loyalty to politics and generals."

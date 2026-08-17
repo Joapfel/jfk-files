@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18892.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 SAMUEL ADASON JAFFE
 

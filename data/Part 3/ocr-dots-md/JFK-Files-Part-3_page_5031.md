@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5031.png
-
-Convert to Markdown# OBSERVATIONS OF GENERAL INVESTIGATIVE DIVISION
+# OBSERVATIONS OF GENERAL INVESTIGATIVE DIVISION
 
 The Bureau is currently paying Gary Thomas Rowe $16.00 per day subsistence in lieu of expenses. This figure was initially decided upon after discussion with the Department, and with the Department's approval, as it was recognized that the informant had to be removed from the Birmingham area for his protection and safety. The Department pointed out that it would not be desirable to make any lump sum or large payment to the informant so long as he might be called upon to testify, as any such large payments might be construed in court as a payment for his testimony, whereas payment of his living expenses can readily be justified as a necessity.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17406.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 BLACK PANTHER PARTY (BPP)
 

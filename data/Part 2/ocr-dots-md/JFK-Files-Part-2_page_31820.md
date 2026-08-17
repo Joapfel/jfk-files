@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31820.png
-
-Convert to MarkdownDD FORM 1584 - continue
+DD FORM 1584 - continue
 
 KACZMARCEYK, Edward NMN, DPO Aug 06, 47, Bomblitz,
 West Germany, SSAN: 143 40 1685

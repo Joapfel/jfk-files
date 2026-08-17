@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34539.png
-
-Convert to Markdown(b) A. N. Aksenov is no doubt identical with a Colonel Nikolay Aksenov with whom, according to Epstein's book, (page 146) Marina Oswald had an interview in 1961. Aksenov is also mentioned in McMillan's book (pages 132-133). Aksenov allegedly said to Marina, "Tell your husband not to worry. I believe your request will be granted." Also see page 125 of the same book.
+(b) A. N. Aksenov is no doubt identical with a Colonel Nikolay Aksenov with whom, according to Epstein's book, (page 146) Marina Oswald had an interview in 1961. Aksenov is also mentioned in McMillan's book (pages 132-133). Aksenov allegedly said to Marina, "Tell your husband not to worry. I believe your request will be granted." Also see page 125 of the same book.
 
 /3. Did you know or know of Arkadiy Denisovich Rudak?
 

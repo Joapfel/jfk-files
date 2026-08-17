@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24309.png
-
-Convert to Markdownmilitant Marxism-Leninism).
+militant Marxism-Leninism).
 
 March 1968: Stockholm. AFTONBLADET - Radical Social Democratic Daily 18 March 1968
 

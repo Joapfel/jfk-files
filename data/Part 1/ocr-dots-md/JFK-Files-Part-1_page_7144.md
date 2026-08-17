@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7144.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Date: December 21, 1965
 To: Mr. Winston K. Scott

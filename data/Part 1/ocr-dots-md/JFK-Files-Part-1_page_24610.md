@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24610.png
-
-Convert to MarkdownSeparate Cover Attachment:
+Separate Cover Attachment:
 
 HMMA-35828, 14 November 68
 

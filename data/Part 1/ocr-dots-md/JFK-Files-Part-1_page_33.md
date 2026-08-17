@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33.png
-
-Convert to Markdown13-00000
+13-00000
 
 Miscellaneous notes on Jews married to foreigners
 

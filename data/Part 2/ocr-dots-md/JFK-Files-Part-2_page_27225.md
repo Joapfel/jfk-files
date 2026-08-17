@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27225.png
-
-Convert to MarkdownA - Ltr from Knoche to Belin - 28 Apr 75 - w/attachments SECRET
+A - Ltr from Knoche to Belin - 28 Apr 75 - w/attachments SECRET
 
 B - Ltr from Knoche to Mr. Belin - 25 Apr 75 SECRET w/attachments.
 

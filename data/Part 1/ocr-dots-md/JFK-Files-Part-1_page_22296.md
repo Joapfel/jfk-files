@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22296.png
-
-Convert to Markdown703.
+703.
 
 by the nature of his information about the four individual cases reviewed at length above:
 

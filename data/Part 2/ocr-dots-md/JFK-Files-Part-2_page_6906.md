@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6906.png
-
-Convert to Markdown(1988), which upheld the power of the same court division to appoint independent counsels to investigate executive branch misconduct.
+(1988), which upheld the power of the same court division to appoint independent counsels to investigate executive branch misconduct.
 
 If the Committee nevertheless concludes that this approach is undesirable, I would offer two alternatives for consideration, conceding that both are also susceptible to possible constitutional objection. The first would be for the President and the leadership of the House and Senate each to appoint a given number of Board members. Each body has interests in, and responsibility for, certain of the records at issue. I would not make these appointments subject to Senate confirmation, since they are not policy positions, and confirmation would only delay the task at hand. A second alternative would be the approach suggested by the ACLU: adopt some variant of the formula used last year by Congress in establishing the Advisory Committee on Historical Diplomatic Documentation in the State Department, namely to have the President appoint based on specific criteria, i.e. background in particular disciplines, with most of the members coming from lists submitted by designated professional associations.
 

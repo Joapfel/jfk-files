@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7518.png
-
-Convert to Markdown23 Dec 71
+23 Dec 71
 
 OOE 324/37776-71
 

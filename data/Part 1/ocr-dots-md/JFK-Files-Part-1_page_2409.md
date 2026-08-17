@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2409.png
-
-Convert to MarkdownUnited States Embassy in Moscow concerning his contact with CIA and that he did not wish to be contacted and would not recognize any attempted contact within the Soviet Union. NOSENKO also furnished information as to the reason for his concern that no information regarding his contact with CIA become known in the United States Embassy in Moscow and the dangers to NOSENKO in any contact or attempted contact with NOSENKO in the USSR.
+United States Embassy in Moscow concerning his contact with CIA and that he did not wish to be contacted and would not recognize any attempted contact within the Soviet Union. NOSENKO also furnished information as to the reason for his concern that no information regarding his contact with CIA become known in the United States Embassy in Moscow and the dangers to NOSENKO in any contact or attempted contact with NOSENKO in the USSR.
 
 It is recognized that the above indicated concern of NOSENKO about his personal security is not substantial evidence that NOSENKO was not under KGB control; however, it is evidence that NOSENKO was not in any way encouraging clandestine contact of NOSENKO within the USSR, which very likely would have been an aim of the KGB if NOSENKO was under KGB control.
 

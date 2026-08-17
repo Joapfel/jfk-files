@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7235.png
-
-Convert to MarkdownCommittee or the Armed Services Commit-
+Committee or the Armed Services Commit-
 tee, I am afraid we are going back again
 to the question of seniority, the seniority
 complement that has disturbed so many

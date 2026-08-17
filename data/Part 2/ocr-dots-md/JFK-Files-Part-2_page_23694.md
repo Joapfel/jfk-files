@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23694.png
-
-Convert to MarkdownI think what we have to look at is the degree of coercion
+I think what we have to look at is the degree of coercion
 which is implied here, the kind of bind that you get these
 people in where they really are perhaps totally alienated from
 wherever they came from and what sort of a crack do you put

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24402.png
-
-Convert to Markdownseveral sensitive covert operations in which "he didn't want to
+several sensitive covert operations in which "he didn't want to
 have an Agency person or a government person get caught"* (O'Connell,
 p. 158). Maheu was initially paid a monthly retainer by the CIA
 of $500, which was terminated after his practice became more

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18128.png
-
-Convert to Markdown<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
+<table><tr><td>CLASSIFIED MESSAGE</td></tr></table>
 
 <table><tr><td rowspan="2">ORIG: S. Sprague/ord<br/>UNR: TRO/ROB<br/>EXT: 1073<br/>DATE: 15 Sept 84</td><td colspan="2"><input type="checkbox"/> INDEX<br/><input type="checkbox"/> NO INDEX<br/><input type="checkbox" checked disabled/> FILE IN CS FILE NO.</td></tr></table>
 

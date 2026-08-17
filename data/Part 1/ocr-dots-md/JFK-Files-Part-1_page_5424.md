@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5424.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DATE: 29 JUNE 1967</td>
     <td>(WASH., D.C.)<br/>ARA/CAR</td>

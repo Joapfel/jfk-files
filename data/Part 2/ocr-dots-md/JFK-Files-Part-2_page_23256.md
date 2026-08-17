@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23256.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 Mr. Baron. Would it have been proper for the Chief of Staff D to arrange an operation in the Congo directly without going through the African Division although keeping the African Chief informed?
 

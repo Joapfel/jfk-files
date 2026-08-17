@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6774.png
-
-Convert to Markdowny a pesar del alto nivel constante de la actividad económica en los principales países industriados de Europa Occidental.
+y a pesar del alto nivel constante de la actividad económica en los principales países industriados de Europa Occidental.
 
 En segundo lugar, hay muy pocas perspectivas de que los mercados normales de Latinoamérica puedan proporcionar en un futuro próximo suficientes ganancias por concepto de exportaciones como para restablecer la economía al nivel anterior. Como después de un exhaustivo análisis a largo alcance, declara la CEPAL (excluyendo el factor de una depresión mayor en los Estados Unidos o en Europa Occi- dental): "La perspectiva de aumento de las exportaciones... es tan pequeña que apenas excede el crecimiento demográ- fico probable". Este estudio prevé un ritmo de desarrollo que en el mejor de los casos sería un poco más de la mitad del registrado antes de la presente crisis y produciría extra- ordinarias presiones sobre la posibilidad de estructurar la economía y sus mecanismos de desarrollo.
 

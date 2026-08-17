@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19293.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 
 STANDARD FORM NO. 04
 

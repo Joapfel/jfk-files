@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2441.png
-
-Convert to MarkdownSECRET
+SECRET
 
 WERE TAKEN TO THE FBI OFFICE TO BE OPENED AND XEROXED.
 

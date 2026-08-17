@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31064.png
-
-Convert to MarkdownBetsy Palmer
+Betsy Palmer
 
 Volume XVII - continued
 Page .2

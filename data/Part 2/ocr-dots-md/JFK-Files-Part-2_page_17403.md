@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17403.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Marital Status: Single
 Occupation: Student, Central YMCA,

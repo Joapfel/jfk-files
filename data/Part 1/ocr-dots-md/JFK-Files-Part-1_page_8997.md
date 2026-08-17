@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8997.png
-
-Convert to MarkdownIDENTITY
+IDENTITY
 
 Henry Lopes
 

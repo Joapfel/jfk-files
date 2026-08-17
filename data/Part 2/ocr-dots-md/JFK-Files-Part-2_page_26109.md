@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26109.png
-
-Convert to Markdownin-- and, what the hell was that called? [O'Brien to Operations Coordinating Board.]
+in-- and, what the hell was that called? [O'Brien to Operations Coordinating Board.]
 
 O'BRIEN: OCB? [Operations Coordinating Board]
 

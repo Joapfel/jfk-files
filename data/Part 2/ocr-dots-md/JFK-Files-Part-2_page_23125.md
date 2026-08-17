@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23125.png
-
-Convert to MarkdownNWW:55510
+NWW:55510
 
 DOCD:32425439
 

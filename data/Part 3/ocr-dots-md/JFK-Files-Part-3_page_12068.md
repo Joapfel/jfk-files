@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12068.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 
 ## NEW LEFT SECTION 6E
 

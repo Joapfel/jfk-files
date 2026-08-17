@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9616.png
-
-Convert to MarkdownAPPLICATION FOR MEMBERSHIP
+APPLICATION FOR MEMBERSHIP
 
 NOTICE TO APPLICANT: All information on this form will be kept confidential. All records of members of the Secret Army Organization are stored in a way that they can be swiftly destroyed to keep them from falling into unauthorized hands.
 

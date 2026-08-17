@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24483.png
-
-Convert to MarkdownOut of these March 1960 meetings of the NSC and Special Group came
+Out of these March 1960 meetings of the NSC and Special Group came
 the general covert action plan against Cuba.*
 
 Against this background of general discussions of Cuba, we con-

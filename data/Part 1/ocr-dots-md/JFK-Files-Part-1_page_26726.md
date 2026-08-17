@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26726.png
-
-Convert to MarkdownKool 72-MICO-34
+Kool 72-MICO-34
 
 30 April 1965
 

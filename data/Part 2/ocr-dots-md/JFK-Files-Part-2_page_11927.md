@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11927.png
-
-Convert to Markdown9. Use of informant by Department - filing correspondence re From time to time, Department expresses interest in using particular informant for testifying when he becomes available as witness. Place copies of all correspondence of this type in informant's file. Occasionally such correspondence may be voluminous and apply to more than one informant. In those cases, summarize information concerning each informant and place summary in appropriate file.
+9. Use of informant by Department - filing correspondence re From time to time, Department expresses interest in using particular informant for testifying when he becomes available as witness. Place copies of all correspondence of this type in informant's file. Occasionally such correspondence may be voluminous and apply to more than one informant. In those cases, summarize information concerning each informant and place summary in appropriate file.
 
 10. Form FD-238 Form FD-238 (printed on pink paper) is used in security informant and potential security informant files in nature of table of contents or index to show where in file particular data can be found. This form is to be kept as top document in informant file and is not to be serialized. If particular section of form is not applicable, note such thereon.
 

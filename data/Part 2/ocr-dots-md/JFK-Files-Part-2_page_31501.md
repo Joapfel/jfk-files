@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31501.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/evs
 
 C. "National Guardian" (NG)

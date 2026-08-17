@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22316.png
-
-Convert to Markdown1 an employee who was working in Ecuador at some point in their
+1 an employee who was working in Ecuador at some point in their
 2 career?
 
 3 Mr. Maheu. Yes, we did.

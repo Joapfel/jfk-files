@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16192.png
-
-Convert to MarkdownMEMORANDUM FOR: Associate General Counsel, OGC
+MEMORANDUM FOR: Associate General Counsel, OGC
 
 VIA : Deputy Director for Operations
 

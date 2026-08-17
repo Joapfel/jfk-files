@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24422.png
-
-Convert to MarkdownSecret
+Secret
 
 CONTRACT REPORT II PROJECT LUSHERG
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11761.png
-
-Convert to MarkdownCounterespionage - Foreign Intelligence Division
+Counterespionage - Foreign Intelligence Division
 
 52 Agents
 96 clerks

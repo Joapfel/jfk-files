@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4683.png
-
-Convert to MarkdownSECRET
+SECRET
 
 controlled by the Hill. And it is today, I believe. But before you get money released by the BOB, somebody up there had to say OK. And that happened on every one of the operations I know about. In the Far East, I don't know about the European ones, I am sure the system is the same. It was a well-oiled machine. Sure, they didn't ask the kind of questions that are asked today, but they knew what the operation was.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6723.png
-
-Convert to MarkdownThe following are questions which cannot be discussed in public hearings because of this agreement. They should be raised at this executive session:
+The following are questions which cannot be discussed in public hearings because of this agreement. They should be raised at this executive session:
 
 1. What was the actual _intelligence value_ of FBI mail openings aimed at mail to and from the (Soviet and Soviet-bloc embassies)?
 

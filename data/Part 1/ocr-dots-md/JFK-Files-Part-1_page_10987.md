@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10987.png
-
-Convert to Markdown— todo verdaderamente. Para que el tuviera sea completo, en una de los puestosweguios se encontraba un burro, en otro. I alguna- ves orujas, y, para mi, respiran el aire terrible! Y no dudó estar contento con sacarme fotografías etc. Los camarones están estudiados en trajes nacionales y hace larqventanacional también. ¿Por qué (di. Luis)? Es muy simpatico!
+— todo verdaderamente. Para que el tuviera sea completo, en una de los puestosweguios se encontraba un burro, en otro. I alguna- ves orujas, y, para mi, respiran el aire terrible! Y no dudó estar contento con sacarme fotografías etc. Los camarones están estudiados en trajes nacionales y hace larqventanacional también. ¿Por qué (di. Luis)? Es muy simpatico!
 
 El chino Statements, por ejemplo, representa el in- terior de (no sé cuál es la palabra, en français —se moulin—) hay la piedra perecible, hay sacos llenos de leche, se sienta etc., etc. La encendida se llena en plates nacionales... hasta un hallazgo de lo ... —huy, huy, huy—, y el cieludeca. Satisyndesprimera admini- zaciones(güe satisces causes!), "que grandes onelo- ciones!" etc.) ¡y desembraza un gran peligro en todo eso para mí! Si, por ejemplo, August sube, 2-4 libras me ahorra problemática, pero para mí es problema FJ!
 

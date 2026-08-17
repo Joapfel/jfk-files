@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21165.png
-
-Convert to Markdown2. [x] KOVSHUK's Acquaintance with Americans (u)
+2. [x] KOVSHUK's Acquaintance with Americans (u)
 On page 158 it is stated that NOSENKO said KOVSHUK had personal contact with some American Embassy Officers but NOSENKO could identify only WINTERS. On page 159 it is indicated that NOSENKO did not know that [WILLIAM N. MORELL] was identified formally by the American Embassy to the Soviet Government as a CIA employee; he was also not aware that KOVSHUK was in personal contact with [MORELL]. (s) [x]
 
 **COMMENT:**

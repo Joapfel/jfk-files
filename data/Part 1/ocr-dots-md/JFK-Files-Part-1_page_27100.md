@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27100.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td colspan="3">CABLE SEC DISSEMS BY ____ PER ____ TOTAL COPIES ____ RUN BY ____<br/>PERSON/UNIT NOTIFIED ____ SECRET</td><td rowspan="2">REPRODUCTION BY OTHER<br/>ISSUING OFFICE IS PROMISED</td></tr><tr><td colspan="2">ADVANCE COPY ISSUED/BLOTTED BY AT 1</td><td>STAFF</td></tr><tr><th>ACTION UNIT</th><th>I N F O</th><th>RF. FILE.</th><th>VR.</th><th>1</th><th>2</th><th>3</th><th>4</th><th>5</th><th>6</th></tr></thead><tbody><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 

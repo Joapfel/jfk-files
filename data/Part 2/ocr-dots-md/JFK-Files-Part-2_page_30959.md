@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30959.png
-
-Convert to Markdown12. M R R C.
+12. M R R C.
 
 13. O H Autuute - Orugyotn.
 - Prio Socarrer o Del Amont

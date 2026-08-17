@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15825.png
-
-Convert to Markdownmeans necessary.
+means necessary.
 
 7. We want an immediate end to Black neone.
 

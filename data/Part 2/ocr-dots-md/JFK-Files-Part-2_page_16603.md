@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16603.png
-
-Convert to MarkdownOn December 13, 1969, Officer DAY of the Deputy Superintendent's Office, Chicago Police Department, advised that RONALD SATCHIEL had been released that day on $25,000 bond, which was made at the 13th District of the Police Department.
+On December 13, 1969, Officer DAY of the Deputy Superintendent's Office, Chicago Police Department, advised that RONALD SATCHIEL had been released that day on $25,000 bond, which was made at the 13th District of the Police Department.
 
 It is noted that DEBORAH JOHNSON, the girlfriend of FRED A. HAMPTON (deceased), who is eight months pregnant, was previously released on $25,000 bond.
 

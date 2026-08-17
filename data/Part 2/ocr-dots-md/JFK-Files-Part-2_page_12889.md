@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12889.png
-
-Convert to MarkdownPHILIP J. HENT, JR., ESQ.
+PHILIP J. HENT, JR., ESQ.
 WALTER F. GORDON, JR., ESQ.
 BROBERT WONG, C.C.
 GARY JAMES

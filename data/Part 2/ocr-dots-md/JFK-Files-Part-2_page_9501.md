@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9501.png
-
-Convert to MarkdownV. EVIDENCE OF NATIONAL UNITY
+V. EVIDENCE OF NATIONAL UNITY
 
 KENNY HORSTON, BPP, Oakland, California, currently in charge of the Detroit NCCF, contacted the Bronx, New York Chapter of the BPP on December 31, 1970, for advice.
 

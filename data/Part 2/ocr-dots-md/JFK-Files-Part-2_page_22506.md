@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22506.png
-
-Convert to MarkdownOn 21 June 1957, Harlan A. Westrell, Chief, SRS, requested the Director of Security for authorization to continue the Daily Worker indexing project for one year which had yielded approximately 500,000 names in the index. On 22 August 1957, Sheffield Edwards, Director of Security, requested and received, such authorization for circa $10,000 from the Deputy Director of Support.
+On 21 June 1957, Harlan A. Westrell, Chief, SRS, requested the Director of Security for authorization to continue the Daily Worker indexing project for one year which had yielded approximately 500,000 names in the index. On 22 August 1957, Sheffield Edwards, Director of Security, requested and received, such authorization for circa $10,000 from the Deputy Director of Support.
 
 During this period (1956-1959), Wiley worked with Herbert Philbrick on a book which Philbrick was preparing entitled "The Most Dangerous Group in the World." He also was "building his cover" as a newspaperman and had numerous contacts with Earl Browder (ex-chairman of the CPUSA).
 

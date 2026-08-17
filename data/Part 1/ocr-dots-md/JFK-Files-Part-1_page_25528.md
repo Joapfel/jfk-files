@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25528.png
-
-Convert to Markdownphotos) played an important role in our total coverage of AESLASICK during the recent operational activity undertaken against AESLASICK. In short, LIEMPTY remains a highly effective and highly useful support asset, whose product is obtained in order to be used operationally, not simply collected for the files.
+photos) played an important role in our total coverage of AESLASICK during the recent operational activity undertaken against AESLASICK. In short, LIEMPTY remains a highly effective and highly useful support asset, whose product is obtained in order to be used operationally, not simply collected for the files.
 
 ## GEREIDE
 

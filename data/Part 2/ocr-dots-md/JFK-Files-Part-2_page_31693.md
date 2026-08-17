@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31693.png
-
-Convert to Markdown3
+3
 SF 100-46832
 
 WEH:cm

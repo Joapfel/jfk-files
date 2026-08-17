@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24513.png
-
-Convert to MarkdownJunio 1965
+Junio 1965
 
 # Infiltración Comunista en la Política Sindical
 

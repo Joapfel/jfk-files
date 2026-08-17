@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8302.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DIMITER ADAMOV DIMITROV
 

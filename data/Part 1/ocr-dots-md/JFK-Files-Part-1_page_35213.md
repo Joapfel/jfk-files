@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35213.png
-
-Convert to Markdown# FRENTE REVOLUCIONARIO DEMOCRATICO
+# FRENTE REVOLUCIONARIO DEMOCRATICO
 
 Gastos de Viajes
 

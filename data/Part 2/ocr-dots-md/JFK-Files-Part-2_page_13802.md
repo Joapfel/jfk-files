@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13802.png
-
-Convert to Markdown# H. Joint FBI-Police Operations
+# H. Joint FBI-Police Operations
 
 The purpose of this inquiry is to examine certain allegations that joint FBI-police operations resulted in misconduct or abuse. These cases are complex and involve a variety of techniques. Nevertheless, they may indicate some of the most serious problems which may arise in attempting to deal with potentially violent situations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9585.png
-
-Convert to MarkdownPAGE 2 DEC/31/71 15:576
+PAGE 2 DEC/31/71 15:576
 
 # IDEM S - (GRAY GHOST)
 

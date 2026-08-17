@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25706.png
-
-Convert to Markdown16 October 1965
+16 October 1965
 
 MEMORANDUM FOR
 THE

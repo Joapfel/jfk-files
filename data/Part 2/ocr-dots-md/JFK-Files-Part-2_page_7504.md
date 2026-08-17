@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7504.png
-
-Convert to Markdown13 JUL 1978
+13 JUL 1978
 
 MEMORANDUM FOR: Mr. Scott Breckinridge
 Principal Coordinator/HSCA

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25669.png
-
-Convert to MarkdownTHE WASHINGTON POST
+THE WASHINGTON POST
 
 September 12, 1976
 

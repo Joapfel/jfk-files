@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31480.png
-
-Convert to Markdown-6-
+-6-
 
 Among these governments and two international agencies, the UN High Commissioner for Refugees and PICAS, none of which has been provided with the means adequate to the performance of their tasks assigned it, and the latter of which are only just becoming fully operational. In consequence of IRA's closure the various voluntary agencies, such as IOMC, IWF and WCC, etc., have been deprived of facilities which were provided by IRA in the past, with the result that they have been compelled to curtail their activities. Neither of IRA's successors has assumed the vast and vital coordinating function performed by IRA, with the result that the present confusion is discouraging. It may develop that the New State Department - NSA program for neo-refugees will clarify this confused situation, but at present it, itself, is as yet an unknown factor and naturally runs the risk of at the field level having too far only served to confound the confusion.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4636.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td colspan="3">CABLE NO: DEEMED BY RE: TOTAL COPIES D. BY</td>

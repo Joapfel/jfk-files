@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24912.png
-
-Convert to Markdownundertaken so drastic an operation without obtaining full and
+undertaken so drastic an operation without obtaining full and
 equivocal permission.
 
 William Harvey, the officer in charge of the CIA's attempt

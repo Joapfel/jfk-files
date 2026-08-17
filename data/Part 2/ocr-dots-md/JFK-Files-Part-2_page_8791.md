@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8791.png
-
-Convert to MarkdownMemo for the Record dated 28 January 1963 by Robert
+Memo for the Record dated 28 January 1963 by Robert
 
 MORONEY, Office of Security Subj: Roberto PEREZ San Roman
 (201-282287)

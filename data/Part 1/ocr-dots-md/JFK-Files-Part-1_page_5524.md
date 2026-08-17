@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5524.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ACTUALLY IN NEW YORK OBTAIN INFO HAITIAN EXILES.
 

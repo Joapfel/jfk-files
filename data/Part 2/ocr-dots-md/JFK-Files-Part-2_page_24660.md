@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24660.png
-
-Convert to Markdowntestimony could be attributed to his own lack of recall:
+testimony could be attributed to his own lack of recall:
 
 I really am having trouble with this. I had to be reminded of so many things. . . [T]he things that I recall the most vividly about all my African experiences were. . . the things I was basically concerned with all the time, which was putting this division together and the rest of it. When it comes to operational detail I start fuzzy and you would have thought with something like thinking about Mr. Lumumba in these terms, that I would have gone to bed and got up thinking about Lumumba, I can assure you this wasn't the case. (Tweedy, 9/9, p. 34)
 

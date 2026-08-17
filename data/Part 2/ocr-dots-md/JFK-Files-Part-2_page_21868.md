@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21868.png
-
-Convert to MarkdownCOVERAGE OF ANY MOVEMENT INTO OR OUT OF HOUSE BY CONGOLESE... TARGET HAS DISMISSED MOST OF SERVANTS SO ENTRY THIS MEANS SEEMS REMOTE. (CIA Cable IN 42478) (Chief of Station to Tweedy.)
+COVERAGE OF ANY MOVEMENT INTO OR OUT OF HOUSE BY CONGOLESE... TARGET HAS DISMISSED MOST OF SERVANTS SO ENTRY THIS MEANS SEEMS REMOTE. (CIA Cable IN 42478) (Chief of Station to Tweedy.)
 
 Hedgman testified that all of his cable traffic about the assassination question would have been sent with the same extraordinarily stringent security precautions -- presumably referring to the PROP channel -- which concerned Gottlieb's visit and the confirmation of authorization for his instructions:
 

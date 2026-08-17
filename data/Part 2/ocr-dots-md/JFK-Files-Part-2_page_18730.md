@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18730.png
-
-Convert to MarkdownSTANDARD FORM NO. 34
+STANDARD FORM NO. 34
 
 Office Mem
 

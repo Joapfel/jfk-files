@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2732.png
-
-Convert to Markdowngsh 15
+gsh 15
 
 Phone (Area 202) 544-6000
 

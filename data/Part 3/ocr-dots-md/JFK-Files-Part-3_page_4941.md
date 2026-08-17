@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4941.png
-
-Convert to MarkdownNY 100-149194
+NY 100-149194
 
 to use HAZEL GRAY and her husband,
 JOHN GRAY, in the Kings County CP

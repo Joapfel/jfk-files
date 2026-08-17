@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2613.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 ### (FOUNDATIONS OF NOSENKO'S CLAIMS)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23813.png
-
-Convert to Markdown-2-
+-2-
 
 4. **Turnover to Rodigast.** After getting S/1's unhesitating agreement to an LCFLUTTER examination and his signature on a Secrecy Agreement on 2 June, Tiffany introduced him to Rodigast, under the alias "Paul Weller" on the morning of 3 June. It was explained that Rodigast would serve as S/1 point of contact in the future. S/1 and Rodigast hit it off well from the outset, the latter's knowledge of Paris and Tangiers-based American beatniks and other intellectuals serving him has laid well in the rapport-building process. Rodigast /'kɪbɒdz/ on firm meeting arrangements for Paris and has discussed arrangements for meeting S/1 at least twice during the summer outside Algiers. Final agreement on a mid July meeting will be made in Paris to conform to a normal pattern by S/1 and
 xxx arrangements which S/1 succeeds in developing in Lausanne and Paris. In the process of discussing communications Rodigast is also imparting instruction in good security practices on the part of S/1. Rodigast will instruct S/1 in the use of SW in Paris. Hopefully, Rodigast will be able to spend a day or two with S/1 in Paris, even though we want S/1 to get to Algiers as soon as possible.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18334.png
-
-Convert to MarkdownHUSTON PLAN:
+HUSTON PLAN:
 
 FBI DOCUMENTS TO BE DECLASSIFIED
 

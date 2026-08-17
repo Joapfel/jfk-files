@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32568.png
-
-Convert to MarkdownEARL JAMES WILLIAMSON
+EARL JAMES WILLIAMSON
 
 **OCCUPATIONAL EXPERIENCE:** June 1952 to Present - Intelligence Officer, Central Intelligence Agency Washington, D. C.
 

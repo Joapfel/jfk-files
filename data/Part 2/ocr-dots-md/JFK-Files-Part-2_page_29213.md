@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29213.png
-
-Convert to MarkdownRichard Dennis Call Interview
+Richard Dennis Call Interview
 Page 5.
 
 time he knew him, had never spoken of any member of his fam-

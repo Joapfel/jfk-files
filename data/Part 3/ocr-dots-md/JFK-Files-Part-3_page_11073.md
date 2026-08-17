@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11073.png
-
-Convert to Markdowninvolved in violent or revolutionary activities based on race. Procedures for the investigation of these types of individuals are similar and the criteria are outlined as follows:
+involved in violent or revolutionary activities based on race. Procedures for the investigation of these types of individuals are similar and the criteria are outlined as follows:
 
 *   Membership in a basic revolutionary organization
 

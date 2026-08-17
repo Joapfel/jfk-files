@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13240.png
-
-Convert to MarkdownMEMORANDUM FOR: CI/IIA
+MEMORANDUM FOR: CI/IIA
 
 SUBJECT : Luis Clemente Faustino FOSADA - Carrilo
 

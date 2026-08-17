@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12787.png
-
-Convert to MarkdownIN 893854
+IN 893854
 
 TDFIR-314/03534-73
 PAGE 3 OF 3 PAGES

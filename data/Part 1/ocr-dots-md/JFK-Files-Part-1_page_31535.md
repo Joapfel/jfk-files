@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31535.png
-
-Convert to Markdown29 December 1953
+29 December 1953
 
 MEMORANDUM FOR: DEPUTY DIRECTOR (PLANS)
 

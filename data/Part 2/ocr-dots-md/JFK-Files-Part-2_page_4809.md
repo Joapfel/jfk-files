@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4809.png
-
-Convert to MarkdownSECRET
+SECRET
 
 viewed as a serious issue in the Agency? By those ...
 MR. HALPERN: Who were then serving? From what I gather it

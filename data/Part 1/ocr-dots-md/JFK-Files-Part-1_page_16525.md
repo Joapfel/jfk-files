@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16525.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>DISTRIBUTION STATEMENT</td>
     <td>SECRET</td>

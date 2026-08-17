@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20480.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NAME OF EMPLOYEE (Last-First-Middle)</td><td>NAME AND RELATIONSHIP OF DEPENDENT</td><td>CLAIM NUMBER</td></tr><tr><td>HUNT, Howard</td><td>Dorothy</td><td>58-399 D</td></tr></table>
 

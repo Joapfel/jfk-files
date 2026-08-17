@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3811.png
-
-Convert to MarkdownDear Jin:
+Dear Jin:
 
 Just a few lines to report the following:
 

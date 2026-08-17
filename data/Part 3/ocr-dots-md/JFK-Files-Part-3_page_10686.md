@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10686.png
-
-Convert to MarkdownFurther, in this connection, correspondence should be directed to ROCKWELL to plant the seed of suspicion concerning new members, identifying them as "spies" or the Anti-Defamation League or hate groups such as the National States Rights Party (NSRP).
+Further, in this connection, correspondence should be directed to ROCKWELL to plant the seed of suspicion concerning new members, identifying them as "spies" or the Anti-Defamation League or hate groups such as the National States Rights Party (NSRP).
 
 It is noted that both buildings leased by the ANP from "sympathizers" are in poor condition and would be, most likely, in violation of local law. It is suggested that consideration be given to contacting officials of the Arlington County Board of Health and the Arlington County Fire Department for an official investigation of ANP premises.
 

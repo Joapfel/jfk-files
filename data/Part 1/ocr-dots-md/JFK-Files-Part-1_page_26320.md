@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26320.png
-
-Convert to Markdown14-00000
+14-00000
 
 | FEDERACION | CONTRATOS | COMPRA DEL CUSTO |
 |---|---|---|

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19057.png
-
-Convert to MarkdownWirtschafts-, Finanz- und Steuerpolitik:
+Wirtschafts-, Finanz- und Steuerpolitik:
 
 FABBENDER, Heinrich (s. Parteivorstand)
 

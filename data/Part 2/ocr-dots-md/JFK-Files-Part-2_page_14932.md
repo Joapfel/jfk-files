@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14932.png
-
-Convert to MarkdownThe defense has made a motion to suppress, based on this electronic coverage. After hearing testimony regarding these installations, including testimony of Bureau personnel, and reviewing logs of the coverage in question, the judge instructed that the trial should be commenced, with the defense having the right to renew its mortion after the trial, in the event evidence presented warrants such a proceedings.
+The defense has made a motion to suppress, based on this electronic coverage. After hearing testimony regarding these installations, including testimony of Bureau personnel, and reviewing logs of the coverage in question, the judge instructed that the trial should be commenced, with the defense having the right to renew its mortion after the trial, in the event evidence presented warrants such a proceedings.
 
 Trial was undertaken on 10/17/66. On 11/29/66 Defense Attorney Walsh suffered a heart attack and further trial proceedings have been deferred until March 1, 1967. None of the information produced by this microphone was utilized in obtaining the indictment of Balistrieri.
 

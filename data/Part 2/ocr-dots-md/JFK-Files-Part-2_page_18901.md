@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18901.png
-
-Convert to Markdown1 - Mr. W.A. Branigan
+1 - Mr. W.A. Branigan
 (NY Folder)
 
 1 - Mr. E.C. Paterson

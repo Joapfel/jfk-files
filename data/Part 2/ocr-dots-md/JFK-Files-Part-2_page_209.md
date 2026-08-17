@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_209.png
-
-Convert to Markdown14-00000
+14-00000
 
 MESSAGE FOR:
 TOTAL COPIES:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24483.png
-
-Convert to Markdown# Los Secuestros, Clave de Siniestro Plan Comunista
+# Los Secuestros, Clave de Siniestro Plan Comunista
 
 Denuncian Actividades en Colombia
 

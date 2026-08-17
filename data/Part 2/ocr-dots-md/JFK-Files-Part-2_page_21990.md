@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21990.png
-
-Convert to Markdown36. Memo, Chase to Bundy, 4 March 1965.
+36. Memo, Chase to Bundy, 4 March 1965.
 
 Chase recommends phasing out support to Artime. The CIA is considering diluting pesticides sent to Cuba; this is similar to the kinds of tactics mentioned in Items 28 and 29 above and are a manifestation of the moral bankruptcy of U.S. policy. Also some talk here of backing a new exile group, RECE, though not much enthusiasm for the idea from anyone apparently. Oddly, CIA wishes to drop its paramilitary capability, while DoD and State want the capability maintained.
 

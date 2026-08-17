@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18802.png
-
-Convert to MarkdownSAC, San Francisco (105-3646)
+SAC, San Francisco (105-3646)
 REC- 6
 Director, FBI (105-28333)- 18
 

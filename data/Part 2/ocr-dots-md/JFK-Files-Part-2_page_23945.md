@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23945.png
-
-Convert to Markdownadvised that the State Department representative in the Dominican Republic had made the assessment that the Dominican government could not be overthrown without the assassination of Trujillo.
+advised that the State Department representative in the Dominican Republic had made the assessment that the Dominican government could not be overthrown without the assassination of Trujillo.
 
 Bissell testified that he had no clear recollection of the details of the February 14 briefing and he was unable to say whether or not the method of overthrow to be attempted by the dissidents was discussed. (Bissell, 7/22, pp. 101, 102) Robert McNamara, one of the new members of the Special Group in attendance for the briefing, has no recollection as to the specificity in which the Dominican Republic was discussed at the February 14 meeting. He does not recall any mention by either Dulles or Bissell of dissident plans to assassinate Trujillo.
 (McNamara affidavit).

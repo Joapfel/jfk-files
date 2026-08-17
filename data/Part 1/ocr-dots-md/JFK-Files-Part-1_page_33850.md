@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33850.png
-
-Convert to Markdown7 April 1952
+7 April 1952
 
 MEMORANDUM FOR: DEPUTY DIRECTOR CENTRAL INTELLIGENCE
 

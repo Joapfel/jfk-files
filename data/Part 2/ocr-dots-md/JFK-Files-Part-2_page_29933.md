@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29933.png
-
-Convert to MarkdownFoster remarked that the Bolden case was unique in his experience because of the nondisclosure by authorities of information that is automatically released to the probation officer in a given case.
+Foster remarked that the Bolden case was unique in his experience because of the nondisclosure by authorities of information that is automatically released to the probation officer in a given case.
 
 Specifically, in every other case which Mr. Foster has processed, the prosecutor gave the probation officer a "version," i.e., a recital of fact about the crime and the circumstances surrounding it. Only in cases where an undercover informant is under parole supervision is the name of the informant withheld, but even then a version is always presented despite the withholding of the name. In Bolden's case, the prosecutor gave the probation officer only the indictment. Bolden's prosecutor was named Richard T. Sykes.
 

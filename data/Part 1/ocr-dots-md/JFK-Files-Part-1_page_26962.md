@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26962.png
-
-Convert to MarkdownChief, Personnel Security Division, OG
+Chief, Personnel Security Division, OG
 
 21 February 1967
 

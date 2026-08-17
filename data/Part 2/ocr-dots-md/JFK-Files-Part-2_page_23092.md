@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23092.png
-
-Convert to MarkdownA principios de 1962, siguiendo orientaciónes de la CIA y la Base Naval de Guantánamo, el contrarrevolucionario Jorge Luis -- Cuervo Calvo se da a la tarea de restructurar algunos grupos y organizaciones contra revolucionarias, creando la denominada --- "Unión de Unidades Revolucionarias"(UDUR).
+A principios de 1962, siguiendo orientaciónes de la CIA y la Base Naval de Guantánamo, el contrarrevolucionario Jorge Luis -- Cuervo Calvo se da a la tarea de restructurar algunos grupos y organizaciones contra revolucionarias, creando la denominada --- "Unión de Unidades Revolucionarias"(UDUR).
 
 Cuervo Calvo, Humberto Gómez Peña, Raúl Cay Hernández, Raúl Cay Gispert y otros se reunieron para elaborar planes de alzamiento- e informar sobre los contactos estableci-- dos en la Base Naval norteamericana de --- Guantánamo para recibir material bélico y- equipos.
 

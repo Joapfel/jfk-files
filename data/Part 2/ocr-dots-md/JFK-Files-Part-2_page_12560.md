@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12560.png
-
-Convert to Markdown(8) Develop fully and include following in report:
+(8) Develop fully and include following in report:
 
 (a) Address of organization
 

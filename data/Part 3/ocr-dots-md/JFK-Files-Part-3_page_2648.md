@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2648.png
-
-Convert to Markdown2492
+2492
 
 smn 15
 

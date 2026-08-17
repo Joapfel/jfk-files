@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1327.png
-
-Convert to Markdown3. The above evaluation stresses the operational and security weaknesses in this operation. In contrast to these weaknesses are the positive considerations of this mission. A/2 has the intelligence, competence, and confidence to approach and recruit two assets with the potential for developing anti-regime operations at a high level within the Cuban Army. The results which these anti-regime activities can accomplish is a matter for conjecture but it appears that they carry potential. Nevertheless, if the operation continues, it will bear close watching in terms of security and control for these factors will jeopardize the operation as well as KUBARK's position if not properly contained.
+3. The above evaluation stresses the operational and security weaknesses in this operation. In contrast to these weaknesses are the positive considerations of this mission. A/2 has the intelligence, competence, and confidence to approach and recruit two assets with the potential for developing anti-regime operations at a high level within the Cuban Army. The results which these anti-regime activities can accomplish is a matter for conjecture but it appears that they carry potential. Nevertheless, if the operation continues, it will bear close watching in terms of security and control for these factors will jeopardize the operation as well as KUBARK's position if not properly contained.
 
 IV. PHASE II
 

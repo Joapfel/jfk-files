@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35270.png
-
-Convert to Markdown# COMMISSIONS OR PAYMENTS (ATTACHMENT "I-I")
+# COMMISSIONS OR PAYMENTS (ATTACHMENT "I-I")
 
 During the month three checks were issued for the following:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9264.png
-
-Convert to Markdownfor QUARTERLY REPORT
+for QUARTERLY REPORT
 
 SECRET
 

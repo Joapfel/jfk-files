@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21081.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ADDENDLY, Form 45 (Fitness Report), for period March 67-March 68.
 

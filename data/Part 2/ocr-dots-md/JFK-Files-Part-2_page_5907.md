@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5907.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **Budget and Finance**
 

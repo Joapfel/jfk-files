@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3640.png
-
-Convert to Markdown6. Brazil
+6. Brazil
 
 c. The Soviet note was designed to make a record, showing that the USSR exercises "control" of the auto-bahn and that the recent incidents resulted from US refusal to comply with "existing procedures."
 

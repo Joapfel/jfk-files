@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18470.png
-
-Convert to MarkdownH. Joint FBI-Police Operations
+H. Joint FBI-Police Operations
 
 The purpose of this inquiry is to examine certain
 allegations that joint FBI-police operations re-

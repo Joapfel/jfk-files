@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34390.png
-
-Convert to MarkdownUNIDAD REVOLUCIONARIA continues its research in reference to the firms that are still trading with Communist Cuba. We are making a thorough investigation in order to avoid mistakes, but as soon as completed, the "Black List" will be published and distributed throughout the Free World.
+UNIDAD REVOLUCIONARIA continues its research in reference to the firms that are still trading with Communist Cuba. We are making a thorough investigation in order to avoid mistakes, but as soon as completed, the "Black List" will be published and distributed throughout the Free World.
 
 Many firms have already realized what trading with Communist Cuba means, and have also taken into consideration Cuba's credit unworthiness - ONE BILLION DOLLARS of foreign debt. Therefore, these firms have backed away from this shameful and riskful market.
 

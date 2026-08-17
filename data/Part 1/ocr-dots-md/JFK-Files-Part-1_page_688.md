@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_688.png
-
-Convert to Markdown2 March 56
+2 March 56
 
 Washington
 

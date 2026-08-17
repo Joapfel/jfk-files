@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10512.png
-
-Convert to Markdown23 MAY 1972
+23 MAY 1972
 
 # Foreign Support for Activities Planned to Disrupt or Harass the Republican National Convention
 

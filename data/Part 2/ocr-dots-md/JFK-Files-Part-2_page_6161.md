@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6161.png
-
-Convert to Markdown- Footnotes-
+- Footnotes-
 
 n182. See Exhibit Five infra p. 47.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27091.png
-
-Convert to MarkdownPERSONAL INFORMATION
+PERSONAL INFORMATION
 
 RE7.1
 

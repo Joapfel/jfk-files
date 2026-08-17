@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19517.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 SCEF (Continued)
 

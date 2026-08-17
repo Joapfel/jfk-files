@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20132.png
-
-Convert to MarkdownNR 003 CV CODE
+NR 003 CV CODE
 
 115 PM URGENT/ 8-24-72 CLP
 TO ACTING DIRECTOR

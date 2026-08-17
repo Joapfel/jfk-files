@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33654.png
-
-Convert to Markdown# THE "VOICE" AND RADIO FREE EUROPE
+# THE "VOICE" AND RADIO FREE EUROPE
 
 ## COMPLEMENT EACH OTHER
 

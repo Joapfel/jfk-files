@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24130.png
-
-Convert to MarkdownThose proprietaries which engaged in the shipment of weapons or other items on the Munitions Control list required Agency assistance in obtaining the necessary export licenses. The ownership of the companies was discussed with State Department Office of Munitions Control and the Bureau of Alcohol, Tax and Firearms.
+Those proprietaries which engaged in the shipment of weapons or other items on the Munitions Control list required Agency assistance in obtaining the necessary export licenses. The ownership of the companies was discussed with State Department Office of Munitions Control and the Bureau of Alcohol, Tax and Firearms.
 
 The radio proprietaries, while funded by CIA, did receive policy guidance from the Department of State to ensure that their broadcasts were in conformance with U.S. foreign policy.
 

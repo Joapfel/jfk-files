@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3541.png
-
-Convert to Markdownmy cause is a moral and honorable one and wait I ask for is noble.
+my cause is a moral and honorable one and wait I ask for is noble.
 We cannot afford to wait for miracles because only God can create
 miracles. We must prepare for a long, fight and not expect the aid
 of such organizations as the OAS, UN. It is up to the Cubans to

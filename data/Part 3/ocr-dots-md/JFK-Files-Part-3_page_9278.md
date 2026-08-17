@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9278.png
-
-Convert to Markdown62-116395
+62-116395
 
 2 - Mr. J. A. Mintz
    (Mr. J. B. Hotis)

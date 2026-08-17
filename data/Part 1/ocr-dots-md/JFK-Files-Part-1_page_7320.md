@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7320.png
-
-Convert to Markdown11.03.03 He is a good-humored fellow who sometimes can be considered jolly and carefree. His humor is clever and well timed. He is quite sensitive to the moods and feelings of others and often can do a good job appropriately living up a party. Although something of a tease, he is never cruel or insensitive.
+11.03.03 He is a good-humored fellow who sometimes can be considered jolly and carefree. His humor is clever and well timed. He is quite sensitive to the moods and feelings of others and often can do a good job appropriately living up a party. Although something of a tease, he is never cruel or insensitive.
 
 11.03.04 He is generally a rather quiet and somewhat complacent person who, at times, can be surprisingly gay and carefree. However, when gay, he sometimes overdoes it and causes some strain for those around him. His humor is often cleyer but he can be quite sarcastic and even biting on occasion.
 

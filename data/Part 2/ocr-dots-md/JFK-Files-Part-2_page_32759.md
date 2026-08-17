@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32759.png
-
-Convert to Markdowncommon design; and (2) demonstrably credible understanding of costs.
+common design; and (2) demonstrably credible understanding of costs.
 
 It should be emphasized that these two conditions would understandably loom less important in the eyes of the Source Selection Board than operational capability. These are conditions more properly the concern of those charged by law with the over-all direction of our defense effort. They are equally a part of my determination of what is in the national interest.
 

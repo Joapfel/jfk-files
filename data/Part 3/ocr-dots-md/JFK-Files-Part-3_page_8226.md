@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8226.png
-
-Convert to Markdownsurveillances. The materials would be supplied to Subcommittee staff on a non-
+surveillances. The materials would be supplied to Subcommittee staff on a non-
 confidential basis, since they would represent hypothetical and not real sur-
 veillances. In addition, the Subcommittee staff would be shown copies of some
 documents for actual surveillances (from which names and identifying data

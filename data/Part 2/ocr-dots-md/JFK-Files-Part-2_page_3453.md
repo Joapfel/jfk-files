@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3453.png
-
-Convert to MarkdownSECRET SENSITIVE NOFORN
+SECRET SENSITIVE NOFORN
 
 --In a more serious vein, files were found on the assassinations of President John F. Kennedy and his brother Robert F. Kennedy. These included autopsy pictures of the remains of Robert Kennedy. Although Nosenko's account of the KGB's involvement with Lee Harvey Oswald and his denial that the KGB had anything to do with the murder of John Kennedy might reasonably explain an Angleton interest in the John Kennedy assassination, neither Kalaris nor Blee, with whom Kalaris consulted on this bizarre finding, had any idea why Angleton had the pictures. Neither could they think of any reason why it was appropriate for CI Staff files to contain them. They were accordingly destroyed.
 

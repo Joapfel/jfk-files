@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15538.png
-
-Convert to MarkdownAnd the people in our work shop (inaudible)
+And the people in our work shop (inaudible)
 because the people in our work shop got
 high. Everybody in our work shop got high.
 We feel high. (inaudible) to talk about

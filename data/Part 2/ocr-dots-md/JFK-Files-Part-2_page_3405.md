@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3405.png
-
-Convert to Markdown17. [Minutes of] Special Meeting of the NSC on 22 Jun 60 [from James S. Lay, Jr.]. (Dwight D. Eisenhower Library: Gordon Gray: Records, 1952-61, "Cuba" folder.) TS (no number).
+17. [Minutes of] Special Meeting of the NSC on 22 Jun 60 [from James S. Lay, Jr.]. (Dwight D. Eisenhower Library: Gordon Gray: Records, 1952-61, "Cuba" folder.) TS (no number).
 
 18. Routing and Record Sheet for Chief, WHD from Chief, WH/4, 21 Jun 60, sub: Copy of NSC Briefing Paper sent General Cabell on 20 June.
 

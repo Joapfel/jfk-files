@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20819.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td colspan="2">BOSTON</td><td>NEW YORK</td><td>3/21/73</td><td>3/2 - 3/16/73</td></tr><tr><th>TITLE OF CASE</th><td colspan="4"></td></tr><tr><td colspan="2">WOMEN'S NATIONAL ABORTION ACTION COALITION</td><td colspan="2">REPORT MADE BY<br/>ARTHUR V. SULLIVAN, JR.</td><td>TYPED BY<br/>mej</td></tr><tr><td colspan="2"></td><td colspan="2">CHARACTER OF CASE<br/>IS - C (TROTSKYIST)</td><td></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">REPORTING OFFICE</th><th>OFFICE OF ORIGIN</th><th>DATE</th><th>INVESTIGATIVE PERIOD</th></tr></thead><tbody><tr><td colspan="2">BOSTON</td><td>NEW YORK</td><td>3/21/73</td><td>3/2 - 3/16/73</td></tr><tr><th>TITLE OF CASE</th><td colspan="4"></td></tr><tr><td colspan="2">WOMEN'S NATIONAL ABORTION ACTION COALITION</td><td colspan="2">REPORT MADE BY<br/>ARTHUR V. SULLIVAN, JR.</td><td>TYPED BY<br/>mej</td></tr><tr><td colspan="2"></td><td colspan="2">CHARACTER OF CASE<br/>IS - C (TROTSKYIST)</td><td></td></tr></tbody></table>
 
 **REFERENCE:** Boston report of SA ARTHUR V. SULLIVAN, JR., dated
 6/23/72.

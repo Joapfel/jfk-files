@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17320.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>FORM 53a<br/>140</td>
     <td style="text-align: center;">SECRET /CONFIDENTIAL</td>

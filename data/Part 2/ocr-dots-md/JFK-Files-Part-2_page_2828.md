@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2828.png
-
-Convert to Markdown23 AUG 1978
+23 AUG 1978
 
 Dear Mr. Kent:
 

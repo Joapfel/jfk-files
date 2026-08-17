@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23053.png
-
-Convert to Markdowncentrifuges then available. Its basic function is the analysis or separation of the diverse elements that constitute a biological substance.
+centrifuges then available. Its basic function is the analysis or separation of the diverse elements that constitute a biological substance.
 
 11. Department of Electronic Microscopy. This department was functioning in November 1967 and contained two electron microscopes of the highest quality, one Polish-made and the other believed to be Japanese. It was performing research in cytology, ultrastructure (the ultramicroscopic structure of tissues of living beings), crystallography, and the three-dimensional spatial structure of certain biological substances.
 

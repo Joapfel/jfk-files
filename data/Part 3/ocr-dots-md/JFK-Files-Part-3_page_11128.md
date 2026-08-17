@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11128.png
-
-Convert to Markdown# B. Access Controls
+# B. Access Controls
 
 Access to the Dirksen Building is gained by either the main entrance on 1st and C Streets, ground level, or the Basement Tunnel Entrance at the rear of the building. Both entrances have a 24-hour guard post where persons entering are checked for identification. Brief cases and packages are processed through x-ray machines. Vendors entering the main entrance are checked for ID, however, all boxes are not checked.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8015.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 XX-1133
 page 4

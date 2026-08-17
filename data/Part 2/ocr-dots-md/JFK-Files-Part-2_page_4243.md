@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4243.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23
 [BYE 2656-64]

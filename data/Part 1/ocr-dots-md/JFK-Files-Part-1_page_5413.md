@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5413.png
-
-Convert to Markdownwhere, like a miracle, the country will again take its course forward
+where, like a miracle, the country will again take its course forward
 to join the other progressive nations of this hemisphere. Unlike those
 politicians who have seen their prominent positions as a temporary state
 of affairs with absolutely no future beyond Duvalier, Mr. Charles has

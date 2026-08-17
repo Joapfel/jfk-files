@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19772.png
-
-Convert to MarkdownIn Reply, Please Refer to
+In Reply, Please Refer to
 File No. 100-79914
 
 **Title** WOMEN'S NATIONAL ABORTION ACTION COALITION (WONAAC) SPONSORED DEMONSTRATION

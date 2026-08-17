@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7858.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 6. The cited documents are available in this office if needed.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_473.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 NOTE:
 

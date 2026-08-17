@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5289.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6 February 1997
 

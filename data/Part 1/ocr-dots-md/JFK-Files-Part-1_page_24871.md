@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24871.png
-
-Convert to Markdown14-00000
+14-00000
 
 world discuss Tichborn with Ms. E.A. who was scheduled to be in Washington on
 7 July. Allen stated that he knew of Tichborn and had a fairly good guess of

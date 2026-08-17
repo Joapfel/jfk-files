@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3212.png
-
-Convert to Markdown1 Origin, Aims, and Purposes, a description of the Women's
+1 Origin, Aims, and Purposes, a description of the Women's
 2 Liberation movement in Baltimore, Maryland.
 
 3 Now, I call your attention to this because it seems to me

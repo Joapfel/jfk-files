@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19053.png
-
-Convert to MarkdownIII. Praxisdium:
+III. Praxisdium:
 
 BROUWER, Otto Theodor, geb. 31.5.1906 in Paris,
 wohnhaft: Bremen-Vegesack, Gerhard-Rohlfs-Str. 61,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24386.png
-
-Convert to MarkdownQUARTERLY REPORT
+QUARTERLY REPORT
 
 STATION/BASE : LCPIPIT (London)
 AGENT'S CRYPT : QRPHONE/1

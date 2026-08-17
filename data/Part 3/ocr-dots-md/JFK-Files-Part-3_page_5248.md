@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5248.png
-
-Convert to MarkdownADDENDUM
+ADDENDUM
 
 INSPECTOR ARNOLD C. LARSON: In regard to your answer to this
 write-up, the following is

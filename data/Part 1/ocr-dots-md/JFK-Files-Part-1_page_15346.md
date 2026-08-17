@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15346.png
-
-Convert to Markdown20 August 1965
+20 August 1965
 
 MEMORANDUM TO: Chief/KUCURL/HENGEN
 FROM : Edward W. LORENTZ

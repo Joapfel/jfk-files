@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27975.png
-
-Convert to MarkdownSECRET
+SECRET
 
 22 March 1965
 

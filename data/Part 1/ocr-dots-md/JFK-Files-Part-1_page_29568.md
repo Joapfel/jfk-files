@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29568.png
-
-Convert to MarkdownSECRET
+SECRET
 COVER DATA
 
 NAME: Grayston L. Lynch

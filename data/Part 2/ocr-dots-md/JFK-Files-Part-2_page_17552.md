@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17552.png
-
-Convert to Markdown# GROUNDWORK FOR FASCISM
+# GROUNDWORK FOR FASCISM
 
 It was early in the morning of Sunday, September 14th in Chicago.
 

@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_11429.png
-
 (224-1746), who will arrange the details of location and time for the review.
 
 MDR 16

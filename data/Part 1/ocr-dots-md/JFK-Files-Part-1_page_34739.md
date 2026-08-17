@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34739.png
-
-Convert to MarkdownDR. MARGELL P. ARTIME
+DR. MARGELL P. ARTIME
 
 1.
 

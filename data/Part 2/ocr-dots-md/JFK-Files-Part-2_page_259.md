@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_259.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES: 15
 
 <table><tr><td>GRID:</td><td>J. Fisher</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>DET:</td><td>4308</td></tr><tr><td>DATE:</td><td>29 Nov 65</td></tr></table>

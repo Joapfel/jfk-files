@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8605.png
-
-Convert to MarkdownSECRET
+SECRET
 
 specialists, fascinated by the technical aspects of the project, seemed, however,
 oblivious of the dangers involved in secretly flying near a Chinese missile

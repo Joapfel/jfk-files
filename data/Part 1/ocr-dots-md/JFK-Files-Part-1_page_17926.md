@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17926.png
-
-Convert to Markdown076 SE/LB/J
+076 SE/LB/J
 
 25 OCTOBER 1957
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10582.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23. Approximately in July 1964 I-1 had a second interview with "Nordice in the presence of "Jim" and "Enrique."
 

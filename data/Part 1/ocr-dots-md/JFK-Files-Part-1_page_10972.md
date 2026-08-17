@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10972.png
-
-Convert to MarkdownTranslation of a letter from Kira KOŠOVSKA to LITAVIL-9. Kira is the wife of Angeli KOŠOVIKI, who was a Second Secretary in the Bulgarian Embassy in Havana as of October 1965. They are now back in Sofia, Bulgaria. The letter was mailed from Bulgaria to Cuba.
+Translation of a letter from Kira KOŠOVSKA to LITAVIL-9. Kira is the wife of Angeli KOŠOVIKI, who was a Second Secretary in the Bulgarian Embassy in Havana as of October 1965. They are now back in Sofia, Bulgaria. The letter was mailed from Bulgaria to Cuba.
 
 Good evening, Luis! How have you been? Working a lot, as always? Which to choose -- of two opinions on work ("horses die from working" and "work created Man") it is better to choose the second, isn't it?
 

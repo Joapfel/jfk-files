@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23472.png
-
-Convert to MarkdownHKHA-778
+HKHA-778
 
 4. During the month of August the following expenses for VAIYADA are anticipated in addition to the $250.00 monthly normally incurred by RIKON under Project AMPHODARCH:
 

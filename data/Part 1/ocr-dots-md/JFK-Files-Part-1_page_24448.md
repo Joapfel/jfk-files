@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24448.png
-
-Convert to Markdownsome time he was in trouble at the hands of the political groups opposed to Algerian independence. He was provided a guard outside his house and for a little while had even to leave France to live in Geneva because of fear for his life. Even in the legal defence that he conducted, the judge was entirely political. He was all this period subscribing to an extreme view which may be called ultra-revolutionary. For example, in his legal defence his theory was always to justify an act of killing by an accused on the ground that it was part of a war of independence.
+some time he was in trouble at the hands of the political groups opposed to Algerian independence. He was provided a guard outside his house and for a little while had even to leave France to live in Geneva because of fear for his life. Even in the legal defence that he conducted, the judge was entirely political. He was all this period subscribing to an extreme view which may be called ultra-revolutionary. For example, in his legal defence his theory was always to justify an act of killing by an accused on the ground that it was part of a war of independence.
 
 Almost from the very beginning and in any case from 1951 Verges had certain differences with the French C.P. He considered them to be reformist and acceded them of being cowardly in their support to the Algerian revolution. He was never a member thereof in this period and often worked against them.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27150.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 THE WHITE HOUSE
 WASHINGTON

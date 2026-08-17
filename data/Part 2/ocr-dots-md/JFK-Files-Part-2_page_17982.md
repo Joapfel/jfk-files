@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17982.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTELLIGENCE DIVISION
 

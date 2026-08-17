@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14813.png
-
-Convert to MarkdownFrom November, 1933, to May, 1935, he was in the Soviet Union, where he attended the Leonid School. Upon his return to the United States, he became Organizational Secretary of the YCL in Cleveland and was named to the Ohio District Committee of the YCL. In March, 1936, Winston was named YCL National Organizational Secretary, and in May, 1937, was elected YCL National Administrative Secretary.
+From November, 1933, to May, 1935, he was in the Soviet Union, where he attended the Leonid School. Upon his return to the United States, he became Organizational Secretary of the YCL in Cleveland and was named to the Ohio District Committee of the YCL. In March, 1936, Winston was named YCL National Organizational Secretary, and in May, 1937, was elected YCL National Administrative Secretary.
 
 Winston was active in the YCL as editor of the "Young Communist Review," official magazine of the YCL, and as Director of the YCL Training School held at Camp Beacon, New York, during 1937 and 1938. He was reelected YCL National Administrative Secretary in May, 1939, and held this office until his induction into the Army in February, 1942.
 

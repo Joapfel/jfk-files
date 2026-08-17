@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3003.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 CENTRAL INTELLIGENCE AGENCY
 

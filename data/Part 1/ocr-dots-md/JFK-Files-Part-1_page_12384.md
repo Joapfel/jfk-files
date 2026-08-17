@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12384.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>C1/IC</td>

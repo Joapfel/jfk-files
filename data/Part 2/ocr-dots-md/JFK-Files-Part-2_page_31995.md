@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31995.png
-
-Convert to MarkdownICOP-III
+ICOP-III
 
 11 JUL 1968
 

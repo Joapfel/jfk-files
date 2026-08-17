@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6365.png
-
-Convert to MarkdownTo: C/HRG
+To: C/HRG
 
 Subject: OGC's comments on proposed JFK regulations.
 

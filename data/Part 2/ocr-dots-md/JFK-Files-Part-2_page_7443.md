@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7443.png
-
-Convert to Markdown<table><tr><td>DD/P .1-12 20</td></tr></table>
+<table><tr><td>DD/P .1-12 20</td></tr></table>
 
 MEMORANDUM FOR: Deputy Director (Plans)
 SUBJECT : Related Mission Directive for Mexico

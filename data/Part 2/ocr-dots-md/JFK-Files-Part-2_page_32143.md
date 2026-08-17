@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32143.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>US AIRY REQUEST FOR NATIONAL AGENCY CHECK</td>
         <td></td>

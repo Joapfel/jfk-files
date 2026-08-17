@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19165.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # Veteran views As Peace, Not Politics
 

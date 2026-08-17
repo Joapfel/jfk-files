@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7051.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the name of V/1's aunt, Kaisa RAIKKONEN. She was told that some
 of the incoming S/W in the future would be written in Finnish,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4328.png
-
-Convert to Markdown12 May 1966
+12 May 1966
 
 FROM : Director, Intelligence
 SUBJECT : Assets Investigation ARTIME BURSA, MANUEL F.

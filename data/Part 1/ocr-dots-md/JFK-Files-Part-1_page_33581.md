@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33581.png
-
-Convert to MarkdownJAN 5 1994
+JAN 5 1994
 
 SECRET
 

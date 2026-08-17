@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21826.png
-
-Convert to Markdown1. Mr. Wides. Do you know anything about Cubans coming up from Miami to be involved in surveillance or disruption of any peace demonstrations in Washington?
+1. Mr. Wides. Do you know anything about Cubans coming up from Miami to be involved in surveillance or disruption of any peace demonstrations in Washington?
 
 2
 

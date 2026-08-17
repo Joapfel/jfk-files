@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31441.png
-
-Convert to Markdown17 September 1952
+17 September 1952
 
 MEMORANDUM FOR: CHIEF, INTERNATIONAL ORGANISATIONS DIVISION
 

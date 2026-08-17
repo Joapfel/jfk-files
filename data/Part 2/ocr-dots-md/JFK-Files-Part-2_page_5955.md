@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5955.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 From the Desk of Jeanne Kardaras
 Human Resource Management/Information Coordinator

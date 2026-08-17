@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_25265.png
-
 to (現職) LEANDRINI of CEPL (Consular Economics para la America Latina).
 
 2. Indian Embassy: A. KUMARI of the Indian Embassy received an invitation to the farewell party for CHUNNAN on 10 October. He also invited CHUKASOV to lunch on 15 October and invited that CHUKASOV should bring along any other friend or relative he chose. It is believed that Ambassador ILAZ-ENEV attended the luncheon. On 20 October KUHACHY and his wife were invited to a concert of Soviet singer DIINA. SECRET 50-4-1-303

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20099.png
-
-Convert to MarkdownCopy to:
+Copy to:
 
 Report of: ARTHUR V. SULLIVAN, JR.
 Date: March 21, 1973

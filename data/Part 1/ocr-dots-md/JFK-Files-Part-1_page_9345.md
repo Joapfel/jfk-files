@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9345.png
-
-Convert to MarkdownState telegram requesting priority cooperation of all Conoular officers in providing entry permit for delegates, several cables expressing overall interest and extraordinarily complete arrangements to cover the Congress by VOA. To accomplish this latter mission, VOA's special representative in Berlin made elaborate arrangements for re-broadcasting from New York.
+State telegram requesting priority cooperation of all Conoular officers in providing entry permit for delegates, several cables expressing overall interest and extraordinarily complete arrangements to cover the Congress by VOA. To accomplish this latter mission, VOA's special representative in Berlin made elaborate arrangements for re-broadcasting from New York.
 
 III. The Sessions of the Congress
 

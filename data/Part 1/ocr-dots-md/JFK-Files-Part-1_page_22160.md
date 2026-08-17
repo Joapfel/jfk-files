@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22160.png
-
-Convert to MarkdownCommittee for State Security
+Committee for State Security
 Under the Council of Ministers
 USSR
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8383.png
-
-Convert to MarkdownIf the matter however I would be very careful not to cast any
+If the matter however I would be very careful not to cast any
 reflections on his friends, (left or right) the Russian people, Republican
 Soviets in general, or anything else that he are expressed a definite
 opinion on. If all of the foregoing is really legitimate, the success of

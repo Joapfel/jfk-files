@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32745.png
-
-Convert to MarkdownIn the past, the actual costs of major weapon systems have com-
+In the past, the actual costs of major weapon systems have com-
 monly increased from 300 to 500 percent over the costs estimated when
 the program started, and in some instances more. Some of the reasons
 for such overruns have been:

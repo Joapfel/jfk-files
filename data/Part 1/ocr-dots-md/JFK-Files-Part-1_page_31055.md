@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31055.png
-
-Convert to Markdowndjem in lieu of subsistence in the course of all travel pursuant horounder and, when authorized, for you alone while on temporary duty away from your permanent post of assignment. All travel, transportation and per diem provided for under this paragraph must be properly authorized, and expenses incurred hereunder are subject to payment and accounting in compliance with applicable Government regulations or those of your cover facility, whichever is directed by the Government.
+djem in lieu of subsistence in the course of all travel pursuant horounder and, when authorized, for you alone while on temporary duty away from your permanent post of assignment. All travel, transportation and per diem provided for under this paragraph must be properly authorized, and expenses incurred hereunder are subject to payment and accounting in compliance with applicable Government regulations or those of your cover facility, whichever is directed by the Government.
 
 6. <u>Operational Expenses.</u> You will be advanced or reimbursed funds for necessary operational expenses including, but not limited to, entertainment and the purchase of information, as specifically approved by the Government. Such funds will be subject to accounting in compliance with Government regulations or those of your cover facility, whichever is directed by the Government.
 

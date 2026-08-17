@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19531.png
-
-Convert to MarkdownS-M-7 8-2-T
+S-M-7 8-2-T
 
 **TRAINING REPORT**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10461.png
-
-Convert to MarkdownNR026 CG CODE
+NR026 CG CODE
 
 MAR 15 1975
 Dew

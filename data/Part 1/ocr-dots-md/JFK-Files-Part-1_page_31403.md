@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31403.png
-
-Convert to MarkdownSecurity Matters
+Security Matters
 
 NOV 26 1952
 

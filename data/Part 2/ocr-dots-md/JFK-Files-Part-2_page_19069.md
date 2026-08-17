@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19069.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 34. Memo of SA EDWARD F. GAMBER, dated 3/15/61, at NY captioned "IS - R".
 

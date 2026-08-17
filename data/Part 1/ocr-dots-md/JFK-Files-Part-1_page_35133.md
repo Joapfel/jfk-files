@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35133.png
-
-Convert to MarkdownNOMINA
+NOMINA
 
 ANEXO "I-E"
 Hoja No. 5

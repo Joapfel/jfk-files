@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12533.png
-
-Convert to MarkdownFurnish FBIHQ with copy of publications which portray subversive character of group or which advocate violence. Ascertain sources of funds for publications. When it is operated as distinct entity, a separate investigation should be initiated concerning the publication.
+Furnish FBIHQ with copy of publications which portray subversive character of group or which advocate violence. Ascertain sources of funds for publications. When it is operated as distinct entity, a separate investigation should be initiated concerning the publication.
 
 f. Finances
 

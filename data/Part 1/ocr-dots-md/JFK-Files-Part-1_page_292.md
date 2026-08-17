@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_292.png
-
-Convert to Markdown1. REDWOOD - Action Indicator For SR Div.
+1. REDWOOD - Action Indicator For SR Div.
 
 2. RUTUMP - Office of Operations
 

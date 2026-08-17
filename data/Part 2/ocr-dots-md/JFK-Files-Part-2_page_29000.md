@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29000.png
-
-Convert to Markdown<table>
+<table>
   <thead>
     <tr>
       <th>Schedule C-1<br/>Depreciation<br/>Claimed on line 13.</th>

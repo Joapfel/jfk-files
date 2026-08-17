@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25192.png
-
-Convert to MarkdownMW 50955 DocID:32423615 Page 81
+MW 50955 DocID:32423615 Page 81
 
 **PERSONS/ENTITIES:** Conein Gen. Don Gen. Duong Van Minh Gen. Ton That Dinh Ngo Dinh Nhu
 **DATES:** Oct. 2, 1963

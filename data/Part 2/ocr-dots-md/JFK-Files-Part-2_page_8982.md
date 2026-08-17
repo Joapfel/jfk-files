@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8982.png
-
-Convert to Markdowntodas las escuelas de estructura de artes siendo atendidos por el personal de la casa de las Américas que se han mencionado, la esposa del escritor Alejo Carpantier, a pedido nuestro nos llevo a hacer una visita de cortesía al Sr. Embajador Bosques, en Varadero estuvimos, con el poeta Pablo Armando Fernández durante un día, en Pinar del Río en las Islas de Matambre, estuvimos en un campamento de alfabetizadores con Fernando Revueltas, el viaje de regreso lo hicimos igual que del de ida por separado, habiendo salido mi marido el viernes y yo el lunes siguiente.
+todas las escuelas de estructura de artes siendo atendidos por el personal de la casa de las Américas que se han mencionado, la esposa del escritor Alejo Carpantier, a pedido nuestro nos llevo a hacer una visita de cortesía al Sr. Embajador Bosques, en Varadero estuvimos, con el poeta Pablo Armando Fernández durante un día, en Pinar del Río en las Islas de Matambre, estuvimos en un campamento de alfabetizadores con Fernando Revueltas, el viaje de regreso lo hicimos igual que del de ida por separado, habiendo salido mi marido el viernes y yo el lunes siguiente.
 
 Actividades Narradas por la Sra. Silvia Tirado de Duran, el domingo 24 de noviembre de 1963.
 

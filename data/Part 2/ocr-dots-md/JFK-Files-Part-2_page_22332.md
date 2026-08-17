@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22332.png
-
-Convert to MarkdownBrewer believes that the primary purpose of this operation was to render communications assistance to the local police. The secondary purpose was to monitor crowds so as to protect CIA installations. (For example, MPD had obtained some information that various dissident groups planned to picket CIA Headquarters and planned to harass Director Helms during a planned speech.) All of these CIA operations were verbally approved by Headquarters Support Branch (Mr. Cryer). Total period of time devoted to monitoring dissident groups with MPD (for all three occasions) was about five days. Brewer is not aware of any instance where the Washington Field Office tried to penetrate any dissident groups.
+Brewer believes that the primary purpose of this operation was to render communications assistance to the local police. The secondary purpose was to monitor crowds so as to protect CIA installations. (For example, MPD had obtained some information that various dissident groups planned to picket CIA Headquarters and planned to harass Director Helms during a planned speech.) All of these CIA operations were verbally approved by Headquarters Support Branch (Mr. Cryer). Total period of time devoted to monitoring dissident groups with MPD (for all three occasions) was about five days. Brewer is not aware of any instance where the Washington Field Office tried to penetrate any dissident groups.
 
 ## Collection of Information on Dissident Groups
 

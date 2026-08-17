@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6742.png
-
-Convert to MarkdownLetter to Division
+Letter to Division
 LL: COOPERATION PROGRAM
 107-9-4
 

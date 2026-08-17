@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35587.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORIG.</td><td>PW/CAPT/EC/CBP</td></tr><tr><td>EXT:</td><td>266</td></tr><tr><td>DSTR:</td><td></td></tr></table>
 

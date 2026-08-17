@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16998.png
-
-Convert to Markdown9 December 1958
+9 December 1958
 
 MEMORANDUM FOR: DC/WH
 SUBJECT: Case Officer Assignments in Mexico

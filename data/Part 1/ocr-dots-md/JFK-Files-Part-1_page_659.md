@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_659.png
-
-Convert to Markdown18 January 1952
+18 January 1952
 
 Washington
 

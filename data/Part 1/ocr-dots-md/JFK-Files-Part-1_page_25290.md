@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25290.png
-
-Convert to MarkdownSECRET
+SECRET
 
 9. LUKASOV informed BOLSHAILOV on 27 September that he had returned from his trip and would be in town for one more day, then would leave at 8:00 a.m. by air the day after for New York, and from there on to Paris and Moscow.
 

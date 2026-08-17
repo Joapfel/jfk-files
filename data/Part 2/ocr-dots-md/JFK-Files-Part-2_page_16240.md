@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16240.png
-
-Convert to MarkdownTYLER GERRY L., born June 1, 1951, Illinois Distribution Manager of the BPP paper.
+TYLER GERRY L., born June 1, 1951, Illinois Distribution Manager of the BPP paper.
 
 WALLS, RUFUS C., born September 6, 1940. WALLS, commonly known as "CHAKA", is Deputy Minister of Information, Illinois BPP.
 

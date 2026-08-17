@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14531.png
-
-Convert to Markdown# Report 2314
+# Report 2314
 
 4 February 1970
 

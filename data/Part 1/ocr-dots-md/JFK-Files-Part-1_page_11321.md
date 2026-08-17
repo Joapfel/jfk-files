@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11321.png
-
-Convert to MarkdownMEMORANDUM FOR: C/CI/OA
+MEMORANDUM FOR: C/CI/OA
 
 SUBJECT : Operational Approval for LITAMIL-9
 

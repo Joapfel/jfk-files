@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_69.png
-
-Convert to MarkdownSECRET
+SECRET
 
 In connection with the operation of various control files
 there may be set up a complete or partial group of subfiles for each

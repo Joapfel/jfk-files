@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26995.png
-
-Convert to Markdowning their way through a tough and艱困的軍事生活.
+ing their way through a tough and艱困的軍事生活.
 
 WerBell, by contrast, is a business- man who dabbles in military adven- tures only when and as far as it suits him. If combat didn't utilize him, he'd take partake of it. His business is supplying weapons, not using them in battle. He specializes in the weapons techniques of counterinsur- ance, which may be roughly defined as the useful suppression of coups de force, rebellious and the like.
 

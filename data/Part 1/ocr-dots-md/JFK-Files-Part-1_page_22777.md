@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22777.png
-
-Convert to Markdown4. Attachment to T2P-A-365, Part I, is being forwarded to San Jose in order to provide Mercer with a sample of hydropathic work. The San Jose Station is directed to return this document to Panama City when the content of the report has served its purpose.
+4. Attachment to T2P-A-365, Part I, is being forwarded to San Jose in order to provide Mercer with a sample of hydropathic work. The San Jose Station is directed to return this document to Panama City when the content of the report has served its purpose.
 
 A. Rodriguez
 Almodríguez

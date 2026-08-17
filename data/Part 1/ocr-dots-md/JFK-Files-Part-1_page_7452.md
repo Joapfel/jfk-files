@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7452.png
-
-Convert to MarkdownDecember 2, 1932.
+December 2, 1932.
 
 No. 1480.
 SECRET:

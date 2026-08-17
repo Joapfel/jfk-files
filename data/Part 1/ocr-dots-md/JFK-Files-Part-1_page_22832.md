@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22832.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GUY HUGHES CARAWAN, JR.
 4/7/56

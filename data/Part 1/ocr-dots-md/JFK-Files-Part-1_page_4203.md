@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4203.png
-
-Convert to Markdown4. According to A-1 Babun has loaned a PC to A-1.
+4. According to A-1 Babun has loaned a PC to A-1.
 He promised to send us data on the boat.
 
 Raul J. Hernandez

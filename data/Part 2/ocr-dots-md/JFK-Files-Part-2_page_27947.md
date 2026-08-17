@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27947.png
-
-Convert to MarkdownSARI MORDANA
+SARI MORDANA
 
 303 East 71st Street
 New York, N. Y. 10021

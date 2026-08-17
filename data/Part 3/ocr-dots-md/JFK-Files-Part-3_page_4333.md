@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4333.png
-
-Convert to MarkdownMEMORANDUM FOR THE ATTORNEY GENERAL
+MEMORANDUM FOR THE ATTORNEY GENERAL
 
 other black extremist organizations in Detroit, Michigan,
 including the League of Revolutionary Black Workers, a black

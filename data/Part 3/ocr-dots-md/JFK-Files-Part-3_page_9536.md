@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9536.png
-
-Convert to MarkdownUNITED STATES
+UNITED STATES
 
 ORNMENT
 Memorandum

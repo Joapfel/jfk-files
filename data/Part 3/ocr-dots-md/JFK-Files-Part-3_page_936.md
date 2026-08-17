@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_936.png
-
-Convert to Markdown# General Files
+# General Files
 
 General files are used for nonspecific violations, complaints over which we have no jurisdiction, and miscellaneous matters. General files are also maintained on various individuals; organizations; foreign, local, and state law enforcement agencies as well as Federal agencies (for information regarding cooperation, liaison, general organization, etc.); associations; patriotic organizations such as the American Legion; newspapers, magazines, radio and television stations which cooperate with the Bureau in publishing fugitives and to whom we give press releases; and activities of foreign nations such as Soviet and satellite activities, etc.
 

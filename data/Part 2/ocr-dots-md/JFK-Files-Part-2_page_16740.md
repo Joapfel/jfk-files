@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16740.png
-
-Convert to MarkdownDate: 1/31/70
+Date: 1/31/70
 
 On the afternoon of January 27, 1970, a telephone call was received at his place of employment in New York, from a man who had passed away several months previously. At that time he advised he possessed certain microscope slides concerning his examination of a Chicago, Illinois resident in December, 1969, and was willing to turn these slides over to the FBI, as he had been directed to do so by an attorney with the United States Department of Justice. Arrangements were made to obtain these slides from the State Office on the evening of January 27, 1970, as he stated they were presently at his residence.
 

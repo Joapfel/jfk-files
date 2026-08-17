@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4080.png
-
-Convert to Markdown13-00000
+13-00000
 
 FD-223 (Rev. 11-29-61)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16518.png
-
-Convert to MarkdownCalendar No. 841
+Calendar No. 841
 
 92D CONGRESS
 2d Session } SENATE } REPORT

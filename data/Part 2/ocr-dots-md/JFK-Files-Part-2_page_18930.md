@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18930.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NY 134-11361
 

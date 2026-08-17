@@ -1,3 +1,1 @@
-# JFK-Files-Part-2_page_27589.png
-
-Convert to MarkdownYour assistance with the 1977 Inauguration meant a great deal to me personally. More importantly, it was a great example of what we Americans can accomplish by sharing our talents and energies with each other.
+Your assistance with the 1977 Inauguration meant a great deal to me personally. More importantly, it was a great example of what we Americans can accomplish by sharing our talents and energies with each other.

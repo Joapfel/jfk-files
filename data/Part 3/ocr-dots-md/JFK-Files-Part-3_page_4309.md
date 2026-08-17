@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4309.png
-
-Convert to Markdown**Memorandum for the Attorney General**
+**Memorandum for the Attorney General**
 
 (Walter Linder, 11 McKeever Place, Brooklyn, New York; and
 Frederick Jerome, 55 Western Shore Lane, San Francisco,

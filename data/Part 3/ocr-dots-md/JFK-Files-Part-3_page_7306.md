@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7306.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1 Mr. N. P. Callahan
 1 - Mr. J. B. Adams

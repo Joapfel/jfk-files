@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7046.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Moscow" perfume. The evening was confined to small talk. On
 3 May, LOGUINOV again called and made a dinner date with

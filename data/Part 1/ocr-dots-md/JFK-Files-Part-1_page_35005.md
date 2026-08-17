@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35005.png
-
-Convert to Markdown| Date | Check No. | Total |
+| Date | Check No. | Total |
 |---|---|---|
 | Dec. 13 | 1207 | $ 50.00 |
 | Dec. 13 | 1209 | 50.00 |

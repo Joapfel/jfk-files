@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7972.png
-
-Convert to MarkdownSECRET
+SECRET
 
 23. Although the National Archives are the repository for the Kennedy assassination documents, the FBI and the CIA are responsible for restricting research. Much of the 300 cubic feet of documents have been printed, a reclassification in 1971 has released 3,000 pages, and the CIA later released more, but none of the material released has created any sensation. The Freedom of Information Act is not as liberal on assassination material as on other matters. Some material was not even turned over to the Warren Commission. The FBI and the Justice Department are alone in knowing the results of some tests.
 

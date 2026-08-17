@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26682.png
-
-Convert to Markdown"ABC". - 21 de agosto de 1961 . Pg. 7.
+"ABC". - 21 de agosto de 1961 . Pg. 7.
 
 # Editorial
 

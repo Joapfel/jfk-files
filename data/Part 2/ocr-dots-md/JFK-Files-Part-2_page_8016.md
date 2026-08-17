@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8016.png
-
-Convert to Markdownbrought on the shift of control in the foundations
+brought on the shift of control in the foundations
 were handled by a Galveston law firm linked to the
 mob. The stockholders also claim that John Connally
 played a role in these negotiations, albeit a "back-

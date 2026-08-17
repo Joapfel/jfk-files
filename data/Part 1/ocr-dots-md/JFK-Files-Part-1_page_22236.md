@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22236.png
-
-Convert to Markdown644.
+644.
 
 NOSENKO'S counterintelligence production includes all of his information on the Soviet intelligence and security organs:
 

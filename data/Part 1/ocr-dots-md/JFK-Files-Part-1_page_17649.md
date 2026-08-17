@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17649.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      FILE TITLE

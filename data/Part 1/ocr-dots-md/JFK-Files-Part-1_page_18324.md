@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_18324.png
-
 recruiting officer. I remained there for three months, devoting most of my time to the Student Officer Procurement program in the various Texas colleges.
 
 In December, 1943, the Marine Corps, which had, prior to that time, been an exclusively volunteer organization, was placed under the Selective Service System, and Marine Corps Headquarters decided to follow the end of the Navy and appoint a Marine officer as lidion to each state Selective Service Headquarters. It was one of those appointed, and was ordered to Raleigh, N.C., on 12 January 1943.

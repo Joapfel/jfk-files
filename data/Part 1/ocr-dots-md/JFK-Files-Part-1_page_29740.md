@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29740.png
-
-Convert to MarkdownAUGUST 16, 1947
+AUGUST 16, 1947
 
 FM. 171 - Experience 13-1
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15914.png
-
-Convert to Markdown14-0000
+14-0000
 
 CLASSIFIED MESSAGE
 FILE NO. 201-23547X

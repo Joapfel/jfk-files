@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4375.png
-
-Convert to MarkdownTHURSDAY
+THURSDAY
 6 APRIL
 
 <table><thead><tr><th>APRIL</th><th colspan="5">1961</th></tr><tr><th>S M T W T F S</th><th>1</th></tr></thead><tbody><tr><td>2 3 4 5 6 7 8</td><td></td></tr><tr><td>9 10 11 12 13 14 15</td><td></td></tr><tr><td>16 17 18 19 20 21 22</td><td></td></tr><tr><td>23 24 25 26 27 28 29</td><td></td></tr><tr><td>30</td><td></td></tr></tbody></table>

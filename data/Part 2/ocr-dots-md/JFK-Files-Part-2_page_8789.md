@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8789.png
-
-Convert to MarkdownAMTAUP Operation 19-132-19
+AMTAUP Operation 19-132-19
 
 SW Message #32 from Agent - Undated
 

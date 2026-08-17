@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8778.png
-
-Convert to MarkdownBuch. Visa.
+Buch. Visa.
 
 No visa est valable pour des Affairs publiees ou d'autres affairs私的事务或外交、军事或其他重要事務。
 

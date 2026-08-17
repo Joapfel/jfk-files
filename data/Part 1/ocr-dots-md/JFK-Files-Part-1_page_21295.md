@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21295.png
-
-Convert to Markdown<html><body><table><tr><td>DISPATCH</td></tr><tr><td>TO</td><td>Chief, WE (Attention NUDESK)</td></tr><tr><td>RE-TO</td><td>Chief of Station, Madrid</td></tr><tr><td>FROM</td><td>Chief of Base, Barcelona CGS.</td></tr><tr><td>SUBJECT</td><td>Counter Espionage<br>Luis TEDESCHI, possibly Luis TEDECHI</td></tr><tr><td>ACTION REQUIRED</td><td>For your information</td></tr><tr><td>REFERENCE(S)</td><td>OIRW-18463</td></tr></table></body></html>
+<html><body><table><tr><td>DISPATCH</td></tr><tr><td>TO</td><td>Chief, WE (Attention NUDESK)</td></tr><tr><td>RE-TO</td><td>Chief of Station, Madrid</td></tr><tr><td>FROM</td><td>Chief of Base, Barcelona CGS.</td></tr><tr><td>SUBJECT</td><td>Counter Espionage<br>Luis TEDESCHI, possibly Luis TEDECHI</td></tr><tr><td>ACTION REQUIRED</td><td>For your information</td></tr><tr><td>REFERENCE(S)</td><td>OIRW-18463</td></tr></table></body></html>
 
 There are no base file or QUOTA traces on Subject in Barcelona.
 

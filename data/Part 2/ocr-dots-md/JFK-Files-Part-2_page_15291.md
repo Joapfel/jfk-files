@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15291.png
-
-Convert to MarkdownMemorandum to M W. C. Sullivan
+Memorandum to M W. C. Sullivan
 RE: INTELLIGENCE COVERAGE OF NON-SOVIET-BLOC COUNTRIES
 65-63113
 

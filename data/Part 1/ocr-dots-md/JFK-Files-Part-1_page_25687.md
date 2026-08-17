@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25687.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 4 AUG 62</td><td>SECRET, Military</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="5"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>AUG 4 2025Z 62</td></tr><tr><td>PRIORITY</td></tr><tr><td>IN 40150</td></tr></tbody></table></td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/TFW 5 (MR MULLOY TFW NOTIFIED & COPY SLOTTED AT 1745, 4 AUG)</td></tr><tr><td>INFO : DDP, ADDP, C/C1, C/WH 5, s/c 2</td></tr></tbody></table>
+<table><thead><tr><th colspan="2">CLASSIFIED MESSAGE</th></tr></thead><tbody><tr><td>DATE : 4 AUG 62</td><td>SECRET, Military</td></tr><tr><td>TO : DIRECTOR</td><td rowspan="5"><table border="1" style="width:100%; border-collapse: collapse;"><tbody><tr><td>AUG 4 2025Z 62</td></tr><tr><td>PRIORITY</td></tr><tr><td>IN 40150</td></tr></tbody></table></td></tr><tr><td>FROM : MEXICO CITY</td></tr><tr><td>ACTION: C/TFW 5 (MR MULLOY TFW NOTIFIED & COPY SLOTTED AT 1745, 4 AUG)</td></tr><tr><td>INFO : DDP, ADDP, C/C1, C/WH 5, s/c 2</td></tr></tbody></table>
 
 PRITY DIR INFO WAVE CITE MEXI 1614
 

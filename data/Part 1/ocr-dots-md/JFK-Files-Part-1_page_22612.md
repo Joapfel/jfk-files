@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22612.png
-
-Convert to MarkdownC-82712 (S-8760)
+C-82712 (S-8760)
 
 Conselo Felicia CORDERO-Calderon
 

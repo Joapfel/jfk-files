@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23850.png
-
-Convert to Markdown1. note that back on page 67 where we have struck out the reference
+1. note that back on page 67 where we have struck out the reference
 2. to Mr. Raborn and intend to expand on the pressures having
 3. been brought to bear, part of that expansion should include
 4. a statement that there is no -- or that the Federal Disposal

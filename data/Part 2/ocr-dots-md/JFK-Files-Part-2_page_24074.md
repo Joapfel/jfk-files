@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24074.png
-
-Convert to Markdown(a) Agency Officials Failed On Several Occasions To Reveal
+(a) Agency Officials Failed On Several Occasions To Reveal
 The Plots To Their Superiors, Or To Do So With Sufficient
 Detail and Clarity
 

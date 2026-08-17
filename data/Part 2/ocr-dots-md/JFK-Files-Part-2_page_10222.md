@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10222.png
-
-Convert to Markdown5 June 1973
+5 June 1973
 
 MEMORANDUM FOR: Inspector-General
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34406.png
-
-Convert to Markdown104-10226-10090
+104-10226-10090
 
 <table><thead><tr><th colspan="2">CLASSIFIED INFORMATION</th></tr><tr><td>TO : DIRECTOR</td><td>SECRET</td></tr></thead><tbody><tr><td>FROM : JUWATE</td><td></td></tr><tr><td>ACTION: TFW 10 (MR. KAPPEL, TFW ISSUED TEMPO COPY 8315, 30 AUG)</td><td>ALG 31 0310Z 62</td></tr><tr><td>INFO : DCI, DD/P, ADOP, SOD-5, CA 2, CA/PEG, CA/PROP, CA/O 4, CI/ON, CI/IC 2, FI, FID, FI/INT 2, IW 2, WH 7, DD/I, AD/CI 2, AD/NE, S/C 2</td><td>OPERATIONAL IMMEDIATE<br/>IN 14497</td></tr></tbody></table>
 

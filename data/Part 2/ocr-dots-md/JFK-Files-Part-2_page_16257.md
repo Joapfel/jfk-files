@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16257.png
-
-Convert to MarkdownV. ACTIVITIES
+V. ACTIVITIES
 
 Captain WILBERT SAMUELS, Maywood, Illinois,
 Police Department advised on May 26, 1969, a mock trial

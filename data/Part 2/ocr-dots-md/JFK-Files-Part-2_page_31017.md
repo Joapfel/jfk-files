@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31017.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GRAPHICS index will not contain routine picture of group in group
 201 fols will not necessarily contain pictures.

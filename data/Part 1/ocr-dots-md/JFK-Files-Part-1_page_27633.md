@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27633.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><td>②<br/>DATE OF ENLISTMENT (month, year)</td><td>POWDER HELPER</td><td>CLASSIFICATION GRADE<br/>(if in Federal service)</td><td>SALARY OR EARNINGS<br/>STARTING $1.25 PER HR.</td></tr></thead><tbody><tr><td>FROM June 7, 1946 to Feb 19, 1948</td><td>Powder Helper</td><td></td><td></td></tr><tr><th colspan="3">③ DATES OF DEPLOYMENT (month, year)</th><td>NAME AND TITLE OF IMMEDIATE SUPERVISOR</td></tr><tr><td>FROM May '92 TO May '94</td><td>1st Lt., Air Corps</td><td></td><td>Capt. James Purdy</td></tr><tr><th colspan="3">④ DATES OF EMPLOYMENT (month, year)</th><td>KIND OF BUSINESS OR ORGANIZATION (e.g., wholesale silk, insurance agency, manufacture of locks, etc.)</td></tr><tr><td>TO Oct '92</td><td>Powder Helper</td><td></td><td>Enter Armed Service</td></tr><tr><th colspan="3">PLACE OF EMPLOYMENT (city and State)</th><td>Appra</td></tr><tr><td>Reynolds, Pa.</td><td>Atias Powder Company</td><td></td><td>Enter Armed Service</td></tr><tr><th colspan="3">NUMBER AND KIND OF EMPLOYEES SUPERVISED BY YOU</th><td></td></tr><tr><td>Varied (see below)</td><td>Explosives</td><td></td><td>Enter Armed Service</td></tr><tr><th colspan="3">DESCRIPTION OF YOUR WORK</th><td>For approximately one year, worked at Bomb Plant, main position being that of tending tank for emptying INT. Balances of time was employed on Powder Mill, preparing and packing sticks at gelatin for shipment. Part-time was night shift foreman of Barpack (12 to 5 men).</td></tr></tbody></table>
 

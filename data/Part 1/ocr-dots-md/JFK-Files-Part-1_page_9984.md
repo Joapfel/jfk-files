@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9984.png
-
-Convert to Markdown3 August, 1967
+3 August, 1967
 
 Subject: Monthly Report of Developments in the LIRING/3 Operation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32742.png
-
-Convert to Markdown- The greatest use of proven design techniques and methods.
+- The greatest use of proven design techniques and methods.
 
 - The most understanding of the requirements and difficulties in developing, testing, tooling, and producing a fighter-type aircraft.
 

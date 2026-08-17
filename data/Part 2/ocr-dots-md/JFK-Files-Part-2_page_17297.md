@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17297.png
-
-Convert to Markdownhandled by the States Attorney's Office. States
+handled by the States Attorney's Office. States
 Attorney Hanrahan was quoted as expressing surprise
 over the exemption of his men. (Chicago Sun Times
 12/10)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25309.png
-
-Convert to Markdown7.
+7.
 
 The Smaldone brothers, who were also known as "Checkers and Flip Flop," were the Mafia leaders in charge of the syndicate's vending-machine market which stretched from the Rockies all the way to Chicago. Police records show that at one time, the Smaldones virtually controlled the entire Pueblo area of Colorado.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11033.png
-
-Convert to MarkdownB. FBI LAW ENFORCEMENT BULLETIN
+B. FBI LAW ENFORCEMENT BULLETIN
 
 This publication is issued the first of each month by the Bureau for the benefit of law enforcement agencies.
 

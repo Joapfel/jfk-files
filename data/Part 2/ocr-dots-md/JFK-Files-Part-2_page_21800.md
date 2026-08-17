@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21800.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1. Mr. Sarno. Not in the earlier --
 2. Mr. Wides. What about Larry Sternfeld?

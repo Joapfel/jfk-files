@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6743.png
-
-Convert to MarkdownSECRET
+SECRET
 
 37 April 1963
 

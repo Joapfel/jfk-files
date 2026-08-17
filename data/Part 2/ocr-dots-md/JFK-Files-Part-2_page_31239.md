@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31239.png
-
-Convert to MarkdownSECRET
+SECRET
 
 that she was taking a vacation,
 0002286

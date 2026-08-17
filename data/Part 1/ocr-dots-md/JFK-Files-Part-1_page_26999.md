@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26999.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Director, Domestic Contact Service
 

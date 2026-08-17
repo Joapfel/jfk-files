@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9552.png
-
-Convert to Markdown6. According to political reliability, the participants' names fall in the following categories:
+6. According to political reliability, the participants' names fall in the following categories:
 
 a. Black
 

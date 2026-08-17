@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10694.png
-
-Convert to MarkdownThis klavern is the newest active klavern and has about 40 members, of which about 16 are active. They ousted one Exalted Cyclops who indicated he favored aggressive action, and several members have quit because of the views of this Exalted Cyclops. This is the only klavern in the Savannah Division believed to have an "action" group within the klavern.
+This klavern is the newest active klavern and has about 40 members, of which about 16 are active. They ousted one Exalted Cyclops who indicated he favored aggressive action, and several members have quit because of the views of this Exalted Cyclops. This is the only klavern in the Savannah Division believed to have an "action" group within the klavern.
 
 At a meeting on 7/27/64, the Exalted Cyclops stated CALVIN CRAIG, State Grand-Dragon, had advised them to start a military unit. They plan to have this unit trained in a secret type of training. It was indicated that in the event the Communists and Negroes attempt to take over public facilities, that the klan would take over operation of the railroads.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21928.png
-
-Convert to Markdownsensitive source
+sensitive source
 
 - said that when NOSENKO was a young man, he attended the GRU Military-Diplomatic Academy and then spent a short time, perhaps a year, in the Information Department at GRU Headquarters. NOSENKO had been a "very undisciplined person" while in the GRU and "not very good," continued, and he was discharged from the GRU. However, his father, an "influential person in the Ministry of Shipbuilding," was able to get NOSENKO transferred to the KGB.
 

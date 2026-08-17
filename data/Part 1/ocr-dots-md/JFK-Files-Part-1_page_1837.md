@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1837.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 4. Hamilton calls on the Project's Propaganda Chief (presumably Dave Phillips), whom he calls Knight throughout, noting that Knight had worked for him on the Guatemala project. He notes that Knight "had spent most of his CIA career on the outside, i.e., under cover", and that he had spent the three preceding years under cover in Havana. At this point Knight was also establishing a clandestine radio on Swan Island (p. 15). The Paramilitary Chief is also introduced and is called Red throughout (p. 15). Red tells Hamilton that Cuban refugees are being recruited and polygraphed at Useppa Island off Fort Myers, Florida (p. 16). Hamilton is also advised of the role of Roberto Alajoe and of the Retaluleshu base in Guatemala; that all this had the consent of Guatemalan President Yrigoyan. [This has all been previously published.](p. 16). Hamiltonists certain Cuban leaders, most of whom were rescued by CIA to escape from Cuba. This Hamilton considered íranic, because the Chief at Station, Havana, Jim Red, and his deputy, Earl Williamson, "had been enthusiastic over Castro while he was in the Sierra Maestra, and had treated with certain rebel groups ..." (p. 17). Hamilton also charges that Assistant Secretary of State Rubottom and William Wieland "exercised considerable influence" over Col. J. C. King (p. 18).
 

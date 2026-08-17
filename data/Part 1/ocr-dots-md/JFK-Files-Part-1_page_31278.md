@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31278.png
-
-Convert to MarkdownFORM NO. 37-70G
+FORM NO. 37-70G
 FEB 1950
 
 # REPORT OF QUALIFICATIONS

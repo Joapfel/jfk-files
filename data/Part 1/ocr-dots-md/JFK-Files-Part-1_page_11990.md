@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11990.png
-
-Convert to Markdownview of the cops. As the sword carriers are frisking Rothchild, the second note is triumphantly confiscated. They don't know that it says "Joe Morgan" on it. The name of the great Cincinnati second baseman will go somewhere into the DISIP files.
+view of the cops. As the sword carriers are frisking Rothchild, the second note is triumphantly confiscated. They don't know that it says "Joe Morgan" on it. The name of the great Cincinnati second baseman will go somewhere into the DISIP files.
 
 Halfway up the ramp, Rothchild senses that the pressure has somehow been reversed, that now the DISIP wants to keep him on the ground. Several cops are following him as if they want to get ahead and stop him at the door. He scurries inside the plane and rushes back to a seat; they are still following him. He has his seat belt buckled almost before his ass hits the cushion, and the two cops reach out as if to grab him, then change their minds and abruptly leave the aircraft. But they quickly return. They tell Rothchild in a very friendly tone that his friends down on the ground want to have a word with him and that he better unbuckle and come down. Rothchild is so agitated he believes them. He gets as far as the plane entrance, the top of the stairs, when he hears Branch yelling, "Get back." He bowls over a stewarded-on the way to his seat.
 

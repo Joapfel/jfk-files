@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24504.png
-
-Convert to Markdown"Q. Was it your intent to circumlocutiously or otherwise, to advise the Attorney General that you were in the process of trying to kill Castro?
+"Q. Was it your intent to circumlocutiously or otherwise, to advise the Attorney General that you were in the process of trying to kill Castro?
 
 Mr. Bissell: [U]nless I remembered the conversation at the time, which I don't, I don't have any recollection as to whether that was my intent or not." (Bissell, 7/22/75, p. 56).
 

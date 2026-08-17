@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20369.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 JEANNETTE RANKIN BINGADE
 
 Chairman: Jeannette Rankin

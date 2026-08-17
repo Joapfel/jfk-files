@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13033.png
-
-Convert to Markdown16 February 1965
+16 February 1965
 
 MEMORANDUM FOR: Chief, CI/OA
 

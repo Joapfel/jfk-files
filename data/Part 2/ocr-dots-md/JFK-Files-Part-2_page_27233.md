@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27233.png
-
-Convert to MarkdownA - Ltr from Editor of Congressional Staff Directory to Mr. Belin
+A - Ltr from Editor of Congressional Staff Directory to Mr. Belin
 10 Mar 75
 
 B - Ltr from Kelley to Mr. Belin - 26 Feb 75

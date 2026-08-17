@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8062.png
-
-Convert to MarkdownPRIORITY HANDLING
+PRIORITY HANDLING
 HT-3 Ext. 1595
 
 CONFIDENTIAL

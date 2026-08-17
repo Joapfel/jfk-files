@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24054.png
-
-Convert to MarkdownSECRET
+SECRET
 
 # Alkalna fosfataza: 5 K.J.
 

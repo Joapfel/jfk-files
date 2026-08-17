@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20654.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 ADMINISTRATIVE - NON-SYMBOL SOURCE
 WFO report 3/21/72.

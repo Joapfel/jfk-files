@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_3818.png
-
 district attorney who interviewed Russo, delivered a memo to Garrison, detailing Walter Sheridan's efforts to bribe and threaten Russo. The statements made by Russo to Sciambra were very incriminating about Sheridan. The net result of all Sheridan's efforts were that Russo stuck to his story at the trial.
 
 Fred Leemans, "Witness"

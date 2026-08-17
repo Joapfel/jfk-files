@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14963.png
-
-Convert to MarkdownAEPADDLE DEBRIEFING
+AEPADDLE DEBRIEFING
 
 3 and 4 April 1956
 

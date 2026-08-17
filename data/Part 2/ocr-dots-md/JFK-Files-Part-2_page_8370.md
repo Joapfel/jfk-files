@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8370.png
-
-Convert to Markdownto work actively with financial support. His first objective would be to liberate Bulgaria, his homeland, make it a free democracy, and the 51st state of the United States.
+to work actively with financial support. His first objective would be to liberate Bulgaria, his homeland, make it a free democracy, and the 51st state of the United States.
 
 8. More details on Subject's thinking, attitude, mega-Iomania, and background can be found in the following attachments:
 

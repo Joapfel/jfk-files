@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24078.png
-
-Convert to Markdowntion which had continued until 1965. Helms also failed to inform the Warren Commission of the plots because the precise question was not asked.
+tion which had continued until 1965. Helms also failed to inform the Warren Commission of the plots because the precise question was not asked.
 
 Helms told the Committee that he had never raised the assassination operation with McCone or Kennedy Administration officials because he had assumed that the project had been previously authorized, and that the aggressive character of the Kennedy Administration's program against the Castro regime made assassination permissible even in the absence of an express instruction. He added that he had never been convinced that the operation would succeed, and that he would have told McCone about it if he had ever believed that it would "go anywhere".
 

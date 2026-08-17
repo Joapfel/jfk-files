@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26860.png
-
-Convert to MarkdownQ Would you know if that were the case?
+Q Would you know if that were the case?
 
 A No. I really wouldn't know, but the relationship was a two-way street. It wasn't simply that we assisted these people as well as they were assigint us.
 

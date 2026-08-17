@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35336.png
-
-Convert to Markdown**UNDERGROUND**
+**UNDERGROUND**
 
 Annex "III"
 

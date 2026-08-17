@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26134.png
-
-Convert to Markdown<table><tr><td>ORD</td><td colspan="3">P.A. MCMAIN</td></tr><tr><td>UNIT</td><td colspan="3">WE/3</td></tr><tr><td>EXT</td><td colspan="3">5798</td></tr><tr><td>DATE</td><td colspan="3">22 JUE 1962 WCT</td></tr></table>
+<table><tr><td>ORD</td><td colspan="3">P.A. MCMAIN</td></tr><tr><td>UNIT</td><td colspan="3">WE/3</td></tr><tr><td>EXT</td><td colspan="3">5798</td></tr><tr><td>DATE</td><td colspan="3">22 JUE 1962 WCT</td></tr></table>
 
 CLASSIFIED MESSAGE
 

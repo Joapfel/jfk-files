@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22981.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 and I felt that that was a perfectly legitimate function of
 2 that body.

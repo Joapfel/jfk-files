@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7164.png
-
-Convert to Markdown3 March 1966
+3 March 1966
 
 Contact Report: L-852-5
 3 March 1700, Subject's office

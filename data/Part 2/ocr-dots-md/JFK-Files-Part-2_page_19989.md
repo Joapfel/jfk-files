@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19989.png
-
-Convert to MarkdownCopies of the enclosed LHM are being disseminated
+Copies of the enclosed LHM are being disseminated
 locally to NISO, OSI, MI, and Secret Service.
 
 Sources utilized in the LHM are:

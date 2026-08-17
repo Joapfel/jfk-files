@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9120.png
-
-Convert to MarkdownIV. LEADERSHIP
+IV. LEADERSHIP
 
 Organizationally, the Black Panther Party is set up to be under a Central Committee composed of the following positions:
 

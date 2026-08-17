@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3795.png
-
-Convert to MarkdownMonday, March 1, 1976
+Monday, March 1, 1976
 
 # Novel claims Defense tie
 

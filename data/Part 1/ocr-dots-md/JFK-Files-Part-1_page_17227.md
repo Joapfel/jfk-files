@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17227.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Chief of Operations, CO/F
 SUBJECT : LIEMPTY (Renewal)

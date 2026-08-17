@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_47.png
-
-Convert to Markdowndifficult to draft a letter to all SAC's pointing up the problem to them and expecting them to adhere to any policy which will eliminate the difficulty which we have encountered heretofore.
+difficult to draft a letter to all SAC's pointing up the problem to them and expecting them to adhere to any policy which will eliminate the difficulty which we have encountered heretofore.
 
 I have discussed this matter with Mr. Carlson in some detail and he feels that we may be able to control to some extent the interviewing of persons hostile to the Bureau at the Seat of Government without furnishing a "black list" or statement of policy to the field. Mr. Carlson feels, and I agree with him, that the major portion of our difficulty stems from the Loyalty investigations and applicant investigations. Mr. Carlson and I therefore propose that the following procedure be instituted immediately at the Seat of Government in order to meet the objectives desired by the Director in connection with this matter:
 

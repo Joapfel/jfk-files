@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27260.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 1. Memo from Hardy to Schwarzer - 9 Apr 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33247.png
-
-Convert to MarkdownSECRET
+SECRET
 
 № SD 56490 A
 

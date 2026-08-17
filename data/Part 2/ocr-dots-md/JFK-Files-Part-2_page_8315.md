@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8315.png
-
-Convert to MarkdownSECURITY:
+SECURITY:
 
 Enclosure N 7 to ATHENS 588,
 October 13, 1950.

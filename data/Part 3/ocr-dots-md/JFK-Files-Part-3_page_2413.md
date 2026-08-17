@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2413.png
-
-Convert to MarkdownKoreans, to discredit the United States position in Korea. It was indicated this proposed committee would be supported by the North Koreans through contacts in Cuba:
+Koreans, to discredit the United States position in Korea. It was indicated this proposed committee would be supported by the North Koreans through contacts in Cuba:
 
 Additionally, it was indicated the subjects had received training in a likely assignment to accumulate intelligence in behalf of the North Koreans relating to "latest plans,"--newest weapons; blueprints; actual weapons; if possible." According to the notes, these should be secretly transmitted to: the North Koreans through the Soviet Union, the Tanzanian Embassy, Cuban consulates in Mexico or France, or the Korean Embassy in Prague. One of the individuals described the assignment as "We will be their (North Koreans)-eyes and ears as we wage armed struggle."
 

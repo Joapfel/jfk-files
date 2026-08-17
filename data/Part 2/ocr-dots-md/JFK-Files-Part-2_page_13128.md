@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13128.png
-
-Convert to MarkdownThe following is a summary of a 17-page report dated 12/17/73 furnished by Mary Jo Cook, former FBI informant.
+The following is a summary of a 17-page report dated 12/17/73 furnished by Mary Jo Cook, former FBI informant.
 
 A regional conference of the New York/Northern New Jersey Region, VVAW/WSO, was held at a college on 12/8-9/73. 20 listed people attended.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7539.png
-
-Convert to Markdown22 September 1948
+22 September 1948
 
 Mr. D. Milton Ladd
 Assistant to the Director

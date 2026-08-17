@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14001.png
-
-Convert to MarkdownPRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+PRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
 
 **Subjects Suggested by Board Members for Discussion by the Director of Central Intelligence at the Board Meeting of January 30, 1964**
 

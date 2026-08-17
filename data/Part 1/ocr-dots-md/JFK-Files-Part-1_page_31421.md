@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31421.png
-
-Convert to Markdown# Analysis of Memorandum by Mr. Creighton Scott
+# Analysis of Memorandum by Mr. Creighton Scott
 
 The following memorandum, I believe, discusses most of the points raised by Mr. Scott.
 

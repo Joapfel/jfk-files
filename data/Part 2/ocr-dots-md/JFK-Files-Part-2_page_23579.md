@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23579.png
-
-Convert to MarkdownEYES ONLY FOR THE PRESIDENT AND THE ATTORNEY GENERAL
+EYES ONLY FOR THE PRESIDENT AND THE ATTORNEY GENERAL
 
 One of Bob Amory's brightest young men should be assigned to intelligence collection and evaluation.
 

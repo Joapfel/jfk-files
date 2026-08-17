@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7143.png
-
-Convert to Markdown13-00000
+13-00000
 
 FORM 5020B
 7-71 MFG. 2/76

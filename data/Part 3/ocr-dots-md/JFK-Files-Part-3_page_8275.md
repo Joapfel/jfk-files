@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8275.png
-
-Convert to Markdown62-116395
+62-116395
 
 CONFIDENTIAL
 U.S. SENATE SELECT COMMITTEE TO

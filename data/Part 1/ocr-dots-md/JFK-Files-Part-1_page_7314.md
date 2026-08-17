@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7314.png
-
-Convert to Markdown10.04.05
+10.04.05
 
 Does he play chess? Yes ✓ No __
 If Yes, do you know he is good ___ believe he is probably good ___

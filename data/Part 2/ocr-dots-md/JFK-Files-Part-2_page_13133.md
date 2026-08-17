@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13133.png
-
-Convert to Markdowndire must be established.
+dire must be established.
 
 3. a net-work of people must be set up to gather outside third-party information to corroborate the results of the survey and voir dire..
 

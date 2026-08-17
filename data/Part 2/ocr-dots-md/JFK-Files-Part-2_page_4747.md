@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4747.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: Oh yeah. It's not just me or my guys, it's all the way through the government. The Executive Branch everybody talks, that's all. On all kinds of stuff. It's not just. . .
 

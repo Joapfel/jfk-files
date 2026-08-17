@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27098.png
-
-Convert to MarkdownSECRET
+SECRET
 
 course of that search about 11 grams of shellfish toxin and 6 mg of cobra venom -- but none of the other materials -- were discovered.
 

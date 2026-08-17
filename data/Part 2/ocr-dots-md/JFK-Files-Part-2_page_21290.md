@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21290.png
-
-Convert to Markdown3.
+3.
 
 NY 65-22427
 

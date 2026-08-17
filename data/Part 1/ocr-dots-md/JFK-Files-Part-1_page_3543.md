@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3543.png
-
-Convert to Markdowneasily, more so when one has been condemned to death. It is possible this plan exists but I do not know since I do not have access to these ultra liberals. It is possible they are looking for someone to do it, this is possible. I can guarantee you one thing. I am not doing this because my power comes from men who believe as I do, as you do, and who are located south of the Rio Grande. These men are gambling the lives of the people in their own countries.
+easily, more so when one has been condemned to death. It is possible this plan exists but I do not know since I do not have access to these ultra liberals. It is possible they are looking for someone to do it, this is possible. I can guarantee you one thing. I am not doing this because my power comes from men who believe as I do, as you do, and who are located south of the Rio Grande. These men are gambling the lives of the people in their own countries.
 
 Because they know if they do not help in overthrowing Fidel Castro in less than two years, their own countries will be victims of communism. I am a product of the desperation of the Latin American countries.
 

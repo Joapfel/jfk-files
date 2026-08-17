@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1532.png
-
-Convert to MarkdownSC-02164-58
+SC-02164-58
 
 **Summary of Initial Missions**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6974.png
-
-Convert to MarkdownHere lies, I submit, the long-term importance of the work being carried out by
+Here lies, I submit, the long-term importance of the work being carried out by
 the AARB. The meaning of the raw data being unearthed by the review board will
 probably not be appreciated any time soon by the generations sentient when
 President Kennedy was murdered in Dallas, but if these generations cannot come

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13634.png
-
-Convert to Markdown1 in early October 1963, the first meeting on dr about October
+1 in early October 1963, the first meeting on dr about October
 2 Sth that AMLASH comes in and says I want to get things off my
 3 chest, and seems to express great dissatisfaction with the
 4 CIA's position.

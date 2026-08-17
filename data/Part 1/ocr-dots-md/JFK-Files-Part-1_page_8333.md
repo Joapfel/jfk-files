@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8333.png
-
-Convert to MarkdownSUBJECT: Gloria Pinto
+SUBJECT: Gloria Pinto
 
 DATE OF INFORMATION: 26 March 1969. 1300-1355 hours.
 

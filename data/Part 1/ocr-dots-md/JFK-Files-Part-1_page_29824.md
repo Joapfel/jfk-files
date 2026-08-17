@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29824.png
-
-Convert to Markdown16 January 1951
+16 January 1951
 
 MEMORANDUM FOR CHIEF, SFD
 

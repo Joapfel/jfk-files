@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16454.png
-
-Convert to MarkdownHUEY NEWTON
+HUEY NEWTON
 TALKS TO
 THE MOVEMENT.
 ABOUT THE

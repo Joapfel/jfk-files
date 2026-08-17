@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32398.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 # TRAINING REPORT/CERTIFICATION OF HANDGUN QUALIFICATION
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8566.png
-
-Convert to MarkdownATTACHMENT # 1
+ATTACHMENT # 1
 
 never invited him to his house, while at the time he had met BROVKIN
 he was invited to BS house after they met the second or third time.

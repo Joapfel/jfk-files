@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27995.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 IN- AND OUT-CASUAL STATUS RECORD

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3410.png
-
-Convert to MarkdownDescription of JMWAVE Components
+Description of JMWAVE Components
 
 Support Branch
 

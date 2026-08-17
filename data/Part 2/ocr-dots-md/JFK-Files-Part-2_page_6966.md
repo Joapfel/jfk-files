@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6966.png
-
-Convert to Markdownanother tragedy such as this occur, could we use the lessons learned in the model of this review board to prevent the significant time lag between the date of event and the eventual release of documents for public review?
+another tragedy such as this occur, could we use the lessons learned in the model of this review board to prevent the significant time lag between the date of event and the eventual release of documents for public review?
 
 REP. STOKES: I would hope, Mr. LaTourette, that we have learned some lessons.
 

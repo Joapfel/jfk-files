@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6140.png
-
-Convert to Markdown56 Md. L. Rev. 1, *11
+56 Md. L. Rev. 1, *11
 
 generating [*12] such a report, the Commission left open the opportunity for critics to complain that Oswald was a patsy who did not act alone. n67
 

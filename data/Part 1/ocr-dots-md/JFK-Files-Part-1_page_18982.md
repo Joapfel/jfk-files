@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18982.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td colspan="4"> PERSONAL HISTORY STATEMENT </td>

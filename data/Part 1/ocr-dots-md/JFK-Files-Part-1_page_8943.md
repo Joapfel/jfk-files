@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_8943.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="3">DISPATCH</th><th>SECRET</th><th>HSS-A-LOCO</th></tr></thead><tbody><tr><td>TO<br/>INFO<br/>FROM<br/>SUBJECT<br/>ACTION REQUIRED<br/>REFERENCES</td><td>Chief, WMD<br/>Chief of Station, Mexico City<br/>Chief of Statica, San Salvador<br/>Edward O. TICHBORRY (p)<br/>See paragraphs 3.<br/>HSS-1806</td><td>HEADQUARTERS AT NO<br/>63-6-3<br/>DATE<br/>9 March 1962<br/>RE "AJ - JOREO X ONE" MARKED FOR INDEXING<br/>NO INDEXING REQUIRED<br/>INDEXING CAN BE JUDGED BY QUALIFIED HO DESK ONLY</td><td></td><td></td></tr><tr><td>SHX/gam</td><td></td><td></td><td></td><td>STEPHEN H. KARMANY</td></tr><tr><td>7 March 1962</td><td></td><td></td><td></td><td></td></tr><tr><td>Distribution:</td><td colspan="4"></td></tr><tr><td></td><td colspan="4">J-WRD<br/>L-Mexico City</td></tr><tr><td>Re: 10/1 1962-4</td><td></td><td></td><td>Rkr- 25320 3</td><td></td></tr><tr><td>Nº 99</td><td>AECMST</td><td></td><td></td><td>[Signature] <i>(Hullmark)</i></td></tr></tbody></table>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8410.png
-
-Convert to MarkdownCONTACT REPORT:
+CONTACT REPORT:
 
 SUBJECT: LIROBEINS/1 and 2.
 

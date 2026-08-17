@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5669.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 May 31, 1963
 

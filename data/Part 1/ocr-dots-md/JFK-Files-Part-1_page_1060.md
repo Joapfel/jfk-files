@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1060.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0016 BUTLER, H. E. /LCOR/
 SEX M

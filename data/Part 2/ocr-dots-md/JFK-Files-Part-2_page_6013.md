@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6013.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 (U) Based upon the search efforts that were undertaken and the opinions of operational experts consulted, CIA has concluded that the tapes in question do not exist and were almost certainly recycled in the normal course of business before their potential value was identified.
 

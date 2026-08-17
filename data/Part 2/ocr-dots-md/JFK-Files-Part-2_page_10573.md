@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10573.png
-
-Convert to MarkdownFingerprints of Congressmen
+Fingerprints of Congressmen
 
 (10) The files of the Identification Division contain the fingerprints of an unknown number of Senators and Congressmen. Some of these relate to their having been arrested for violations of Federal, state, or local laws. Others are noncriminal in origin and largely pertain to their having served in the Armed Forces or having been applicants for various positions. These fingerprint cards have been submitted to the FBI by Federal agencies, as well as by local, county, and state criminal justice agencies, throughout the United States.
 

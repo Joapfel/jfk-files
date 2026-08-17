@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22059.png
-
-Convert to MarkdownNO OBJECTION as EXISED
+NO OBJECTION as EXISED
 NATIONAL SECURITY COUNCIL
 
 NDA

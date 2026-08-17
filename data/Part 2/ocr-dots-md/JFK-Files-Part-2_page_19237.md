@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19237.png
-
-Convert to Markdown(Indicate page, name of newspaper, city and state.)
+(Indicate page, name of newspaper, city and state.)
 
 5 "People's World" - San Francisco, California
 

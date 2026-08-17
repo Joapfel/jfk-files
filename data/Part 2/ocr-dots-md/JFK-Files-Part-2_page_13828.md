@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13828.png
-
-Convert to MarkdownJuly 2, ,1975
+July 2, ,1975
 
 airtel
 

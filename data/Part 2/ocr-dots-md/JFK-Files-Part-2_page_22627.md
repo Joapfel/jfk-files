@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22627.png
-
-Convert to MarkdownWard & Paul
+Ward & Paul
 
 410 Post Street, S.E., Washington, D.C. 20003
 

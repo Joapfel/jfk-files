@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11238.png
-
-Convert to Markdown(j) In connection with periodic reports, there are instances in which security index cases will be developed. Evidence of extensive activity in subversive organizations will be reported. These cases should be reported by the period of time involved. However, the date of the report must be shown, as well as the inclusive dates of the informant reports.
+(j) In connection with periodic reports, there are instances in which security index cases will be developed. Evidence of extensive activity in subversive organizations will be reported. These cases should be reported by the period of time involved. However, the date of the report must be shown, as well as the inclusive dates of the informant reports.
 
 This type reporting is not to be utilized in Smith Act of 1940 cases or Internal Security Act of 1950 cases. The narrative statements must be statements of facts and not conclusions and information from each source must be reported in separate narrative statements.
 

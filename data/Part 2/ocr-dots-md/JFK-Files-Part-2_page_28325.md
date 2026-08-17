@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28325.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 TO: TOM LAMBETH
 FROM: KENNETH D. KLEIN

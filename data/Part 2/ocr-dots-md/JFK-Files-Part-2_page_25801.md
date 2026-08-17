@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25801.png
-
-Convert to MarkdownWhen Castro Heard the News
+When Castro Heard the News
 
 Havana:
 

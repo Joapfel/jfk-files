@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6498.png
-
-Convert to MarkdownCASE
+CASE
 
 A CITE NYOR 4652
 

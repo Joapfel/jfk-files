@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14007.png
-
-Convert to Markdown13 January 1964
+13 January 1964
 
 MEMORANDUM FOR THE FILE
 

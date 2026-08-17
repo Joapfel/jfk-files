@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9834.png
-
-Convert to Markdown2.
+2.
 
 had nothing to do with the message and placing the blame on LIRING/3.
 

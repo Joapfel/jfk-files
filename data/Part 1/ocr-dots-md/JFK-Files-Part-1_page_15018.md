@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15018.png
-
-Convert to MarkdownS-P-C-R-S-T
+S-P-C-R-S-T
 
 REPORT ON CONTACT WITH AGENT OR DEFECTOR
 

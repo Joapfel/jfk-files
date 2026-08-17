@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5176.png
-
-Convert to Markdown- 14 -
+- 14 -
 
 4 - H
 

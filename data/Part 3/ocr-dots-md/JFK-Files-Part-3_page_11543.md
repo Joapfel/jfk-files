@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11543.png
-
-Convert to Markdownin a number of sensitive positions in the Executive Branch of the Government and to a large extent are acquainted with one another, at least on a professional basis. Communications to appropriate field offices dated 7/7 and 12/71 contained instructions regarding the necessity for exploring the various facets of this situation.
+in a number of sensitive positions in the Executive Branch of the Government and to a large extent are acquainted with one another, at least on a professional basis. Communications to appropriate field offices dated 7/7 and 12/71 contained instructions regarding the necessity for exploring the various facets of this situation.
 
 The conspiracy aspects of the Ellsberg case as revealed to date are set forth in Item 3 below.
 

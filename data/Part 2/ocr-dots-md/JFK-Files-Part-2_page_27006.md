@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27006.png
-
-Convert to Markdown**Agency Information**
+**Agency Information**
 
 AGENCY : KISS/SCOW
 RECORD NUMBER : 178-10003-10176

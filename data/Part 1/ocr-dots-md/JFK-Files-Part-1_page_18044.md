@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18044.png
-
-Convert to Markdown3. The Station also used the LIONION photographic coverage and log to check on the reports of Mexican and other JKLANCE assets who claimed to have visited the Cuban Embassy. In the case of some assets, LIONION/1 was given a photograph of the agent and told to be particularly alert at certain times of certain days to confirm the agent's entry and exit. This proved particularly useful in checking AVDIME/1's story of contact with the Cubans. It also confirmed LIRELIC/1's visit to the Cuban Embassy at an early stage in Station recontact with LIRELIC/1.
+3. The Station also used the LIONION photographic coverage and log to check on the reports of Mexican and other JKLANCE assets who claimed to have visited the Cuban Embassy. In the case of some assets, LIONION/1 was given a photograph of the agent and told to be particularly alert at certain times of certain days to confirm the agent's entry and exit. This proved particularly useful in checking AVDIME/1's story of contact with the Cubans. It also confirmed LIRELIC/1's visit to the Cuban Embassy at an early stage in Station recontact with LIRELIC/1.
 
 ### Problems:
 

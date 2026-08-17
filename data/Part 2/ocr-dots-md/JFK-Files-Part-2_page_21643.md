@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21643.png
-
-Convert to Markdown128
+128
 
 of it, General Bennett and General Philpott feel that they are
 embarrassed to refute the fact that they had already been doing

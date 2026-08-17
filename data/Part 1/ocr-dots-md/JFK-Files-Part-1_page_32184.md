@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32184.png
-
-Convert to Markdown## 42. REFERENCES
+## 42. REFERENCES
 
 Give three personal references (not relatives, former employers, fellow employees or school teachers) who are responsible adults of reputable standing in their communities, such as housekeepers, property owners, business or professional men or women including your family physician. If you have one, who have known you well during the past 5 years.
 

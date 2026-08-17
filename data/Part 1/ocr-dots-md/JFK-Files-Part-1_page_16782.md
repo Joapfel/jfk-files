@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16782.png
-
-Convert to Markdowneliminated as a part of a general disarmament agreement for the four-nation area. The revised version of the plan also called for "air and ground control" with NATO and Warsaw Pact countries participating in the control system.
+eliminated as a part of a general disarmament agreement for the four-nation area. The revised version of the plan also called for "air and ground control" with NATO and Warsaw Pact countries participating in the control system.
 
 5. Polish leaders have since 1957 pressed for a formal agreement on the Rapacki plan. Shortly after the opening of the Geneva disarmament conference in March 1962, the Polish delegation submitted a memorandum urging creation of a nuclear-free zone in Central Europe. The memorandum basically follows the lines of the former proposals of the Rapacki plan. The Soviet delegation is currently urging that the Geneva disarmament conference take up the question of nuclear-free zones in various areas of the world.
 

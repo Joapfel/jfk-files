@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_372.png
-
-Convert to Markdown14. Takai, Kam. No Record
+14. Takai, Kam. No Record
 
 15. Cor Watanabe Doris (Contract Covert) EA HQS "3" USFS/ALCD (02-1) APO SF CA 96403
 

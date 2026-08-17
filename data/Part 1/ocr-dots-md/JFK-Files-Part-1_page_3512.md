@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3512.png
-
-Convert to MarkdownReport @ D-745, 0-37, 23 in. CH (cont.)
+Report @ D-745, 0-37, 23 in. CH (cont.)
 
 already out in the open.
 

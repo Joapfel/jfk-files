@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2575.png
-
-Convert to Markdown# Outstanding FBI Documents
+# Outstanding FBI Documents
 
 On May 14, 1975, the Select Committee advised the Attorney General and the FBI of its request for certain documents which the Committee believed were necessary to begin an effective investigation of FBI intelligence activities. The following is a review of the responses of the Justice Department and the FBI to this request as of July 8, 1975. The topics in this outline are based on the case studies included in the notifications submitted to the Attorney General and the FBI on June 27, 1975. (The numerous additional requests addressed to the Attorney General and the FBI since May 14, 1975, are not included in this summary.)
 

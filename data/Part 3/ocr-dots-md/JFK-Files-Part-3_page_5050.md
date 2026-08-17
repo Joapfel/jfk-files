@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5050.png
-
-Convert to MarkdownSan Francisco, California
+San Francisco, California
 
 January 14, 1968
 

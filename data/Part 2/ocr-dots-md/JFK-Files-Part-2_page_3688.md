@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3688.png
-
-Convert to Markdownc. Teng put the issue of another meeting of world Communist parties even deeper into limbo by saying that Peiping would be in favor only when assured of the support of a majority of the world parties.
+c. Teng put the issue of another meeting of world Communist parties even deeper into limbo by saying that Peiping would be in favor only when assured of the support of a majority of the world parties.
 
 d. Moscow, for its part, has apparently stopped thinking about another gathering of world Communist party representatives.
 

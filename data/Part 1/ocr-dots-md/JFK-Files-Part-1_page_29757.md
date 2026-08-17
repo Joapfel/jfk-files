@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29757.png
-
-Convert to Markdown#17- Special Qualifications and Skills
+#17- Special Qualifications and Skills
 
 *   (D) 1. At the close of my assignment to the Office of the Army Attache, Addis Ababa, Ethiopia, I was awarded the Gold Medal (Order of Etnopie) by Emperor Haile Solasse for extraordinary photography accomplishments concerning the American Embassy and the Emperor (1953-1955).
 

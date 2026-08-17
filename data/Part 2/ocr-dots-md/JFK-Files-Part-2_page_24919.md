@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24919.png
-
-Convert to Markdownstrong language used in discussions at the Special Group and NSC, as reflected in minutes of relevant meetings,
+strong language used in discussions at the Special Group and NSC, as reflected in minutes of relevant meetings,
 
 led Dulles to believe that assassination was desired. The
 

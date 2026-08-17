@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26390.png
-
-Convert to Markdown<table><tr><td></td></tr></table> VISAS
+<table><tr><td></td></tr></table> VISAS
 
 <table><tr><td>AEROPONICO</td></tr><tr><td>13 OCT 1953</td></tr></table>
 

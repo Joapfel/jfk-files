@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15647.png
-
-Convert to Markdown44. Although Subject has seen many things in his life and has had many opportunities to become angry, he feels he has never completely lost self control. He feels he has always been the master of his actions at all times and that these actions could have been changed by his own volition.
+44. Although Subject has seen many things in his life and has had many opportunities to become angry, he feels he has never completely lost self control. He feels he has always been the master of his actions at all times and that these actions could have been changed by his own volition.
 
 45. If Subject has ever been ashamed of himself, it must have been when his behaviour was wrongly interpreted by persons whom he loved or who loved him.
 

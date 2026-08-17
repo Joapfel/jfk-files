@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4666.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 2
 
 7/5/62 to Brooklin, Massachusetts, area code 617, LO 6-5800,

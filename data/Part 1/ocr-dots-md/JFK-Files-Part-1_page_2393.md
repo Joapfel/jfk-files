@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2393.png
-
-Convert to MarkdownSECRET
+SECRET
 
 also mentioned in another section pertaining to the 1960-1961 career
 of NOSENKO. GOLITSYN stated that KOSOLAPOV came to Helsinki

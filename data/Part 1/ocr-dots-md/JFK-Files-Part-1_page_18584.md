@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18584.png
-
-Convert to MarkdownSECRET (8 No. Filed In)
+SECRET (8 No. Filed In)
 
 <table>
     <tbody>

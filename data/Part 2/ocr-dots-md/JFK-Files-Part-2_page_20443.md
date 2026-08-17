@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20443.png
-
-Convert to Markdown# Demonstration Protesting United States
+# Demonstration Protesting United States
 Policy in Vietnam,
 Washington, D.C.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26846.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>SECTION VIII</td><td colspan="2">ANOCATIONRL INTERESTS</td></tr><tr><td colspan="3">1. INDICATE SUBJECT'S HABITS OR INTEREST IN SPORTS, MUSIC, ETC.</td></tr><tr><td colspan="3"></td></tr><tr><td>SECTION AIV</td><td colspan="2">GENERAL</td></tr><tr><td colspan="3">I. INDICATE WHETHER SUBJECT'S LANGUAGE ABILITIES AND OTHER CHARACTERISTICS ARE SUCH AS HE COULD PASS AS A NATIVE OF A COUNTRY OR REGION OTHER THAN HIS OWN, EXPLAIN.</td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3">II. INDICATE WHETHER INFORMATION IN PRO Parts I and II WAS OBTAINED BY RESEARCH, CLANOEISTINE ASSESSMENT, FILES, CORRESPONDENCE OR OTHER MEANS.</td></tr><tr><td colspan="3"></td></tr><tr><td colspan="3">III. IF OTHER THAN ROUTINE ACTION IS REQUIRED, IF AND WHEN TERMINATION OF SUBJECT IS EFFECTED, PLEASE EXPLAIN. (Also see para. 43b, supra.)</td></tr><tr><td colspan="3"></td></tr><tr><td>SECTION IX</td><td colspan="2">EMERGENCY CONDITIONS, RECONTACT ARRANGEMENTS</td></tr><tr><td colspan="3">GIVE FULL DETAILS I.E. RECOGNITION SIGNALS, STATE WHERE COULD CONTACT BE MADE WHAT BONA FIDES COULD INDIVIDUAL MAKING CONTACT USE</td></tr><tr><td colspan="3"></td></tr><tr><td>SECTION XVI</td><td colspan="2">MISCELLANEOUS OPERATIONAL DATA AND REMARKS</td></tr><tr><td colspan="3"></td></tr><tr><td>SIGNATURE OF APPROPRIATE SENIOR OFFICER</td><td colspan="2"></td></tr></table>
 

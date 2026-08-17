@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30703.png
-
-Convert to MarkdownFile review, Manuel Ray
+File review, Manuel Ray
 Volume II of xviii
 
 SECRET

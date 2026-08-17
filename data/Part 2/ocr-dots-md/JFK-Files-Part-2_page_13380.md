@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13380.png
-
-Convert to Markdown2 - Legal Counsel Division
+2 - Legal Counsel Division
 - Mr. J. B. Hotis)
 
 1 - Mr. W. R. Wannall

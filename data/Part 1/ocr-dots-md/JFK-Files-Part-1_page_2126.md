@@ -1,7 +1,3 @@
-# JFK-Files-Part-1_page_2126.png
-
-Convert to Markdown
-
 BOSTON CONTROL REGISTER
 
 4-16-75

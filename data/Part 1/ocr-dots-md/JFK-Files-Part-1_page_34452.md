@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34452.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 EYES ONLY
 
 CENTRAL INTELLIGENCE AGENCY

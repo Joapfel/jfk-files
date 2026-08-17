@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30515.png
-
-Convert to Markdown24 November 1952
+24 November 1952
 
 MÉMOI RANDU
 

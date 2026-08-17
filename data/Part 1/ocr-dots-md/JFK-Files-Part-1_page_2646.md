@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2646.png
-
-Convert to Markdown# Top Secret
+# Top Secret
 
 (PRE-KGB BIOGRAPHY)
 

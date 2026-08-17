@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8217.png
-
-Convert to MarkdownSpoken out against L.A. Police Left brutality, Teacher failing, loyalty Oath Is, book-burning + witch-hunting by HCUP, & Security Control + UNESCO. NUTTER was also member of Community Service Organization, which was regarded as infiltrated by CP in 54-55 + its influence but not dominated by the CP at the present time.
+Spoken out against L.A. Police Left brutality, Teacher failing, loyalty Oath Is, book-burning + witch-hunting by HCUP, & Security Control + UNESCO. NUTTER was also member of Community Service Organization, which was regarded as infiltrated by CP in 54-55 + its influence but not dominated by the CP at the present time.
 
 6. In Jan. '59, OSI interviewed Subject (his association with Reinhold Jahn) WULF, his latter alleged Comm. activities. July. stated he had known WULF since 1938, had not seen WULF during 42-55 + since 55 he had seen WULF occasionally. He recommended WULF for a security position + claimed no knowledge of Subjects political affiliation or affiliations. WULF initially later interviewed & denied all allegations. Security official got into a争 of words with Security Office recommends serious consideration (in utilising Subject + key to be notified if our decision. →
 

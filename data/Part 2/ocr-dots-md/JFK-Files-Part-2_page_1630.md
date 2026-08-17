@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1630.png
-
-Convert to Markdown"C. In addition to his many duties, Mr. Woods is generally thinking of ways to increase the efficiency of the station battery, and to be of greater assistance to the station at a whole. Several of his ideas have been adopted by the station with a resulting increase in effectiveness. It's possible approaching all problems and his cheerfulness and willingness to perform any task have benefited both the Station and the Agency.
+"C. In addition to his many duties, Mr. Woods is generally thinking of ways to increase the efficiency of the station battery, and to be of greater assistance to the station at a whole. Several of his ideas have been adopted by the station with a resulting increase in effectiveness. It's possible approaching all problems and his cheerfulness and willingness to perform any task have benefited both the Station and the Agency.
 
 "D. In view of Mr. Wood's demonstrated ability to provide leadership to the Station, Reg & try can't hope better approach to the solution of the many problems which daily have this unit. It is strongly recommended that he be promoted from S-6-09 to S-3-10 at the earliest opportunity."
 

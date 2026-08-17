@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26417.png
-
-Convert to Markdown10 : DIRECTOR
+10 : DIRECTOR
 
 FROM : SANTO DOMINGO
 

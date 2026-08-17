@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8889.png
-
-Convert to MarkdownC.R. Hallwell
+C.R. Hallwell
 LIG, C.R.Hallswell
 UNIT : WH/1
 EXT . 4523

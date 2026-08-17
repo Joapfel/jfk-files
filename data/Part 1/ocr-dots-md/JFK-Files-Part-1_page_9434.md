@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9434.png
-
-Convert to MarkdownDruckerei 96
+Druckerei 96
 
 SECRET
 

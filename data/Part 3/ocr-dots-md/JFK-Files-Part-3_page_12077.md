@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12077.png
-
-Convert to Markdownand New Left public appearances to allow the SAC to authorize use of concealed recording devices by a Special Agent or a proven source in covering public appearances by black and New Left extremists except such appearances at educational institutions. Previously, prior Bureau approval was necessary.
+and New Left public appearances to allow the SAC to authorize use of concealed recording devices by a Special Agent or a proven source in covering public appearances by black and New Left extremists except such appearances at educational institutions. Previously, prior Bureau approval was necessary.
 
 In addition, we continue to utilize our teletype dissemination facilities to the maximum extent possible.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7346.png
-
-Convert to Markdownessential, a special request must be negotiated with the host country in advance.
+essential, a special request must be negotiated with the host country in advance.
 
 VII. AN ORIENTATION BRIEFING WILL BE PROVIDED ALL MEMBERS AND STAFF, PRIOR TO DEPARTURE.
 

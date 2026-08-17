@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2215.png
-
-Convert to Markdown<html><body>SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</table></body></html>
+<html><body>SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</table></body></html>
 
 <table>
    <tr>

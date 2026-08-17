@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17006.png
-
-Convert to MarkdownMemorandum
+Memorandum
 
 TO : SAC, CHICAGO
 

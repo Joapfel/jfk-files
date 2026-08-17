@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5245.png
-
-Convert to MarkdownSUPERVISOR GLENN A. HARTER:
+SUPERVISOR GLENN A. HARTER:
 
 10/28/70
 

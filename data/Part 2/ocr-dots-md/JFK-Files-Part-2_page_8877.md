@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8877.png
-
-Convert to Markdown# 104-10528-10180
+# 104-10528-10180
 
 ## CLASSIFIED MESSAGE
 

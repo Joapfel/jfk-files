@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2426.png
-
-Convert to MarkdownMemorandum to Mr. W. C. Sullivan
+Memorandum to Mr. W. C. Sullivan
 
 RE: FOREIGN SUPPORT FOR REVOLUTIONARY PROTEST
 MOVEMENTS IN THE UNITED STATES

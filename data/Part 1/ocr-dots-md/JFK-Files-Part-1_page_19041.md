@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19041.png
-
-Convert to MarkdownSECRET
+SECRET
 
 last fall in which it won 7.9 and 7.4 percent of the vote and elected 8 and 15 deputies respectively. In Bavaria the NPD emerged as the only small party in the Landtag, causing the FDP to lose its representation in the legislature for the first time in its history. By underlining the weakness of the FDP, the election outcome contributed to the formation of the grand coalition government in Bonn by the Christian Democrats and the Socialists.
 

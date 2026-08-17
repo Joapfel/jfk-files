@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30041.png
-
-Convert to MarkdownCONFIDENTIAL,
+CONFIDENTIAL,
 
 DATE: 22 March 1955
 

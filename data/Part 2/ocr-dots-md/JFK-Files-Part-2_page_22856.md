@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22856.png
-
-Convert to Markdown1. Mr. Schwarz. In the context of that discussion did
+1. Mr. Schwarz. In the context of that discussion did
 anybody from the Central Intelligence Agency or anybody
 else inform you that in earlier years there had been
 a relationship with -- to use Senator Tower's caution --

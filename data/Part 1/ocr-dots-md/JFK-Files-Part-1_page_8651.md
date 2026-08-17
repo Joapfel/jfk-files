@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8651.png
-
-Convert to MarkdownPRODUCT SALES REPORT
+PRODUCT SALES REPORT
 
 1. Salesman OLEG (LNC) FACHENKO
 2. Supervisor DILLI MANSFELD

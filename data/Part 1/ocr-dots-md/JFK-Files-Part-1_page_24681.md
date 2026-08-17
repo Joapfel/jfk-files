@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24681.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>COACN</td></tr><tr><td>60AUG</td></tr><tr><td>08/07/77</td></tr></table>
 

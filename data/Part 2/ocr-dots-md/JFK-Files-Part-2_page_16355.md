@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16355.png
-
-Convert to Markdown1.
+1.
 
 On June 9, 1969, Sergeant ROLAND SIECZKOWSKI, Chicago Police Department (CG PD) advised following described typewriters, which were included in typewriters obtained at Black Panther Party (BPP) Headquarters on June 4, 1969, were reported as stolen.
 

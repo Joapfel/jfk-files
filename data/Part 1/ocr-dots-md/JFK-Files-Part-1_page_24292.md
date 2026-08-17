@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24292.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the combination of the security factors operative in this
 case and the unlikelihood of Q/1's continued access to targets

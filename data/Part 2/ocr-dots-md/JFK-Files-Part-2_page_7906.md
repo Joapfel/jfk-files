@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7906.png
-
-Convert to MarkdownJAMES H. LESAR
+JAMES H. LESAR
 ATTORNEY AT LAW
 3231 FOURTH STREET, S. W.
 WASHINGTON, D. C. 20024

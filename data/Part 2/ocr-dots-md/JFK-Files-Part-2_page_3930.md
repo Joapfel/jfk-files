@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3930.png
-
-Convert to Markdownaltered that he announced himself in court to be a Communist. He had made one serious self-harm incident.
+altered that he announced himself in court to be a Communist. He had made one serious self-harm incident.
 
 WILLIAM R. MARTIN
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2803.png
-
-Convert to MarkdownNR012 WA CODE
+NR012 WA CODE
 
 258PM URGENT 9-5-75 VLN
 TO MIAMI

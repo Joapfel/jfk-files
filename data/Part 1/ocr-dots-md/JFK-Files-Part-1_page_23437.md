@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23437.png
-
-Convert to Markdown- 2 -
+- 2 -
 
 KAPOK #309
 HIG-5-1524

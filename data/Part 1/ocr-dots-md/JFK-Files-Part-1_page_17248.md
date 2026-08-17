@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17248.png
-
-Convert to MarkdownGONZALEZ was finally identified and his Mexico City home and business addresses were ascertained. See HARA-15626, 9 September 1960, for further details on this case.
+GONZALEZ was finally identified and his Mexico City home and business addresses were ascertained. See HARA-15626, 9 September 1960, for further details on this case.
 
 b. The preliminary investigative work on a KUSODA case of priority interest was conducted by SCANTLING. During this investigation it was necessary for SCANTLING to travel to Aquascalientes, Guanajuato and Minatitlan to obtain the information required by Headquarters. See the attachments to HEAT-1416, 20 May 1960, for the results of the investigation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7878.png
-
-Convert to MarkdownINITIAL REVIEW FORM
+INITIAL REVIEW FORM
 
 Document Description: Memo
 Document Located By : FBI

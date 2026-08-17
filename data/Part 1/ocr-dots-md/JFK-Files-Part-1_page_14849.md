@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14849.png
-
-Convert to MarkdownCRIPTO: AL phis
+CRIPTO: AL phis
 FRQ I: Yes
 FRQ II: Yes
 

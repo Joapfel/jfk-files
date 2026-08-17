@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6033.png
-
-Convert to MarkdownURUGUAY
+URUGUAY
 
 A.- Actual situation of the Delegation
 

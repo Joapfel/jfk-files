@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18445.png
-
-Convert to Markdown# II. Areas of General Inquiry
+# II. Areas of General Inquiry
 
 ## A. Legal Authority for FBI Intelligence and Counterintelligence Activities
 

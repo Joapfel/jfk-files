@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13509.png
-
-Convert to Markdownin that city. In addition, AMBANG-1 will attempt to see and talk
+in that city. In addition, AMBANG-1 will attempt to see and talk
 to Venezuelan Government officials including President Betancourt.
 
 Some time after this trip AMBANG-1 intends to visit

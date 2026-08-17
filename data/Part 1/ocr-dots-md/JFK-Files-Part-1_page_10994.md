@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10994.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 
 DIVISION OF CORI COMMITTEES
 

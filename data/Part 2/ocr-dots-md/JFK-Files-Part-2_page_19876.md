@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19876.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 It is felt that the activities of these SWP-WONAAC members can best be followed through their individual case files rather than under a WONAAAC caption. This case is being closed by the NYO. in Coalition (WONAAC)
 

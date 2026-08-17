@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30326.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Oswald received his visa in two days to come to the Soviet Union. So he would be automatically suspect, and he would be automatically what you would call an interesting person.
 

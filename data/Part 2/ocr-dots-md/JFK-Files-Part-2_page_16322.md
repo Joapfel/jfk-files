@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16322.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Group I
 Excluded from Automatic

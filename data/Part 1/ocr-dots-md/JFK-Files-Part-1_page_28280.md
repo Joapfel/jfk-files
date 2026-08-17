@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28280.png
-
-Convert to Markdown(8)
+(8)
 
 CLASSIFICATION GRADE (IF IN FEDERAL SERVICE) None
 

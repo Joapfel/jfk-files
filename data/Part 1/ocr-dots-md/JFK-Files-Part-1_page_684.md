@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_684.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GS-1337 (Willard)
 

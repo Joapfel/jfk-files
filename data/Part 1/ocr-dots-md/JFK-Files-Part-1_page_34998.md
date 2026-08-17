@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34998.png
-
-Convert to MarkdownPAYROLL
+PAYROLL
 
 ANNEX "I-9"
 

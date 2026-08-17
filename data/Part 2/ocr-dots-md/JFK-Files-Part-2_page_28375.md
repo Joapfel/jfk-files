@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28375.png
-
-Convert to Markdown**PAYROLL AUTHORIZATION FOR**
+**PAYROLL AUTHORIZATION FOR**
 
 (Please Use Typewriter
 or Ballpoint Pen)

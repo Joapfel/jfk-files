@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21646.png
-
-Convert to Markdownconsidered with the detailed information NOSENKO has provided on Seventh Department personnel, activities, procedures, and topics of a similar nature is not considered to have any foundation in fact.
+considered with the detailed information NOSENKO has provided on Seventh Department personnel, activities, procedures, and topics of a similar nature is not considered to have any foundation in fact.
 
 Page 145 of the above summary lists eleven operations which were Seventh Department cases prior to 1960 and which were included in the notes furnished to CIA in 1964 by NOSENKO. The named operations were those against Bernard PECHTER, Patrick PRESSMAN, John RUFE, Gerald SEVERN, Sofia SHATTAUER, (inu) KARLOV, Norman FISK, Ralph MATLAW, Marvin KANTOR, Michael GINSBURG, and William TARASKA. The criticism made in regard to the above eleven cases was that NOSENKO could not describe the individual operations other than to say that he had recorded the name of the target and such details as he could acquire when he reviewed the activities of the Seventh Department in 1962 following his return from the First Department.
 

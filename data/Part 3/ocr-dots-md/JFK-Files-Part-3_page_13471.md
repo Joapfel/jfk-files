@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13471.png
-
-Convert to Markdownam t. 34
+am t. 34
 
 TOP SECRET
 

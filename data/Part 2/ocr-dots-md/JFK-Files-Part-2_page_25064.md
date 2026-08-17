@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25064.png
-
-Convert to Markdownoutstanding intelligence, ability or drive, but that he is obviously
+outstanding intelligence, ability or drive, but that he is obviously
 well motivated. Mr. Irwin asked whether there might be other
 individuals of similar, although naturally lesser, stature in the church
 hierarchy who could be useful.

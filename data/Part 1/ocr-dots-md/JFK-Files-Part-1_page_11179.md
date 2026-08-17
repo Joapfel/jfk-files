@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11179.png
-
-Convert to MarkdownMEMORANDUM
+MEMORANDUM
 
 CONSEJO NACIONAL DE CULTURA
 D. DE RELACIONES EX外國關係

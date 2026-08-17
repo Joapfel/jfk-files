@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8978.png
-
-Convert to MarkdownLas declaraciones están firmadas por el declarante, así como por el Subdirector Federal de Seguridad, Cap. Fernando Gutiérrez Barrios, y por los testigos de asistencia, Lic. Fernando Ortíz de la Peña y Lic. Carlos Duran Lanz.
+Las declaraciones están firmadas por el declarante, así como por el Subdirector Federal de Seguridad, Cap. Fernando Gutiérrez Barrios, y por los testigos de asistencia, Lic. Fernando Ortíz de la Peña y Lic. Carlos Duran Lanz.
 
 Documento sin fecha que dice:
 

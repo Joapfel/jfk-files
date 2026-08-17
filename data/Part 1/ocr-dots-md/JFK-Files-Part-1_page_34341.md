@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34341.png
-
-Convert to MarkdownNEWSPAPERS:
+NEWSPAPERS:
 
 Mr. S. Grigoriadis
 Editor,

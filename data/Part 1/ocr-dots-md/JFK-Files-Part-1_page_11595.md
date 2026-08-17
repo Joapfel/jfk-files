@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11595.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>
      MICROFILMED

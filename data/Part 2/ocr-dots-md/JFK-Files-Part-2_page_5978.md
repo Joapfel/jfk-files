@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5978.png
-
-Convert to Markdown(Th:; notice .s NOT to be filed in Agency
+(Th:; notice .s NOT to be filed in Agency
 manuals. P·lease destroy after reading.)
 
 C.C.A.N.I.B.TJON

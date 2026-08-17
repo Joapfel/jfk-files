@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12690.png
-
-Convert to Markdownd. Use FD-154 when it will facilitate verifying addresses. When FD-154 is not used, notation should be made on last FD-154, FD-122, or FD-128 in subject's file showing addresses and date verified. Each time residence and employment verified, reevaluate case to assure subject is still within criteria. Make notation in file to this effect.
+d. Use FD-154 when it will facilitate verifying addresses. When FD-154 is not used, notation should be made on last FD-154, FD-122, or FD-128 in subject's file showing addresses and date verified. Each time residence and employment verified, reevaluate case to assure subject is still within criteria. Make notation in file to this effect.
 
 e. If residence or business address or both have changed, submit FD-122 to Bureau showing only changes to be made. Also submit to Bureau FD-366 for dissemination to Secret Service. Advise Secret Service locally by FD-366.
 

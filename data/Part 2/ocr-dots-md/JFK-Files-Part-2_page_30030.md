@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30030.png
-
-Convert to MarkdownDATE 12/03/77
+DATE 12/03/77
 
 REPORT ID D01.00.00
 

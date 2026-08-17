@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29121.png
-
-Convert to MarkdownPlease attach Copy B of Form W-2 here
+Please attach Copy B of Form W-2 here
 
 U.S. Individual
 Income Tax Return

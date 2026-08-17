@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1792.png
-
-Convert to MarkdownSelect Committee on Assassinations
+Select Committee on Assassinations
 U.S. House of Representatives
 
 3331 HOUSE OFFICE BUILDING, ANNEX 2

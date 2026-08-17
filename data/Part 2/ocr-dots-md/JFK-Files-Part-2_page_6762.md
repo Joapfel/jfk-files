@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6762.png
-
-Convert to MarkdownUnion, and Oswald's subsequent activities in Mexico City and New Orleans. They also include a large number of name traces requested by the staff of the House Select Committee, as well as material relating to the Garrison investigation, Cuban exile activities, copies of FBI reports about Oswald, and even information about Watergate.
+Union, and Oswald's subsequent activities in Mexico City and New Orleans. They also include a large number of name traces requested by the staff of the House Select Committee, as well as material relating to the Garrison investigation, Cuban exile activities, copies of FBI reports about Oswald, and even information about Watergate.
 
 The CIA cannot simply act to declassify or release documents unilaterally because of the limits in the Privacy Act (which protects the names of American citizens against unauthorized disclosure), the sequestration of many documents by the House Select Committee on Assassinations, and the fact that many of the documents belong to agencies other than the CIA. However, we have already taken the necessary steps to lift the sequestration, coordinate with other agencies and begin the process of declassification.
 

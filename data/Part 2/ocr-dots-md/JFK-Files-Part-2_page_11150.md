@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11150.png
-
-Convert to Markdownparticular attention should be given during the course of
+particular attention should be given during the course of
 investigation: of individual members of this organization
 to the developing and reporting of such statements on the
 part of these individuals, including the reporting of

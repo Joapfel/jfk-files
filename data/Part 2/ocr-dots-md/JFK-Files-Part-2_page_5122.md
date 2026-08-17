@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5122.png
-
-Convert to MarkdownNARA Documents: Postponed in Part
+NARA Documents: Postponed in Part
 
 179-20001-10330; 5; 10/2017
 

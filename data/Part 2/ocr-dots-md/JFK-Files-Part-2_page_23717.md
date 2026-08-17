@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23717.png
-
-Convert to MarkdownMr. Kirhow. And when you may be should review it in
+Mr. Kirhow. And when you may be should review it in
 kind of a general recommendation, then you talk about all of
 the intelligence functions having any possibility of affecting
 the laws of the United States.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27938.png
-
-Convert to MarkdownOctober 26, 1976
+October 26, 1976
 
 Miss Sari Mordana
 303 East 71st Street

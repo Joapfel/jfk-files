@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3384.png
-
-Convert to MarkdownLet: Written by A-l's & father to A-l. Given to H.S by A-l at New Orleans on 24 June 64.
+Let: Written by A-l's & father to A-l. Given to H.S by A-l at New Orleans on 24 June 64.
 
 4/1
 

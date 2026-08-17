@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25839.png
-
-Convert to MarkdownHim, Says Fidel
+Him, Says Fidel
 
 That I Could
 Have Saved

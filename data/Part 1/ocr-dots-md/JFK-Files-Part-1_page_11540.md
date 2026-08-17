@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11540.png
-
-Convert to MarkdownGuatemala, 29 December, 1965
+Guatemala, 29 December, 1965
 
 Dear Chicai,
 

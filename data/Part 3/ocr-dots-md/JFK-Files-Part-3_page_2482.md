@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2482.png
-
-Convert to MarkdownMH & LA CUBE
+MH & LA CUBE
 
 1224PM URGENT 6/26/75 ANR
 TO DIRECTOR

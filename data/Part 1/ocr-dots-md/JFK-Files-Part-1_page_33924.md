@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33924.png
-
-Convert to MarkdownCHAMBER OF COMMERCE OF THE UNITED STATES
+CHAMBER OF COMMERCE OF THE UNITED STATES
 
 "Prayer is a mighty force, a mighty unused power. Let us all, here
 in America and elsewhere in the world put this mighty power to work."

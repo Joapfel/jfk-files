@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27169.png
-
-Convert to MarkdownSecret
+Secret
 
 OMS support of the type mentioned above was phased out about 1964. Since that time, OMS relationship to any Agency activity in Miami has been rare.
 

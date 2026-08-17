@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20116.png
-
-Convert to MarkdownThe Women's National Abortion
+The Women's National Abortion
 Action Coalition
 
 The Agenda for the conference followed the proposed agenda set forth by the Working Committee, mentioned above, with the exception of a change in the lunch hour and some of the workshop schedules.

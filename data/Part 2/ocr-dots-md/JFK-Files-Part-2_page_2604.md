@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2604.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 FLW: 26 OCT 67

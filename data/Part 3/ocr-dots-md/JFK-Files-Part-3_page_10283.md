@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10283.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Memorandum to Mr. W. R. Wannall
 Re: William G. Miller

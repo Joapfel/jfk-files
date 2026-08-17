@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4725.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MR. HALPERN: And I said, in those days, I said, "Well, why the hell don't we just absorb them, make them part of us, you know, as part of our command?" And that led to another big hoorah, but we never did get command. But they did. Eighty-five percent of their activity was for us.
 

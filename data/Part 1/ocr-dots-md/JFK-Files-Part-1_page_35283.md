@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35283.png
-
-Convert to Markdown# DELIBRATIONS (Budget) SPECIAL
+# DELIBRATIONS (Budget) SPECIAL
 
 Annex "I-A"
 

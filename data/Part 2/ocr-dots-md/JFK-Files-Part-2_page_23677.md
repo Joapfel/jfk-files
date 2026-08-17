@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23677.png
-
-Convert to MarkdownI would return to the United States. I mean the Soviet Union.
+I would return to the United States. I mean the Soviet Union.
 
 We did not take that testimony any further than receiving his
 testimony. That is, we have not taken it to the point of

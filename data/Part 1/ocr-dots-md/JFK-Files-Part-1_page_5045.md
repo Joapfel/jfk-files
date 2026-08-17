@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_5045.png
-
 secretary for domestic and international business.
 
 Johnson has used both posts to travel, mostly to Iowa, where he has kept his political fences mendowed in the hope of running for office again.

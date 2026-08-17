@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4509.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>CLASSIFICATION</td>
     <td>DISPATCH SYMBOL AND NUMBER</td>

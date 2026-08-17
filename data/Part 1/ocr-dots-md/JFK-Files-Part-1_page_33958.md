@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33958.png
-
-Convert to Markdown2.
+2.
 
 by the U.S. Army and that the operations of RFE had been, and
 were being facilitated by the U.S. Army authorities because of

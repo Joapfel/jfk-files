@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14305.png
-
-Convert to Markdownnevertheless the cover foundations which are in fact influenced
+nevertheless the cover foundations which are in fact influenced
 by CIA continue to do legitimate work as, for example, in the
 case of a labor training school supported by the Asia Founda-
 tion in Pakistan, and in the case of a teacher-training grant

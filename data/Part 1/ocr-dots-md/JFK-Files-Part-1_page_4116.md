@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4116.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>FORM D-04<br/>1403</td>

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26629.png
-
-Convert to MarkdownFROM
+FROM
 
 ACTION
 

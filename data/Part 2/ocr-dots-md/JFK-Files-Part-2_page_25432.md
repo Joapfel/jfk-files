@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25432.png
-
-Convert to MarkdownBook V, p. 61-
+Book V, p. 61-
 63
 
 In December, 1963, the CIA learned that a Cuban American had crossed the border from Texas into Mexico, on November 23 and arrived in Mexico City on November 25. He stayed in a hotel until the evening of November 27, when he departed on a regularly scheduled Cubana airlines flight to Havana using a Cuban courtesy visa and an expired U.S. passport. He was the only passenger on the flight. In March, 1964 the Agency received a report from a source which alleged that the same Cuban American had received a permit to enter Mexico City on November 20 in Tampa, Florida. The same source said the Cuban American was somehow involved in the assassination.

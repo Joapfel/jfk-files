@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35465.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 from a Spaniard (Nicanor FERNANDEZ) in Buenos Aires, urging MIRO to go to Buenos Aires to arouse anti-Castro sentiment of the people, inasmuch as some Argentine action against Cuba appeared imminent. (FERNANDEZ said he had already written MIRO a letter.) MIRO says, "Of course, I cannot go. I have the Consejo meeting on the 10th. Furthermore, I am going to New York on October 11th or 12th for the SIP (Socieded Interamericana de Prensa) meeting and have been allotted 12 minutes to address the meeting."
 

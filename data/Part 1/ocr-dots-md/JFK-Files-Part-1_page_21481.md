@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21481.png
-
-Convert to MarkdownF
+F
 
 Доповідь Anyone!
 

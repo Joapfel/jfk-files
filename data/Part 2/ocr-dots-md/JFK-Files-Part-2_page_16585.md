@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16585.png
-
-Convert to Markdownthat he saw no objection to making these premises available to the FBI, but he desired to first consult with other attorneys, whom he did not identify, and stated he would call SAC JOHNSON later that weekend. CUNNINGHAM said he would try to make the premises available by Monday afternoon, December 15, 1969, or by the morning of December 16, 1969. CUNNINGHAM desired either he or his representative to be present during the FBI investigation at 2337 West Monroe Street, Chicago, Illinois.
+that he saw no objection to making these premises available to the FBI, but he desired to first consult with other attorneys, whom he did not identify, and stated he would call SAC JOHNSON later that weekend. CUNNINGHAM said he would try to make the premises available by Monday afternoon, December 15, 1969, or by the morning of December 16, 1969. CUNNINGHAM desired either he or his representative to be present during the FBI investigation at 2337 West Monroe Street, Chicago, Illinois.
 
 On December 13, 1969, the above was discussed with USA THOMAS A. FORAN, Northern District of Illinois (NDI), who stated that although he was not in a position to recommend Federal Grand Jury (FGJ) action at this time, he would give the matter further consideration. USA FORAN stated it was his feeling that the requests by State's Attorney HANRAHAN and the victims' lawyers regarding the interviews should be complied with in view of the pending charges which exist in regards to the 14 police officers and the seven victims in this matter.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11394.png
-
-Convert to MarkdownII.
+II.
 
 <table>
   <tr>

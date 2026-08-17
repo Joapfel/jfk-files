@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28602.png
-
-Convert to MarkdownPUBLICITY ORGANIZER: Was invited by former Project Director of University Research Corp. (see below) to join him as a temporary contractor to establish a program for the SOCIAL DEVELOPMENT CORP. in San Francisco, Calif. where SDC was starting a western office. Coordinated a conference on the New Careers development concept for regional representatives of the Dept. of Labor and for the new SDC west coast personnel-consultants. June 1968 - August 1968
+PUBLICITY ORGANIZER: Was invited by former Project Director of University Research Corp. (see below) to join him as a temporary contractor to establish a program for the SOCIAL DEVELOPMENT CORP. in San Francisco, Calif. where SDC was starting a western office. Coordinated a conference on the New Careers development concept for regional representatives of the Dept. of Labor and for the new SDC west coast personnel-consultants. June 1968 - August 1968
 
 EDITORIAL DIRECTOR: to Project Director of the New Careers Development Program of UNIVERSITY RESEARCH CORP. (5530 Wisconsin Ave. ) Was responsible for all administrative and public relations details of the program; this included writing and editing a newsletter; establishing a mailing list and the formation of an information clearinghouse March 1967 - June 1968
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17783.png
-
-Convert to Markdown...1.-
+...1.-
 
 ENTRADAS DOMINICANAS.- 20-77-65.
 

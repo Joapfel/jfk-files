@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23248.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 1970-06-28
 

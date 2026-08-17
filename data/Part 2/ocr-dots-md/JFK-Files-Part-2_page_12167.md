@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12167.png
-
-Convert to MarkdownU. UTILIZATION OF INFORMANTS AND SOURCES AT INSTITUTIONS OF LEARNING
+U. UTILIZATION OF INFORMANTS AND SOURCES AT INSTITUTIONS OF LEARNING
 
 1. Use of students
    a. Students under age of 18 years are not to be developed as security informants, potential security informants, or other types of security sources in other than highly unusual circumstances. Under such circumstances, furnish complete justification to Bureau.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5588.png
-
-Convert to Markdown20/20 (ABC), August 27, 1993
+20/20 (ABC), August 27, 1993
 
 turned. After this shot, Oswald, still had over eight seconds, not five, for the
 next two.

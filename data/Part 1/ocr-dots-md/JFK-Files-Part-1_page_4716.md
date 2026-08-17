@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4716.png
-
-Convert to Markdown# Intelligence Information Cable
+# Intelligence Information Cable
 
 CONFIDENTIAL
 SPECIAL NOTE

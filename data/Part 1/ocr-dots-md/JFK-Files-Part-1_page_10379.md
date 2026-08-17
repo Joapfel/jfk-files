@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10379.png
-
-Convert to Markdown0 November, 1956.
+0 November, 1956.
 
 Subject: Review and Assessment of LING Operation.
 

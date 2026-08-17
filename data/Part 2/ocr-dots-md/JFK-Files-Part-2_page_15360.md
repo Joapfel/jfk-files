@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15360.png
-
-Convert to Markdown<table>
+<table>
   <tbody>
     <tr>
       <td>MAILED 11</td>

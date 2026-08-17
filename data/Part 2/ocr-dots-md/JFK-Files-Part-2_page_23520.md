@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23520.png
-
-Convert to MarkdownSECRET
+SECRET
 
 10) Corsicans recommended. Sicilians could lead to Mafia.
 

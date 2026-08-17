@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22977.png
-
-Convert to MarkdownOffice Memorandum • UNITED STATES GOVERNMENT
+Office Memorandum • UNITED STATES GOVERNMENT
 
 STANDARD FORM 10-64
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_329.png
-
-Convert to Markdown14-00000
+14-00000
 
 HASHIMA, Robert S
 Contract emp. 10 kyo

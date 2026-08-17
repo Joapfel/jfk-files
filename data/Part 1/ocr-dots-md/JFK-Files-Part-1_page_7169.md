@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7169.png
-
-Convert to Markdown2.
+2.
 
 show any inclination in the Soviet Union or on any other, etc. Subj continued,
 however, to state that he felt a confidence with the Communists because of their

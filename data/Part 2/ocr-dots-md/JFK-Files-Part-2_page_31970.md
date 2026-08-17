@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31970.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th>1. NAME OF SUBJECT OR TITLE OF INCIDENT</th>

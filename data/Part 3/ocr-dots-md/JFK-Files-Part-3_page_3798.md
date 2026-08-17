@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3798.png
-
-Convert to MarkdownMemorandum to Mr. W. R. Vannall
+Memorandum to Mr. W. R. Vannall
 
 Re: Senstudy 75
 62-116395.

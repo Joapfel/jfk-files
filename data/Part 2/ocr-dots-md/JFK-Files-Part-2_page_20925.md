@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20925.png
-
-Convert to Markdown**Women's Bail Fund**
+**Women's Bail Fund**
 
 Chicago, Illinois, until February, 1970.
 Internal factionalism during 1969 produced

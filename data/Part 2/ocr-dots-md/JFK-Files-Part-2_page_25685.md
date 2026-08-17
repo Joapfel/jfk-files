@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25685.png
-
-Convert to MarkdownA. Rosen to Mr. Belmont Memo
+A. Rosen to Mr. Belmont Memo
 
 RE: PRESIDENT'S COMMISSION
 

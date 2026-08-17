@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6191.png
-
-Convert to Markdown# The Law
+# The Law
 
 The President John F. Kennedy Assassination Records Collection Act was enacted by the Congress and signed into law by President George Bush on October 26, 1992. The law states "All Government records concerning the assassination of President John F. Kennedy should carry a presumption of immediate disclosure."
 

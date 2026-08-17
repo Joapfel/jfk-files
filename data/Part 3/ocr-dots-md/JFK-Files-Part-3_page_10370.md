@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10370.png
-
-Convert to Markdownnow or hereafter mutually entered into by any of the subscribers
+now or hereafter mutually entered into by any of the subscribers
 thereto will be reduced to writing; will thereafter become
 supplements to the Delimitations Agreement, and distributed
 only to the extent agreed upon by the co-signers.

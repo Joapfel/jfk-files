@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14482.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Memorandum Branigan to Sullivan
 

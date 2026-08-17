@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27406.png
-
-Convert to Markdown(Items 30-34 are contained in an operations file labeled "DCS Hqs") Vol. III)
+(Items 30-34 are contained in an operations file labeled "DCS Hqs") Vol. III)
 
 33. Memo dated 2 November 1970 to "Operational Support Staff, DCS" from Richard Ober re New York State Police Reporting (one page).
 

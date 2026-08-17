@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19118.png
-
-Convert to MarkdownOFFICIAL DISPATCH
+OFFICIAL DISPATCH
 
 WPMA-0186
 

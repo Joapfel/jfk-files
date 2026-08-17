@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24263.png
-
-Convert to Markdown# Agent Profile - QRPHONE/1
+# Agent Profile - QRPHONE/1
 
 QRPHONE/1 is an American citizen and a singleton agent who has been a recruited asset for some seven years. He has extensive contacts among leftist, radical, and communist movements in Europe and Africa and was able to sustain his relations with many such figures for operational purposes in spite of a formal disassociation some years ago. Originally a member himself of a radical pro-communist group, his disenchantment with internal personal and political dissension in an organization to which he had firmly committed himself led later to his acceptance of an operational relationship with the Agency. Although targeted after his recruitment at the plethora of new left and radical elements in Europe, essentially for intelligence collection purposes, QRPHONE/1 has recently been redirected toward the Chinese Communists with a view to ingratiating himself and seeking their guidance and support as he demonstrates an interest in more effectively acting on their behalf. Our ultimate objective is to precipitate invitations to Mainland China which will lead to successively higher echelons of contact within the Chinese Government.
 

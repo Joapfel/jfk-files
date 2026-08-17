@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27130.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 counterintelligence function, as a Staff function, to full
 parity with espionage and covert activities. One of the

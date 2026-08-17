@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35722.png
-
-Convert to MarkdownSECRET
+SECRET
 EYES ONLY
 
 his retirement. He is still being utilized by the Agency on a contract basis at the SECRET level. Dr. Golder has not yet been interviewed (as of 23 June 1972) but indications are that his ties to Mr. McCord are similar to those of Dr. Gunn mainly through his participation as a Consultant-Instructor at the Institute for Protection and Safety Studies, Incorporated.

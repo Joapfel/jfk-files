@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5917.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 STAFF MEMORANDUM
 

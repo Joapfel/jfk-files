@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_74.png
-
-Convert to MarkdownSubject's own hand
+Subject's own hand
 
 PERSONAL RECORD-QUESTIONNAIRE
 

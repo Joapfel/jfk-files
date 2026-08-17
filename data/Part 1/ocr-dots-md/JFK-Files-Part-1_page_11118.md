@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11118.png
-
-Convert to Markdown- delegates at the Del Prado Hotel where they were staying.
+- delegates at the Del Prado Hotel where they were staying.
 
 The next morning L-9 seemed reluctant at first, but finally agreed to do this if he did not have any more luck in contacting the Cuban delegates some other way. L-9 proposed to visit the Embassy the next day and talk to JORRIN about the Congress. The latter might be able to place him in contact with the Cuban visitors.
 

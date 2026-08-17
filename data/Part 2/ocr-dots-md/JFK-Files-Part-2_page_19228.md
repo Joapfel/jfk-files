@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19228.png
-
-Convert to Markdownevery concerned woman will feel comfortable.
+every concerned woman will feel comfortable.
 
 Miss Rankin places the Brigade in an historical context as a continuation of the efforts of the Abolitionists, and the Suffragettes, representing the best of American traditions.
 

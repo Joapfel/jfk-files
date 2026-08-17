@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7692.png
-
-Convert to Markdown4. Top Secret Document, Pages 63-73 from Transcript of the Executive Session of the President's Commission on the Assassination of President Kennedy, January 21, 1964 (List No. 2A, Item 1)
+4. Top Secret Document, Pages 63-73 from Transcript of the Executive Session of the President's Commission on the Assassination of President Kennedy, January 21, 1964 (List No. 2A, Item 1)
 
 We wish to continue the classification of this segment of the transcript.
 

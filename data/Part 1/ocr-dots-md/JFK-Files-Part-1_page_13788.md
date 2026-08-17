@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13788.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>ORDER BY:</td><td colspan="3">CONFIDENTIAL MESSAGE</td></tr><tr><td>ACTION:</td><td colspan="3"></td></tr><tr><td>INFO:</td><td colspan="2"><table><tr><td>CLASSIFICATION</td></tr></table></td><td>DATE: 21 NOV 87</td></tr><tr><td></td><td>FILE:</td><td colspan="2"></td></tr><tr><td></td><td></td><td>COPY</td><td></td></tr></table>
 

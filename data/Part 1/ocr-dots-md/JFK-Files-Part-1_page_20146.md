@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20146.png
-
-Convert to MarkdownSECRET
+SECRET
 
 best reply. These characteristics do not always make for the best personal relations but are frequently obviated by intellect and above all are correctable and are being corrected.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1732.png
-
-Convert to MarkdownCOMBINED PERSONNEL ACTION
+COMBINED PERSONNEL ACTION
 
 Security Information
 

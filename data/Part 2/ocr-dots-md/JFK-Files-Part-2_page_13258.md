@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13258.png
-
-Convert to Markdown4. AVAILABILITY OF APPLICANT
+4. AVAILABILITY OF APPLICANT
 
 <table>
     <tbody>

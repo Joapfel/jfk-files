@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5853.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SD 15413
 

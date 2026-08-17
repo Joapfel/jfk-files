@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9332.png
-
-Convert to MarkdownSECRET
+SECRET
 
 was. I took lodging in their house as a stranger. My own children called me uncle, and grew up without knowing that the man who boarded in their house was in reality their own father." (I Chose Justice, p.536).
 

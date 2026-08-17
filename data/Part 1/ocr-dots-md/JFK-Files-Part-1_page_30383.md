@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30383.png
-
-Convert to MarkdownCERTIFICATE
+CERTIFICATE
 
 I concur in the Reserve assignment of James W. McCord, Jr.
 Captain A0 2 099 263 (Grade) (S.I.)

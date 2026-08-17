@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23158.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 agent by the name of Caesar DeEstado. Caesar DeEstado was detailed on a arrangement between CIA which was in being when I came to the station. His primary function was to be stationed in Key West, Florida. He generally covered the area from Key West to either Marathon or it could have been -- either Marathon or El Marado, and his tasks were, one, to find Cubans who were coming into the United States in small boats, and to ensure that he took a quick look at them to see if any one of them could be turned around to be used as intelligence sources. If they couldn't be used as intelligence sources, he skipped off the perishable information that was really critical, and then put it into our system. He also flagged the knowledgeable people for further exploitation by us when we want to the Opa Lopa briefing center. He also picked up equipment, that is documents from these people, weapons, clothing, so that we could use authentic clothing to equip our own teams.
 

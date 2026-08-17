@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <td colspan="4">SENDER WILL CHECK CLASSIFICATION TOP AND BO, TOM</td>

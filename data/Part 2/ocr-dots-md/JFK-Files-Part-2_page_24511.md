@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24511.png
-
-Convert to Markdown# Testimony of Bundy
+# Testimony of Bundy
 
 Bundy testified that the contingency referred to in NSAM 100 and the related documents was "what would we do if Castro were no longer there", but that "clearly one of the possibilities would be assassination". (Bundy, p. 77.)
 

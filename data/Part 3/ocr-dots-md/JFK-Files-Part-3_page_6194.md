@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6194.png
-
-Convert to MarkdownRe: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
+Re: UNITED STATES SENATE SELECT COMMITTEE TO STUDY GOVERNMENTAL OPERATIONS WITH RESPECT TO INTELLIGENCE ACTIVITIES (SSC)
 
 3. Approximate date that the name of each of the above listed persons was entered on the Hunter Mail watch list and any documents concerning continuation of their names on that list.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7139.png
-
-Convert to Markdown13-00000
+13-00000
 
 FORM SUZUB
 7-21 MFG. /2/76

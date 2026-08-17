@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30139.png
-
-Convert to Markdown<table><tr><td>61555</td></tr><tr><td>KIMSEY, Herman Edward</td></tr></table>
+<table><tr><td>61555</td></tr><tr><td>KIMSEY, Herman Edward</td></tr></table>
 
 Dec 1916
 

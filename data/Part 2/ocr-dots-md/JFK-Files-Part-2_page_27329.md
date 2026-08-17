@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27329.png
-
-Convert to MarkdownA - Ltr from Knoche to Roethe - 16 May 75
+A - Ltr from Knoche to Roethe - 16 May 75
 
 B - Memo for DD/IOS - 27 Mar 68 SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1621.png
-
-Convert to MarkdownSummary of Initial Missions
+Summary of Initial Missions
 
 In the period from 20 June to 10 July 1956 the Soviet Bloc air defense system was subjected to eight penetrations of an unprecedented nature, seven occurring within a period of only eight days. It must be remembered that COMINT provides the only basis of judging the performance of the Soviet system. This is important because it is clear from REGAL material that considerable air defense business is conducted over landlines and thus not observed by COMINT. However, some tentative conclusions may be drawn from these initial flights and these are indicated as follows:
 

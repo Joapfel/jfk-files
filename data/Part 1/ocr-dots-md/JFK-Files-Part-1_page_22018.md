@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22018.png
-
-Convert to Markdown(c) **Information from PREISFREUND**
+(c) **Information from PREISFREUND**
 
 CIA initially interviewed PREISFREUND on 8 July 1965 in Helsinki. (NOSENKO himself had suggested that PREISFREUND would confirm his story of the STORSBERG case.) During this first meeting with him, PREISFREUND correctly identified photographs of KOVSHUK, NOSENKO, and STORSBERG. He maintained, however, that his relationship with KOVSHUK and NOSENKO was strictly on a business level, that he had never had anything to do with the KGB, and that he did not know what the initials "KGB" stand for. Toward the end of this meeting, PREISFREUND allowed that he may have been unwittingly involved in some activity against STORSBERG and agreed to tell the "entire truth" the following day.
 

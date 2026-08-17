@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35498.png
-
-Convert to Markdown14-0000
+14-0000
 
 27 July 1965
 

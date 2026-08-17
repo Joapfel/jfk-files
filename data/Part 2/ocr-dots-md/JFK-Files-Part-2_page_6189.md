@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6189.png
-
-Convert to Markdown13-00000
+13-00000
 
 Assassination Records Review Board Staff
 October 1, 1997

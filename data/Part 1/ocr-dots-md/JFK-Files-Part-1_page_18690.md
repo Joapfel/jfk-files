@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18690.png
-
-Convert to Markdown10 APR 1972
+10 APR 1972
 
 MEMORANDUM FOR: Secretary, DDP/QSI - HMA Panel
 SUBJECT : Notification of Approval of Quality Step Increase - Calvin W. Hicks

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9328.png
-
-Convert to MarkdownOnly through an all-destroying popular revolution and the Association will by all means and all its power further the development and extension of those evils and those calamities which cust at last exhaust the patience of the people and drive them to a general uprising.
+Only through an all-destroying popular revolution and the Association will by all means and all its power further the development and extension of those evils and those calamities which cust at last exhaust the patience of the people and drive them to a general uprising.
 
 23. By Revolution the Association does not understand a regulated movement after the classical western model. A movement which always bowing to the property rights and the traditions of the social systems of so-called civilization and morality, has until now limited itself everywhere to the overthrow of one political form in order to replace it by another and striven to create a so-called revolutionary state. Only that revolution will be beneficial to the people which will destroy at the very root every vestige of statehood and will annihilate all of this country's old traditions, institutions, and classes.
 

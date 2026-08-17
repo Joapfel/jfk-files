@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28555.png
-
-Convert to MarkdownRYBAT
+RYBAT
 
 ATTACHMENT TO ORBS 3007
 A~ACHMENT TO OBIT 5300

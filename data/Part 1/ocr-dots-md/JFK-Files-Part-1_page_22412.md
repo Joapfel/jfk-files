@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22412.png
-
-Convert to Markdown813.
+813.
 
 to Moscow to explain the situation, and when he was unable to do so, the facts were turned over to the KGB for full-scale investigation. It not been for POPOV's correspondence with an Austrian woman, "they would never have caught him," and that POPOV was "arrested because of a connection with a girl;" also, at the end of 1958 POPOV was recalled to Moscow "for something" - and thenPOPOV was PlacePOPOV. While the foregoing KGB investigation was in progress, the KGB routinely placed under surveillance a U.S. Embassy official in Moscow. This person was observed renting a boat in Gorkiy Park, going to the vicinity of a new bridge near the Moscow Stadium, and there taking photographs of the bridge and surrounding area. Its suspicions aroused, the KGB covered this area and observed POPOV unloading a dead drop. He was arrested, doubled, and "operated" against American Intelligence for a year and one-half.* Eventually, the KGB put in motion a plan to attempt to compromise the American official who was meeting POPOV. The KGB photographed a meeting in a Moscow restaurant, then arrested the official and showed him pictures of his meeting with POPOV and of POPOV unloading the dead drop at the bridge. After the American refused to work for the KGB, he was released and declared persona non grata.**
 

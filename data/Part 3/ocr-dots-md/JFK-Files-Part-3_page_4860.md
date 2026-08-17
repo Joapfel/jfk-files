@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4860.png
-
-Convert to Markdown# MM 92-1870
+# MM 92-1870
 
 through the U. S. Mails. Informant stated he personally observed RAFAEL LORETO (deceased), during 1963, pick up a large package addressed to him at the Post Office in Miami, Florida, which contained a large shipment of the above tickets. LORETO told him that ECHEMENDIA assigned about eight of his operators to handle these tickets, but each one was given a different week to pick up the shipment at the U. S. Post Office. Other known operators for ECHEMENDIA were RAUL FERNANDEZ; OSCAR's son, DOMINGO ECHEMENDIA; PEDRO FOX, brother of MARTIN FOX. He continued that since OSCAR and MARTIN FOX's deaths, PEDRO FOX and DOMINGO ECHEMENDIA were left the bolita business. He advised that he doubts if DOMINGO ECHEMENDIA can handle this operation, since he does not have the knowledge or personality to handle such a large operation.
 

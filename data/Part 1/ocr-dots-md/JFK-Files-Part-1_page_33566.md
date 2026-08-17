@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33566.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td>CABLE SEC DISSEM BY AA PER TOTAL CIVIL</td>

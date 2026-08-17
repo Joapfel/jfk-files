@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20279.png
-
-Convert to MarkdownSECRET
+SECRET
 
 GENERAL SCHEDULE SALARY INCREASE RETROactively EFFECTIVE
 

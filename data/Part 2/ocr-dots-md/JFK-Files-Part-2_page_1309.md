@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1309.png
-
-Convert to MarkdownItems 21 and 33, form 57
+Items 21 and 33, form 57
 
 III. Teaching Experience (cont.)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1781.png
-
-Convert to Markdown4. With respect to page 23, certain operational responsibilities should pass from DD/R to DD/P upon completion of research and development; however a study should be made to determine whether the many fully integrated operational activities such as OXCART and some fully integrated ELINT operations should not be permanently under DD/R who is to have both operational and research and development responsibilities.
+4. With respect to page 23, certain operational responsibilities should pass from DD/R to DD/P upon completion of research and development; however a study should be made to determine whether the many fully integrated operational activities such as OXCART and some fully integrated ELINT operations should not be permanently under DD/R who is to have both operational and research and development responsibilities.
 
 ## Considerations of OXCART
 

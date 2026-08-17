@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21642.png
-
-Convert to MarkdownSECRET
+SECRET
 
 D. During the period of 1955 - 1960, NOSENKO was neither a senior case officer in, nor Deputy Chief of, the Seventh Department, American-British Commonwealth Section. (Previous conclusion)
 

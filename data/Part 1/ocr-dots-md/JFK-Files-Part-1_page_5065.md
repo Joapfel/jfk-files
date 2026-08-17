@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5065.png
-
-Convert to Markdown<table><tr><td>CABLE SEC DISSEM BY: 7 PER:</td><td>TOTAL COPIES: 18</td></tr><tr><td>PERSON/UNIT NOTIFIED:</td><td>SECRET</td></tr></table>
+<table><tr><td>CABLE SEC DISSEM BY: 7 PER:</td><td>TOTAL COPIES: 18</td></tr><tr><td>PERSON/UNIT NOTIFIED:</td><td>SECRET</td></tr></table>
 
 REPRODUCTION BY OTHER THAN ISSUING OFFICE IS PROHIBITED
 

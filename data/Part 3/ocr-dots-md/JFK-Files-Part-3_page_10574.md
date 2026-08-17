@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10574.png
-
-Convert to MarkdownOPTIONAL FORM NO. 10
+OPTIONAL FORM NO. 10
 MAY 1962- EDITION
 GSR GEN: REG NO. 27
 

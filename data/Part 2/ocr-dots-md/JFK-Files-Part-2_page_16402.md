@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16402.png
-
-Convert to MarkdownWhat imperialism fears most
+What imperialism fears most
 is the awakening of the Asian,
 African and Latin American
 peoples, the awakening of the

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15965.png
-
-Convert to MarkdownHarvey, Illinois, BPP Branch-5 members
+Harvey, Illinois, BPP Branch-5 members
 Maywood, Illinois, BPP Branch-10 to 15 members
 Rockford, Illinois, BPP Branch-10 to 15 members.
 

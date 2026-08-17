@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20340.png
-
-Convert to Markdown# SEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
+# SEC. 14. ACTIVE U. S. OR FOREIGN MILITARY SERVICE
 
 U. S. Army Cpl. 1940-1943
 (Country)

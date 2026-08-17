@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32194.png
-
-Convert to MarkdownSECRET
+SECRET
 
 NSC Action No.
 

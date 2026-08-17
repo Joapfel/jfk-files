@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9402.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 HICOG,
 

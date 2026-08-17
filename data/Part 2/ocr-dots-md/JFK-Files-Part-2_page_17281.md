@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17281.png
-
-Convert to Markdown# DETAILS:
+# DETAILS:
 
 A characterization of the Black Panther Party (BPP) is attached as an appendix to this report.
 

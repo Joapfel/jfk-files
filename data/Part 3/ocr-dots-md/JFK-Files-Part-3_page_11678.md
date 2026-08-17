@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11678.png
-
-Convert to MarkdownJunta of Militant Organizations
+Junta of Militant Organizations
 Bufile 157-9903
 
 Recently JOMO has been reincorporated under "The International Junta of Militant Organizations" and now appears to be attempting to make contact with organizations abroad and has embraced Stokely Carmichael's concept of Pan-Africanism.

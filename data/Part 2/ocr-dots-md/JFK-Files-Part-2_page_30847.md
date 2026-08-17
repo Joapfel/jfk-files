@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30847.png
-
-Convert to MarkdownBIOGRAPHY
+BIOGRAPHY
 
 11110527
 

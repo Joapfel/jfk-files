@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11585.png
-
-Convert to Markdown# ACCOMPLISHMENTS
+# ACCOMPLISHMENTS
 
 ## VENCEREMOS BRIGADE
 

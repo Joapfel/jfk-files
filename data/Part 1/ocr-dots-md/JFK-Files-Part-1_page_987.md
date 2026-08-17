@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_987.png
-
-Convert to MarkdownCARLIN, Karen Bennett
+CARLIN, Karen Bennett
 
 1. HSCA Request, 9 November 1977 (OLC #77-4894)
 

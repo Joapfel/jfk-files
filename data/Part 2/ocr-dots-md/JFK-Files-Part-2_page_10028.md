@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10028.png
-
-Convert to MarkdownSENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
+SENATE SELECT COMMITTEE ON INTELLIGENCE ACTIVITIES (SSC)
 
 In reply the Deputy Attorney General on June 25, 1953, (enclosed), advised he did not believe the policy outlined in the memorandum dated May 1, 1953, to be in conflict with any provision of EO 10450 and saw no reason why the FBI should not continue this policy.
 

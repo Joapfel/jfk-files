@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21619.png
-
-Convert to MarkdownIUP SECRET
+IUP SECRET
 
 1 service, he might not be from Havana, he might be from the
 2 Soviets, from us, or from the Brazilians.

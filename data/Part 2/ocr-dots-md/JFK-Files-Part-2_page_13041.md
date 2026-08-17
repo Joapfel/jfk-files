@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13041.png
-
-Convert to MarkdownNY 100-111180
+NY 100-111180
 
 with LEVISION, the Party designated BEN DAVIS to contact
 LEVISION. LEVISION had always expressed the opinion that

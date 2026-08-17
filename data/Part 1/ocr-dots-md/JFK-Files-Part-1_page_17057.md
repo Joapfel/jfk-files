@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17057.png
-
-Convert to Markdownseveral other times during his stay in Mexico City and had contact with other known Soviet intelligence officers while visiting. This kind of information is a basic contribution to the Station's continuing efforts to identify and assess certain Soviets for possible recruitment or defection.
+several other times during his stay in Mexico City and had contact with other known Soviet intelligence officers while visiting. This kind of information is a basic contribution to the Station's continuing efforts to identify and assess certain Soviets for possible recruitment or defection.
 
 6. At Headquarters, the Soviet Bloc Division uses LIEMPTY photographs, particularly photographs of Soviet Embassy officials, for identification purposes in connection with defector cases. The LIEMPTY material also keeps the Station's Soviet section up-to-date on which Soviet officers have been in the Embassy, which ones have been away; who has used which car; who has been in contact with whom; and other similar information useful in the conduct of Soviet operations.
 

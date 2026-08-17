@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5368.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 WAS-247-68
 27 May 1968

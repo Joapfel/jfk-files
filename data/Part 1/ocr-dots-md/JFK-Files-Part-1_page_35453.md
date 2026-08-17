@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35453.png
-
-Convert to MarkdownParis Station personnel known to be in Paris
+Paris Station personnel known to be in Paris
 
 **Peter J. KIMCHAM**
 - not known what alias used. Some meetings were held in Kimcham's home in 1962/63. It is not known if other staff personnel (other than ONKIOH) were met than by AMLASH/1.

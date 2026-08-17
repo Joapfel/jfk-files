@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_802.png
-
-Convert to Markdown14-00000
+14-00000
 
 # Latin Youth Group in Chile
 Organized by a Cuban Red

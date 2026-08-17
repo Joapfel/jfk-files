@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11402.png
-
-Convert to MarkdownFOREIGN LIAISON UNIT
+FOREIGN LIAISON UNIT
 Robert A. Bermingham
 Two Special Agents
 

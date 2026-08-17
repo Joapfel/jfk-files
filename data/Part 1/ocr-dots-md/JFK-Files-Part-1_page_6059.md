@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6059.png
-
-Convert to MarkdownO DRE de Cuba e o desembarque de tropas
+O DRE de Cuba e o desembarque de tropas
 
 Comunistas em Havana
 

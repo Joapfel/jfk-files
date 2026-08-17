@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2896.png
-
-Convert to Markdown# AGENT S/W RECORD
+# AGENT S/W RECORD
 
 Date 29 August 1962
 

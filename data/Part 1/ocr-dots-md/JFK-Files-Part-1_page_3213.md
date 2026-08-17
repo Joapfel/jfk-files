@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3213.png
-
-Convert to MarkdownSTCNET
+STCNET
 
 -8-
 

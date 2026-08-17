@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16960.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 Fred Hampton, Deputy Chairman;
 

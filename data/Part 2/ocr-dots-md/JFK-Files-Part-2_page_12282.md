@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12282.png
-
-Convert to Markdown4. Subfiles
+4. Subfiles
 
 a. subfile is required on each informant, submits statements, written oral, except in case of foreign nature matters when subfile is necessary only in those instances involving possible prosecution. The original of each statement, whether personally written by the informant, or furnished orally and reduced to writing by contacting Agent, should be filed in this subfile. Executed form T-306 or a channelizing memorandum containing all applicable items set forth on form FT-306 should be stapled to the original of each such statement.
 

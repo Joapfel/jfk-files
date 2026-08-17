@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24987.png
-
-Convert to MarkdownFBI DOCUMENT
+FBI DOCUMENT
 
 DATE: 21 AUGUST 1963
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23276.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1. believe that you need to or ought to review those notes before
 2. you give any testimony?

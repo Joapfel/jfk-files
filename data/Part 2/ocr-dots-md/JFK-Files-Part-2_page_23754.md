@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23754.png
-
-Convert to Markdownout the agencies individually. Leave out the FBI and the CIA.
+out the agencies individually. Leave out the FBI and the CIA.
 
 Mr. Miller. I think naming them is a good idea.
 

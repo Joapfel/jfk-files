@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10332.png
-
-Convert to MarkdownDepartment of Defense
+Department of Defense
 
 Documents, disguise, concealment devices, secret writing, flaps and seals, counterinsurgency and counter sabotage courses have been furnished to all intelligence elements of the Department of Defense and certain elements of the Special Forces. All requests are coordinated with the FI Departmental Coordination Group at Headquarters and with the Chief of Stations overseas. In turn these elements furnished TSD with exemplars of foreign identities documents, foreign cachets, foreign intelligence secret writing systems, foreign intelligence concealment devices. Selected audio requirements have been furnished overseas for CI -type cases.
 

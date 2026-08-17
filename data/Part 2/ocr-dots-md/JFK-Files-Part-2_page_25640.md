@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25640.png
-
-Convert to Markdown- Sam Benton - general area deal to animals Center at
+- Sam Benton - general area deal to animals Center at
   Summerville House - Alex Loar & Sturgis
 - Shamma -
 - Artime - sufficient -

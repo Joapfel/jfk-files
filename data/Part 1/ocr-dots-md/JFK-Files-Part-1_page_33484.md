@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33484.png
-
-Convert to Markdown<table><thead><tr><td colspan="2">CABLE SEC DISSEMIN BY PER</td><td>TOTAL COPIES</td><td>RUN BY</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>SECRET</td><td>REPRODUCTION BY OTHER IN<br/>ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED, SLIPPED BY A?</td><td>STAFF</td></tr><tr><th>ACTION UNIT</th><th>I N F O P</th><th>RF FILE VR</th><td>1</td><td>4</td></tr><tr><th>ACTION #</th><th></th><th></th><td>2</td><td>3</td></tr><tr><th></th><th></th><th></th><td>3</td><td>6</td></tr></tbody></table>
+<table><thead><tr><td colspan="2">CABLE SEC DISSEMIN BY PER</td><td>TOTAL COPIES</td><td>RUN BY</td></tr></thead><tbody><tr><td colspan="2">PERSON/UNIT NOTIFIED</td><td>SECRET</td><td>REPRODUCTION BY OTHER IN<br/>ISSUING OFFICE IS PROHIBITED</td></tr><tr><td colspan="3">ADVANCE COPY ISSUED, SLIPPED BY A?</td><td>STAFF</td></tr><tr><th>ACTION UNIT</th><th>I N F O P</th><th>RF FILE VR</th><td>1</td><td>4</td></tr><tr><th>ACTION #</th><th></th><th></th><td>2</td><td>3</td></tr><tr><th></th><th></th><th></th><td>3</td><td>6</td></tr></tbody></table>
 
 T 149793 EIA850
 

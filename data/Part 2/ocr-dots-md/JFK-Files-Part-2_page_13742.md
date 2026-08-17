@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13742.png
-
-Convert to MarkdownStaff Members of the Senate Select Committee on Intelligence Activities who have received a security investigation by the Federal Bureau of Investigation within the past five years and are certified as meeting requirements of EO 10450 for access to classified information up to and including TOP SECRET
+Staff Members of the Senate Select Committee on Intelligence Activities who have received a security investigation by the Federal Bureau of Investigation within the past five years and are certified as meeting requirements of EO 10450 for access to classified information up to and including TOP SECRET
 
 | NAME | DATE & PLACE OF BIRTH | BIRTH YEAR | SOCIAL SECURITY NO. |
 |---|---|---|---|

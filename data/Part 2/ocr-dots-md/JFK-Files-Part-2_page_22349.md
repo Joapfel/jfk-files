@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22349.png
-
-Convert to Markdown## Pennington Matter (continued)
+## Pennington Matter (continued)
 
 Lee Pennington and a man named Charles Wylie were the only two confidential informants who Osborn can think of who were employed as such by the Office of Security during his tenure with that office. (This is in addition to CIA employees and the employees of propriety investigating companies who have been used as informants.) Mr. Wylie was a journalist and writer who was paid $10,000 per year, plus certain travel expenses, by the CIA to act as an informant, but Mr. Osborn has no idea what kind of information he provided to the Agency in recent years. He does recall that many years ago Wylie provided information regarding the Vienna, Austria, Youth Festival and also some information gathered on the trip he made to Japan. Mr. Osborn states that he has never met Lee Pennington or Charles Wylie, nor has he ever talked with either of them in person or by telephone.
 

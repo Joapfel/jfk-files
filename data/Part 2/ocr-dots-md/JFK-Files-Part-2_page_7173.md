@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7173.png
-
-Convert to MarkdownFORM 3020b
+FORM 3020b
 7-71 MFG. 2/75
 
 CABLE SEC DISSEM BY ____ PER ____ TOTAL COPIES ____ RUN BY ____

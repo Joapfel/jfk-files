@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32323.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DRAFT
 11/13/63

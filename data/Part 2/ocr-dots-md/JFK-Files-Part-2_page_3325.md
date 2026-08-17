@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3325.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 SECRET
 
 Tab C

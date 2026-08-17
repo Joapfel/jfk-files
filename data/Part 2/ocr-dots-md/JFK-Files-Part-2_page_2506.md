@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2506.png
-
-Convert to MarkdownSECRET
+SECRET
 
 as Mr. Rosnek reaches the salary paid an employee in the top step of GS-15 (currently $47,500) his annual compensation would be increased only as the pay for that step increases.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30870.png
-
-Convert to MarkdownSECRET
+SECRET
 
 4. Collect must be a value of 1 or more. If insurance policy is arranged to the benefit, it is: (a) entitled to the benefit, i.e., is covered by an insurance policy covering his retirement. However, this action would result in the surfaces of collect's true identity to the under writer. Therefore, if the interest of continuing security, collect should be instructed to send insurance with another insurer if he desires coverage following retirement.
 

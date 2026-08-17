@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21259.png
-
-Convert to Markdown12 March 1959
+12 March 1959
 
 To: Personnel Division
 

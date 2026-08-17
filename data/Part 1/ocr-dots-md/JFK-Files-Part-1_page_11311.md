@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11311.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPY:
 
 <table><thead><tr><th></th><th>Routing</th></tr></thead><tbody><tr><td>1</td><td>5</td></tr><tr><td>2</td><td>6</td></tr><tr><td>3</td><td>7</td></tr><tr><td>4</td><td>8</td></tr></tbody></table>

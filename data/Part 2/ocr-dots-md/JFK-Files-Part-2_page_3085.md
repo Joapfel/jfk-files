@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3085.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It is particularly important in light of changes which were subsequently made in the covert action plan to note the language of the approved policy with reference to the paramilitary operation:
 

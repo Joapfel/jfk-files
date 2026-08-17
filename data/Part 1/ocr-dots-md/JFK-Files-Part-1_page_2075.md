@@ -1,3 +1,1 @@
-# JFK-Files-Part-1_page_2075.png
-
-Convert to MarkdownDocId:32399957 Page 18
+DocId:32399957 Page 18

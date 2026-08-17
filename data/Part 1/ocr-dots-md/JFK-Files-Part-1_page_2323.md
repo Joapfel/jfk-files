@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2323.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Operational Memo # N-2
 

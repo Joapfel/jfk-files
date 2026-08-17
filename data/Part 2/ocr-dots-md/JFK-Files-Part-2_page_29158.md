@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29158.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>SCHEDULE<br/>D<br/>FORM 540</td>
     <td>CALIFORNIA<br/>SALES OR EXCHANGES OF PROPERTY<br/>Attach to Form 540 or 540NR</td>

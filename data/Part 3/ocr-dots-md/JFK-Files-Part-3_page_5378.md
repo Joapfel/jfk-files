@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5378.png
-
-Convert to Markdown# MICROPHONES
+# MICROPHONES
 
 JANUARY 5 - 8, 1964
 WILLARD HOTEL

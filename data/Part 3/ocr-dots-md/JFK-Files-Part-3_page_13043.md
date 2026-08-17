@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13043.png
-
-Convert to MarkdownON CHAIRMAN MAO TSE TUNG'S DECLARATION
+ON CHAIRMAN MAO TSE TUNG'S DECLARATION
 OF 20 MAY, 1970
 
 In this declaration, Chairman Mao

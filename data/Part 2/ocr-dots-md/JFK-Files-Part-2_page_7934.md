@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7934.png
-
-Convert to Markdown13-00000
+13-00000
 
 James T. The Kennedy Literature: A Bibliographical Survey on John F. Kennedy, New York: New York University Press, 1968.
 

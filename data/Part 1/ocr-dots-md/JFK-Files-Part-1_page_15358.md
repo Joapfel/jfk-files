@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15358.png
-
-Convert to Markdownhighly unlikely to "request" someone to leave or terminate written agreement. Wouldn't one direct in lieu of request)?
+highly unlikely to "request" someone to leave or terminate written agreement. Wouldn't one direct in lieu of request)?
 
 8. WAVE-0832 dated 16 April, gave medical evaluation which was reviewed by WAVE Medical personnel. (Opinion - in debriefing of Subject I was personally convinced this man was sick. Furthermore. (W) advised that he is in possession of medical report by Dr. El Khorury that it was mandatory for (W) to be evacuated for adequate medical treatment.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11670.png
-
-Convert to MarkdownOur investigation of the BPP was instituted in 1967 and since that time has expanded as the organization itself expanded.
+Our investigation of the BPP was instituted in 1967 and since that time has expanded as the organization itself expanded.
 
 By letter to all offices dated 2-27-70, approved by the Director, offices having BPP investigations were instructed to submit intelligence reports on the BPP every six months in compliance with instructions in the Manual of Instructions. Previously, offices were submitting quarterly reports on the BPP. The changes made on the basis of a recommendation by a Racial Informants Conference of field supervisors to eliminate some paper work in the field.
 

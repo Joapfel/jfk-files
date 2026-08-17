@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6768.png
-
-Convert to Markdown6 May 1992
+6 May 1992
 
 NOTE FOR: DCI
 

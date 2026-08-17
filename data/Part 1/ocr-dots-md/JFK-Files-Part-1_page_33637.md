@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33637.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. Extension of NOFE Activities in Paris
 

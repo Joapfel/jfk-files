@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16844.png
-
-Convert to MarkdownMarital status: Single
+Marital status: Single
 Selective Service No.: 11-53-43-197
 Social Security No.: 349-36-2478
 Drivers license: Illinois, number H43032443287

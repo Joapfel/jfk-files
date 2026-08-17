@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_703.png
-
-Convert to Markdown104-10071-10010
+104-10071-10010
 
 RESTRICTED HANDLING
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14123.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. Has agent any past connection with or has his intelligence status been identified to OSS, SSU, CIG, G-2, A-2, CIC, ONI or any foreign intelligence, police or security service? Is any such connection known outside CIA and the service involved?
 

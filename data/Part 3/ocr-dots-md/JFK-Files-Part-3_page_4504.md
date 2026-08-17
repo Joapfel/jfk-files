@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4504.png
-
-Convert to Markdown# Office Memorandum • UNITED STATE GOVERNMENT
+# Office Memorandum • UNITED STATE GOVERNMENT
 
 TO : DIRECTOR, FBI (92-2914)
 

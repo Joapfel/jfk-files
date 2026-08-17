@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25817.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6. no other agency (
 7. no projects or papers except for files.

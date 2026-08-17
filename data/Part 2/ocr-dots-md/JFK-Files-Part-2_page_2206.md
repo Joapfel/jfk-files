@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2206.png
-
-Convert to Markdown29 OCT 1968
+29 OCT 1968
 
 Mr. C. Richard Locke, Director
 National Conference of Bar Examiners

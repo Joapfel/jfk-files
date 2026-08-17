@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27133.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 was responsible for the breaking of many espionage cases in
 the West, but equally important he divulged Soviet plans,

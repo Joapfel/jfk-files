@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27258.png
-
-Convert to Markdown1. OTS Memo Receipt (CONFIDENTIAL)
+1. OTS Memo Receipt (CONFIDENTIAL)
 
 2. Procedures for Obtaining Alias Documents and Disguises
    16 Apr 75 CONFIDENTIAL

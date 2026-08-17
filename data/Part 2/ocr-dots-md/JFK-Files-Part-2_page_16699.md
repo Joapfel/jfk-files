@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16699.png
-
-Convert to MarkdownFEDERAL SUREAU OF INVESTIGATION
+FEDERAL SUREAU OF INVESTIGATION
 
 Washington, D.C. 20537
 

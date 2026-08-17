@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11894.png
-
-Convert to MarkdownEast Coast Conspiracy
+East Coast Conspiracy
 
 Because of the basic responsibility of this Division for investigations involving subversive antiwar groups, overall responsibility for this investigation was assumed by memorandum dated September 10, 1970. This, of course, did not include individual Selective Service violations existing in various stages of prosecution or subsequent substantive violations in which affiliates of this group were suspected of being involved.
 

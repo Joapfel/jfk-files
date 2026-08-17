@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1373.png
-
-Convert to Markdown2nd June, 1961.
+2nd June, 1961.
 
 Tadeusz SZULC
 

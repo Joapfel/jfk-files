@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32756.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td>ORIG.</td>
         <td>GLENN HUNT, Jr</td>

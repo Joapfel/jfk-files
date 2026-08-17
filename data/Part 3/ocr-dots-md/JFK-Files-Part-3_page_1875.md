@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1875.png
-
-Convert to MarkdownFEDERAL GOVERNMENT
+FEDERAL GOVERNMENT
 
 The Deputy Attorney General
 

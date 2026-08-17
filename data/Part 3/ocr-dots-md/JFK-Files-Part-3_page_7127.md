@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7127.png
-
-Convert to MarkdownMemorandum to Mr. J. B. Adams
+Memorandum to Mr. J. B. Adams
 
 Re: SENSTUDY
 Letter from Senators Mansfield and Scott

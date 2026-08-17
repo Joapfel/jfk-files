@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32632.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: Earl J. Williamson
 

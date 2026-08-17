@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26880.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>NO. L.MURPHY:kas</td></tr><tr><td>DCT: SOD/AB/OPS/3</td></tr><tr><td>XT : 4475</td></tr><tr><td>MAY, 12 May 1965.</td></tr></table>
 

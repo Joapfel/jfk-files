@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7015.png
-
-Convert to MarkdownUNCLASSIFIED
+UNCLASSIFIED
 
 INTERNAL ONLY
 

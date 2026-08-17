@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29349.png
-
-Convert to Markdown000047
+000047
 
 knowledge about what happened to the tapes after they left his possession and before they were returned to him. He said that the tapes were returned to him already erased and ready for use.
 

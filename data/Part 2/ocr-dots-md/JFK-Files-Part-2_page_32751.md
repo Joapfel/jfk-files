@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32751.png
-
-Convert to MarkdownElectric engine which was found to be unacceptable. The senior
+Electric engine which was found to be unacceptable. The senior
 Navy member of the Evaluation Group stated that none of the designs
 was acceptable without very substantial change.
 

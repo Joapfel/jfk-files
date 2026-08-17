@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11520.png
-
-Convert to MarkdownCOPY
+COPY
 
 ROY A.TAYLOR
 11th District

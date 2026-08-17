@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5268.png
-
-Convert to MarkdownEXPLANATIONS REQUESTED:
+EXPLANATIONS REQUESTED:
 
 SA DOUGLAS R. AHLSTROM is requested to explain why he failed to detect the lead at Walnut Creek had not been covered before the case was closed on 10/15/70.
 

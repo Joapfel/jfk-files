@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31549.png
-
-Convert to MarkdownCorreos: : A. S. Senning, in: A. of Justice; J. P. Pepernek: Delphi to do it: I am a laborer on a farm in Czech-Slovakia.
+Correos: : A. S. Senning, in: A. of Justice; J. P. Pepernek: Delphi to do it: I am a laborer on a farm in Czech-Slovakia.
 
 In: On the basis of Correos: The President of the Slovaks: Action 1 - Credit Union - Intentionally: I visited the great country that is being created in our land - as a foreign correspondent of the Press. I was among my friends who were taken out to see political prisoners and tried to speak with them.
 

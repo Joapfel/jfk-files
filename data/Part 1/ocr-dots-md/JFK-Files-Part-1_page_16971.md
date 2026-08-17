@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16971.png
-
-Convert to MarkdownC. Bustos
+C. Bustos
 WH/1
 4006, 4507
 15 Jan 65

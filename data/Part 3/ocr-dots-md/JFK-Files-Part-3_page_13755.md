@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13755.png
-
-Convert to MarkdownSECRET
+SECRET
 
 THE ESTIMATE
 

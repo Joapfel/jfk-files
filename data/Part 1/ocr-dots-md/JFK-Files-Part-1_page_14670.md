@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14670.png
-
-Convert to Markdown<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td colspan="2">TO: Chief, Western Hemisphere Division</td><td rowspan="3">SECRET</td><td rowspan="2">MARKED FOR DELIVERY</td></tr><tr><td>FROM: Chief, European Division</td></tr><tr><td>Subject: Chief of Station, WH/Miami<br/>RYBAT/TYPIC/OUTLID/AMAUTO-1</td><td>NO INDEXING REQUIRED</td></tr><tr><td>SUBJECT</td><td colspan="3"></td></tr><tr><td>ACTION REQUIRED REFERENCES</td><td colspan="3"></td></tr></tbody></table>
+<table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td colspan="2">TO: Chief, Western Hemisphere Division</td><td rowspan="3">SECRET</td><td rowspan="2">MARKED FOR DELIVERY</td></tr><tr><td>FROM: Chief, European Division</td></tr><tr><td>Subject: Chief of Station, WH/Miami<br/>RYBAT/TYPIC/OUTLID/AMAUTO-1</td><td>NO INDEXING REQUIRED</td></tr><tr><td>SUBJECT</td><td colspan="3"></td></tr><tr><td>ACTION REQUIRED REFERENCES</td><td colspan="3"></td></tr></tbody></table>
 
 1. On 23 September 1969 AMAUTO-1 called an unidentified Spanish woman who resided in Cuba for many years before returning to Spain. AMAUTO-1 noted that he visited the Spanish woman's cousin, identified as Esther CORRIPIO, while he vacationed in PBRUMEN and found everyone in good health. The unidentified Spanish woman asked AMAUTO-1 if there was much food available and the following dialogue began:
 

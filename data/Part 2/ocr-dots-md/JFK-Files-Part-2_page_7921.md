@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7921.png
-
-Convert to MarkdownFORM 3966 (20)
+FORM 3966 (20)
 
 ☐ UNCLASSIFIED ☐ CONFIDENTIAL ☐ SECRET ☐ TOP SECRET
 

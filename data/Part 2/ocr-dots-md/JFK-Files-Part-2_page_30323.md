@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30323.png
-
-Convert to MarkdownThe Chairman. The time of the gentleman has expired.
+The Chairman. The time of the gentleman has expired.
 
 Mrs. Burke?
 

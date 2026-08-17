@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9230.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 ## 2. Communication with BPP National Headquarters
 

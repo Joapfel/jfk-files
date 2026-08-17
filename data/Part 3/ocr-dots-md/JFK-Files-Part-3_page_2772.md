@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2772.png
-
-Convert to Markdownfor Boston, for instance, took place a year in advance, with state officials, city officials, the Department of Justice and the FBI sitting down together saying "How are we going to protect the situation in Boston"? I think we have learned a lot from the days back in the early 60's. But, the Government had no mechanics which protected people at that time.
+for Boston, for instance, took place a year in advance, with state officials, city officials, the Department of Justice and the FBI sitting down together saying "How are we going to protect the situation in Boston"? I think we have learned a lot from the days back in the early 60's. But, the Government had no mechanics which protected people at that time.
 
 **QUESTION:** Next I would like to ask, back in 1965, I guess during the height of the effort to destroy the Klans as you put it a few moments ago, I believe the FBI has released figures that we had something like 2,000 informers of some kind or another infiltrating the Klan out of roughly 10,000 estimated membership.
 

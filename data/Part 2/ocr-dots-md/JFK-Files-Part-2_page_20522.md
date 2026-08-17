@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20522.png
-
-Convert to MarkdownNY.100-174481
+NY.100-174481
 
 It was announced that the demonstration was planned to be completely non-violent and that the scheduled speakers at WDC are RILLY JEAN KING, women's tennis champion; and SHIRLEY WHEELER, who was convicted in the State of Florida on a charge of having an illegal abortion.
 

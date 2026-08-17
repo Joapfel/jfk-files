@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8184.png
-
-Convert to Markdown5-113a (Rev. 3-21-73)
+5-113a (Rev. 3-21-73)
 
 <table>
    <tr>

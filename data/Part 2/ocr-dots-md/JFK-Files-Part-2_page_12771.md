@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12771.png
-
-Convert to Markdown(5) In evaluating this type of case, carefully consider the nature and activities of the front organization in behalf of the Communist Party or other revolutionary organizations throughout the country or in a certain area.
+(5) In evaluating this type of case, carefully consider the nature and activities of the front organization in behalf of the Communist Party or other revolutionary organizations throughout the country or in a certain area.
 
 c. Special training in a subversive movement
 

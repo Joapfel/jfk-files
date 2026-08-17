@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8850.png
-
-Convert to Markdown2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
+2025 RELEASE UNDER THE PRESIDENT JOHN F. KENNEDY ASSASSINATION RECORDS ACT OF 1992
 
 <table><tr><td>☐ A-00X</td><td>B-3-C-3-B-7</td></tr><tr><td>☐ NO IMAGE</td><td></td></tr><tr><td>☐ FILE IN CS F&G NO.</td><td></td></tr></table>
 

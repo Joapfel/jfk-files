@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5173.png
-
-Convert to MarkdownOMF. 0 0 0 0 0 0
+OMF. 0 0 0 0 0 0
 
 CLASSIFICATION
 SECRET

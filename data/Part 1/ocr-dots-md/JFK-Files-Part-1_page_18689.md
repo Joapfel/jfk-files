@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18689.png
-
-Convert to Markdown<table>
+<table>
    <thead>
     <tr>
      <td>DATE OF ONSET<br/>OF DISEASE OR INJURY</td>

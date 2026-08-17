@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24447.png
-
-Convert to MarkdownO'Connell contacted Roselli in early September 1960.
+O'Connell contacted Roselli in early September 1960.
 
 During the week of September 25, O'Connell, Maheu, and Roselli met with Giancana and Trafficante in Miami. Bissell testified as follows concerning the sequence of those events:
 

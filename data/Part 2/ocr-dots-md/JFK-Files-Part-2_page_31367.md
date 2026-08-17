@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31367.png
-
-Convert to Markdown07D18-1
+07D18-1
 
 2. On 24 September 1969, a review by SA CUNDIFF of case file 50D24G-133, of which WERBELL is the SUBJECT, revealed the following information:
 

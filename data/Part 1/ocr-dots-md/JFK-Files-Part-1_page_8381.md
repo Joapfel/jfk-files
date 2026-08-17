@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8381.png
-
-Convert to MarkdownHe said that was fair enough. He said that today, 30 January, he had a
+He said that was fair enough. He said that today, 30 January, he had a
 Restaurant date with LOGANOV at 10:30. He was to meet LOGANOV at a Marquee
 Restaurant on the corner of Ave. RIVERA and PINGA. He wanted to know what he
 should do with LOGANOV. I told him to be very careful that he doesn't change

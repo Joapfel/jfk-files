@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23571.png
-
-Convert to Markdown15.
+15.
 
 The structure which would upset the crite. suggested in this
 memorandum would be as follows:

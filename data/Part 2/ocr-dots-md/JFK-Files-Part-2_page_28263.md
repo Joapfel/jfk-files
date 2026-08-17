@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_28263.png
-
 city editor to the copy desk, filling in as deputy city editor. Headed a Bulletin investigative reporting team that "broke" the FHA scandal in Philadelphia and resulted in a federal grand jury.
 
 Was sent to a city editor's seminar at American Press Institute, then at Columbia University, and a short while later was appointed deputy city editor in charge of assigning most news stories. In that capacity I also helped train young writers and reporters. Then assigned to the national desk, which handles Washington, national, and international news. Started a weekly column called World in Conflict.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17659.png
-
-Convert to MarkdownH-94-2431, dated 20 February 1957, "Polish Legion Contacts with Charles Augusto J. N. (Venezuelan Communist)."
+H-94-2431, dated 20 February 1957, "Polish Legion Contacts with Charles Augusto J. N. (Venezuelan Communist)."
 
 H-94-2532, dated 29 March 1957, "Release of Rosendo COMMITLY Lorenzo."
 

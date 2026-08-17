@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6734.png
-
-Convert to MarkdownSECRET
+SECRET
 
 • TWO, is another potential intelligence benefit to the Russian service.
 

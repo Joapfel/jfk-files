@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19097.png
-
-Convert to Markdown14-0000
+14-0000
 
 **From:** Marseille **Report No.:** W-1-833 **Local File No.:**
 

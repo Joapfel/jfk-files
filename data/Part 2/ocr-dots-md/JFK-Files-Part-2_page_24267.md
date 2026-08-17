@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24267.png
-
-Convert to Markdownof some 26 CIA-owned companies. In country locations where physical contact with the nearest CIA station is not operationally discreet, proprietaries can provide pay outlets and other administrative services for CIA personnel and agents. On occasion, firms based in locations with permissive corporate laws and regulations -- Liechtenstein, Panama, Delaware -- can engage in many activities unrelated to their charters. For example, insurance firms can acquire real estate surrounding targeted embassies on a non-attributed basis.
+of some 26 CIA-owned companies. In country locations where physical contact with the nearest CIA station is not operationally discreet, proprietaries can provide pay outlets and other administrative services for CIA personnel and agents. On occasion, firms based in locations with permissive corporate laws and regulations -- Liechtenstein, Panama, Delaware -- can engage in many activities unrelated to their charters. For example, insurance firms can acquire real estate surrounding targeted embassies on a non-attributed basis.
 
 4) **Actual conduct of covert action.** In establishing the "radios" (Radio Free Europe and Radio Liberty) in the 1950's, CIA acquired a means of directly influencing populations behind the Iron Curtain. These, of course, were eventually disposed of and placed under the aegis of the Department of State, but related enterprises, such as the book distribution program, which had operated under radio sponsorship, continued within the Agency framework.
 

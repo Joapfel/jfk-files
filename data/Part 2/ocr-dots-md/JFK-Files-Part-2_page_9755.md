@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9755.png
-
-Convert to Markdownby the Civil Service Commission or the employing agency, such information should be forwarded to the Civil Service Commission or the employing agency; that upon the receipt of information necessitating investigation by this Bureau, such information should be forwarded to this Bureau for a full field investigation. You may wish to give consideration to possible further clarification of this section.
+by the Civil Service Commission or the employing agency, such information should be forwarded to the Civil Service Commission or the employing agency; that upon the receipt of information necessitating investigation by this Bureau, such information should be forwarded to this Bureau for a full field investigation. You may wish to give consideration to possible further clarification of this section.
 
 Regarding the phrase "following such investigation and review as he deems necessary" set forth in Section 6, it is believed that "as he deems necessary" refers to the word "review." If, however, it might also refer to the word "investigation," the thought occurs that it might be in conflict with other provisions in the draft which prescribe that in certain instances full field investigations must be conducted.
 

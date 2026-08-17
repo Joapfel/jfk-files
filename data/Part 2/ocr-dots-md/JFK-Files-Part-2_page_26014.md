@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26014.png
-
-Convert to Markdownway down to the south. . . He probably
+way down to the south. . . He probably
 wouldn't do it; he'd chew the wire in-two
 here.
 

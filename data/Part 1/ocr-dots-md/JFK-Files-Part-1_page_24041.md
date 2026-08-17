@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24041.png
-
-Convert to MarkdownJ. SPENCER LANGFORD, C.L.U.
+J. SPENCER LANGFORD, C.L.U.
 
 MUTUAL LIFE OF NEW YORK
 (MONY)

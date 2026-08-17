@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29273.png
-
-Convert to Markdown# INS File Reviews
+# INS File Reviews
 
 A. Benny Binion
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7273.png
-
-Convert to MarkdownCABLE SEC DISSEM BY ____ PER ____ TOTAL COPIES ____ RUN BY ____
+CABLE SEC DISSEM BY ____ PER ____ TOTAL COPIES ____ RUN BY ____
 PERSON/UNIT NOTIFIED _________________________ SECRET
 
 REPRODUCTION BY OTHER THAN

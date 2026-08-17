@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11981.png
-
-Convert to MarkdownOrlando Bosch
+Orlando Bosch
 
 Ricardo Morales
 

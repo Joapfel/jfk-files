@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24355.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## DOMESTIC REAL PROPERTY LISTING
 

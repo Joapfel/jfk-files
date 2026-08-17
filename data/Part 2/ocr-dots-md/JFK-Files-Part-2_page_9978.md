@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9978.png
-
-Convert to MarkdownMr. William P. Rogers
+Mr. William P. Rogers
 Deputy Attorney General
 
 April 14, 1953

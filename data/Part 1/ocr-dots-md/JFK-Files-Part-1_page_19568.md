@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19568.png
-
-Convert to MarkdownOSS Form 1180D
+OSS Form 1180D
 (Rev. 5/27/95)
 
 OFFICE OF STRATEGIC SERVICES

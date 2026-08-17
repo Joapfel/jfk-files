@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5075.png
-
-Convert to MarkdownDOCUMENT REQUEST
+DOCUMENT REQUEST
 
 1. The following documents and materials relating to Gary Thomas Rowe, Jr., whether in the custody or possession of the FBI Birmingham, Alabama office or elsewhere:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15114.png
-
-Convert to Markdown# RYBAT
+# RYBAT
 
 to take back to his boss some general information on what WIROGUE wanted in Frankfurt. This led WIROGUE to begin a long discussion of his problems in the Congo and his desires for a new assignment with the "Service". LACKLEY was trying to build up sufficient rapport by letting him talk, to find an opening by which he could obtain the passport.
 

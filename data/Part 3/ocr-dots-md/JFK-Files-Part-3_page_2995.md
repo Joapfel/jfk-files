@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2995.png
-
-Convert to Markdown1933
+1933
 
 1. Senator Schweiker. My time is expired. I just have one quick question..
 2.

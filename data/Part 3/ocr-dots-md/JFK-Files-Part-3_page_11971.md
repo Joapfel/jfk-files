@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11971.png
-
-Convert to Markdown- Emergency Detention Program
+- Emergency Detention Program
 
 The Emergency Detention Program (EDP), which is field-wide, involves the planning for apprehension and detention of persons considered potentially dangerous to the national defense and public safety of the U. S. in time of a national emergency and for the search and seizure of contraband. The EDP is not a program as such but is based on Title II of the Internal Security Act (ISA) of 1950. The basic responsibility for the operation and implementation of the EDP rests with the Attorney General. Detailed plans regarding the EDP are drawn up and included in the "Attorney General's Portfolio," copies of which are in the Bureau's possession.
 

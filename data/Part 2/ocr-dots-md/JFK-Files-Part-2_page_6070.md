@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6070.png
-
-Convert to Markdown" Isham Green Harris: Secessionist Governor of Tennessee," in Buck Yearns, ed., *The Confederate Governors* (Athens: University of Georgia Press, 1985), pp. 185-94.
+" Isham Green Harris: Secessionist Governor of Tennessee," in Buck Yearns, ed., *The Confederate Governors* (Athens: University of Georgia Press, 1985), pp. 185-94.
 
 "Constitutional Machinery and Judicial Professionalism: The Careers of Midwestern State Appellate Court Judges, 1861-1899," in *The New High Priests: The Legal Profession at the End of the Nineteenth Century* ed., Gerard W. Gawalt (Westport, Conn.: Greenwood Press, 1984), pp. 29-49.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18915.png
-
-Convert to MarkdownSECRET
+SECRET
 
 with KGB (Soviet Committee for State Security). It was obvious to Jaffe that Shveytser was very much upset by Bruk's statement. Jaffe told Bruk his statement was ridiculous because adding that Shveytser was a very scholarly individual who rarely had contacts with foreigners. Bruk replied facetiously that this was the type of person KGB used; however, Jaffe got the impression Bruk was not sincere in his comments about Shveytser.
 

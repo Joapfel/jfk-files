@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16547.png
-
-Convert to MarkdownDate - June 9, 1969
+Date - June 9, 1969
 
 1
 

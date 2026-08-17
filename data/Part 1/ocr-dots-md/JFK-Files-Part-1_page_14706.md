@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14706.png
-
-Convert to MarkdownOrestes Guillermo RUIZ Perez
+Orestes Guillermo RUIZ Perez
 
 He can turn on considerable charm, where motivated. In contrast to his pleasant public image and acceptable language, private conversation is vulgar, swears continually and flies into rages.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31239.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 (when filled in)
 
 TRAILING REPORT

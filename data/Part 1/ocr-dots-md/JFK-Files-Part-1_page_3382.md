@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3382.png
-
-Convert to MarkdownThe following is a letter from AMBIDDY-1's father
+The following is a letter from AMBIDDY-1's father
 to his son.
 
 8 June 1944

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19566.png
-
-Convert to Markdown-323 (Rev. 11-29-61)
+-323 (Rev. 11-29-61)
 
 UNITED STATES DEPARTMENT OF JUSTICE
 

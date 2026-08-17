@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6851.png
-
-Convert to Markdownsuspicions that had been created.
+suspicions that had been created.
 
 REP. CONYERS: Thank you very much. Mr. Schiff.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21945.png
-
-Convert to Markdownother wires he had observed in the Embassy as well as on the security measures on the top floors. Like VOROBYEV, "DMITRIYEV" had no direct connection with the Military Attaches.
+other wires he had observed in the Embassy as well as on the security measures on the top floors. Like VOROBYEV, "DMITRIYEV" had no direct connection with the Military Attaches.
 
 In September 1964 NOSENKO was shown a series of 260 biographic cards on Soviet citizens employed by the American Embassy in Moscow. Each card contained a photograph of the person involved and short biographic notes, including his name and job in the Embassy. The first time he went through these cards, NOSENKO was permitted to see only the photographs; NOSENKO did not identify the photographs of SHNYRYEV and KUKOLEV but said that the face of VOROBYEV was familiar, adding that he thought his name was VOROBYEV. When shown the biographic information on SHNYRYEV and KUKOLEV, he identified each of them as his agents during the 1954-1955 period in the American Department and equated them to the cryptonyms given previously. In the case of SHNYRYEV, when shown the biographic information, which listed SHNYRYEV as "chauffeur for the Military Attache," NOSENKO exclaimed: "Oh my God, this is my own agent." He later said it was a good photograph of SHNYRYEV.
 

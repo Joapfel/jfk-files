@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3403.png
-
-Convert to Markdown# TOP SECRET
+# TOP SECRET
 
 ## Source References
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14865.png
-
-Convert to MarkdownTABLE OF CONTENTS
+TABLE OF CONTENTS
 
 SUBJECT
 

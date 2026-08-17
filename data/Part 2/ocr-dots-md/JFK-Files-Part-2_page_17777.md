@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17777.png
-
-Convert to MarkdownWASHINGTON, D.C. 20535
+WASHINGTON, D.C. 20535
 
 February 7, 1966
 

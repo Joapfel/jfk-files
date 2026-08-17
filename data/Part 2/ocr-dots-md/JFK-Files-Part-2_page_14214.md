@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14214.png
-
-Convert to MarkdownOPTIONAL FORM NO. 10
+OPTIONAL FORM NO. 10
 MAY 1962 EDITION
 GSA GEN. REG. NO. 27
 

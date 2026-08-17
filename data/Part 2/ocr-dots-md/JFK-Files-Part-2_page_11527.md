@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11527.png
-
-Convert to Markdownan employee of the U.S. Government, of a foreign official establish-
+an employee of the U.S. Government, of a foreign official establish-
 ment, of the United Nations or other international organizations,
 has foreign diplomatic or official status or is a member of the
 U.S. armed forces, the matter should be immediately reported to the

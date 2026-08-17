@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34635.png
-
-Convert to MarkdownReceived this date from an Authorized Government Representative four Bank Cashiers Checks drawn on the following banks:
+Received this date from an Authorized Government Representative four Bank Cashiers Checks drawn on the following banks:
 
 * #155784 Riggs National Bank $15,000.00
 * #01-028564 Union Trust Company 15,000.00

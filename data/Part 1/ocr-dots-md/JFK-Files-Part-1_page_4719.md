@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4719.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>SECURE</td></tr><tr><td>RECIPIENT</td></tr><tr><td>DATE</td></tr><tr><td>TO BE FILLED BY RECIPIENT</td></tr></table>
 

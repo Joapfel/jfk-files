@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27033.png
-
-Convert to MarkdownII. All CIA files, including without limitation any 201,
+II. All CIA files, including without limitation any 201,
 Office of Personnel, Office of Security or Executive Registry
 files, on the following individuals:
 

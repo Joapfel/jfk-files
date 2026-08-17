@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30305.png
-
-Convert to Markdown"Answer: The main difference is that he was not to be allowed to stay. He was considered to be not normal."
+"Answer: The main difference is that he was not to be allowed to stay. He was considered to be not normal."
 
 Mr. Nosenko. This is what cases I know, who were staying.
 

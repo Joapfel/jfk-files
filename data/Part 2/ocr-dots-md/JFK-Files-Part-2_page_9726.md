@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9726.png
-
-Convert to MarkdownIn other words, we give them what every person wants. A free society in Africa with the technology, know how and support to run their nation as they see fit without interference from the White Nations.
+In other words, we give them what every person wants. A free society in Africa with the technology, know how and support to run their nation as they see fit without interference from the White Nations.
 
 this program could be earnestly and objectively examined by everyone, we feel such a program could easily be put into operation.
 

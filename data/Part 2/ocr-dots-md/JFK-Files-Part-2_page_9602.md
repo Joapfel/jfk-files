@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9602.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 Illinois, to act as coordinator of Right Wing activities in the Midwest area. DAVIS mentioned JAMES EVAN POTO as a good possibility in this regard. POTO, an SAO member at San Diego, is employed by a national restaurant chain and is expecting to be transferred to the Chicago area in the early part of 1972 to open a new restaurant there.
 

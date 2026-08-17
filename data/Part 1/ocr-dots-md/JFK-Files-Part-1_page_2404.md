@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2404.png
-
-Convert to MarkdownNOSENKO in the absence of any evidence that he had any KGB mission or missions to fulfill comes within the above category, particularly since an overall assessment of his information leads to the conclusion that full exploitation of his information would be quite damaging to the KGB.
+NOSENKO in the absence of any evidence that he had any KGB mission or missions to fulfill comes within the above category, particularly since an overall assessment of his information leads to the conclusion that full exploitation of his information would be quite damaging to the KGB.
 
 Consideration of the above possibility must also include an evaluation of the deterrent effect on the prospects of future recruitments by the KGB caused by legal action taken against individuals exposed by information from the dispatched agent or officer. The deterrent effect on others of the conviction and sentencing of persons who have committed a crime or crimes has long been a part of the legal theory of why persons who commit a crime should be imprisoned or punished.
 

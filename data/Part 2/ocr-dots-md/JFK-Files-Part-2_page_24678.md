@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24678.png
-
-Convert to MarkdownHe added that if the virus was to be used for medical purposes, "it would have been in the custody of the State Department" personnel, not the CIA station (O'Donnell, 6/9/75, p. 36).
+He added that if the virus was to be used for medical purposes, "it would have been in the custody of the State Department" personnel, not the CIA station (O'Donnell, 6/9/75, p. 36).
 
 O'Donnell said that he did not recall that Hedgman mentioned the source of the virus (O'Donnell, 9/11/75, p. 8).* But O'Donnell assumed that it had come from Sidney Gottlieb's office:
 

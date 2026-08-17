@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21624.png
-
-Convert to MarkdownThe concurrence of the bench of the district judge for the county of H. L. P. of the chief of the military intelligence service in Stettin, and the opinion of his fellow-soldier, the chief of the office of intelligence, the intelligence director, was
+The concurrence of the bench of the district judge for the county of H. L. P. of the chief of the military intelligence service in Stettin, and the opinion of his fellow-soldier, the chief of the office of intelligence, the intelligence director, was
 
 before any arrival (at days) this army: intelligence report- and further from Germany in Silesia. This in general the source of the
 report- was analyzed and compared with other sources. The

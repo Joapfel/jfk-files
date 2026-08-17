@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29322.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR : Director of Personnel
 SUBJECT : CIARDS Retirement of Mr. Grayston L. Lynch, GS-14, SOD, on the basis of Qualifying Domestic Service

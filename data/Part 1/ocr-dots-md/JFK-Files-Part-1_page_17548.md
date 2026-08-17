@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_17548.png
-
 144
 LIMITATION-5 760
 LIMITATION-6 300

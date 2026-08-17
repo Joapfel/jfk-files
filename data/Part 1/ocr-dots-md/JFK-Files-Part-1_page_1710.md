@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1710.png
-
-Convert to MarkdownSECRET
+SECRET
 
 b. Anticipated address in the United States: Airport International Hotel, Miami International Airport, Miami, Florida.
 

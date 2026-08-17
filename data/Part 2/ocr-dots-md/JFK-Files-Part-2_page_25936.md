@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25936.png
-
-Convert to MarkdownBlackburn was born in Sand Lake, Fla., on April 13, 1919. In 1935, he was convicted of forging a U.S. Government check, for which he served 4½ years in prison. In 1943, he was sentenced to 2 years in the Florida State prison for cattle theft. He was again arrested in March 1956 for operating a lottery in Polk County, Fla., and received a 5-year prison sentence, but was released in 1959.
+Blackburn was born in Sand Lake, Fla., on April 13, 1919. In 1935, he was convicted of forging a U.S. Government check, for which he served 4½ years in prison. In 1943, he was sentenced to 2 years in the Florida State prison for cattle theft. He was again arrested in March 1956 for operating a lottery in Polk County, Fla., and received a 5-year prison sentence, but was released in 1959.
 
 Senator MUSKIE. Did you say Mr. Blackburn was on the chart?
 

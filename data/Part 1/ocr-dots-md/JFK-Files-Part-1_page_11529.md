@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11529.png
-
-Convert to Markdown8 January, 1969
+8 January, 1969
 
 Subject: LIRING/3 Report of Allegation of NCOPIAM Affiliation.
 

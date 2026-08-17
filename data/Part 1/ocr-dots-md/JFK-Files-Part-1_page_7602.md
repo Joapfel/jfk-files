@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7602.png
-
-Convert to Markdownmust have a small fortune in the bank. He vividly remembers
+must have a small fortune in the bank. He vividly remembers
 his former hardships, however, is a very generous and humane
 person, and every year sends clothes to people in Poland and
 Russia. He also has a very strong feeling for Israel. Obviously

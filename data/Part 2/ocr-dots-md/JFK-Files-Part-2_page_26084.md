@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26084.png
-
-Convert to Markdownto get the Vietnamese coping with their own
+to get the Vietnamese coping with their own
 problems more effectively than they were
 doing.
 

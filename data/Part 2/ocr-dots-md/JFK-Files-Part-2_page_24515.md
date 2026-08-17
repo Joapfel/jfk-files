@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24515.png
-
-Convert to Markdown3. Testimony of Szulc on President Kennedy's November 9, 1961 Question Regarding a Possible Castro Assassination
+3. Testimony of Szulc on President Kennedy's November 9, 1961 Question Regarding a Possible Castro Assassination
 
 Tad Szulc* testified that in a private meeting he had with President Kennedy on Novebmer 9, 1961, the President asked"Szulc what would you think if I ordered Castro to be assassinated," and said "I agree with you completely" when Szulc answered that a Castro assassination should be ruled out on both practical and moral grounds. Szulc further testified that President Kennedy went on "to make the point how strongly he and his brother felt that the United States for moral reasons" must not be involved in assassinations. (Szulc, p.27).
 

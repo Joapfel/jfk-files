@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24457.png
-
-Convert to MarkdownSECRET/NO FOREIGN PRESS RELEASE ONSERVER (FOR INTERVIEW) DATED 06-12-92 URBAN ADVOCATE
+SECRET/NO FOREIGN PRESS RELEASE ONSERVER (FOR INTERVIEW) DATED 06-12-92 URBAN ADVOCATE
 
 E. Italy - Represented by delegates from the Italian Communist Party and the Socialist Party of Proletarian Unity (PSIUP). They decided to be in an observer status, although they were entitled to be participants by the fact that they belong to a Palestinian Solidarity Committee in Italy. The only open political opposition to the overall political line of the Congress came from the Italians who passed out a statement at the final session denouncing the importation of left-wing quarrels into the issue of Palestine.
 

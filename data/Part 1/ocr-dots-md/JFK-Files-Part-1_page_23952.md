@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23952.png
-
-Convert to Markdownthe Tories ran in several constituencies Pakistani independent candidates in the hope of breaking the Labor vote, hoping that the Pakistanis would vote for these Pakistani independents. Hamsa worked with the Labor Party in those constituencies, to counter this, ~~and~~ apparently they were quite successful. He has very good connections inside the Labor Party. And he does not have very good ties at all with the Communist Party, though he is not by any means anti-Communist. He's a skeptic.
+the Tories ran in several constituencies Pakistani independent candidates in the hope of breaking the Labor vote, hoping that the Pakistanis would vote for these Pakistani independents. Hamsa worked with the Labor Party in those constituencies, to counter this, ~~and~~ apparently they were quite successful. He has very good connections inside the Labor Party. And he does not have very good ties at all with the Communist Party, though he is not by any means anti-Communist. He's a skeptic.
 
 (How about Bashani)
 

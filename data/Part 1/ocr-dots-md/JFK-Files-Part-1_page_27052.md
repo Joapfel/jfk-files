@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27052.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FILE NO. 242 369
 

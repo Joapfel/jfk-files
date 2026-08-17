@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26281.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 041946Z CITE MEXICO CITY 9813
 DIRECTOR

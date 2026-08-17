@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25548.png
-
-Convert to Markdown-49-
+-49-
 
 FS: Who are the people you are in touch with?
 

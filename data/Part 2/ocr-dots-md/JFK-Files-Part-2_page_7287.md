@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7287.png
-
-Convert to MarkdownV. MEMBERS OF HOST COUNTRY INTELLIGENCE OR SECURITY SERVICES WILL BE CONTACTED ONLY IN EXCEPTIONAL CASES.
+V. MEMBERS OF HOST COUNTRY INTELLIGENCE OR SECURITY SERVICES WILL BE CONTACTED ONLY IN EXCEPTIONAL CASES.
 
 Many foreign intelligence services will find contact with the SSC politically difficult and will avoid it. They further regard that their relationships with U.S. intelligence activities, the information they pass, and the cooperation extended are all most sensitive matters. Regardless what assurances are given them, they would find it difficult and awkward to discuss these matters with members or staff of the SSC. The very fact that such matters were under investigation could well cause the host service to reassess the desirability of a relationship with U.S. intelligence activities.
 

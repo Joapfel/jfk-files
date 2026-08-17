@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6901.png
-
-Convert to MarkdownWhat this Resolution proposes is a comprehensive, government-
+What this Resolution proposes is a comprehensive, government-
 wide review of the Kennedy assassination records conducted under
 the auspices of an impartial, independent board.
 

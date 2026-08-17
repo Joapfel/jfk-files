@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8164.png
-
-Convert to Markdown14-0000
+14-0000
 
 ORO : LII. S.T.N.
 UN: WH/CA/F

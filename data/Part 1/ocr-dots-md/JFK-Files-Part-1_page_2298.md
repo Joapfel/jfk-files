@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2298.png
-
-Convert to MarkdownSECRET
+SECRET
 
 the preparation of this summary. It will be commented on in part
 and this summary will include conclusions correlated with the seven

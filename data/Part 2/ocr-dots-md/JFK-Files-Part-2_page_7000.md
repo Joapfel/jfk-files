@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7000.png
-
-Convert to MarkdownFOR OFFICIAL USE ONLY
+FOR OFFICIAL USE ONLY
 
 CIA SPECIAL COLLECTIONS
 September 1993

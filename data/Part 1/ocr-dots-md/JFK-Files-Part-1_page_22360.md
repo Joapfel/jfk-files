@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22360.png
-
-Convert to MarkdownINTELLIGENCE FOR OTHER SOURCES
+INTELLIGENCE FOR OTHER SOURCES
 
 ## Introduction
 

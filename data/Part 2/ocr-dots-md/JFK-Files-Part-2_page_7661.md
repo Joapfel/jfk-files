@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7661.png
-
-Convert to Markdown13-00000
+13-00000
 
 lowed the articles that he has written about this matter and they are what I would call "journalistic garbage." There is not a scintilla of truth to most of the things he has written in these articles and in his book which I have had a chance to scan but haven't actually reviewed yet. It is being reviewed by my research section. Some of the allegations are utterly fantastic. I often wonder where some of these individuals get such ideas and why they make such statements without foundation.
 

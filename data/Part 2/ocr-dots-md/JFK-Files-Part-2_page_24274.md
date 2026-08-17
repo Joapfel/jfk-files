@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24274.png
-
-Convert to MarkdownCIA income in the form of orders placed and/or subsidies; and
+CIA income in the form of orders placed and/or subsidies; and
 those which have mixed outside and inside income.
 
 Even for those with mixed income, it is possible over the

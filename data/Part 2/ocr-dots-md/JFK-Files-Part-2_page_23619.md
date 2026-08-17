@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23619.png
-
-Convert to Markdown1. President has now approved contingency plans discussed during your stay here with one major exception: You are not to request a pre-signed request for help from Dominican dissident groups.
+1. President has now approved contingency plans discussed during your stay here with one major exception: You are not to request a pre-signed request for help from Dominican dissident groups.
 
 2. We consider it essential that you continue to work to strengthen pro-U.S. sentiment among dissident groups. Your work along this line had been invaluable. However, we also must not permit U.S. policy to be made dangerous of disclosing U.S. association with political assassination or intervention in the Dominican Republic. This last principle is overriding and must prevail in doubtful situation. However, there is much you can do to protect U.S. interests within this framework of policy including most of the measures in which you are now engaged. Specific instructions follow:
 

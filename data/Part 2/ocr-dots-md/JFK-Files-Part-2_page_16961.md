@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16961.png
-
-Convert to MarkdownAPPENDIX
+APPENDIX
 
 BLACK PANTHER-PARTY, Also
 Known As Black Panther Party

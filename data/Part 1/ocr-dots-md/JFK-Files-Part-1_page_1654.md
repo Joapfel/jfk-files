@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1654.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 In Mexico when Phil's household effects arrived he let me know; and as I recall, he brought them over to my house and we unloaded them into our apartment. We did not go and pick them up. In thanks, we invited him over to supper one evening. (Willard C. CURTIS had given permission for individual officers to have Phil over to dinner if no outsiders were present and prior permission was obtained.) I think I got permission from the DCOS at that time. There were only the three of us (Phil, my husband, and myself--no maid, no other invited guests) There was no discussion of office. My husband knew Phil was with BKTRUST and was working on the Olympics in Mexico. Conversation was light. During dinner, as I recall, we talked about business in Mexico, and he mentioned his father was in the dry cleaning business, and he thought he might be interested in bringing into Mexico some used dry cleaning equipment which is worth nothing in the United States, and set up some dry cleaning establishments in Mexico. The discussion was merely in generalities--nothing specific as to timetable or even if Phil were serious about this.
 

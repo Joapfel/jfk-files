@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_482.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PRIORITY DIRECTOR
 

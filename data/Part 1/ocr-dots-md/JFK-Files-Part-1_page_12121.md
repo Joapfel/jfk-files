@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12121.png
-
-Convert to Markdown14. (cont'd)
+14. (cont'd)
 
 the Embassy cars on errands. He kept a ledger of the telegrams sent out by the Embassy and notified other Soviets when cables came in for them.
 

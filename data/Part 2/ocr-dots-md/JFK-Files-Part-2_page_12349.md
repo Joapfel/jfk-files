@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12349.png
-
-Convert to Markdown5. Advise Bureau of progress being made at least every six months. Submit letters (FD-401) concerning potential informants who are not being paid on Bureau authorization on UACB basis; include summary of information furnished during past six months and certifications regarding stability and indoctrination against disclosure. Follow form indicated under section 107L, item 3b, below, except those items concerning payments.
+5. Advise Bureau of progress being made at least every six months. Submit letters (FD-401) concerning potential informants who are not being paid on Bureau authorization on UACB basis; include summary of information furnished during past six months and certifications regarding stability and indoctrination against disclosure. Follow form indicated under section 107L, item 3b, below, except those items concerning payments.
 
 6. Post record of all contacts with potential informants.
 

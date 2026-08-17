@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5067.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MHFNO: 92-0797918
 

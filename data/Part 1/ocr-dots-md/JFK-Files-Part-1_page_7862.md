@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7862.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Nikolay Dmitriyevich CHERNYSHEV Nikolayev, Age given as 48. Venezuelan Citizen since 1958. Born in Yunnaburgo, Estonia. His occupation was given as Mechanic. His address in Caracas, Venezuela was given as La Costanera Caraballeda. He travelled on Venezuelan Passport 287722. He and his family had been issued Mexican visas (valid for 180 days) in Caracas, Venezuela on 6 September 1967.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17148.png
-
-Convert to MarkdownMEMORANDUM FOR: Chief, Western Hemisphere Division
+MEMORANDUM FOR: Chief, Western Hemisphere Division
 
 SUBJECT: FY Project KDFACTOR
 FY 1971 Amendment No. 1

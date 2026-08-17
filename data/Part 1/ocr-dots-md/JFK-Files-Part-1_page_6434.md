@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6434.png
-
-Convert to MarkdownAttachment E under separate cover to EUB-1.2002
+Attachment E under separate cover to EUB-1.2002
 
 * Identity 1 is "The Committee for 17 June"
 * Identity 2 is Walter Gohlke

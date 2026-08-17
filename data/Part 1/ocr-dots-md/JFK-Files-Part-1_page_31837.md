@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31837.png
-
-Convert to Markdown121st Tactical Fighter Squadron
+121st Tactical Fighter Squadron
 Andrews Air Force Base
 Washington 25, D.C.
 17 January 1962

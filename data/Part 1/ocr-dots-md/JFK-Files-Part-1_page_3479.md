@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3479.png
-
-Convert to MarkdownCONTACT REPORT # 55
+CONTACT REPORT # 55
 
 OPERATION: AM world
 CONTACT: AMYUM-19

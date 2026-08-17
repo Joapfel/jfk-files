@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21657.png
-
-Convert to MarkdownAccording to NOSENKO, there was not a job description for a Deputy Chief of Section and the duties of the particular Deputy Chief were in actuality what the Chief of Department and Chief of Section decided would be his assigned duties.
+According to NOSENKO, there was not a job description for a Deputy Chief of Section and the duties of the particular Deputy Chief were in actuality what the Chief of Department and Chief of Section decided would be his assigned duties.
 
 The previous summary drew attention to an apparent conflict between early statements of NOSENKO that he replaced no one when he entered on duty in the First Section, First Department, and his subsequent claim that he replaced Mikhail BAKHVALOV as Deputy Chief in the First Section. Along with this he had first credited KOVSHUK and various other officers in the Section with previous responsibility for certain matters which were assigned to him upon his arrival there, then later stated that BAKHVALOV had been responsible for these matters. The previous summary noted that interrogation had never resolved these contradictions.
 

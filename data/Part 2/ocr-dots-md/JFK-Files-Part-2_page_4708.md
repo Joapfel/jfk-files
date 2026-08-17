@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4708.png
-
-Convert to MarkdownSECRET
+SECRET
 
 INTERVIEWER: And how about the comment I had read earlier that Helms was betrayed by Nixon, that if Helms had gone along on Watergate and all that type of thing he would have kept his job?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8784.png
-
-Convert to Markdownboth President and Attorney General Kennedy, and
+both President and Attorney General Kennedy, and
 McGeorge Bundy. Could he have learned or heard of
 the plot and let the word out? McCone recalled that
 liquidation of CASTRO, and other regime officials, was

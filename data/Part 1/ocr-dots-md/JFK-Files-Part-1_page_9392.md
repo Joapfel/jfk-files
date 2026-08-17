@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9392.png
-
-Convert to MarkdownSECRET
+SECRET
 
 *On the whole, it can be said of the Congress that all is well that ends well. The criticism made above is not intended to contradict this general favorable impression.*
 

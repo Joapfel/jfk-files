@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5307.png
-
-Convert to MarkdownSecret
+Secret
 
 clearly has the potential to do harm to the Agency as an institution and to national security. There is simply no way to measure the possible effect of such a release on past and future employees, agents, liaison relationships and operations.
 

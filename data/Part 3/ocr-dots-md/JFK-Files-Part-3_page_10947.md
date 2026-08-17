@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10947.png
-
-Convert to Markdown3. Live Sources With Evaluation
+3. Live Sources With Evaluation
 
 At present we are making active efforts to develop live
 informant coverage in the diplomatic establishments of 37 non-

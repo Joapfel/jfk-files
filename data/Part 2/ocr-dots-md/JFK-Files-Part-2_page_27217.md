@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27217.png
-
-Convert to MarkdownG-C-H Files
+G-C-H Files
 
 G. Mail Opening Statutes
 Memo and Statutes

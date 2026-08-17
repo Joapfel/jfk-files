@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2471.png
-
-Convert to Markdown(c) Responsibility for maintenance of the physical security file on the United States Embassy.
+(c) Responsibility for maintenance of the physical security file on the United States Embassy.
 
 (d) Acting in place of Vladislav KOVSHUK, Chief,
 

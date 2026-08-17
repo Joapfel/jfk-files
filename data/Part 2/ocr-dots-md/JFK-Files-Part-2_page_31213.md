@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31213.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Office on 26 Jan. '94, would please for the equation was still given in M. Milam'sunalgy.
 He took refuge in the躲藏ルイン Bardeen

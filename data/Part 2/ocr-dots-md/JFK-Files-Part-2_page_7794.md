@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7794.png
-
-Convert to Markdown13-00000
+13-00000
 
 DIRT - 6733, 20 Oct 64
 DIRT - 6733 7 Nov-64

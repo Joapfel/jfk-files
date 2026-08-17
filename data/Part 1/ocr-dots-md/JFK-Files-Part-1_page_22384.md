@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22384.png
-
-Convert to Markdown784.
+784.
 
 (Reported to FFI on
 28 February 1943)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21935.png
-
-Convert to Markdownadditional support, coupled with fact ref.
+additional support, coupled with fact ref.
 C items [the carbines] already made available
 to them for personal defense; station authori-
 zed pass ref. A items [the machine guns] to

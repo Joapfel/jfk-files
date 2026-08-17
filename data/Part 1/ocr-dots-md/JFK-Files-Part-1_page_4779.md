@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4779.png
-
-Convert to MarkdownS U C E T A G E S T O S U P E R
+S U C E T A G E S T O S U P E R
 
 CITY CARACAS 20E4:
 

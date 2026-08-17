@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33138.png
-
-Convert to Markdown<table><tr><td>ORIG:</td><td>J. MERTZ; maind</td></tr><tr><td>UNIT:</td><td>WH/COG/OPS</td></tr><tr><td>LXT:</td><td>1255</td></tr><tr><td>DATE:</td><td>7 NOV 69</td></tr></table>
+<table><tr><td>ORIG:</td><td>J. MERTZ; maind</td></tr><tr><td>UNIT:</td><td>WH/COG/OPS</td></tr><tr><td>LXT:</td><td>1255</td></tr><tr><td>DATE:</td><td>7 NOV 69</td></tr></table>
 
 MESSAGE FORM TOTAL COPIES: 25
 SECRET

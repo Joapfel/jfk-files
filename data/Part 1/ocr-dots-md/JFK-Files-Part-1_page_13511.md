@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13511.png
-
-Convert to MarkdownIn addition there are large JURE organizations in Caracas, Venezuela and Dallas, Texas. There are according to AMBANG-1 a total of thirty delegations in Latin America, the U. S. A. and Europe. He cited as an example the delegation in San Francisco which had recently purchased a typewriter through the collection of green stamps. He added that Rogelio Cisneros had travelled to San Francisco some time ago to communicate with that group and to tighten its organizational activities.
+In addition there are large JURE organizations in Caracas, Venezuela and Dallas, Texas. There are according to AMBANG-1 a total of thirty delegations in Latin America, the U. S. A. and Europe. He cited as an example the delegation in San Francisco which had recently purchased a typewriter through the collection of green stamps. He added that Rogelio Cisneros had travelled to San Francisco some time ago to communicate with that group and to tighten its organizational activities.
 
 # I. AMBANG-1 Asks About ARTIME and the Activities in Central America
 

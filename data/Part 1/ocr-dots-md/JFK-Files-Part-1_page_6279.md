@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6279.png
-
-Convert to MarkdownBack in Miami, federal: action
+Back in Miami, federal: action
 on State Department interpretation of
 antiquated neutrality laws entered Alpha-
 66 headquarters. The search warrant

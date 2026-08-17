@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20831.png
-
-Convert to MarkdownCreditable Summer
+Creditable Summer
 
 **Military**
 

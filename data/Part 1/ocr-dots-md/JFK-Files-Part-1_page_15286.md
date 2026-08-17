@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15286.png
-
-Convert to Markdown-2-
+-2-
 
 thing which hinders him is his lack of confidence. Time will probably
 take care of his improvement.

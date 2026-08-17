@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24830.png
-
-Convert to Markdowntrip. Taking into account the normal travel delays, the trip would require about eighteen (18) days.
+trip. Taking into account the normal travel delays, the trip would require about eighteen (18) days.
 
 **Budget requirements:**
 

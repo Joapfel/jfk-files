@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35579.png
-
-Convert to MarkdownRadio Americas Inc.
+Radio Americas Inc.
 
 101 MADEIRA AVENUE
 CORAL GABLES

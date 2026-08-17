@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33741.png
-
-Convert to MarkdownEuropean Movement Conference. It was hoped that the meeting would actually take place, but that assurances could not be forthcoming. However, it seemed reasonable that Mr. Visدانu might make the move before going to London where he would have further consultations with the King. Mr. Visدانu and Censoum were reported to have come to some basic agreements for the purpose of reaching an understanding between the two factors. Advice was given that General Badaciu would be brought into the consultations eventually.
+European Movement Conference. It was hoped that the meeting would actually take place, but that assurances could not be forthcoming. However, it seemed reasonable that Mr. Visدانu might make the move before going to London where he would have further consultations with the King. Mr. Visدانu and Censoum were reported to have come to some basic agreements for the purpose of reaching an understanding between the two factors. Advice was given that General Badaciu would be brought into the consultations eventually.
 
 Mr. More advised of the opinion held by the National Council division of RFF that the Russians should avoid bringing the King into the negotiations, and rather than an agreement in the form of a fait accompli should be presented to the King for his approval.
 

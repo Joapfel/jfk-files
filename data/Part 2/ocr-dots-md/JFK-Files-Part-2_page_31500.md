@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31500.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/evs
 
 ROSCOE PROCTOR attended a meeting of the CP, USA, national and district leaders, held in New York City on June 22 - 24, 1962.

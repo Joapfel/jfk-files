@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31714.png
-
-Convert to Markdown<table><tr><td>3-6.75</td></tr></table>
+<table><tr><td>3-6.75</td></tr></table>
 
 3 February 1953
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25880.png
-
-Convert to MarkdownHX-17
+HX-17
 
 17 July 1961
 

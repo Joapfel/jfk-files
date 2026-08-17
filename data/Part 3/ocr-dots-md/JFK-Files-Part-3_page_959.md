@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_959.png
-
-Convert to Markdownextensive police work needed for such coverage would certainly not have been put forth by the Spanish police had they not had a close personal friendship with and confidence in our Legal Attache in Madrid.
+extensive police work needed for such coverage would certainly not have been put forth by the Spanish police had they not had a close personal friendship with and confidence in our Legal Attache in Madrid.
 
 The Legal Attaches in Manila and Mexico City combined in a joint effort which resulted in the capture and return to the U.S. of a fugitive in connection with the theft of over 1 million dollars in California. This individual had fled to Australia in 1970 and extradition was impossible. The Legal Attache, Manila, who handles Australia, determined that subject regularly traveled to Mexico. The Legal Attache, Mexico City, arranged for his apprehension by Mexican authorities on a visit to that country.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25678.png
-
-Convert to Markdown48. Biancana and Infranasi apparently not involved in phase 2. Roselli dealing with a German who spoke Italian. MACEDO was met by the named Green-Gomez + Godoy/Varona & Varona's son-in-law.
+48. Biancana and Infranasi apparently not involved in phase 2. Roselli dealing with a German who spoke Italian. MACEDO was met by the named Green-Gomez + Godoy/Varona & Varona's son-in-law.
 
 50.- Shockley was never told why he kept deliv. to or why. Only told surveillance in support of a NCO opn.
 

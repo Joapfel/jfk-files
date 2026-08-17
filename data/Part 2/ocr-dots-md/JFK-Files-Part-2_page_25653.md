@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25653.png
-
-Convert to Markdown11.
+11.
 
 Jim Braden: Possible Link To Jack Ruby
 

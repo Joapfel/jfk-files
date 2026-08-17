@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8293.png
-
-Convert to Markdowntalk about
+talk about
 spain continued
 
 other authentic sites. The producer went on to explain, «I plan to bring all the 'Gods' together to make this movie.» He named such box office 'draws' as Victor Mature to play the role of Zeus; Kirk Douglas as Adonis; Tony Curtis as Apollo; Peter Ustinov as Dionysus; and Jean Simmons as Athena. According to the producer, there are many candidates for the role of Aphrodite (Venus) but as yet she has not been named. «I'm using the largest east ever.» Dimitroff told us, «at Olympia alone there will be 30,000 extras and there are 65 starring roles.» A 4-hour-long epic, the cost of making it is estimated at twenty million dollars and shooting is expected to take a full year, starting in June--Greek Gods willing!

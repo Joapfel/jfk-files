@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26639.png
-
-Convert to Markdown# The Soviet Submarine Force
+# The Soviet Submarine Force
 
 ## Nuclear-powered
 * Ballistic missile: 9

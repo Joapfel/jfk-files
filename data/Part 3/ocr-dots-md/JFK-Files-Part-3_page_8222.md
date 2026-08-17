@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8222.png
-
-Convert to MarkdownJAMES O. EASTLAND, MISS., CHAIRMAN
+JAMES O. EASTLAND, MISS., CHAIRMAN
 
 JOHN F. MCGowan, A/Sc.
 SAM J. EPPERSON, JR., N.C.

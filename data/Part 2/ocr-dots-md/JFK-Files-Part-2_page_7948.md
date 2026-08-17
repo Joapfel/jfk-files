@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7948.png
-
-Convert to Markdownstaring a ring?" In fact, his yes to that accompanied by such stress as I had only once or twice in the class slides. The next morning Kradz called on me. The suspect take the money, he asked. Did I didn't think so. Kradz nodded. Did suspect who took the money? Yes, I thought he did. Very good, said Kradz. Did see anything else about the interroga- Well, yes, there was this business t the ring. Perhaps the suspect had n it. Kradz smiled. No, the kid hadn't an the ring, but he was gay. He had changed rings with another guy. Nobody
+staring a ring?" In fact, his yes to that accompanied by such stress as I had only once or twice in the class slides. The next morning Kradz called on me. The suspect take the money, he asked. Did I didn't think so. Kradz nodded. Did suspect who took the money? Yes, I thought he did. Very good, said Kradz. Did see anything else about the interroga- Well, yes, there was this business t the ring. Perhaps the suspect had n it. Kradz smiled. No, the kid hadn't an the ring, but he was gay. He had changed rings with another guy. Nobody
 
 about it. The kid didn't really expect
 asked about it, because Kradz had

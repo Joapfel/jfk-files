@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21818.png
-
-Convert to MarkdownIUP SELKE!
+IUP SELKE!
 
 Mr. Sarno. Sure, I'll tell you now. I was in a country -- and I don't think I have to name the country because you are interested in Cuba and you are interested in the operation that I had in Miami and I don't think you're interested in what I did before I went to Cuba. I tell you that nobody gave me any instructions when I went to Cuba. I knew the Chief of Station in Cuba and had known him for many years. He asked for me specifically to come over for my abilities or qualifications or experience. I climbed on an airplane and I went to Cuba.
 

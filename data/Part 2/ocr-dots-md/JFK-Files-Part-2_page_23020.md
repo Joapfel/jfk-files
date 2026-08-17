@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23020.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 or equipment which I will give you, then maybe under that kind of a circumstance we wouldn't want anything that would clearly identify it with the U.S. government and then that would be the normal thing to do. I would have to know the sponsorship.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5189.png
-
-Convert to MarkdownAttached is a copy of the Australian Demarche on U.S. legislation on declassification.
+Attached is a copy of the Australian Demarche on U.S. legislation on declassification.
 
 This was given to the U.S. Ambassador to Australia, Ambassador Perkins, by Philip Flock, then Director of the Office of National Assessments (ONA), in September 1995.
 

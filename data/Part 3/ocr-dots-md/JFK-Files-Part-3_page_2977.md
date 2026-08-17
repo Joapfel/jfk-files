@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2977.png
-
-Convert to Markdown1915
+1915
 
 plans for a subsequent town meeting in Washington with the
 names of local political leaders who would attend.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5346.png
-
-Convert to MarkdownR. & R. INTERNATIONAL CORP.
+R. & R. INTERNATIONAL CORP.
 
 134 FIFTH AVENUE
 NEW YORK, N. Y. 10019

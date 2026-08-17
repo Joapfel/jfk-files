@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1992.png
-
-Convert to MarkdownLIMITED OFFICIAL USE
+LIMITED OFFICIAL USE
 
 FBB605
 

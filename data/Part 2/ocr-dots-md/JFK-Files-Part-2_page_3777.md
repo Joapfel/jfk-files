@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3777.png
-
-Convert to MarkdownIt is my understanding that these names have all been traced as a request from the Domestic Collection Division with negative results. However, I would appreciate a written response to those traces by close of business 20 October so that certificates can be prepared.
+It is my understanding that these names have all been traced as a request from the Domestic Collection Division with negative results. However, I would appreciate a written response to those traces by close of business 20 October so that certificates can be prepared.
 
 3. It is possible that a witness from the Office of Personnel may be required to appear in New Orleans as a rebuttal witness to testify that there was no employment relationship with Gordon Dwane Novel, but this is subject to negotiation with the prosecutor.
 

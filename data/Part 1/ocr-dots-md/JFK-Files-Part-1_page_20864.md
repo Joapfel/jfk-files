@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20864.png
-
-Convert to MarkdownCERTIFICATE OF ATTENDANCE
+CERTIFICATE OF ATTENDANCE
 
 I certify that on MAY 12 1955 I have attended
 (DATE)

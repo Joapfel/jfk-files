@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13352.png
-
-Convert to MarkdownOLSEN: Would they be generally within six months or less of the date that the photographs were taken?
+OLSEN: Would they be generally within six months or less of the date that the photographs were taken?
 
 STURGIS: I would think so; yes, sir.
 

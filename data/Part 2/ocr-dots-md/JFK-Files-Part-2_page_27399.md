@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27399.png
-
-Convert to Markdowny - M/R - 22 Dec 71
+y - M/R - 22 Dec 71
 
 SECRET-EYES ONLY
 

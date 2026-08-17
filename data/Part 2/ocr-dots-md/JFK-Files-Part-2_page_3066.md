@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3066.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 of US business groups as a cover for the Agency's support of the Cuban opposition, particularly the use of US business as a funding mechanism, was also hazardous in the eyes of the author of the memorandum under study. If the author was correct in assuming that this cover would not withstand careful scrutiny, it would mean that the anti-American contingents would have additional ammunition to use against the US. The memorandum suggested that many of these risks could be eliminated if propaganda activities were moved to Third countries and if fund raising activities were run out of Latin America or Western Europe. 29/
 

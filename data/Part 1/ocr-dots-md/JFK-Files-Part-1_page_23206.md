@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23206.png
-
-Convert to Markdown<table><tr><td rowspan="3">CLASSIFIED MESSAGE<br/>482/F/M/CG/<br/>DATE 16 APR-1958<br/><br/>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION : WH 5<br/>INFO : CI,CI/OPS, CI/IC, FI, FI/OPS 2, S/C 2</td><td colspan="2"><table><tr><td>ROUTING</td><td></td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr></table><table><tr><td>APR 25 00 37:50<br/>REC'D CABLE SECT.</td></tr><tr><td>Routine</td></tr><tr><td>IN 20477</td></tr></table>
+<table><tr><td rowspan="3">CLASSIFIED MESSAGE<br/>482/F/M/CG/<br/>DATE 16 APR-1958<br/><br/>TO : DIRECTOR<br/>FROM : MEXICO CITY<br/>ACTION : WH 5<br/>INFO : CI,CI/OPS, CI/IC, FI, FI/OPS 2, S/C 2</td><td colspan="2"><table><tr><td>ROUTING</td><td></td></tr><tr><td>1</td><td>4</td></tr><tr><td>2</td><td>5</td></tr><tr><td>3</td><td>6</td></tr></table></td></tr></table><table><tr><td>APR 25 00 37:50<br/>REC'D CABLE SECT.</td></tr><tr><td>Routine</td></tr><tr><td>IN 20477</td></tr></table>
 
 TO DIR INFO CITE MEXI 1446
 RE: DIR 16715 (OUT 64381 9)

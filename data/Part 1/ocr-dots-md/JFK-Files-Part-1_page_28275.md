@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28275.png
-
-Convert to Markdown**Sec. 4. CHILDREN OR DEPENDENTS (Include partial dependents):**
+**Sec. 4. CHILDREN OR DEPENDENTS (Include partial dependents):**
 
 1. NAME None (Expecting June, 1951) RELATIONSHIP AGE
 CITIZENSHIP ADDRESS

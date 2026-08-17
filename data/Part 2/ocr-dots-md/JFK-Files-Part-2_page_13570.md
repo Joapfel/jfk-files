@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13570.png
-
-Convert to MarkdownLegal Counsel to Mr. Adarso Lome
+Legal Counsel to Mr. Adarso Lome
 
 RE: NAPT SELECT COMMITTEE
 FOR BUSES & CAPABLE VEHICLES

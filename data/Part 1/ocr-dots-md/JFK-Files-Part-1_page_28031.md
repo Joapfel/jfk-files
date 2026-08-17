@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28031.png
-
-Convert to MarkdownRCS: 14 JAN 74
+RCS: 14 JAN 74
 
 SECRET
 (When Filed In)

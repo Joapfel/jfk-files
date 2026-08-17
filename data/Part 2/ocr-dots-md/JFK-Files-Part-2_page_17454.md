@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_17454.png
-
-Convert to MarkdownThere will be a BPP trial on this coming Friday night May 9, 1969, for FRED HAMPTON. This trial is in keeping with the BPP rules that say that a BPP member must be tried by black persons of his own standing in the community and the trial in court with white judges and juries is an improper trial. The time and place of the trial are not yet known but present will be members of the BPP from Chicago, Summit, Maywood and possibly California. HAMPTON expressed hope that BOBBY SFALE would also be there.
+There will be a BPP trial on this coming Friday night May 9, 1969, for FRED HAMPTON. This trial is in keeping with the BPP rules that say that a BPP member must be tried by black persons of his own standing in the community and the trial in court with white judges and juries is an improper trial. The time and place of the trial are not yet known but present will be members of the BPP from Chicago, Summit, Maywood and possibly California. HAMPTON expressed hope that BOBBY SFALE would also be there.
 
 HAMPTON continues to want Sergeant SAMSON to be the next Chief of Police, There is a rumor around Maywood, however, that Captain WILBERT SAMUAL will be appointed. HAMPTON doesn't want him to be the Chief of Police, because he is not a Negro.

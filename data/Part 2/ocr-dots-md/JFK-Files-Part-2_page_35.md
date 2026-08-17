@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_35.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM TO: CI/0A
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31484.png
-
-Convert to MarkdownSF 100-35836
+SF 100-35836
 FTD/mes
 
 San Francisco, on April 12, 1963. The film was captioned "The Un-Americans" and depicted scenes from the San Francisco riots held in the City Hall during an appearance of the House Committee on Un-American Activities (HCUA).

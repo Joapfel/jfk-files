@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7898.png
-
-Convert to Markdown<table><tr><td>020</td></tr></table>
+<table><tr><td>020</td></tr></table>
 
 C. Bustos/pem
 WH/1

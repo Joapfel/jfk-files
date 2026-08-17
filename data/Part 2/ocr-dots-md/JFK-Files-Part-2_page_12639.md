@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12639.png
-
-Convert to Markdownd. If, at conclusion of investigation, subject is not being recommended for security index, set out brief summary statement in appropriate closing communication showing reasons.
+d. If, at conclusion of investigation, subject is not being recommended for security index, set out brief summary statement in appropriate closing communication showing reasons.
 
 e. Current summary report must be submitted to Bureau when subject is being recommended for security index. If case is pending because of outstanding leads, set out additional lead to follow authorization of security index card by Bureau and, if approved, to disseminate copy of report to Secret Service. If case would otherwise be closed, place in pending-inactive status with lead to follow authorization by Bureau and, if approved, disseminate copy of report to Secret Service and then close case administratively.
 

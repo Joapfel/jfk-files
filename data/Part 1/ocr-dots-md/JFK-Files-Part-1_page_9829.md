@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9829.png
-
-Convert to Markdown(e) LIRING/4 will have two channels for S/W. First to "Lic. Antonio Force" with false return a dress and sent through open mail, and second to LIRING/3 sent by hand through Raniro abruo to LIRING office and delivered by hand by Jorrin to Tacubaya apartment, or given by L/4 to some friend traveling to Mexico. In first case all letters mailed, except the first, will contain S/W message; in second case all letters with envelope bearing "Colonia Conesa" after address will be for Howton and have S/W. L/4 promises sent several letters to L/3 without messages as soon as she arrives to test channel.
+(e) LIRING/4 will have two channels for S/W. First to "Lic. Antonio Force" with false return a dress and sent through open mail, and second to LIRING/3 sent by hand through Raniro abruo to LIRING office and delivered by hand by Jorrin to Tacubaya apartment, or given by L/4 to some friend traveling to Mexico. In first case all letters mailed, except the first, will contain S/W message; in second case all letters with envelope bearing "Colonia Conesa" after address will be for Howton and have S/W. L/4 promises sent several letters to L/3 without messages as soon as she arrives to test channel.
 
 (f) Only channel for incoming messages for L/4 will be letters from LIKING/3 containing words" Chispas" and "arte" and either hand carried, sent through pouch, or through open mail.
 

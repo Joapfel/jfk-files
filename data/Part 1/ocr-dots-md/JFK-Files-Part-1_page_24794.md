@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24794.png
-
-Convert to MarkdownWH/6-584
+WH/6-584
 
 2 June 1967
 

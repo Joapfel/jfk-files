@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22770.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 which we could pursue abroad or something, I'm a little bit confused by the question because it's outside -- the investigation of such a thing is outside the purview of the CIA unless it is abroad, unless it would be funded through Switzerland or Luxembourg or unless there was a Messagerie Maritime connection where Soviet money was being put in and they had representation here.
 

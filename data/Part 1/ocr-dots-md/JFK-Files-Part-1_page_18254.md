@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18254.png
-
-Convert to MarkdownSECRET
+SECRET
 
 JUVENTUS DEMOCRATA-CRISTIANA DE CUBA.
 

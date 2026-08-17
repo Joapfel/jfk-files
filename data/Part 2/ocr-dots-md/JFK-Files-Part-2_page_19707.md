@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19707.png
-
-Convert to MarkdownCopy to:
+Copy to:
 
 1-United States Secret Service
 

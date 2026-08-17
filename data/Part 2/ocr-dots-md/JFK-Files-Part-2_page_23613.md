@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23613.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PROPOSED TELEGRAM
 to US Consul General in

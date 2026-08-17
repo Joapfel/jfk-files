@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11065.png
-
-Convert to MarkdownORIENTE
+ORIENTE
 LAMAGUEY
 LAS VILLAS
 HABANA

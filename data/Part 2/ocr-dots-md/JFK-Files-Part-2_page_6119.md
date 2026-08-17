@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6119.png
-
-Convert to Markdown4. Describe any activity during the past 10 years in which you have engaged for the purpose of directly or indirectly influencing the passage, defeat or modification of any legislation or affecting the administration and execution of law or public policy.
+4. Describe any activity during the past 10 years in which you have engaged for the purpose of directly or indirectly influencing the passage, defeat or modification of any legislation or affecting the administration and execution of law or public policy.
 
 When employed by Oppenheimer, Wolff, Foster, Shepard & Donnelly, in 1983, I represented business interests on workers compensation legislation before the Minnesota Legislature; and in 1984, I represented a major communications company on tax legislation before the Minnesota Legislature. For both activities, I was registered as a lobbyist with the Minnesota Ethical Practices Board.
 

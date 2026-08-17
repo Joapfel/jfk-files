@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3302.png
-
-Convert to MarkdownAPERTURE CARD REPRODUCTION'S
+APERTURE CARD REPRODUCTION'S
 
 <table><thead><tr><th>DISPATCH</th><th>CORRECTOR</th></tr></thead><tbody><tr><td colspan="2">Chief of Staff, Cuba</td></tr><tr><td>CS</td><td>C.S. Chief, U.S.</td></tr><tr><td>FCS</td><td>C.S. Chief of Staff</td></tr></tbody></table>
 

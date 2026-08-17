@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8921.png
-
-Convert to MarkdownAccording to a sensitive source,
+According to a sensitive source,
 
 NOSENKO had been in the Second Chief Directorate for about 14 years and was acquainted with almost all of the employees of this directorate. He was aware of the structure of the KGB and knows many personnel of the First Chief Directorate.
 

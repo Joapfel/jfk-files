@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17391.png
-
-Convert to Markdown# BLACK PANTHER PARTY (BPP)
+# BLACK PANTHER PARTY (BPP)
 
 name William Johnson, 6341 South Laflin, Chicago, Illinois, and the vehicle they were operating was indicated to be a 1964 GTO, Iris Mist, bearing Illinois license CS2793. Makris advised that there were two or three individuals in the party, however, he thought that more individuals were actually staying in the room. Makris advised that the party was assigned to Room 17, and that the following telephone calls had been placed from Room 17 through the motel switchboard:
 

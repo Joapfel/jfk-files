@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17158.png
-
-Convert to MarkdownNMC
+NMC
 BPP
 
 co-chairman of the West coast Regional committee of the NMC.

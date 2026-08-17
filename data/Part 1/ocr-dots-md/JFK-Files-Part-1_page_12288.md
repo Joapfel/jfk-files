@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12288.png
-
-Convert to MarkdownSECRET
+SECRET
 
 No. 16
 

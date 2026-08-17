@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29185.png
-
-Convert to Markdown<table><tr><td colspan="4">CITY OF DETROIT DECLARATION OF ESTIMATED INCOME TAX<br>TAX COMPUTATION SCHEDULE</td></tr><tr><td>A. TOTAL DETROIT INCOME EXPECTED IN 1974</td><td>$</td><td></td><td></td></tr><tr><td>B. EXEMPTIONS ($500.00 FOR EACH EXEMPTION)</td><td>$</td><td></td><td></td></tr><tr><td>C. ESTIMATED DETROIT TAXABLE INCOME (LINE A LESS LINE B)</td><td>$</td><td></td><td></td></tr><tr><td>D. ESTIMATED DETROIT INCOME TAX—NONRESIDENT INDIVIDUALS ENTER ½ OF 1% OF LINE C.<br>ALL OTHER TAXPAYERS ENTER 2% OF LINE C. ENTER TAX HERE AND ON LINE 1b OF DECLARATION BELOW</td><td>$</td><td></td><td></td></tr></table>
+<table><tr><td colspan="4">CITY OF DETROIT DECLARATION OF ESTIMATED INCOME TAX<br>TAX COMPUTATION SCHEDULE</td></tr><tr><td>A. TOTAL DETROIT INCOME EXPECTED IN 1974</td><td>$</td><td></td><td></td></tr><tr><td>B. EXEMPTIONS ($500.00 FOR EACH EXEMPTION)</td><td>$</td><td></td><td></td></tr><tr><td>C. ESTIMATED DETROIT TAXABLE INCOME (LINE A LESS LINE B)</td><td>$</td><td></td><td></td></tr><tr><td>D. ESTIMATED DETROIT INCOME TAX—NONRESIDENT INDIVIDUALS ENTER ½ OF 1% OF LINE C.<br>ALL OTHER TAXPAYERS ENTER 2% OF LINE C. ENTER TAX HERE AND ON LINE 1b OF DECLARATION BELOW</td><td>$</td><td></td><td></td></tr></table>
 
 D-1040-ES
 

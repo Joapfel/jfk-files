@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1081.png
-
-Convert to Markdown## (1) LIEMPTY
+## (1) LIEMPTY
 
 - LICALLA - 1
 - LILYRIC - 4

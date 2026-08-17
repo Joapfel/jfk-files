@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12794.png
-
-Convert to MarkdownTHE BLACK PANTHER
+THE BLACK PANTHER
 MARCH 20, 1971, P. 4
 
 THE BLACK PANTHER

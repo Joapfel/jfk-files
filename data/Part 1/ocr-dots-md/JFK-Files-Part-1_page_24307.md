@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24307.png
-
-Convert to MarkdownPROJECT QRPHONE
+PROJECT QRPHONE
 
 PART A. CHARTS REQUESTED
 

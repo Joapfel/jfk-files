@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34488.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this implied, it was apparent that great practical problems stood in the way of his deportation to either the USSR or a third country.
 

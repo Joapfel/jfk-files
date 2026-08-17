@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23275.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Piled In)
 
 MEMORANDUM FOR: WH/III - Willard Galbraith, Chief

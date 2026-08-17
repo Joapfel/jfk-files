@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13204.png
-
-Convert to MarkdownSECRET/SENSITIVE
+SECRET/SENSITIVE
 
 The headquarters for the DOD was at 1717 H Street, N. W., in Washington, D. C., and then later it was on Pennsylvania Avenue.
 

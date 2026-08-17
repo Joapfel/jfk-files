@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9990.png
-
-Convert to Markdown3.
+3.
 
 Mexico City. I therefore queried him carefully, and, to make a long
 story short, he broke down (se abrió) as told us things that convinced

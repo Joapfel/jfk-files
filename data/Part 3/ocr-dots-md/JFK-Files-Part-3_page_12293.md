@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12293.png
-
-Convert to Markdown# BOBBY SEALE: "I AM THE CHAIRMAN OF ONLY ONE PARTY."
+# BOBBY SEALE: "I AM THE CHAIRMAN OF ONLY ONE PARTY."
 
 March, 1971
 

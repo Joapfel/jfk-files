@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18762.png
-
-Convert to Markdown12/30/58
+12/30/58
 
 SAC, NEW YORK (134-new)
 

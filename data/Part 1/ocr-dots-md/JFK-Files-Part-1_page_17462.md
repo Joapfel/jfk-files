@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17462.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 DATE: 6 JAN 62
 FROM: MEXICO CITY 9790

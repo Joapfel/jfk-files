@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21215.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 document for treatment of venereal disease. [S]
 

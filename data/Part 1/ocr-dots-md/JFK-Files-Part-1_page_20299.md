@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20299.png
-
-Convert to Markdown<table>
+<table>
     <tbody>
         <tr>
             <td colspan="5">QUALIFICATIONS SUPPLEMENT TO PERSONAL HISTORY STATEMENT</td>

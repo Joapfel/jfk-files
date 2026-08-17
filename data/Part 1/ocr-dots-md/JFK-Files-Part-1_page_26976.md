@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26976.png
-
-Convert to MarkdownTELEPHONE CONVERSATION BETWEEN PETERSON AND VAN CLEAVE - Tuesday, 6/18/73, 11:11:
+TELEPHONE CONVERSATION BETWEEN PETERSON AND VAN CLEAVE - Tuesday, 6/18/73, 11:11:
 
 I had heard a rumor that, I thought, at the time that these guys, those individuals can't be doing this again, but in the last week I have picked up a great deal of information that I think needs to be known at this location that involves the Wurbelt group out of Powder Springs. Are you familiar with that name? [No, I'm not. Zill has been handling all of that and I just don't know anything about it., Mr. Van Cleave. You can give me what information you have and I will pass it on or do what we can, but Bill has been handling that entirely and we work different accounts and I'm sorry to say that I am totally unfamiliar with it.] Well, let me put it to you this way. Is there any way at all that you will be in touch with Bill, so that I could get this information to him by phone. [Well, he is up in Tennessee and we can get in touch with him, yes. I could give him a call.] Well, let me give you a brief synopsis so that you can at least pass that on to him.
 

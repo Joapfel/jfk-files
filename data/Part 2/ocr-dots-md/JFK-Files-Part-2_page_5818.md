@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5818.png
-
-Convert to Markdown# ATTACHMENT II.
+# ATTACHMENT II.
 
 ## Search Methodology and Types of Searches Conducted
 

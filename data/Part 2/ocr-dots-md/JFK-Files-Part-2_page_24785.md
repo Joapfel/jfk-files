@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24785.png
-
-Convert to Markdownin cables from Dearborn and Owen. (Station to HQS cables
+in cables from Dearborn and Owen. (Station to HQS cables
 4/25/61) On April 25, 1961, Owen advised Headquarters that
 Wimpy Berry had informed him that Antonio de la Maza was
 going to attempt the assassination between April 29 and May 2.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12063.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>Nov 22, 1966</td></tr></table>
 

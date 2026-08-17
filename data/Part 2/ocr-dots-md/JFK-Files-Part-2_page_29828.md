@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29828.png
-
-Convert to MarkdownD - know used, I was trying to decide whether to come back down here again I didn't have a car and he told me that he would give me a car if I came down here
+D - know used, I was trying to decide whether to come back down here again I didn't have a car and he told me that he would give me a car if I came down here
 
 M - how about, you say, Pat lived there
 

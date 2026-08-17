@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31440.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FID/new
 
 A skit was then presented to represent the petition of the Communist Party before the Supreme Court in regard to the registration provisions of the McCarran Act. After the skit, MICKEY LIMA was introduced as Chairman of the Northern California District of the CP, who would present his views on the registration. LIMA read a statement in which he said that the CP in good conscience could not and would not register because to do so would violate the law of self-incrimination. If the CP registered, they would admit to being spies, saboteurs, and agents of a foreign power.

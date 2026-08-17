@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8680.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 Director, FBI
 
 UNITED STATES SENATE SELECT COMMITTEE

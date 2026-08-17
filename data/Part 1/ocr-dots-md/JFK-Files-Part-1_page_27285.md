@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27285.png
-
-Convert to Markdown<table><thead><tr><th>1. NAME (MR., MDD-MRD, -ONE GIVEN NAME, INITIAL(S), AND SURNAME)</th><th>2. DATE OF BIRTH</th><th>3. JOURNAL OR ACTION DO.</th><th>4. DATE</th></tr></thead><tbody><tr><td>Mr. William V. Broe</td><td>8/26/73</td><td>2351</td><td>20 July 1950</td></tr></tbody></table>
+<table><thead><tr><th>1. NAME (MR., MDD-MRD, -ONE GIVEN NAME, INITIAL(S), AND SURNAME)</th><th>2. DATE OF BIRTH</th><th>3. JOURNAL OR ACTION DO.</th><th>4. DATE</th></tr></thead><tbody><tr><td>Mr. William V. Broe</td><td>8/26/73</td><td>2351</td><td>20 July 1950</td></tr></tbody></table>
 
 This is to notify you of the following action affecting your employment:
 

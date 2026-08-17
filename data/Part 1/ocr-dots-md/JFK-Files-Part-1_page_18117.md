@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18117.png
-
-Convert to Markdown14-00000
+14-00000
 
 INDEX ☐ YES ☐ NO
 CLASSIFIED TO FILE NO.

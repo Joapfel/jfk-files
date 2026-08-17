@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29523.png
-
-Convert to Markdown16 JUL. 1962
+16 JUL. 1962
 
 **MEMORANDUM FOR:** Chief, WH/4
 

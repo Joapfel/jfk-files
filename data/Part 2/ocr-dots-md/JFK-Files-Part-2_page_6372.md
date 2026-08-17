@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6372.png
-
-Convert to Markdownthat the context and integrity of the
+that the context and integrity of the
 records be preserved. Only in rare
 instances will the Review Board assent
 to withholding particular information

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6133.png
-
-Convert to Markdown# CHICAN SURVEY
+# CHICAN SURVEY
 
 1. SAC, San Francisco to Director, FBI - 1/19/61
 

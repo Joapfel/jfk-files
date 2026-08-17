@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14942.png
-
-Convert to MarkdownDavid T.T.Z. ICHVILLI
+David T.T.Z. ICHVILLI
 
 8 Sept. 1958
 

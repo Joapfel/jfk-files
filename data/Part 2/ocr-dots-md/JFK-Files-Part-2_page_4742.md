@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4742.png
-
-Convert to MarkdownSECRET
+SECRET
 
 their secrecy oaths in terms of testifying to Congress. Well, hell, first of
 all I think that was a silly thing to do because when you, even the oath

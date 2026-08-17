@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30293.png
-
-Convert to Markdown1. Mr. Nosenko. No, I do not know a man Thomas A. Ryan.
+1. Mr. Nosenko. No, I do not know a man Thomas A. Ryan.
 
 2. Mr. Klein. Do you recall speaking to a man named Thomas Ryan?
 

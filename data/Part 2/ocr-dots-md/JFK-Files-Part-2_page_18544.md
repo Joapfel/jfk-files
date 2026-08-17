@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18544.png
-
-Convert to Markdown# PROPOSED PROCEDURES
+# PROPOSED PROCEDURES
 
 (1) The Domestic Task Force Leader* will submit periodically a list of specific materials, relevant to the inquiry being conducted under S.R. 21, to which the Committee staff wishes access or of which the Committee desires delivery. Any questions as to the scope or meaning of any portion of such list shall be identified by the Special Counsel and discussed at the time of acceptance of the list, between the DTFL and the Special Counsel.
 

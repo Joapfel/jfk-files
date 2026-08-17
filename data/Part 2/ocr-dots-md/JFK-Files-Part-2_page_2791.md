@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2791.png
-
-Convert to Markdownd. Established contact and developed a third national employed by the Algerian Embassy, gained access to the Embassy, went all through it, drew a sketch of the interior of the premises including the location of the code room;
+d. Established contact and developed a third national employed by the Algerian Embassy, gained access to the Embassy, went all through it, drew a sketch of the interior of the premises including the location of the code room;
 
 e. Made contact with and developed two Arab officials assigned to the Arab Information Office in Washington;
 

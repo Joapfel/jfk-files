@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_7667.png
-
 s to the Director, one in charge of administrative work and the other in charge of investigative work—we have also checked the administrative records where vouchers or payments would have been made and there is no indication that any money was ever paid to Oswald. We have obtained, and they are on file with the Commission, the affidavits of the agents, who at various times were in contact with Oswald, to the effect that he was not an informant; that they had never paid him anything; that he was being questioned as to possible recruitment by the Soviet intelligence; so there was no evidence at any time indicating employment by the FBI.
 
 Representative FORD. And you were not under any limitation or restriction

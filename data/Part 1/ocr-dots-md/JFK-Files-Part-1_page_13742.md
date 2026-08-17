@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13742.png
-
-Convert to MarkdownDISTR:
+DISTR:
 
 U-TION:
 

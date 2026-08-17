@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19926.png
-
-Convert to MarkdownNFW 88321 DocID:32989545 Page
+NFW 88321 DocID:32989545 Page
 
 # YOU CANNOT HAVE WARS WITHOUT WOMEN
 

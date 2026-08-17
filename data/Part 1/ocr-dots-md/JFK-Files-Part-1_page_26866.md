@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26866.png
-
-Convert to Markdownand direct as above to pay all of my lawful debts, if any, and the funeral and burial expenses.
+and direct as above to pay all of my lawful debts, if any, and the funeral and burial expenses.
 
 IN WITNESS WHEREOF, IHEREunto subscribe my name and office my seal the twenty-fifth day of May, A.D. 1865 in the presence of attesting witnesses.
 

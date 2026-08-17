@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4944.png
-
-Convert to Markdown62-116395
+62-116395
 
 2 - Mr. Mintz
 (1 - Mr. Hotis)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29464.png
-
-Convert to Markdown<table><thead><tr><th></th><th>BASE PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>FEDERAL TAX</th><th>BOND</th><th>P. I. C. A.</th><th>STATE TAX</th><th>CROSS LIFE INS.</th><th>HEALTH BENEFITS</th><th>NET PAY</th></tr></thead><tbody><tr><td>1. Previous normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>2. New normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>3. Pay this period</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
+<table><thead><tr><th></th><th>BASE PAY</th><th>OVERTIME</th><th>GROSS PAY</th><th>RET.</th><th>FEDERAL TAX</th><th>BOND</th><th>P. I. C. A.</th><th>STATE TAX</th><th>CROSS LIFE INS.</th><th>HEALTH BENEFITS</th><th>NET PAY</th></tr></thead><tbody><tr><td>1. Previous normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>2. New normal</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>3. Pay this period</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr></tbody></table>
 
 CONFIDENTIAL
 

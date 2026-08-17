@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15563.png
-
-Convert to MarkdownLR
+LR
 
 On August 16, 1969, JEWEL COOK of the Illinois Black Panther Party (BPP), requested information from JUNE HILLIARD at the National Headquarters of the BPP concerning whether a person is allowed to work in the BPP Office after being purged from the BPP. HILLIARD told COOK that after a person is purged they are not allowed to work in the office.
 

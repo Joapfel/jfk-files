@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8275.png
-
-Convert to MarkdownJuly 10, 1969
+July 10, 1969
 
 Contact Report
 Subject: LIBACON-1 (P-4805)

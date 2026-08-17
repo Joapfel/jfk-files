@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11415.png
-
-Convert to MarkdownSECURITY INVESTIGATIONS OF INDIVIDUALS
+SECURITY INVESTIGATIONS OF INDIVIDUALS
 
 <table>
   <thead>

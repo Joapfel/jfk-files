@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25809.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. **Identification**: The purpose of Project ZRRIFLE is to spot, develop, and use foreign agent assets for Division D operations. Agents will be spotted in several areas, including the United States, but will be posted for operational security reasons which will probably not be used in their countries of residence. Present developmental activity is being conducted in the WE and EE areas, but it is anticipated that this will be extended to other division areas. The project will be operated against third-country installations and personnel.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31505.png
-
-Convert to MarkdownSF 100-33836
+SF 100-33836
 FTD/evs
 
 On May 9, 1964, the Subject attended a meeting sponsored by the Ad Hoc Committee to End U. S. Intervention In Vietnam held at the Hall of Flowers in Golden Gate Park, San Francisco. The chairman of the meeting who stated he was from Vietnam claimed that the war in Vietnam started with the French Government supporting an attack by South Vietnam against North Vietnam. He said the American military has taken over from the French in supplying arms and ammunition to the South Vietnamese. He urged the United States to pull out of South Vietnam and let the country be unified.

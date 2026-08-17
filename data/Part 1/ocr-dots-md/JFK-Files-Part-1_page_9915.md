@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9915.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Attachment A to EIA-12989 dated 6 September 1967
 

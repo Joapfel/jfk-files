@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18451.png
-
-Convert to Markdown# A. Electronic Surveillance
+# A. Electronic Surveillance
 
 The Committee is examining all forms of electronic interception of communications including wiretapping, electronic eavesdropping, consensual electronic surveillance interception of video and data communications, local monitoring devices, and all other forms of electronic or technical monitoring. The Committee's general questions apply to each of the techniques listed above, as well as to the matters set forth in the following specific cases.
 

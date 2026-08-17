@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13186.png
-
-Convert to MarkdownMM 92-1047
+MM 92-1047
 
 MART said it was obvious at this time that the previous bombing at the American Epicure Market was a mistake and was really meant for Alfies Sundries.
 

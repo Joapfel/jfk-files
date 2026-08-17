@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13086.png
-
-Convert to MarkdownSAC, Denver (105-4151)
+SAC, Denver (105-4151)
 
 Director, FBI (105-78256)
 

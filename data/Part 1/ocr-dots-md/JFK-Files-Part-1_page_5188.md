@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5188.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>0</td><td>1</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td colspan="2">SIGNAL CENTER USE ONLY</td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td><td></td></tr><tr><td>ALE</td><td>OON</td><td>ACF</td><td>TOD</td><td>FRE</td><td>BW</td><td>DCI</td><td></td><td></td><td></td><td></td></tr><tr><td>OMF</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td></td><td></td><td></td></tr></table>
 

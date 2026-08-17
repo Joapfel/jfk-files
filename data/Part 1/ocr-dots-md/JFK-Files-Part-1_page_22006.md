@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_22006.png
-
 s, and Marines.
 
 Q: What is your understanding of the meaning of the word "supervisor"?

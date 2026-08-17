@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25521.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Paragraph 9 of Agent Service Record:
 

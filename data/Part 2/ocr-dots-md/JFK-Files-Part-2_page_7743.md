@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7743.png
-
-Convert to MarkdownSergyj Czornonoh
+Sergyj Czornonoh
 Regis Hotel
 1106 11th Street
 Sacramento, CA 95814

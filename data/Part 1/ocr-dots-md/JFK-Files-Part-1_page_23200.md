@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23200.png
-
-Convert to MarkdownSECRET
+SECRET
 
 8. Your cover story for having been engaged by the Public Surveys Institute is as follows:
 

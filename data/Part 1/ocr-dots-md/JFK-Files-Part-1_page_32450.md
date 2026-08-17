@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32450.png
-
-Convert to MarkdownSTUDENT : FLORES, Daniel
+STUDENT : FLORES, Daniel
 DATE : 2 Jan. - 26 Jan. 1968
 
 YEAR OF BIRTH: 1935

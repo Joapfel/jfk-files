@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23680.png
-
-Convert to Markdownfor the purpose of getting him into the Agency.
+for the purpose of getting him into the Agency.
 
 Senator Mathias. this is the kind of situation I'm thinking of, perhaps not an illegal alien, but someone who is in this country in some sort of legal status but which is of temporary duration and he wants to change his status.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26534.png
-
-Convert to MarkdownSECRET
+SECRET
 - 2 -
 
 **4. Disputed Tracts on Rio Grande**

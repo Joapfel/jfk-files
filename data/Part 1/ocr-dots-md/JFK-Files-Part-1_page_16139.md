@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16139.png
-
-Convert to MarkdownSECRET
+SECRET
 
 T. P. RICE, C.I.: A:207
 

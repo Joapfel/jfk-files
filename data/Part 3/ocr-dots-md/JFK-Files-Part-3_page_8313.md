@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8313.png
-
-Convert to MarkdownOPTIONAL FORM NO. 10
+OPTIONAL FORM NO. 10
 MAY 1967 EDITION
 GSA GEN. REG. NO. 27
 

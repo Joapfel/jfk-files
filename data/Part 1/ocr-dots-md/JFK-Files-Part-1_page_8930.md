@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8930.png
-
-Convert to Markdownd. WU Division is initiating action to close the project's account at the First National Bank.
+d. WU Division is initiating action to close the project's account at the First National Bank.
 
 2. The revised Administrative Plan, referred to in paragraph la above, will include changes which reflect the recommendations made in reference U.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19930.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><tr><td>NOTIFICATION OF ESTABLISHMENT OR CANCELLATION<br/>OF OFFICIAL COVER BACKSTOP</td><td></td><td>DATE<br/>13 February 1960</td></tr><tr><td rowspan="2">TO:<br/>(Check)</td><td>CHIEF, RECORDS AND CONTROL</td><td>FILE NUMBER<br/>11326</td></tr><tr><td>CHIEF, CONTRACT PERSONNEL DIVISION</td><td>EMPLOYEE NUMBER<br/>003520</td></tr><tr><td></td><td>CHIEF, OPERATING COMPONENT (For action)</td><td>ID CARD NUMBER<br/></td></tr><tr><td colspan="2">ATTN:</td><td rowspan="4">OFFICIAL<br/>COVER</td><td rowspan="2">BACKSTOP ESTABLISHED</td></tr><tr><td colspan="2">Chief Support Staff</td></tr><tr><td>REF:</td><td>Retirement Debriefing</td><td>DISCONTINUED</td></tr><tr><td>SUBJECT</td><td>VITAL, Guy</td><td>UNIT</td></tr></table>
 

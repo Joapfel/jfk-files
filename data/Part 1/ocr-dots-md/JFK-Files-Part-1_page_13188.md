@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13188.png
-
-Convert to Markdown14-0009
+14-0009
 
 OFF. J. GOUVER
 UNIT. WV/3/V

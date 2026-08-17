@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12119.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## 11. CURRICULUM VITAE:
 

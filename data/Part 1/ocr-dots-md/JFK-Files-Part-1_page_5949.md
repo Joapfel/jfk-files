@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5949.png
-
-Convert to Markdown14-0000
+14-0000
 
 to insult anybody. I asked the Captain if there was a purser or a
 sole attendant assigned to the first-class section. He stated on this

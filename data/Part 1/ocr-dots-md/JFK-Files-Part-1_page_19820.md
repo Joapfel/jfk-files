@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19820.png
-
-Convert to MarkdownO CONNELL JAMES P
+O CONNELL JAMES P
 
 652 08
 

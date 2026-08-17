@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6833.png
-
 . In the postscript, he asks, "Any news about the little business matter of ours we asked you to handle?" He offers to see RUSSOVA about a Russian edition of Seven Shares ... (See references to Helen KUHARIA under k - e, below)
 
 SECRET/INGFORM

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15285.png
-
-Convert to Markdown5 May 1959
+5 May 1959
 
 MEMORANDUM FOR THE RECORD
 

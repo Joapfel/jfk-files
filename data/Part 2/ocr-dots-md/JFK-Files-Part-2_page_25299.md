@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25299.png
-
-Convert to MarkdownCRS MAIN FILE COPY
+CRS MAIN FILE COPY
 JUL 23 1975 0.33
 
 THE NEW YORK TIMES,

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33130.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECRET 141830Z NOV 69 CITE OTTAWA 6712
 

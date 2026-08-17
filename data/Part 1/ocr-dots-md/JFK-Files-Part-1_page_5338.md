@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5338.png
-
-Convert to MarkdownFORMALITES A RÉNOFLIR PAR SOFHIÈ:
+FORMALITES A RÉNOFLIR PAR SOFHIÈ:
 
 1) Envoyer, signe par Sophie, un mandat original notarie et legalise par le Consul Americain, a une personne amie ou parent habitant New York, donnant a cette personne les memes pouvoirs donnes par Clemard a Sophie. Ce mandat devra etre accompagne d'une copie authentifie de celui de Clemard a Sophie.
 

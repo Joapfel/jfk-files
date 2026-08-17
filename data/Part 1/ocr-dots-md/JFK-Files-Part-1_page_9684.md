@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9684.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>S & C & T</td><td>MARRED FOR REPRINT<br>XXXX NO BODILY HIGHLIGHTS<br>ONLY QUALIFIED DEA CAN ADO BE PRINTING<br>BROADER</td></tr><tr><td colspan="2">TO<br>Chief, WHD</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM<br>Chief of Station, Mexico City</td><td></td></tr><tr><td>SUBJECT<br>Operational/Progress Report for Project LIMERICK for April and May, 1964</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>PROCESSING ACTION</th></tr></thead><tbody><tr><td>S & C & T</td><td>MARRED FOR REPRINT<br>XXXX NO BODILY HIGHLIGHTS<br>ONLY QUALIFIED DEA CAN ADO BE PRINTING<br>BROADER</td></tr><tr><td colspan="2">TO<br>Chief, WHD</td></tr><tr><td>INFO</td><td></td></tr><tr><td>FROM<br>Chief of Station, Mexico City</td><td></td></tr><tr><td>SUBJECT<br>Operational/Progress Report for Project LIMERICK for April and May, 1964</td><td></td></tr></tbody></table>
 
 Willard C. CURTIS
 

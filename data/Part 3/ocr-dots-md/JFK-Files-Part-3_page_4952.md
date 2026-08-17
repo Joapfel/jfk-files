@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4952.png
-
-Convert to MarkdownNY 134-91
+NY 134-91
 
 8. NYmemo to SAC - STANLEY LEVISION - 8/30/62
 

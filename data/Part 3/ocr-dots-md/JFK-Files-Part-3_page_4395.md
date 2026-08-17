@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4395.png
-
-Convert to MarkdownSECRET
+SECRET
 
 AFRICAN LIBERATION DAY COORDINATING COMMITTEE
 

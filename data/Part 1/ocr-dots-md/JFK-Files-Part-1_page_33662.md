@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33662.png
-
-Convert to MarkdownAmerican Personnel
+American Personnel
 
 HESC EDITOR -- responsible for the translating, rewriting, and editing for publication of all manuscripts produced by exile researchers.
 

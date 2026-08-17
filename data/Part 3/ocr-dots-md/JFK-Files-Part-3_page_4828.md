@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4828.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Conduct credit, criminal and indices checks on HERBERT TULZMAN who was contacted at 283-3431.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13760.png
-
-Convert to MarkdownSECRET
+SECRET
 
 sealift capability, the Cubans would be able to mount large-scale subversive interventions in neighboring countries. Furthermore, whatever degree of success is achieved in improving Cuba's position and in expanding its physical resources, Cuba's net capability for subversion and sabotage will in the last analysis largely be determined by the overall situation in Latin America.
 

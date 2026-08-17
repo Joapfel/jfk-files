@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_8340.png
-
 s. He explored the Lavrion refugee camp for potential staff personnel and was given the names of Ivan Hristonov and Ivan and Dimitur Donev. Upon the suggestion of the Americans, KELLY said he accepted the persons named. He established a headquarters and proceeded planning operations to penetrate Bulgaria. KELLY claimed the Greeks and certain Bulgarian emigre leaders in Greece were opposed to his position with the Americans and did everything possible to belittle his position and impair his operations. The results of KELLY's abortive missions into Bulgaria are contained in a report which KELLY prepared at DTROBALO and which is now in his file.
 
 17. During the period in which he was trying to get his operations mounted into Bulgaria, KELLY was approached by the French IS to work for them. KELLY stated that he immediately informed his American superiors regarding the French approach and was thereafter directed by the Americans in his dealings and associations with the French IS.

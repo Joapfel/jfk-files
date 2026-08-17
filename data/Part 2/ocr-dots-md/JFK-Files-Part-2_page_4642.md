@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4642.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **MW:** What was the impression about IG report at the time? In the trenches? There must have been rumors. What did you know about it?
 

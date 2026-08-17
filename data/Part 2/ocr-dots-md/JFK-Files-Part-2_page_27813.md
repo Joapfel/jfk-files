@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27813.png
-
-Convert to Markdown<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Robin David Lindley</td><td>October 18, 1977</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>534-50-0480</td><td>☑ Appointment</td></tr><tr><td>Employing Office or Committee</td><td>☐ Salary Adjustment</td></tr><tr><td>Assassinations</td><td>☐ Termination (At close of business on effective date)</td></tr></table>
+<table><tr><td>Employee Name (First-Middle-Last)</td><td>Effective Date</td></tr><tr><td>Robin David Lindley</td><td>October 18, 1977</td></tr><tr><td>Employee Social Security Number</td><td>Type of Action</td></tr><tr><td>534-50-0480</td><td>☑ Appointment</td></tr><tr><td>Employing Office or Committee</td><td>☐ Salary Adjustment</td></tr><tr><td>Assassinations</td><td>☐ Termination (At close of business on effective date)</td></tr></table>
 
 (If type of action is an Appointment or Salary Adjustment, complete the following information.)
 

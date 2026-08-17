@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35511.png
-
-Convert to Markdown18 May
+18 May
 
 One thousand three hundred sixteen and 25/100 dollars
 Cashier's Checks #399858 for WRUL "El Medico y Usted" program for May 65.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23165.png
-
-Convert to Markdownquino", la montaña más alta de la Isla. Esto que parece escapado de la men-
+quino", la montaña más alta de la Isla. Esto que parece escapado de la men-
 te de un alienado es lo que exige CASTRO, para que un médico se gradúe, no
 importa que el alumno tenga una gran vocación por los estudios médicos, no
 importa que haya demostrado su oapacidad en la materia que son propias de la

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15218.png
-
-Convert to MarkdownADDENDUM BY MR. TOLSON 10/13/61
+ADDENDUM BY MR. TOLSON 10/13/61
 
 I am inclined to the view that we should not send the attached
 communications to the Attorney General and Deputy Under Secretary

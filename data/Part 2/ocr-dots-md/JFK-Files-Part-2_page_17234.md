@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17234.png
-
-Convert to Markdown# They came in shooting and killed Mark;
+# They came in shooting and killed Mark;
 
 By ALEXA CANADY
 

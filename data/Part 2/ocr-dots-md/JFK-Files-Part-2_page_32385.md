@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32385.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>COUNTRY</td>
     <td>Cuba/USSR/Latin America</td>

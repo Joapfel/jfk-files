@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18339.png
-
-Convert to MarkdownWILLIAM P. BURKE
+WILLIAM P. BURKE
 
 Post Office Box 1016
 New Orleans, La.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13394.png
-
-Convert to Markdown# Assassination Records Review Board
+# Assassination Records Review Board
 Final Determination Notification
 
 AGENCY : HPSCI

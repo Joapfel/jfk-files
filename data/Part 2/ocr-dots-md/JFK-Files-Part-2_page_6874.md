@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6874.png
-
-Convert to MarkdownOn the one hand, it seeks to reduce the permitted level of secrecy within our Government, and to make available to the American people hundreds of millions of pages of historically valuable documents that no longer require protection in the interest of national security. On the other hand, the Order enables us to safeguard the information that we must in order to protect our nation and our citizens.
+On the one hand, it seeks to reduce the permitted level of secrecy within our Government, and to make available to the American people hundreds of millions of pages of historically valuable documents that no longer require protection in the interest of national security. On the other hand, the Order enables us to safeguard the information that we must in order to protect our nation and our citizens.
 
 Already, this new system has achieved some rather remarkable results:
 

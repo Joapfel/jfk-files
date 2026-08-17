@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18980.png
-
-Convert to Markdown# CONTINUATION SHEET
+# CONTINUATION SHEET
 U.S. CIVIL SERVICE COMMISSION
 C. S. C: Dept. Cls. No. 333 For Question 37, "Application for Federal Employment," Standard Form No. 57
 

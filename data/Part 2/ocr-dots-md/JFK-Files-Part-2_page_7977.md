@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7977.png
-
-Convert to MarkdownNovember, 1973
+November, 1973
 
 Vol. 22, No. 11
 

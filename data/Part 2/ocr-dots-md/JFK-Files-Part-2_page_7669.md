@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7669.png
-
-Convert to MarkdownIf you went through this letter-writing process and the paper war that goes on so often in the Government it might take a week or 10 days.
+If you went through this letter-writing process and the paper war that goes on so often in the Government it might take a week or 10 days.
 
 The FBI does have 10 legal attaches attached to 10 embassies abroad. Their purpose is not operational. They don't investigate in those countries any matters that have to be investigated. That, if it is to be done, is handled by CIA. Our purpose in being there is to maintain liaison with our opposite number such as the Surete Nationale in France and with the national police in the Philippines, to exchange information that is vital to our internal security, and also vital to the internal security of the other country.
 

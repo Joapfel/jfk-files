@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2149.png
-
-Convert to Markdown<table>
+<table>
     <thead>
         <tr>
             <th rowspan="2">WORKING UNIT</th>

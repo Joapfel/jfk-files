@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29819.png
-
-Convert to MarkdownD - well, I'd see him, you know I would see him two, three, maybe four times a week and then, uh, Gino did buy me a piece of jewelry, he bought me a charm for a charm braclet, they had a going away party for me but that was just you know everybody had bought me, Gino wouldn't always take me out on my day off because a lot of things would come up that is another thing that I couldn't understand is uh we would make plans to go somewhere and all of a sudden he would call me up that afternoon and say I'm sorry but I must go to Philadelphia for I must go here, he just made a recent trip to Philadelphia as a matter of fact, uh he stopped by to take me with him, but I already had another date, so he left
+D - well, I'd see him, you know I would see him two, three, maybe four times a week and then, uh, Gino did buy me a piece of jewelry, he bought me a charm for a charm braclet, they had a going away party for me but that was just you know everybody had bought me, Gino wouldn't always take me out on my day off because a lot of things would come up that is another thing that I couldn't understand is uh we would make plans to go somewhere and all of a sudden he would call me up that afternoon and say I'm sorry but I must go to Philadelphia for I must go here, he just made a recent trip to Philadelphia as a matter of fact, uh he stopped by to take me with him, but I already had another date, so he left
 
 M - did he say why he was going to Philadelphia
 

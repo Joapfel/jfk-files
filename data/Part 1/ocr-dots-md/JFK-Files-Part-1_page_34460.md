@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34460.png
-
-Convert to Markdown1 July 1964
+1 July 1964
 
 MEMORANDUM FOR: Headquarters
 SUBJECT : LEEHAY, George M.

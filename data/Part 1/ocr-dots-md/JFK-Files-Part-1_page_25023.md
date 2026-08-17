@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25023.png
-
-Convert to MarkdownIn. 1352 hrs. Casa de Modas Bell (?) talks to KOSTA in Spanish.
+In. 1352 hrs. Casa de Modas Bell (?) talks to KOSTA in Spanish.
 
 Mrs KOSTIKOVA speaks excellent Spanish, fluently.
 

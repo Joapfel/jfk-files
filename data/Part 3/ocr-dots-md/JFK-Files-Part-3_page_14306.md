@@ -1,5 +1,3 @@
-# JFK-Files-Part-3_page_14306.png
-
 in the DD/P area who would be in charge of such matters as COMINT, ELINT, satellite reconnaissance, etc. Mr. McCone added that he thought he would pick a military man to head up covert operations and to handle paramilitary activities in order that these functions would be conducted on an absolutely professional basis, without disturbing the lines running from the DD/P to the CIA Station Chiefs.
 
 Further on in the discussion with the DCI, Mr. McCone expressed concern over the fact that in the CIA organizational responsibility for financing was placed at a rather low level in the headquarters organizational set-up, and therefore the DCI desired to place this responsibility upon a higher level official who would serve as Comptroller in the Office of the DCI. Mr. Gray asked whether this would increase problems

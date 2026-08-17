@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2251.png
-
-Convert to Markdown23 January, 1948
+23 January, 1948
 
 MEMORANDUM
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8959.png
-
-Convert to MarkdownACTIVIDADES DE "LEE HARVEY OSWALD", EN MEXICO.
+ACTIVIDADES DE "LEE HARVEY OSWALD", EN MEXICO.
 
 El 26 de septiembre de 1963, Oswald, tomó el omnibus No. 5133 - de la Linea Continental Trailways, en Houston y partió a las 2.35 A.M., rumbo a Laredo, Texas, pasando por Corpus Christi y Alice. Dos turistas britanicos - el Dr. John B. McFarland y su Esposa que tomaron el mismo Autobus, se fijaron en Oswald, aproximadamente a las 6 A. M. y Oswald, les comentó que iba a Cuba, via la Ciudad de México.
 

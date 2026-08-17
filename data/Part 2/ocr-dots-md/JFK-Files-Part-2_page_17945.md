@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17945.png
-
-Convert to MarkdownRECEIVED
+RECEIVED
 TELETYPE UNIT
 
 RECEIVED

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21320.png
-
-Convert to MarkdownDate of Information July 1952.
+Date of Information July 1952.
 
 E/ 2272
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22284.png
-
-Convert to Markdown691.
+691.
 
 few new details of importance on the American correspondents,
 NOSENKO has proven unreliable regarding his work against Army

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18808.png
-
-Convert to MarkdownNY 134-3315
+NY 134-3315
 
 JAFFE'S wife is described as follows:
 

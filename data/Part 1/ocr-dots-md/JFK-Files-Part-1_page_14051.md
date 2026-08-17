@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14051.png
-
-Convert to MarkdownJose V. F. 498 M. MOEN, R.C.P.
+Jose V. F. 498 M. MOEN, R.C.P.
 21. DE CINCO DE JUNIO D. 1967. H. M. IN 12
 3. JUNIO D. 1967 WIEG # 54.
 

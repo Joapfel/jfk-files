@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16944.png
-
-Convert to MarkdownWILCOXON, CHERYL
+WILCOXON, CHERYL
 
 This Panther resides at 2337 West Monroe and works out of the South Side BPP Office.
 

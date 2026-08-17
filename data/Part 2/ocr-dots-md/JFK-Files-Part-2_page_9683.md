@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9683.png
-
-Convert to MarkdownSI 157-4275
+SI 157-4275
 
 **Military:**
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17206.png
-
-Convert to MarkdownAPRIL 15, 1968
+APRIL 15, 1968
 
 BLACK PANTHER PARTY
 

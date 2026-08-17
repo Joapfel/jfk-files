@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20385.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th>NATURE OF<br>EMPLOYMENT</th><th>PERMA-<br>MENT</th><th>TEMPO-<br>RARY</th><th>FULL<br>TIME</th><th>PART<br>TIME</th><th>PERMA-<br>MENT</th><th>TEMPO-<br>RARY</th><th>FULL<br>TIME</th><th>PART<br>TIME</th></tr></thead><tbody><tr><td>RETIREMENT<br>DEDUCTIONS</td><td>YES</td><td>AMERICAN</td><td>X</td><td>VETERAN<br>PREFERENCE</td><td>5 POINTS<br>10 POINTS</td><td>X</td><td>NEW</td><td>REALLOCATION</td></tr><tr><td>LEGAL RESIDENCE</td><td colspan="2">SEX</td><td colspan="3">MARITAL STATUS AND CHILDREN UNDER 21</td><td colspan="3">ADDITIONAL<br>IDENTICAL</td><td>VICE NAME</td></tr><tr><td colspan="10"></td><td>Vacancy</td></tr></tbody></table>
 

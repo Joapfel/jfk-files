@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14289.png
-
-Convert to Markdowng. Incommunicado interrogation;
+g. Incommunicado interrogation;
 
 h. Maintenance of files and records;
 

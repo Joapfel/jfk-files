@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9811.png
-
-Convert to Markdown31 March, 1968
+31 March, 1968
 
 Subject: SGS/IRL Examination of LIRING/4.
 

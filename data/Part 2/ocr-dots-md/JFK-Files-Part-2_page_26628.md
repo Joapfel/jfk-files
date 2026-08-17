@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26628.png
-
-Convert to Markdownd. The coup group has not thrown all Baathists out of the government; there are party members in the new cabinet.
+d. The coup group has not thrown all Baathists out of the government; there are party members in the new cabinet.
 
 e. Syrian Baathists have welcomed this retention of their Iraqi brothers. Their attitude springs from the recognition that the Baath in Syria cannot stay afloat without support from Iraq. Even so, we hear talk of coup plotting in Damascus.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SEC. B T 0922392 NOV 76 STAFF
 CITE QUITO 21887

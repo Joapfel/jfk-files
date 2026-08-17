@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_926.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>CATEGORY</th><th>STATEMENT</th></tr></thead><tbody><tr><td>1.</td><td>REALLY CARES ABOUT OTHER'S POINT OF VIEW</td></tr><tr><td>2.</td><td>KNOWS DECISIONS OR MAY BE MENTIONED</td></tr><tr><td>3.</td><td>MUST INITIATE</td></tr><tr><td>4.</td><td>IS ANALYTIC IN ALL THINGS</td></tr><tr><td>5.</td><td>STANDS UP FOR THAT-OTHER'S STANDARDS AND GOALS</td></tr><tr><td>6.</td><td>THINKS AS A TEAM ASSISTANT</td></tr><tr><td>7.</td><td>COULD ASK ALONE WITH PEOPLE</td></tr><tr><td>8.</td><td>NOT MINDFUL OF FAREWELL</td></tr><tr><td>9.</td><td>BEFORE OTHERS</td></tr><tr><td>10.</td><td>COULD CARRY OUT INDEPENDENTLY</td></tr></tbody></table>
 

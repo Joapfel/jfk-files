@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26088.png
-
-Convert to Markdown-118-
+-118-
 
 thing had on it, whether it would take his
 head off or not. [Laughter] I told him to

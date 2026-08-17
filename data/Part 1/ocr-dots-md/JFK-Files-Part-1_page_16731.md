@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16731.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>UNIT:</td>
     <td colspan="2">WH/3/Mexico</td>

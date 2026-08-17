@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2491.png
-
-Convert to MarkdownDCD Case 65805
+DCD Case 65805
 
 Jon French
 

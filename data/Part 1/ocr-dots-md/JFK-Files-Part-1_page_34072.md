@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34072.png
-
-Convert to Markdown2
+2
 
 is Frangistas, of Lisbon and Athens, represented by Purvis, London, having at his disposal some 35 Greek and Lebanon flag ships, trading mostly in Cuba. Frangistas is also the sole importer of Russian timber into Greece, a huge trade. Also this same firm made an agreement with the Soviet Union few months ago and by virtue of this Agreement, the Soviet Union has commenced building for his fleet cargo ships, bulk carriers, tankers, and deepsea fishing Trawlers, at present worth $150,000,000, against Greek products, and some of these ships (Greek flag) will find their way to Cuba, we are almost sure.
 

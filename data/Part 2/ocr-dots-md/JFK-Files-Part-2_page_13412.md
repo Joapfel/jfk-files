@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13412.png
-
-Convert to MarkdownAttachment
+Attachment
 
 USIB-D-27.10/2
 17 May 1975

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21946.png
-
-Convert to Markdowntestified that he recalled working for Generals Bennett and Philpott on "a priority requirement to identify Chilean personalities who might be helpful in preventing the election of Allende as President of Chile." (Roth, Vol. I, p. 6) Though Roth recalls no mention of Track II as such, the goal of this mission is identical to that described in the message of September 28 bearing Philpott's signature.
+testified that he recalled working for Generals Bennett and Philpott on "a priority requirement to identify Chilean personalities who might be helpful in preventing the election of Allende as President of Chile." (Roth, Vol. I, p. 6) Though Roth recalls no mention of Track II as such, the goal of this mission is identical to that described in the message of September 28 bearing Philpott's signature.
 
 Beginning on October 15, Roth kept a chronology of his activities connected with Chile. This chronology reflects that there was a meeting on October 21 regarding the preparation of biographic material on Chilean generals which focused on their willingness to participate in a military coup. Generals Bennett, Philpott, and a CIA representative attended. The chronology also shows that on October 21, Roth delivered a message to Mr. Broe to be sent by CIA channels.* A message was sent to Col. Wimert that same day, ostensibly from General Bennett, which authorized:
 

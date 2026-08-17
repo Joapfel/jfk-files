@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2110.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td colspan="4">SECTION 10. SELECTIVE SERVICE - US</td>
    </tr>

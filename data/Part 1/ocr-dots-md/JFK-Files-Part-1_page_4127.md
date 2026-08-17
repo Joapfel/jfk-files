@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4127.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Miami. He also offered to help Pres. ORLICH's secretary, Roberto MADRIS, who may run for Deputy if he can be convinced to ignore his shyness and reluctance to make political points.
 

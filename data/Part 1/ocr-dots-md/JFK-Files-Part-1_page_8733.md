@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8733.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 DATE 05/05/70
 

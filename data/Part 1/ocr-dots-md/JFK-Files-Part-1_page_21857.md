@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21857.png
-
-Convert to Markdownout measures to check... There were many little, little things. MARK maybe turned his head a certain way when SHAKHOV was talking. [S.M.] GOLUBEV, formerly of the Fourteenth [Counterinformation] Department, was in the Soviet Delegation with SHAKHOV.* He noticed little details. When the officers in the United States decided to terminate SHAKHOV (as an agent), they wrote a report on him which said he was liking life in the U.S.--American products, money. He was pictured as not good and, in addition, he was not wanting to work as an agent.
+out measures to check... There were many little, little things. MARK maybe turned his head a certain way when SHAKHOV was talking. [S.M.] GOLUBEV, formerly of the Fourteenth [Counterinformation] Department, was in the Soviet Delegation with SHAKHOV.* He noticed little details. When the officers in the United States decided to terminate SHAKHOV (as an agent), they wrote a report on him which said he was liking life in the U.S.--American products, money. He was pictured as not good and, in addition, he was not wanting to work as an agent.
 
 ## 2. The 1964 TDY
 

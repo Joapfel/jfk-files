@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1594.png
-
-Convert to Markdown# Security Support Division
+# Security Support Division
 
 <table><tr><td>14-0000</td></tr></table>
 

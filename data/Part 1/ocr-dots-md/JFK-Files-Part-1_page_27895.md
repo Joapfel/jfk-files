@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27895.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>TYPE OF DATA</th><th>ARRIVAL</th><th colspan="2">DEPARTURE</th><th>COUNTRY</th><th>OMIT</th></tr><tr><td></td><td>MONTH</td><td>DAY</td><td>YEAR</td><td></td><td></td></tr></thead><tbody><tr><td>1. PCS (Basic)</td><td>28-29</td><td>30-31</td><td>32-33</td><td rowspan="3">MEXICO</td><td rowspan="3">40-42</td></tr><tr><td>2. CORRECTION</td><td></td><td></td><td></td></tr><tr><td>3. CANCELLATION</td><td>02</td><td>03</td><td>60</td></tr></tbody></table>
 

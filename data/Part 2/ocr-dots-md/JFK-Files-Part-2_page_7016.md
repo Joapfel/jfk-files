@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7016.png
-
-Convert to MarkdownWTC/Memorandum for the Record
+WTC/Memorandum for the Record
 
 KEY: C/96-05677
 

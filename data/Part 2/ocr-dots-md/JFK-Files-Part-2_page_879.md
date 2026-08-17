@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_879.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="4" style="text-align:center; font-weight:bold;">SECTION C</td>
         <td colspan="2">NARRATIVE COMMENTS</td>

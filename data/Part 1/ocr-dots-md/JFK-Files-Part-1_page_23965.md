@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23965.png
-
-Convert to Markdown14-00000
+14-00000
 
 (Do you know anything about the formerly dissident PDP of Montreux, The Pro-Chinese Communist party of Switzerland),
 

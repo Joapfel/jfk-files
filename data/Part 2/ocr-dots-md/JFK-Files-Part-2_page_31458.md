@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31458.png
-
-Convert to MarkdownSF 100-33835
+SF 100-33835
 
 FTD/lr
 

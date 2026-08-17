@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17547.png
-
-Convert to MarkdownSECRET / MARCO
+SECRET / MARCO
 
 - 17 -
 

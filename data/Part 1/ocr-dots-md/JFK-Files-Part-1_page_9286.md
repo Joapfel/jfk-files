@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9286.png
-
-Convert to Markdownbrighten the effect. S.g., you might show photos of the taking over ("vol- coming back") of Latvia and/or Est. & Lit., and then add that "...since 1945 the USSR has been expanding at the rate of 65 sq. miles (or whatever it is) per day," (Since 1989, I think it is 65 sq. mi per day. Can dig it up, —and let me know any other research you might want to have done). Then juxtapose it with Stahl's statement (1942) about "not wanting an inch of anyone else's terri- tory". / And throw in "This is my last territorial demand" of Hitler, if it wouldn't clutter things up/.
+brighten the effect. S.g., you might show photos of the taking over ("vol- coming back") of Latvia and/or Est. & Lit., and then add that "...since 1945 the USSR has been expanding at the rate of 65 sq. miles (or whatever it is) per day," (Since 1989, I think it is 65 sq. mi per day. Can dig it up, —and let me know any other research you might want to have done). Then juxtapose it with Stahl's statement (1942) about "not wanting an inch of anyone else's terri- tory". / And throw in "This is my last territorial demand" of Hitler, if it wouldn't clutter things up/.
 
 **Items.** Alongside the frontispiece quote from Lomin, re "any deception", underneath it you could put Hitler's famous quote about the "big lie". Just because the idea of making the whole book a Hitler-Stalin parallel has been shalved, is no reason why you shouldn't draw the parallel wherever you see fit, if it heightens the effect.
 

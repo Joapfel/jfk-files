@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4136.png
-
-Convert to Markdownthe guidelines assume that there should be intelligence inves-
+the guidelines assume that there should be intelligence inves-
 tigations, they do not consider whether such investigations:
 might be permitted as regular criminal investigations.
 

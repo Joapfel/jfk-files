@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22125.png
-
-Convert to Markdown5. Transfer to the Tourist Department in January 1962
+5. Transfer to the Tourist Department in January 1962
 
 In the autumn of 1961 a decision was reached, on the basis
 of NOSENKO's own request, to return him to the Tourist Depart-

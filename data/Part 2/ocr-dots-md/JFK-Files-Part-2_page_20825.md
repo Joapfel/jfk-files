@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20825.png
-
-Convert to MarkdownBS 100-43809
+BS 100-43809
 
 The article reported that topics covered in the testimony ranged from abortion to forced sterilization to poor pre-natal care and that presentations were given by women of diverse ages and economic and religious groups.
 

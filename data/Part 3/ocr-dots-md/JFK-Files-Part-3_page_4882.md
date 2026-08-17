@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4882.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 MM T-7 advised on May 5, 1967, that NORMAN ROTHMAN has a "cover" to some of his trips around the country used at International Lithographers claiming he is securing business for this company.
 

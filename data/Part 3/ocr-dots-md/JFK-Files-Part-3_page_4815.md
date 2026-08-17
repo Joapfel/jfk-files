@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4815.png
-
-Convert to MarkdownMM 92-1870
+MM 92-1870
 
 Telephone number 224-5959, Tallahassee, Florida, is for GEORGE THOMAS, 1623 El Habana. Credit and Criminal checks negative.
 

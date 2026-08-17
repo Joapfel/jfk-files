@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_677.png
-
-Convert to Markdown2 May, 1966
+2 May, 1966
 
 Subject: Wallace B. Rowton Contact with Carlos Jurado.
 

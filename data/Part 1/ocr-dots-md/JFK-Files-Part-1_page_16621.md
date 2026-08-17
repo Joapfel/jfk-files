@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16621.png
-
-Convert to Markdown1) Santelli could not locate his cousin. Trusts
+1) Santelli could not locate his cousin. Trusts
 Marseille after taking Hugo & Balland still living
 Skin contacts - lived in Hotel du Mile,
 Marseille.

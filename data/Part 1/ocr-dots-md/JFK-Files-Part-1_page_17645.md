@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17645.png
-
-Convert to MarkdownSECRET
+SECRET
 
 5. I recommend approval of these two amendments, subject to the conditions as stated by CCB/IC in paragraph four, above.
 

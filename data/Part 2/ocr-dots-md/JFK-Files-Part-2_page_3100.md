@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3100.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 for approval. The amendment concerned the need for
 more money and pointed out that:

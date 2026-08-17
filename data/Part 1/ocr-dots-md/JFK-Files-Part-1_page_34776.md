@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34776.png
-
-Convert to MarkdownMiami
+Miami
 
 17 January 1967
 

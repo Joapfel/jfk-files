@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12683.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BOSCH AVILA IN SANTIAGO.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25325.png
-
-Convert to MarkdownTAP SECRET
+TAP SECRET
 
 GONZALEZ informed X. MALLER that a large wood pulp company in Brazil was interested in doing business. It was reported that the transactions would be made with another ALP in the same country. The difficulty in dealing with ALP was that he wished to have cargos marked as coming from another country, rather than the country of origin.
 

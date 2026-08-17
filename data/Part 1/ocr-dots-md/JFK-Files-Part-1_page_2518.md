@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2518.png
-
-Convert to Markdownarrive in Moscow until November 1961, only a month
+arrive in Moscow until November 1961, only a month
 before NOSENKO left the First Section for the Seventh
 Department.
 

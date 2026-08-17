@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6313.png
-
-Convert to MarkdownI.E.T.
+I.E.T.
 
 En la citada de La Tabana, a los 30 días del mes de Junio de 1962,
 comذر los integrantes del JURUCITO NACIONAL del MINISTERIO DE

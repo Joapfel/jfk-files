@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8052.png
-
-Convert to Markdown-5-
+-5-
 
 Report No: TKI-1365.
 

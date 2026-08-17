@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15232.png
-
-Convert to Markdown530 GHS/S2/SH
+530 GHS/S2/SH
 
 SRI: Perry Crookhart
 SR/DOL:

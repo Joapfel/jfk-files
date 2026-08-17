@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17624.png
-
-Convert to MarkdownUNITED STATES GO\MENT
+UNITED STATES GO\MENT
 
 Memorandum
 

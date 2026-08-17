@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9863.png
-
-Convert to Markdownthose staff members with appropriate security clearances and a need to know.
+those staff members with appropriate security clearances and a need to know.
 
 "7.5 Testimony taken in Executive session or papers and other materials received by the staff shall not be made public or disclosed to any person outside the Committee unless authorized by a majority vote of the Committee, or upon termination of the Committee, as determined by a vote of the Senate.
 

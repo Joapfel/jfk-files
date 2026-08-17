@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27506.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 EEO: 21 OCT 70

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29166.png
-
-Convert to MarkdownThis return is due April 15, 1976 or on the 15th day of the fourth month after the close of your tax year. Under penalties of perjury. I declare that I have examined this return, including accompanying schedules and statements, and to the best of my knowledge and belief it is true, correct and complete. If prepared by a person other than the taxpayer, his declaration is based on all information of which he has any knowledge.
+This return is due April 15, 1976 or on the 15th day of the fourth month after the close of your tax year. Under penalties of perjury. I declare that I have examined this return, including accompanying schedules and statements, and to the best of my knowledge and belief it is true, correct and complete. If prepared by a person other than the taxpayer, his declaration is based on all information of which he has any knowledge.
 
 OFFICE USE
 

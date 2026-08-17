@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7953.png
-
-Convert to MarkdownThe claim that Oswald's rifle was fired in the Texas School Book Depository. The claim that bullet hulls matching those of the Dallas Police Department were found in the same place. The claim that one gunman was seen "Oswald window" of the Dallas Book Depository.
+The claim that Oswald's rifle was fired in the Texas School Book Depository. The claim that bullet hulls matching those of the Dallas Police Department were found in the same place. The claim that one gunman was seen "Oswald window" of the Dallas Book Depository.
 
 The claim that two gunmen were seen through a window.
 The claim that a gunman was seen

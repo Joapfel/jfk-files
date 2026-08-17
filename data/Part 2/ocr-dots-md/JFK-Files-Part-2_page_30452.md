@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30452.png
-
-Convert to Markdowncertain call, and I do not recall ever doing that. But it
+certain call, and I do not recall ever doing that. But it
 was my understanding that if you expected some situation, that
 you could levy a requirement -- for example, let me give you
 a for instance here.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16600.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>SECRET (When Placed In) [SECRET MARK]</td><td>2</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED ☑</td><td></td></tr><tr><td>BY: ______________________ AT: ______________________</td><td></td></tr><tr><td>DISSEM #38 PER #</td><td></td></tr><tr><td>ACTION UNIT [CWHB] 170</td><td>FILE. VR.清AN, CLEURS, C/CI, C/F12,</td></tr><tr><td>ACTION NO. 187</td><td></td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFIED MESSAGE</th><th>TOTAL COPIES</th></tr></thead><tbody><tr><td>SECRET (When Placed In) [SECRET MARK]</td><td>2</td></tr><tr><td>ADVANCE COPY ☐ ISSUED ☐ SLOTTED ☑</td><td></td></tr><tr><td>BY: ______________________ AT: ______________________</td><td></td></tr><tr><td>DISSEM #38 PER #</td><td></td></tr><tr><td>ACTION UNIT [CWHB] 170</td><td>FILE. VR.清AN, CLEURS, C/CI, C/F12,</td></tr><tr><td>ACTION NO. 187</td><td></td></tr></tbody></table>
 
 SECRET 052216Z JAN 71 CITE WH/MIAMI 9956
 PRIORITY LONDON, THE HAGUE INFO DIRECTOR, MADRID

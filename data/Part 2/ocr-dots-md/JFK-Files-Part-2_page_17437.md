@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17437.png
-
-Convert to MarkdownInformant advised on March 11, 1969:
+Informant advised on March 11, 1969:
 
 There was a BPP meeting on March 10 at ROBERT BRUCE's house with 30-35 BPP members present. Five or six girls were present this time. HAMPTON played 3 or 4 tapes from ELDRIGE CLEAVER who said on the tapes that the BPP must get HUEY NEWTON out of jail. CLEAVER promised that if NEWTON is gotten out of jail in one way or another, then he, CLEAVER, will personally walk up to President NIXON and slap him in the face. CLEAVER also said on the tape that the Negro made the mistake of burning their own property when MARTIN LUTHER KING was killed whereas they should have burned property of the whites. He wants Negroes to stop stealing from other Negroes and committing crimes against Negroes.
 

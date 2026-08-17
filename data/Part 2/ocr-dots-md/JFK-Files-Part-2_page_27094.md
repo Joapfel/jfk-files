@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27094.png
-
-Convert to Markdown10 July 1975
+10 July 1975
 
 DATE:
 

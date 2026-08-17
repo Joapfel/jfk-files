@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7184.png
-
-Convert to Markdown13-00000
+13-00000
 
 CABLE SEC'DIGSEMD BY PER: ____________
 PERSON/UNIT NOTIFIED: ____________________

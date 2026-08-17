@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9217.png
-
-Convert to MarkdownTabard Inn
+Tabard Inn
 1739 N Street, N.W.
 Washington 6, D. C.
 

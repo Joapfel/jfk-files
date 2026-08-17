@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17909.png
-
-Convert to MarkdownNRØØ1 MP CODED
+NRØØ1 MP CODED
 
 7:13 PM NITEL MARCH 25, 1975 DSC
 

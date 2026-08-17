@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25785.png
-
-Convert to MarkdownORIG: C. ZEHRUNG
+ORIG: C. ZEHRUNG
 UNIT : WH
 EXT : 2555
 DATE : 8 DECEMBER 1958

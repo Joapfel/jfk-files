@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6040.png
-
-Convert to Markdownthe greatest student manifestation that has taken place in San Jose. More than 6,000 students asking the government to break relations with Castro were present at it.
+the greatest student manifestation that has taken place in San Jose. More than 6,000 students asking the government to break relations with Castro were present at it.
 
 3.- **The campaign to save the life of Miguel Garcia Armengol.** For this campaign, as well as for the campaign in favor of Miller, we appealed to every means possible, thus attaining the help from the Latin American governments and from almost all the Student Unions and civic organizations of the continents.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8535.png
-
-Convert to MarkdownATTACHMENT B (4)
+ATTACHMENT B (4)
 
 Item No. 67 (lines 24, 25) MSS p. no. 92
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5999.png
-
-Convert to MarkdownSUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
+SUBJECT: JFK Declaration of Fredrick C. Wickham, Jr.
 
 George N. Belic and John Bogart in January 1971, and
 controlled by SB.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23027.png
-
-Convert to Markdown1 knowledge that he was involved with Cuban operations affiliated
+1 knowledge that he was involved with Cuban operations affiliated
 2 with the CIA?
 3 Mr. Halley. No.
 4 Again, at the time I had no knowledge of Robert Maheu. I

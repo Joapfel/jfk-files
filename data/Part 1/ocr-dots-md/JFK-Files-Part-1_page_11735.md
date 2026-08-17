@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11735.png
-
-Convert to MarkdownTelephone 65628. Printing Shop — San Francisco 483 ALL CORRESPONDENCE Casilla 1250 — Santiago Publishers: DAVID A. PHILLIPS — J. TAYLOR COLLINS Associate Editor ... Edmond K. Bannon Literary Editor ... Oswald Hardey Evans Technical Adviso . . . . Jose F. del Rey Advertising Staff Victor A. Parker Leonor Trew decls — Robert Hansen
+Telephone 65628. Printing Shop — San Francisco 483 ALL CORRESPONDENCE Casilla 1250 — Santiago Publishers: DAVID A. PHILLIPS — J. TAYLOR COLLINS Associate Editor ... Edmond K. Bannon Literary Editor ... Oswald Hardey Evans Technical Adviso . . . . Jose F. del Rey Advertising Staff Victor A. Parker Leonor Trew decls — Robert Hansen
 
 First published as the "Chilean Times", August 1, 1951.
 

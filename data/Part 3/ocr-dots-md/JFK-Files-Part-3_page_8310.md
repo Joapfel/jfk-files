@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8310.png
-
-Convert to MarkdownFollowing is typewritten clarification of the
+Following is typewritten clarification of the
 handwritten comment of J. Edgar Hoover on the attached
 document:
 

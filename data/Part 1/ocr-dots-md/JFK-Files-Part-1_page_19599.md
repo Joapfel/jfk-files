@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19599.png
-
-Convert to MarkdownSEC. 12. EDUCATION
+SEC. 12. EDUCATION
 
 ELEMENTAR: SCHüler China Inlandmissionsschüler
 Public School Chaoxu, Shantung, R. China

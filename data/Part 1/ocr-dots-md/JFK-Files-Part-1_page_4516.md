@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4516.png
-
-Convert to MarkdownSECRET 271647Z
+SECRET 271647Z
 
 DIR CITE LEOP 3701
 

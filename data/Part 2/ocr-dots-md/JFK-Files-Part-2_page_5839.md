@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5839.png
-
-Convert to Markdownconsistent standards were being used for the entire
+consistent standards were being used for the entire
 collection.
 
 Each document in the collection was read by an

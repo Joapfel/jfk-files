@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2347.png
-
-Convert to Markdownof the PLP and an expert on organization. The PLP is particularly interested in expanding its membership on the West Coast as evidenced by the recent assignment of [redacted], to Los Angeles, for that purpose.
+of the PLP and an expert on organization. The PLP is particularly interested in expanding its membership on the West Coast as evidenced by the recent assignment of [redacted], to Los Angeles, for that purpose.
 
 The PLP maintains close contact with pro-Chinese Communist groups abroad and its publications consistently follow the Chinese Communist line. For example, during early 1968 the PLP issued a pamphlet in which it proclaimed that the PLP is among groups which "proudly make common cause with each other and with the Chinese for world revolution" and boasted of its support of the Viet Cong in defeat of our "common enemy, the United States ruling class."
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26888.png
-
-Convert to MarkdownSECRET
+SECRET
 
 a telescopic sight.
 

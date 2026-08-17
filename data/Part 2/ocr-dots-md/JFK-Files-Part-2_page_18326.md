@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18326.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DUE 62-37
 

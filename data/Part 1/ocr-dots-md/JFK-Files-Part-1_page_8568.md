@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8568.png
-
-Convert to Markdownthat S met with LOG on Non evening (July 21), i.e. at the time S was supposed to meet with me and he did not have the guts to tell me that he left me waiting and he went to meet with LOG.
+that S met with LOG on Non evening (July 21), i.e. at the time S was supposed to meet with me and he did not have the guts to tell me that he left me waiting and he went to meet with LOG.
 
 4. I went to the debriefing of S on his meet with LOG. Most of the aspects of that meet are self explanatory. Nevertheless, there are new interesting factors concerning S' future meets with LOG. It may be noted that S requested less frequent meet on basis of suggestion I made to him during the brief meet of July 18. Another factor is the rattling of big money.
 

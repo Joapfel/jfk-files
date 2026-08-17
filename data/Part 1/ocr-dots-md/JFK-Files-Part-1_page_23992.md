@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23992.png
-
-Convert to Markdown<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>O5L-A-42,604</td></tr></tbody></table>
+<table><thead><tr><th>CLASSIFICATION</th><th>DISPATCH SYMBOL AND NO.</th></tr></thead><tbody><tr><td>SECRET</td><td>O5L-A-42,604</td></tr></tbody></table>
 
 CONTINUATION OF
 DISPATCH

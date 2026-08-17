@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14198.png
-
-Convert to Markdown(168. 10/23/62 Continued)
+(168. 10/23/62 Continued)
 
 or operate the above items; and any other classes of material here-
 after designated by the Secretary of Defense for purposes of effectu-

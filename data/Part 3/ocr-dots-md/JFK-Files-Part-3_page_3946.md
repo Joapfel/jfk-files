@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3946.png
-
-Convert to MarkdownPRESS RELEASE
+PRESS RELEASE
 
 NOVEMBER 7, 1975
 

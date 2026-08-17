@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17520.png
-
-Convert to Markdown7/10/69
+7/10/69
 
 BOB LEE BOBBY RUSH JEWEL COOK
 

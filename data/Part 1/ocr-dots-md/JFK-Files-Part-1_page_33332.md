@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33332.png
-
-Convert to MarkdownApprehensive middle-class homeowners man a watchtower along a security wall built around their Sanli-ago neighborhood; a Socialist slogan on the outside of the wall counters with "We Will Win."
+Apprehensive middle-class homeowners man a watchtower along a security wall built around their Sanli-ago neighborhood; a Socialist slogan on the outside of the wall counters with "We Will Win."
 
 —Photo by Santil Visalli for Photoporters.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24708.png
-
-Convert to Markdown14-00000
+14-00000
 
 T 2:2585 574765 PAGE 31-01
 TCH:3911293 SEP 70

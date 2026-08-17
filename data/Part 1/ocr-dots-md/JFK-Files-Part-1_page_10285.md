@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10285.png
-
-Convert to Markdown14-00000
+14-00000
 
 rece como el resultado de la "acolda de la primera ley fundamental de la sociologia". Esta última, atithma Oskar Lange, "restablece la correspondencia entre las relaciones de producción y las nuevas fuerzas productivas"(3). 
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7627.png
-
-Convert to MarkdownMemo for Mr. Felt
+Memo for Mr. Felt
 Re: Reorganization of C...
 
 Review statements and speeches by Director or matters affecting major public relations; invitations for speeches by the Director; assignment of speeches to FBIHQ speakers; review speech manuscripts.

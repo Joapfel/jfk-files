@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8412.png
-
-Convert to Markdown14:00:00
+14:00:00
 
 Mr. Lloyd Rosenfield
 THE LINES

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9906.png
-
-Convert to Markdown1
+1
 
 STEPHEN FISCHER-GALATI, Professor, Department of.
 

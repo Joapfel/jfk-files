@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4664.png
-
-Convert to MarkdownTP 92-1
+TP 92-1
 
 FR 4-2906, but her name was not divulged. HOWARD, according
 to source, was in contact with BEN KULBACK, 2115 Washington

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27119.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 The Nosenko case goes to the quick of the counterintelligence problem facing not only the FBI and the Agency but all Western Intelligence and Security Services, many of whom have received information derived from Nosenko. It is evident that as presently organized, the Intelligence Community is incapable of correlating intelligence production with the product and analysis of counter-intelligence information.
 

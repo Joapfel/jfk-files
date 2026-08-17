@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17937.png
-
-Convert to Markdown1 RA 16 PERCENT IS
+1 RA 16 PERCENT IS
 
 1 RA 24 PERCENT IS
 

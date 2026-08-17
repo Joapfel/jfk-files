@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8723.png
-
-Convert to MarkdownCUBAN INTELLIGENCE SERVICES 19-5-1
+CUBAN INTELLIGENCE SERVICES 19-5-1
 
 OOA 3/215,189 dated 27 March 1962
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34221.png
-
-Convert to Markdownlought, brings the USRA's foreign exchange reservoir down low, and this will mean further trouble for Castro.
+lought, brings the USRA's foreign exchange reservoir down low, and this will mean further trouble for Castro.
 
 "The Working Masses Against The Communist Regime".- With the dock workers of the U.S., Canada and Puerto Rico joining up, the labor boycott action is completed. Ships flying the flag of countries that trade with Castro will have a tough time at American ports, and the noose around Castro's neck is tightening.
 

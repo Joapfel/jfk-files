@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12130.png
-
-Convert to MarkdownVenceremos Brigade
+Venceremos Brigade
 
 not been located for interview, you should consider placing name stops in the Identification Division so that if these persons are arrested or an inquiry is made by local law enforcement authorities this fact will be immediately brought to the attention of the Bureau. In addition, a stop file is now being set up by the NCIC Unit for persons other than fugitives concerning whom the Bureau has an interest. This file will require, in addition to the name and birth date of the individual, as many other items of identification as possible such as his fingerprint classification, Social Security number, military service number, Selective Service number, and the like.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14122.png
-
-Convert to MarkdownSECRET
+SECRET
 
 asked to indicate that nothing in the "Letter of Cover Instructions" conflicts with instructions given the agent by the operating division.
 

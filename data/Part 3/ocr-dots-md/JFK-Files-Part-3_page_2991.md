@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2991.png
-
-Convert to Markdownthat they had all the information they needed to clamp down on the conspiracy and could arrest people at that point in time, and yet no arrests were made.
+that they had all the information they needed to clamp down on the conspiracy and could arrest people at that point in time, and yet no arrests were made.
 
 Why, Mr. Wannall, was this true?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27181.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 This Notice Expires 25 January 1959
 

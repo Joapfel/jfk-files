@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10488.png
-
-Convert to Markdowntenure, there were microphones in his regular office,
+tenure, there were microphones in his regular office,
 his inner office, his dining room, his office in East
 Building, and his study at his residence on White Haven
 Street. I do not know who would be willing to raise such

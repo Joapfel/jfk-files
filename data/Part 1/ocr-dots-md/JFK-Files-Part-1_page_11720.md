@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11720.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PERSONAL RECORD QUESTIONNAIRE
 

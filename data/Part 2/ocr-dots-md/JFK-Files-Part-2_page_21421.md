@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21421.png
-
-Convert to MarkdownAirtel to SAC, Atlanta
+Airtel to SAC, Atlanta
 
 RE: RICHARD THOMAS GIBSON
 105-93072

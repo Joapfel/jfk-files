@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8766.png
-
-Convert to MarkdownHe reported that Faustino PÉREZ, born ca. 1923, commander in CASTRO's army in Havana Hqs., Granma veteran and former minister in CASTRO's Government, told C-25 in August 1963 that CASTRO must be killed and all resistance groups organized. C-25 described PEREZ as an opportunist who would need promise of advantage in return for help.
+He reported that Faustino PÉREZ, born ca. 1923, commander in CASTRO's army in Havana Hqs., Granma veteran and former minister in CASTRO's Government, told C-25 in August 1963 that CASTRO must be killed and all resistance groups organized. C-25 described PEREZ as an opportunist who would need promise of advantage in return for help.
 
 ### AMRANGE Project 19-6-81/1-4
 

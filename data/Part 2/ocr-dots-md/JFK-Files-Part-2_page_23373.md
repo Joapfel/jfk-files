@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23373.png
-
-Convert to Markdown1. take refuge with Big Brother, meaning move into Lumumba's entourage?
+1. take refuge with Big Brother, meaning move into Lumumba's entourage?
 2.
 3. Mr. Tweedy. I think probably this would be -- I am trying to think how this was.
 4.

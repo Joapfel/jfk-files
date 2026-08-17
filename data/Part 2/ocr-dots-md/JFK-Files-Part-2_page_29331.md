@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29331.png
-
-Convert to MarkdownPHillips, page 8.
+PHillips, page 8.
 
 Phillips stated that he did not know if Ms. Cobb was also an informant for the Federal Bureau of Investigation.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24485.png
-
-Convert to MarkdownThis increase in violence in Colombia, to which must be added the recent gang attack in San Jose de Urama, similar to the incidents of past years, occurred immediately after the charges made a few days ago by the Buenos Aires daily La Prensa, one of the most serious and prestigious newspapers on this continent. On this occasion, the Argentine newspaper made editorial mention of Colombia as one of the countries which will be most seriously affected by the communist violence, along with Venezuela, Peru, Ecuador and Bolivia.
+This increase in violence in Colombia, to which must be added the recent gang attack in San Jose de Urama, similar to the incidents of past years, occurred immediately after the charges made a few days ago by the Buenos Aires daily La Prensa, one of the most serious and prestigious newspapers on this continent. On this occasion, the Argentine newspaper made editorial mention of Colombia as one of the countries which will be most seriously affected by the communist violence, along with Venezuela, Peru, Ecuador and Bolivia.
 
 The facts indicate, moreover, that despite the ideological differences, the various "Maoist," "Castroist," and "Muskovite" categories of communist fauna are solidly united and pledged to the plan of terrorism and violence denounced in these charges.
 

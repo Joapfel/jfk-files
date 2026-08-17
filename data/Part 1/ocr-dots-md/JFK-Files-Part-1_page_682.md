@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_682.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CS-1337 (Millard)
 

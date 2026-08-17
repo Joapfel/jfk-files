@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17230.png
-
-Convert to Markdown21 November 1961
+21 November 1961
 
 LIEMPTY Project Renewal Request
 

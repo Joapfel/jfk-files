@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15261.png
-
-Convert to Markdownm. Map study for concealed movement.
+m. Map study for concealed movement.
 
 n. Map locations by:
 

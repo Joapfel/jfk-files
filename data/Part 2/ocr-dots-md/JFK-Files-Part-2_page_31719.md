@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31719.png
-
-Convert to MarkdownSF 100-46832
+SF 100-46832
 WEH:jb
 
 Dr. CARLTON GOODLETT

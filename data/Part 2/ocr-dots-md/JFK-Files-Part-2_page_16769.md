@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16769.png
-
-Convert to Markdownlead shot, Q2, removed from the hole in the entrance hall,
+lead shot, Q2, removed from the hole in the entrance hall,
 which hole was produced by the same shot producing the
 shot pattern in Q1, are either Number 7 1/2 or 8 in size
 based upon their weight.

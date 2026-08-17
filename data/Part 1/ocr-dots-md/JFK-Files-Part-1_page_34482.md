@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34482.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ad hoc basis. Nosenko defected on 4 February 1964, and the Secretary of State, the Attorney General, the Special Assistant to the President on National Security Affairs, McGeorge Bundy, General Carroll, Director of the Defense Intelligence Agency and the FBI were all notified immediately. On 5 February 1964, General Carter reported the defection to an executive session of USIB and followed this up with formal statements to USIB members on 11 and 19 February 1964, which stated that Nosenko's bona fides had not yet been established. It was agreed that no DS number would be issued to Nosenko, and that he would be handled on a special basis by this Agency. In fact, normal USIB interest in Nosenko as a defector dropped off drastically as it became quickly apparent that he had no positive intelligence interest of value to any part of the community.
 

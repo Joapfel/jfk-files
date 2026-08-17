@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8842.png
-
-Convert to MarkdownCecil B. ARLISS, Rita N. BLAZEK,
+Cecil B. ARLISS, Rita N. BLAZEK,
 Barbara C. HUFIG, LIFEUD/19, LIHUFF/1,
 Joyce H. PINEINCH, John R. SANDAMANIS,
 Philip K. TESSAROLO, Edward G. TICHBORN,

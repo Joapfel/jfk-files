@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23560.png
-
-Convert to MarkdownThere follows from this, I would think, the conclusion that secret activities are permissible so long as they do not corrupt the principles and practices of our society, and that they cease to be permissible when their effect is to corrupt those principles and practices.
+There follows from this, I would think, the conclusion that secret activities are permissible so long as they do not corrupt the principles and practices of our society, and that they cease to be permissible when their effect is to corrupt those principles and practices.
 
 Each form of secret activity presents its own problem. Clarendoutive intelligence collection has been a traditional function of the national state. Its rules and usages are fairly well established. In the main, espionage, if conducted with discretion, should present no great problem. However, when conducted with an open checkbook and a broad mandate, even espionage can begin to push against the limits of secret activity in an open society. I consider later, for example, the question of the Controlled American Source (CAS) and whether the overdoing of CAS is not beginning to harm other activities of the government.
 

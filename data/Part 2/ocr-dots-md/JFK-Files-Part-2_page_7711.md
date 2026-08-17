@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7711.png
-
-Convert to Markdownb. Identify U.S. Government employees who are being targetted by these adversary services;
+b. Identify U.S. Government employees who are being targetted by these adversary services;
 
 c. Determine the scope of activity of these adversary services by area, date and modus operandi;
 

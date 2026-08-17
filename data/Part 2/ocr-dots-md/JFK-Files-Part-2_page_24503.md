@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24503.png
-
-Convert to Markdown"Bissell: I have no idea whether I did [.] I have no idea of the wording. I think it might quite possibly have been left in the more general terms of using the underworld against the Castro regime, or the leadership of the Castro regime.
+"Bissell: I have no idea whether I did [.] I have no idea of the wording. I think it might quite possibly have been left in the more general terms of using the underworld against the Castro regime, or the leadership of the Castro regime.
 
 Q. Mr. Bissell, given the state of your knowledge at that time, wouldn't that have been deliberately misleading information?
 

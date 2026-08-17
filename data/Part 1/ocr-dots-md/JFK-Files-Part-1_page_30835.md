@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30835.png
-
-Convert to MarkdownSECRET (When Filled In)
+SECRET (When Filled In)
 
 Date 4-19-71
 

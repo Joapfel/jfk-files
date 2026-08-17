@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33692.png
-
-Convert to MarkdownNational Committee for a Free Europe, Inc.
+National Committee for a Free Europe, Inc.
 
 350 FIFTH AVENUE • ROOM 301 • NEW YORK 1, N. Y. • TELEPHONE EXTANT 9-2100
 CABLE ADDRESS: NAFPECONM

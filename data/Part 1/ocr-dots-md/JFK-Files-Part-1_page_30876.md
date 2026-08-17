@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30876.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><thead><tr><th colspan="3">TOTAL COPY</th></tr></thead><tbody><tr><td>JACOBSENYER</td><td>SECRET</td><td></td></tr><tr><td>MIL/Contracts</td><td></td><td></td></tr><tr><td>LTD.</td><td></td><td></td></tr><tr><td>7 December 1970</td><td></td><td></td></tr></tbody></table>
 

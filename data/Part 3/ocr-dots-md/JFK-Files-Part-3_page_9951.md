@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9951.png
-
-Convert to Markdown"The Executive Protective Service, under the control of the Director, USSS, is charged by Title 3, U. S. Code, Section 202, with protection of the Executive Mansion and grounds in the District of Columbia; any building in which Presidential offices are located; foreign diplomatic missions located in the metropolitan area of the District of Columbia; and foreign diplomatic missions located in such other areas in the United States, its territories and possessions, as the President, on a case-by-case basis, may direct.
+"The Executive Protective Service, under the control of the Director, USSS, is charged by Title 3, U. S. Code, Section 202, with protection of the Executive Mansion and grounds in the District of Columbia; any building in which Presidential offices are located; foreign diplomatic missions located in the metropolitan area of the District of Columbia; and foreign diplomatic missions located in such other areas in the United States, its territories and possessions, as the President, on a case-by-case basis, may direct.
 
 "The FBI is charged under Title 18, U. S. Code, Section 1751, with investiga- tive jurisdiction over the assault, killing or kidnaping, and attempts or conspiracies to assault, kill or kidnap the President of the United States and other designated individuals.
 

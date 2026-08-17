@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20150.png
-
-Convert to MarkdownE. In sum, Richardson's qualifications, broad experience and proven abilities dominate his age, the only factor mitigating against a promotion at this time. It is therefore my sincere recommendation that a promotion recommendation be forwarded to Headquarters for consideration in the current mid-year lists.
+E. In sum, Richardson's qualifications, broad experience and proven abilities dominate his age, the only factor mitigating against a promotion at this time. It is therefore my sincere recommendation that a promotion recommendation be forwarded to Headquarters for consideration in the current mid-year lists.
 
 EDWARD MARELLUS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32707.png
-
-Convert to Markdownphase of aggression." He urged the Council to call for the immediate withdrawal of Soviet missiles and other offensive weapons from Cuba.
+phase of aggression." He urged the Council to call for the immediate withdrawal of Soviet missiles and other offensive weapons from Cuba.
 
 Ambassador Stevenson then informed the Security Council, in accordance with Article 54 of the Charter, that the Council of the O.A.S. had adopted a resolution by 19 affirmative votes (as noted above) calling for the dismantling and withdrawal of the offensive weapons, recommending that member states of the O.A.S. take all measures to ensure that the threat was removed from the continent, and expressing the hope that the Security Council will "dispatch U.N. observers to Cuba at the earliest moment."
 

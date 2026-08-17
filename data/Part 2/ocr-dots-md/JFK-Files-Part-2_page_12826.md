@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12826.png
-
-Convert to MarkdownSECRET
+SECRET
 
 is reportedly serving a 15 year sentence in prison in Cuba. However, OTTO is reportedly the indoctrinator of Communism to the prisoners.
 

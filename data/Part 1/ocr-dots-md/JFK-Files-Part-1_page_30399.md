@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30399.png
-
-Convert to MarkdownSTANDARD FORM 61 (9/21/84)
+STANDARD FORM 61 (9/21/84)
 PROMulgated by the Federal Service Commission
 FEDERAL PUBLIC SERVICE
 

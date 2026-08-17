@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5990.png
-
-Convert to Markdown1-Mr. G. D. DeLoach
+1-Mr. G. D. DeLoach
 1-Mr. W. C. Sullivan
 1-Mr. G. C. Moore
 1-Liaison Section

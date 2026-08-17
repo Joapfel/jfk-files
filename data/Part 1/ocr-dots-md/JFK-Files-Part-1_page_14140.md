@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14140.png
-
-Convert to MarkdownWHD AGENT B.O. No
+WHD AGENT B.O. No
 
 <u>Past II - Biographic Data</u>
 

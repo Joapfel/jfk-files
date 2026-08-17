@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7638.png
-
-Convert to MarkdownTAL Commission File
+TAL Commission File
 
 <table><tr><td>DISPATCH</td></tr><tr><td>TO</td><td>S-E-C-R-E-T</td></tr><tr><td>INFO.</td><td>Chiefs of all Stations</td></tr><tr><td>FROM</td><td>Chief, KUDOVE</td></tr></table>
 

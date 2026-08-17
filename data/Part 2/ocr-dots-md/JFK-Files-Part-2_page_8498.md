@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8498.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: Special Assistant to DDO for External Oversight
 

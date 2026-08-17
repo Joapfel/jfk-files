@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13894.png
-
-Convert to MarkdownFicha de pasaporte
+Ficha de pasaporte
 
 Nacionalidad
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7117.png
-
-Convert to Markdown005
+005
 
 25. October 1965
 

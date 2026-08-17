@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26951.png
-
-Convert to Markdown12 July 1972
+12 July 1972
 
 C-168, Washington Field Office
 

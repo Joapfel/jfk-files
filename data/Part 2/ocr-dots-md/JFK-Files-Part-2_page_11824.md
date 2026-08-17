@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11824.png
-
-Convert to MarkdownJ. INDICES
+J. INDICES
 
 1. Alphabetic name index and symbol number index
    Are to be kept by SAC, ASAC, or security supervisor consistent with maximum security and best administrative practice

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6686.png
-
-Convert to MarkdownIn Pds. Please Refer to
+In Pds. Please Refer to
 104-157-3597
 
 Chicago, Illinois

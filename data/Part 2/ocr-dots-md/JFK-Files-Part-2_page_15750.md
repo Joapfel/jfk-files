@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15750.png
-
-Convert to Markdown# VI. EVIDENCE OF BPP ATTEMPTS TO AFFILIATE OR FORM COALITIONS WITH OTHER GROUPS
+# VI. EVIDENCE OF BPP ATTEMPTS TO AFFILIATE OR FORM COALITIONS WITH OTHER GROUPS
 
 advised on December 10, 1969, a bazaar had been sponsered by the CP of Illinois on December 6, 1969, at which party leaders were present.
 

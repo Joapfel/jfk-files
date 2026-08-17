@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1234.png
-
-Convert to MarkdownWALTER D. HUDDLESTON, KY.
+WALTER D. HUDDLESTON, KY.
 ROBERT MORGAN, N.C.
 GARY HART, COLO.
 

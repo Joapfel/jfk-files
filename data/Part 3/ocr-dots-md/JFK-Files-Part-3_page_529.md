@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_529.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 The Philadelphia Office furnished public source information to Ivan Scott, announcer for radio station WIP, Philadelphia, Pennsylvania, prior to March 31, 1962, depicting the true facts in regard to Morton Sobell's trial and conviction for Conspiracy to Commit Espionage in effort to counteract propaganda being spread by the communists. Scott interviewed several pickets during a demonstration on March 31, 1962, sponsored by the Committee to Secure Justice for Morton Sobell at Philadelphia and asked if they were Communists.
 

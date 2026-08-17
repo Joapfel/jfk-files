@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11183.png
-
-Convert to Markdown# INDEX FOR SECTION 87D
+# INDEX FOR SECTION 87D
 References are to page.
 
 ## Interviews (continued)

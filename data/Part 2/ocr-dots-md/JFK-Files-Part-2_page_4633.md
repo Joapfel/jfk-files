@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4633.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HALPERN, SAM
 Interview by Brian Latell, Michael Warner

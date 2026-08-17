@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26745.png
-
-Convert to MarkdownHeel 72-MICO-38
+Heel 72-MICO-38
 3 May 1965
 
 17.2 In. Luis with Inge Rico, who answers. "She" has not phoned.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9294.png
-
-Convert to Markdown17...Grave of S's wife Madyahis Allilinyova, Moscow '37.
+17...Grave of S's wife Madyahis Allilinyova, Moscow '37.
 
 19...Valery; son Fancesca, NYC, 8/4/46; SOV300930
 

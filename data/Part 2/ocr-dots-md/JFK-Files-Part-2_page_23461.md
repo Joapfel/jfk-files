@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23461.png
-
-Convert to MarkdownII
+II
 
 # 4. Supply Drops - Cuba
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_32821.png
-
-Convert to Markdown37 March 1968
+37 March 1968
 
 RESEARCH FOR: CI/CA
 Attention: Mr. Jack Lally

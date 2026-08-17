@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5810.png
-
-Convert to MarkdownDeclaration of EDMUND COHEN
+Declaration of EDMUND COHEN
 
 4. The Central Intelligence Agency: (a) has made diligent records searches to locate and disclose to the JFK Assassination Records Review Board (the Board) all records in its possession relating to Lee Harvey Oswald and the assassination of President Kennedy; and (b) is aware of no other assassination-related records in its possession being withheld from the Board.
 

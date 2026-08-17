@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19975.png
-
-Convert to Markdown1
+1
 
 APPENDIX
 SEATTLE WOMEN ACT FOR PEACE (SWAP)

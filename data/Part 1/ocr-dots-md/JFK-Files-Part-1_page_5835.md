@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5835.png
-
-Convert to Markdown14-00000
+14-00000
 
 # SUPPLEMENTARY MASTER LIST NO. 103 NO YR
 

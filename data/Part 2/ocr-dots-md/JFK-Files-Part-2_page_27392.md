@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27392.png
-
-Convert to MarkdownB-W
+B-W
 (VI-H)
 
 A. Memo for the Record - Inspection of the Office of Security - 21 Aug 61

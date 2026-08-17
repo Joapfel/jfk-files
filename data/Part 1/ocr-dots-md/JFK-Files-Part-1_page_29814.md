@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29814.png
-
-Convert to MarkdownThe document contains no text. It is a draft of an letter written by William Harvey to his son, likely for use in the army. The format and language are consistent with military writing, particularly the use of active voice and the absence of personal pronouns like 'I' or 'we.'
+The document contains no text. It is a draft of an letter written by William Harvey to his son, likely for use in the army. The format and language are consistent with military writing, particularly the use of active voice and the absence of personal pronouns like 'I' or 'we.'
 
 1. **(beginnings)**: A standard format for beginning letters indicates that the letter has been written on behalf of someone else. This is typically found at the top of letters or at the bottom as a reference point.
 

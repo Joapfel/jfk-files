@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4419.png
-
-Convert to MarkdownEugene Claude Garcia
+Eugene Claude Garcia
 
 Age: 29 years
 

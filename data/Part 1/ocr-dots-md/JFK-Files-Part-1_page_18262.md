@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18262.png
-
-Convert to MarkdownSTOCKHOLM, SWEDEN - SEPTEMBER 18: Sweden has scheduled a return to earth circa 1 October this year. Postponed because of hurricane INSZ.
+STOCKHOLM, SWEDEN - SEPTEMBER 18: Sweden has scheduled a return to earth circa 1 October this year. Postponed because of hurricane INSZ.
 
 The port is now being dredged and a new one will be created at the same site. As long as the latter site is already scheduled for termination October-November 66.
 

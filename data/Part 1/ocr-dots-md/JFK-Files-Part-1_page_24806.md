@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24806.png
-
-Convert to Markdown24 March 1967
+24 March 1967
 
 MEMORANDUM FOR: Chief, WH/Support
 

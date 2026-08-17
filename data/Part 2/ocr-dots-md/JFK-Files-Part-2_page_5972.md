@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5972.png
-
-Convert to MarkdownNOTE TO:
+NOTE TO:
 SUBJECT:
 REFERENCE:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5047.png
-
-Convert to MarkdownMemorandum to Mr. Belmont
+Memorandum to Mr. Belmont
 
 RE: EUGENE THOMAS, ET AL
 

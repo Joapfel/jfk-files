@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23597.png
-
-Convert to MarkdownFILE:
+FILE:
 
 In response to a question about NSAM's, Goodwin noted that
 these came out of the Bundy shop, which had little formal staff. Good-

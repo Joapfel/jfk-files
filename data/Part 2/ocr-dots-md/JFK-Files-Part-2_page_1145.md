@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1145.png
-
-Convert to MarkdownSECTION C - NARRATIVE COMMENTS, Joseph B. Smith (cont.)
+SECTION C - NARRATIVE COMMENTS, Joseph B. Smith (cont.)
 
 Agency. In design and content the new courses reflect thoughtfulness, imagination, and realism--a combination of traits only too seldom encountered.
 

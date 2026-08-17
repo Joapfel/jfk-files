@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11158.png
-
-Convert to Markdowncont.
+cont.
 
 L-9 went to see Rub. Joaquín HERNANDEZ Armas after AGUIRRE failed to help him and HERNANDEZ told him he would talk with Ing. Jorge Gutiérrez, that TAMayo was the man who would be able to help. L-9 is pretty shock up about this problem because he was told at Government that he would have to reapply again and therefore go through the same KATHOLIK red tape as before, i.e. five years, restricted travel etc. L-9, of course, has new hope with his contact with us but now he was told that only as a last resort would the U.S. get involved in order to protect the operation.
 

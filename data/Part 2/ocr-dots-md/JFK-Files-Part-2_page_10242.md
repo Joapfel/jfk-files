@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10242.png
-
-Convert to Markdown24. APR. 1972
+24. APR. 1972
 
 Foreign Support for Activities Planned to Disrupt or Harass the Republican National Convention
 

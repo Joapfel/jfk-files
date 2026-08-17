@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27030.png
-
-Convert to MarkdownChief Domestic Collection Division
+Chief Domestic Collection Division
 
 Attn: Support Branch 'OSS'(rmt)
 

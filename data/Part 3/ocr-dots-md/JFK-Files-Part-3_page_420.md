@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_420.png
-
-Convert to MarkdownOFFICE OF THE
+OFFICE OF THE
 DEPUTY ATTORNEY GENERAL
 
 7/18

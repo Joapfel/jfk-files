@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33344.png
-
-Convert to Markdownleft two trade unionists seriously injured, ply with his doctrine, no matter who falls and no master following before her death in a major public rally to what the cost," said Mrs Perón. 1952.
+left two trade unionists seriously injured, ply with his doctrine, no matter who falls and no master following before her death in a major public rally to what the cost," said Mrs Perón. 1952.
 
 The rally was ostensibly called to publicize the Government's decision last week to nationalize the distribution and sale of petroleum products, until now, Shell and Euskal Herriaeries had shared the local sale of oil products with the State Petroleum Company.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24880.png
-
-Convert to MarkdownA. Findings Concerning the Plots Themselves
+A. Findings Concerning the Plots Themselves
 
 1. Officials of the United States Government Initiated Plots to Assassinate Fidel Castro and Patrice Lumumba
 

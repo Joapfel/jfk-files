@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8748.png
-
-Convert to Markdown13-00000
+13-00000
 
 Czech. to be head of political police of Cuba.
 Reportedly took refuge in Brazilian Embassy Havana

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30250.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th colspan="10">NOTIFICATION OF PERSONNEL ACTION</th></tr></thead><tbody><tr><td>LVL</td><td>29 JULY</td><td>58</td><td colspan="6"></td></tr><tr><td>1. Serial No.</td><td>2. Name (Last-First-Middle)</td><td>3. Date Of Birth</td><td>4. Vt. State</td><td>5. See</td><td>6. C/C/Sr</td><td></td><td></td><td></td><td></td></tr><tr><td>158124</td><td>MCCORD JAMES W JR</td><td>08 26 24</td><td>Name Code</td><td>S-P-I</td><td>M</td><td>1</td><td>GS</td><td>22</td><td>51</td></tr><tr><td rowspan="2">7. SCD<br/>Mo./No./Year</td><td rowspan="2">8. CSC Retrn.<br/>Yes./No./Code</td><td rowspan="2">9. CSC Or Other Legal Authority<br/>Yes./No./Yr.</td><td rowspan="2">Title And Affiliation<br/>Yes./No./Yr.</td><td rowspan="2">11. REGU<br/>Yes./No./Code</td><td rowspan="2">12. See<br/>Yes./No./Yr.</td><td rowspan="2">13. Appr't<br/>Yes./No./Yr.</td><td rowspan="2">C/C<br/>Yes./No./Yr.</td><td rowspan="2"></td><td rowspan="2"></td></tr><tr><td></td></tr><tr><td>03</td><td>27</td><td>45</td><td>1</td><td>50 USCA 403 a</td><td></td><td>08</td><td>22</td><td>51</td><td>110.2</td><td>2</td></tr></tbody></table>
 

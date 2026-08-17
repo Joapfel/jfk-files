@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26210.png
-
-Convert to MarkdownVI. 28 Jan 69
+VI. 28 Jan 69
 
 N E X I C O
 

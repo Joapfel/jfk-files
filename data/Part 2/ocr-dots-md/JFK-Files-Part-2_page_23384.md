@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23384.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 fact that we were not overly disappointed that Lumumba was not assassinated at this point is just not the level of intercourse that I had with a very professional Chief of Station. That is all.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25819.png
-
-Convert to MarkdownOn July 30, 1975 Emily Sheketoff of your staff receipted for a one page notification distributed to chairman and members that Anne P. Commanduras, an employee of CIA's domestic assassination office, had been murdered in her apartment house swimming pool by CIA assassin Eugene Hale Brading.
+On July 30, 1975 Emily Sheketoff of your staff receipted for a one page notification distributed to chairman and members that Anne P. Commanduras, an employee of CIA's domestic assassination office, had been murdered in her apartment house swimming pool by CIA assassin Eugene Hale Brading.
 
 I now enjoy the additional intelligence that Commanduras was executed with a CIA dart gun such as that displayed to news cameras by a member of the Senate Intelligence Committee. The intelligence weapon fires a sliver coated with shellfish toxin that kills within seconds, dissolves and leaves no mark. The CIA preserved their shellfish toxin supply in direct contravention of an order of the President. Your Committee filed this report without action along with over 200 additional counterintelligence. Is this secrecy that protects national security?
 

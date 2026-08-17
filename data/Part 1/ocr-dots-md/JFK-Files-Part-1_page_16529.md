@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16529.png
-
-Convert to Markdown<table>
+<table>
   <tr>
     <td>102-973</td>
     <td>SUBMIT AS COPY</td>

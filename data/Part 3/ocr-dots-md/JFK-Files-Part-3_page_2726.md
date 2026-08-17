@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2726.png
-
-Convert to Markdown1922
+1922
 
 But why would that vary, why would a warrant requirement
 raise a serious constitutional question?

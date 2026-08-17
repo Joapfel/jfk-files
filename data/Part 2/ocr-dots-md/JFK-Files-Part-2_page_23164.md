@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23164.png
-
-Convert to Markdownand our COMMENT, ELINT and other specialists to look at the OY and make a decision as to whether the operation should go on or not go. At that point I probably would have known that it was a cache, that it contained weapons, that it was in support of a headquarters run operation.
+and our COMMENT, ELINT and other specialists to look at the OY and make a decision as to whether the operation should go on or not go. At that point I probably would have known that it was a cache, that it contained weapons, that it was in support of a headquarters run operation.
 
 Mr. Johnston. Do you recall on or about 7 or 8 December 1963 a stop being put on operations, certain operations that went into Cuba?
 

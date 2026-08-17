@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13885.png
-
-Convert to MarkdownC: STR:
+C: STR:
 
 ACTION:
 

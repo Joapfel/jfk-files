@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33978.png
-
-Convert to MarkdownCubano:
+Cubano:
 
 A la news tu espina con la propaganda queosal tse en Cuba te que 'no se cae de que sune divisa' di que 'los ricos lo apoyan y todos nos encuatos qul se repite today los dias en las periodicas, en el radio y en la televisión.
 

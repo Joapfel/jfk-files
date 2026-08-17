@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6810.png
-
-Convert to MarkdownSUBURN AVE., N. E.
+SUBURN AVE., N. E.
 NTA 3, GEORGIA
 PHONE 524-1378
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29281.png
-
-Convert to Markdown24 AUG 1978
+24 AUG 1978
 
 MEMORANDUM FOR: Chief, SOD/SS/Personnel
 

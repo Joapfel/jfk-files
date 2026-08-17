@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4936.png
-
-Convert to MarkdownDECLASSIFIED BY
+DECLASSIFIED BY
 
 ON
 

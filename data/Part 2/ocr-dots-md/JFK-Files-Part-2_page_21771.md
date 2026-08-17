@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21771.png
-
-Convert to MarkdownTESTIMONY OF
+TESTIMONY OF
 
 Alfred J. Sarno
 

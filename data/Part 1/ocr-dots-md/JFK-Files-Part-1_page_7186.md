@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7186.png
-
-Convert to Markdown25 April. 1966
+25 April. 1966
 
 SUBJECT: Contact Report/LIDRE-5
 

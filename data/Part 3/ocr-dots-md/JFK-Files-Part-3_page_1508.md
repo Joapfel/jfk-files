@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1508.png
-
-Convert to MarkdownNWW 88608 DocId:32989749 Page 38
+NWW 88608 DocId:32989749 Page 38
 
 ENCLOSURE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1538.png
-
-Convert to MarkdownCalling the attention of the Government of the United States to the inadmissibility of such violations of the air space of the Soviet Union by American aircraft, the Soviet Government states that all responsibility for possible consequences of such violations rests with the Government of the United States.
+Calling the attention of the Government of the United States to the inadmissibility of such violations of the air space of the Soviet Union by American aircraft, the Soviet Government states that all responsibility for possible consequences of such violations rests with the Government of the United States.
 
 The Soviet Government expects that steps will be taken
 by the Government of the United States to punish those

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29005.png
-
-Convert to MarkdownNAME SAMUEL L PHYLLIS RUBY
+NAME SAMUEL L PHYLLIS RUBY
 I.D. NO.
 OR
 SOC. SEC. NO.

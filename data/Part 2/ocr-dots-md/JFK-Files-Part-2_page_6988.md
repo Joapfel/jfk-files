@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6988.png
-
-Convert to Markdown13-00000
+13-00000
 
 REP. LATOURETTE: Mr. Howe, I don't have a question but I'm glad you told the story of Otto Eisenschiml because somewhere in the back of my mind I remember a book or movie called the Lincoln conspiracy and I was certain that Secretary Stanton had something to do with the demise of our sixteenth president, so I'm glad you brought that up.
 

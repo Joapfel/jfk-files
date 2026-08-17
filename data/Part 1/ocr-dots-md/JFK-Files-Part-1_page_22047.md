@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22047.png
-
-Convert to MarkdownAlthough the KGB had the compromising photography, it was felt that there were insufficient materials for a recruitment approach to MORONE. The KGB wanted to trap him in the apartment of a Soviet woman, to catch him in something that is definitely prohibited. For this purpose, Svetlana IVANOVNA (see above) was supposed to lure MORONE into the city, but before anything further could be done, the Americans ordered MORONE out of Moscow before the end of his tour, possibly because they were concerned about his association with IVANOVA. Therefore, NOSENKO said, the KGB made no operational approach to MORONE and no recruitment of him.
+Although the KGB had the compromising photography, it was felt that there were insufficient materials for a recruitment approach to MORONE. The KGB wanted to trap him in the apartment of a Soviet woman, to catch him in something that is definitely prohibited. For this purpose, Svetlana IVANOVNA (see above) was supposed to lure MORONE into the city, but before anything further could be done, the Americans ordered MORONE out of Moscow before the end of his tour, possibly because they were concerned about his association with IVANOVA. Therefore, NOSENKO said, the KGB made no operational approach to MORONE and no recruitment of him.
 
 ### (c) Information from Other Sources
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15869.png
-
-Convert to Markdown13 Nov 64 in 22167
+13 Nov 64 in 22167
 
 SECRET 121709Z
 

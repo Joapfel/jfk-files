@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31727.png
-
-Convert to MarkdownDear Ben:
+Dear Ben:
 
 You may be interested in a dispatch which I received here a couple of days ago and which I quote as follows:
 

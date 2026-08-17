@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4264.png
-
-Convert to Markdownof considering possible unilateral action as opposed to using an exile group as a cutout. Mr. Bundy will explore exactly what the feeling of higher authority is with respect to relations with exile groups.
+of considering possible unilateral action as opposed to using an exile group as a cutout. Mr. Bundy will explore exactly what the feeling of higher authority is with respect to relations with exile groups.
 
 c. **Additional Programs**
 

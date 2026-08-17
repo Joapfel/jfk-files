@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_951.png
-
-Convert to Markdown104-10077-10285
+104-10077-10285
 
 <table><tr><td>ROY W. FORSLUND/341</td></tr><tr><td>SAS/PERSONNEL</td></tr><tr><td>6576</td></tr><tr><td>5 DECEMBER 63</td></tr><tr><td>JMAVE</td></tr><tr><td>A: DIRECTOR</td></tr><tr><td>F: SAS 8</td></tr><tr><td>: DDP, OP 2, 03 2, JR</td></tr></table>
 

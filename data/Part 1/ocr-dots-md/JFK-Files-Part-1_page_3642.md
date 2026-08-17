@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3642.png
-
-Convert to Markdown14-00000
+14-00000
 
 THE THOROUGHLY REVIEW OF THE EVIDENCE ATTACHED TO EACH OF THE TESTIMONY'S CASES, BY TWO EXPERTS IN LAW, MAKING A NEW EXPLANATION OF THE EVIDENCE. FOR THE first time in history, the results of science are made available on a scientific and comparative scale.
 

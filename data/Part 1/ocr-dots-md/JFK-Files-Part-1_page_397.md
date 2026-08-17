@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_397.png
-
-Convert to Markdown14-00000
+14-00000
 
 7 Robert S. Hadlhamie (Tokyo field contract) cover
 

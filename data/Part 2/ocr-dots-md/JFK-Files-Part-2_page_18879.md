@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18879.png
-
-Convert to MarkdownHON-4 (8-3-71)
+HON-4 (8-3-71)
 OPTIONAL FORM NO 10
 MAY 1962 EDITION
 C&A CAN. REG. NO. 27

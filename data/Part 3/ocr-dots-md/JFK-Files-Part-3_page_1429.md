@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1429.png
-
-Convert to MarkdownThe Honorable Griffin R. Bell
+The Honorable Griffin R. Bell
 Attorney General of the United States
 Department of Justice
 Washington, D.C. 20530

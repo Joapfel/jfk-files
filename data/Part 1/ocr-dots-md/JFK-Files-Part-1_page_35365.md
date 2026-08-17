@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35365.png
-
-Convert to MarkdownAPRIL 17, 1961
+APRIL 17, 1961
 
 DATE
 

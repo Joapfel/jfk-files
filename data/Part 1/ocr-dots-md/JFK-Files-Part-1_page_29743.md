@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29743.png
-
-Convert to MarkdownMYRCHSLAV ANDREW MARSTNEC
+MYRCHSLAV ANDREW MARSTNEC
 
 April 30, 1947
 

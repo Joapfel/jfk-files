@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13927.png
-
-Convert to Markdown# MEMORANDUM
+# MEMORANDUM
 
 20 May 1964
 

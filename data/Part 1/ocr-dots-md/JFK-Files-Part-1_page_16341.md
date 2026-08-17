@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16341.png
-
-Convert to Markdown<table><tr><td rowspan="2">SECRET</td><td>TDGS-314/01684-64</td></tr><tr><td>IN 52051 PAGE 2</td></tr></table>
+<table><tr><td rowspan="2">SECRET</td><td>TDGS-314/01684-64</td></tr><tr><td>IN 52051 PAGE 2</td></tr></table>
 
 IS STILL IN ANGERS HANDS, ALTHOUGH SURROUNDED BY REBEL FORCES.
 

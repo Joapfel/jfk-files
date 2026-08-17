@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8887.png
-
-Convert to MarkdownMEMORANDUM FOR: Contract Personnel Division
+MEMORANDUM FOR: Contract Personnel Division
 SUBJECT : Edward G. TICHSORN
 
 Please extend for a period of one year with the following amendment the present contract of Edward G. TICHSORN, which was due to expire 13 November 1964:

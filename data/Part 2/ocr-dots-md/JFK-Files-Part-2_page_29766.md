@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29766.png
-
-Convert to MarkdownDonald Deneslya Interview
+Donald Deneslya Interview
 
 the functions of Golitsin in Moscow had been the reading
 of high-level American Intelligence Reports which convinced

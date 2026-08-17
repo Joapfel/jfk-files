@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7374.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 and handle this material, and that his authorization has not
 been revoked, except in the performance of my official duties

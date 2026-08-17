@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15687.png
-
-Convert to Markdown(phonetic) Babalon is free. We can
+(phonetic) Babalon is free. We can
 relate to the brothers in Cook County
 Jail, Cook County Hospital, and all the
 other pig hospitals, and we know that

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27467.png
-
-Convert to Markdown# ADMINISTRATIVE - INTERNAL USE ONLY
+# ADMINISTRATIVE - INTERNAL USE ONLY
 
 21 December 1970
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22757.png
-
-Convert to MarkdownVIA AIR
+VIA AIR
 (Special Air or Sea Pouch)
 
 DISPATCH NO. HKH-A-3314

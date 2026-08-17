@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13370.png
-
-Convert to Markdownnot a newspaper reporter--a T.V. reporter came over, and I categorically said on television that-- this was on Channel 4--(some one said 10 from the sideline, probably Navarro) Channel 10 and told them that this article was a lie and that I was going to bring a possible libel suit against the magazine and Andrew St. George.
+not a newspaper reporter--a T.V. reporter came over, and I categorically said on television that-- this was on Channel 4--(some one said 10 from the sideline, probably Navarro) Channel 10 and told them that this article was a lie and that I was going to bring a possible libel suit against the magazine and Andrew St. George.
 
 OLSEN: Did you tell Andrew St. George that you were an old friend of E. Howard Hunt?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18282.png
-
-Convert to Markdown23 OCT 1962
+23 OCT 1962
 
 Mr. William: P. Barke
 6300 Saint Charles Avenue

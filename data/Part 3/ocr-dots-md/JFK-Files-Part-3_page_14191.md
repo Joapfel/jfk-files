@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14191.png
-
-Convert to Markdown(143. 10/9/62 Continued)
+(143. 10/9/62 Continued)
 
 Prior to this decision, CIA had operated 21 U-2 missions over or peripheral to Cuba during 1962. The dates of these 21 missions are listed below:
 

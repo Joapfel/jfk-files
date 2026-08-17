@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7395.png
-
-Convert to Markdownhad suggested a different orientation. Mr. Anderson, characterizing the enterprise as a survey rather than an investigation, stated that his instructions were from the Chairman of the Committee: they called for a detailed review of the operation of the Directorate in its entirety. Mr. Walters would mention certain particular interests, noted below, but that did not set limits to the ultimate scope of the survey. Mr. Walters then took over:
+had suggested a different orientation. Mr. Anderson, characterizing the enterprise as a survey rather than an investigation, stated that his instructions were from the Chairman of the Committee: they called for a detailed review of the operation of the Directorate in its entirety. Mr. Walters would mention certain particular interests, noted below, but that did not set limits to the ultimate scope of the survey. Mr. Walters then took over:
 
 a. He expects to do a complete review, from the managerial and substantive standpoint, of the Directorate. His initial interests indicated an auditor's approach to these questions - how budgets are compiled, examination of accounting procedures for regular and special funds, cost systems and the like.
 

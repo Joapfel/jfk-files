@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27358.png
-
-Convert to Markdown23 November 1970
+23 November 1970
 
 William V. Broe -- Addendum - SECTION III; Agency Overseas Service
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2562.png
-
-Convert to MarkdownJUL. 8 1975
+JUL. 8 1975
 
 TO: John A. Mintz, Assistant Director
 Legal Counsel Division

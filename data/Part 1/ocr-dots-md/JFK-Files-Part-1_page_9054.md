@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9054.png
-
-Convert to Markdownwould amend the cover letter to include this possibility. Both the undersigned and WUBRINY/1 stressed the importance of TICHBORN's obtaining U. S. clients to represent in Spain. Some further training for TICHBORN was recommended by WUBRINY/1, including visits to certain WUSALINE affiliates. The undersigned concurred, stating that a visit to WUSALINE's affiliate in Greece would be particularly useful because TICHBORN might also do an assessment there on a Greek associated with WUSALINE's affiliate.
+would amend the cover letter to include this possibility. Both the undersigned and WUBRINY/1 stressed the importance of TICHBORN's obtaining U. S. clients to represent in Spain. Some further training for TICHBORN was recommended by WUBRINY/1, including visits to certain WUSALINE affiliates. The undersigned concurred, stating that a visit to WUSALINE's affiliate in Greece would be particularly useful because TICHBORN might also do an assessment there on a Greek associated with WUSALINE's affiliate.
 
 5. WUBRINY/1 said that QUSALT/1 is coming to the U. S. the third or fourth week in May 1968. It was agreed that WUBRINY/1 and TICHBORN would gear up to get QUSALT/1's endorsement of TICHBORN developing business for WUSALINE/Iberia.
 

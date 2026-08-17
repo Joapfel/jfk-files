@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1419.png
-
-Convert to Markdownb. Several offices objected to references to the assassination of President Kennedy and the Watergate affair (pp. 5, 16, 30). These were rather innocuous and could probably not be justified on legal grounds.
+b. Several offices objected to references to the assassination of President Kennedy and the Watergate affair (pp. 5, 16, 30). These were rather innocuous and could probably not be justified on legal grounds.
 
 c. The second objection was the author's general verification of the information in the Agee book and the impact of this book on the Agency. Again, deletion would be difficult to justify, but you may wish to discuss the damage potential with Mr. Phillips directly.
 

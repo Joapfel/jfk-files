@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8996.png
-
-Convert to Markdowna Cuba, que fué en una de estas ocasiones, y precisamente el-
+a Cuba, que fué en una de estas ocasiones, y precisamente el-
 miércoles 18 del repertido mes de septiembre, en que al llegar
 el dicente al Consulado, alrededor de las once horas, vió sen-
 tado en un sillon, al lado izquierdo de la sala de espera del

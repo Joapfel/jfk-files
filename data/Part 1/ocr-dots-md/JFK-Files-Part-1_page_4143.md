@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4143.png
-
-Convert to Markdownto stress or suffering misfortune, some of the inverse traits begin to show: Uncontrollable outbursts of fury, impulsive reactions, peevish vindictiveness and self-pity (some of which have been observed by us firsthand).
+to stress or suffering misfortune, some of the inverse traits begin to show: Uncontrollable outbursts of fury, impulsive reactions, peevish vindictiveness and self-pity (some of which have been observed by us firsthand).
 
 6. Imbued with a somewhat shallow philosophy, AMBIDDY-1 is prone to tailor ideas to what he strives to accomplish at any given moment and to the impression he desires to leave with his opponents. Since he rightly views his relationship with the Americans as crucial toward the achievement of main goal, vis., to overthrow and succeed Castro, his pronouncements usually how close to what he conceives to represent the main lines of American thought.
 

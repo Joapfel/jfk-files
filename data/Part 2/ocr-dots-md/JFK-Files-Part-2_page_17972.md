@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17972.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Memorandum to Mr. J. B. Adams
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30122.png
-
-Convert to MarkdownOUTGOING CORRESPONDENCE
+OUTGOING CORRESPONDENCE
 
 TO: Griffin Bell
 

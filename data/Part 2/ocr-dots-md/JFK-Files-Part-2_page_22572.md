@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22572.png
-
-Convert to MarkdownSECRET!
+SECRET!
 
 before being expelled. He has visited the USSR, and several Iron Curtain countries, the Far East, Middle East and Africa, Central and South America, Korea and the Republic of China. His interviews at the front in Vietnam with American enlisted men during 1964 received considerable attention when utilized by one of the major radio networks, and his articles regarding Vietnam and other projects which appeared in a well-known magazine received much favorable comment."
 

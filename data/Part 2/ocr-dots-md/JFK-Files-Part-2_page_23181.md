@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23181.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Halley. WAVE traces, now, that indicates to me that
 whatever was done here was based on the material that was

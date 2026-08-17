@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7912.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 **COJGUT:** Extracts from Monthly Counterintelligence Reports,
 OBI, AAC

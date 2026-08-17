@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23179.png
-
-Convert to MarkdownCase 46632 - Final Details identifying Additional
+Case 46632 - Final Details identifying Additional
 Sources of Information on Dr. Jose Angel
 Bustamante O'Leary
 

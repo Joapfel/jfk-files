@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20027.png
-
-Convert to Markdown# PERFORMANCE REPORT
+# PERFORMANCE REPORT
 
 <table><thead><tr><th colspan="4">SECTION A</th></tr><tr><td>U-NAME</td><td>(Last, First)</td><td>DATE OF BIRTH</td><td>RATING LETTER</td></tr></thead><tbody><tr><td colspan="2">OFFICIAL POSITION TITLE</td><td colspan="2">26 June 1964 | M | 65-75<br/>A/Officer/Non-Commissioned Officer (Second Class)</td></tr><tr><td colspan="2">CHECKLIST TYPE OF ASSIGNMENT</td><td colspan="2">For All Assignments Indicate Position in Field of Study</td></tr><tr><td>CATION</td><td>RESIGNATION</td><td>REORDERING</td><td>INCREASED COMMISSION RATE</td></tr><tr><td rowspan="2">SINCE REORDERED</td><td>SIGNATURE (if known):</td><td>NAME:</td><td>CHANGE</td></tr><tr><td></td><td></td><td></td></tr><tr><td colspan="3">REPORTING PERIOD (Begin with):</td><td>1 April 1969 - 31 March 1970</td></tr></tbody></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20578.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>1. Serial No.</td>
     <td>2. Name (Last-First-Middle)</td>

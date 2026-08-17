@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_205.png
-
-Convert to Markdown14-0000
+14-0000
 
 SECRET 172183Z CITE MEXICO CITY 7347
 DIRECTOR

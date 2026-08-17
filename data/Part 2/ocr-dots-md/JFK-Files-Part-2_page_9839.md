@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9839.png
-
-Convert to MarkdownSAC, Chicago (157-2332)
+SAC, Chicago (157-2332)
 
 REC 98
 

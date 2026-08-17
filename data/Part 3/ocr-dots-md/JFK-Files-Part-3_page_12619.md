@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12619.png
-
-Convert to MarkdownLegal Counsel Division concurs with the general thrust of the memorandum of understanding, however, it is suggested the following wording be added where indicated:
+Legal Counsel Division concurs with the general thrust of the memorandum of understanding, however, it is suggested the following wording be added where indicated:
 
 Page 1, paragraph 3, insert after the word applicant, or employee. On line 2, change "applicants" to read "person's".
 

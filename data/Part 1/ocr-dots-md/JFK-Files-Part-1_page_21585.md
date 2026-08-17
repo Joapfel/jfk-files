@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21585.png
-
-Convert to Markdownagents of NOSENKO, became acquainted. Work against
+agents of NOSENKO, became acquainted. Work against
 the United States Exhibition was the responsibility of
 the Ninth Department, SCD, but various Departments
 were participating under the direction of the Ninth

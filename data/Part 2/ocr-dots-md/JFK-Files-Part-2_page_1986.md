@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1986.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 JLB: 14 MAY 68

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12073.png
-
-Convert to Markdown# ADEQUACY OF PERSONNEL
+# ADEQUACY OF PERSONNEL
 
 Barbara Ann Holland and Keith R. White submitted resignations close of business January 8, 1971. Replacements were received as enumerated in item one above.
 

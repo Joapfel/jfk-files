@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7234.png
-
-Convert to Markdown13-00000
+13-00000
 
 Review Staff: 75/3149/a
 Date 6 October 1975

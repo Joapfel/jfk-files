@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5595.png
-
-Convert to MarkdownIN 70936
+IN 70936
 
 TDCS-314/15048-69
 PAGE 2 OF 3 PAGES

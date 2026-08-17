@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7091.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Government departments and agencies when access to sensitive compartmented information is required.
 

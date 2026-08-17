@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10127.png
-
-Convert to Markdownas far as she was concerned, the immigration matter concerning CERVENY would be handled by her attorney, PAUL MORRIS.
+as far as she was concerned, the immigration matter concerning CERVENY would be handled by her attorney, PAUL MORRIS.
 
 Mrs. STEIN continued that in October, 1968, RIHA married a young Czechoslovakian girl by the name of HANA HRUSKOVA, and that subsequent to the marriage, a reception was held at the Black Bear Inn. She stated that while the reception was in progress, TANNENBAUM appeared, uninvited, and immediately sought out RIHA, took him to the bar section of the restaurant, and commenced a long, serious conversation with him which lasted for approximately one hour. She stated that RIHA's bride became extremely upset over this, as TANNENBAUM would not allow anyone to interrupt their conversation. Mrs. STEIN advised that on one occasion she went into the bar to tell RIHA that his bride was becoming very upset, and was answered in an angry manner by TANNENBAUM to "leave them alone." Following this conversation, the content of which is unknown to Mrs. STEIN, she stated RIHA appeared to be extremely upset, and although TANNENBAUM left immediately, RIHA seemed to have lost all interest in the reception.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_1368.png
-
-Convert to MarkdownS-5-2-7-1-K
+S-5-2-7-1-K
 
 NOTICE NO. 30-11
 CLASS: C2

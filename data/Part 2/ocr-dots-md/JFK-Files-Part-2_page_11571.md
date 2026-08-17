@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11571.png
-
-Convert to Markdownan employee of the Government, of a foreign official establishment, or of the United Nations or other international organizations, has foreign diploma, certificate or war-time status or is a member of the U.S. armed forces, the matter should be immediately reported to the Bureau and no further investigation should be conducted except upon specific Bureau authority.
+an employee of the Government, of a foreign official establishment, or of the United Nations or other international organizations, has foreign diploma, certificate or war-time status or is a member of the U.S. armed forces, the matter should be immediately reported to the Bureau and no further investigation should be conducted except upon specific Bureau authority.
 
 6. Investigative procedures concerning individuals
 

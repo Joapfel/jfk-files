@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13964.png
-
-Convert to Markdown1. Mrs. Victoria FERNANDEZ Padilla, newly arrived Atiache at the CMUN, was the Subject of a equip passed to your office 23 January 1970. Source "DGIK" provided the following information on FERNANDEZ on 1 February 1970.
+1. Mrs. Victoria FERNANDEZ Padilla, newly arrived Atiache at the CMUN, was the Subject of a equip passed to your office 23 January 1970. Source "DGIK" provided the following information on FERNANDEZ on 1 February 1970.
 
 2. FERNANDEZ will stay in New York City for probably about a three month period; while here she will be working on documents and files at the CMUN. In Havana, she is employed in the documents section of the International Organizations Directorate of MINREX. She had been scheduled to come here for three months for the same purpose in Fall 1969 during the XXIV UN General Assembly, but Cuban Permanent Representative ALARCON had objected so her travel was postponed. FERNANDEZ is billeted in the apartment (5 M, 220 East 63rd Street) previously occupied by Justo Cesar GELABERT Martinez, Attaче; GELABERT is staying temporarily with Rogelio RODRIGUEZ Lopez, First Secretary, in his apartment in Queens, 15 M, 61-15 97th Street, Elmhurst. Neither GELABERT nor RODRIGUEZ is happy over this turn of events. FERNANDEZ is married, but Source does not know anything about her husband.
 

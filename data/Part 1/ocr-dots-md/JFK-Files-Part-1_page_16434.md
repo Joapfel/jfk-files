@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16434.png
-
-Convert to Markdown31 December 1970
+31 December 1970
 
 WU/COG - 70-447
 

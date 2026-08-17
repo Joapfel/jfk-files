@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13940.png
-
-Convert to Markdown# PRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
+# PRESIDENT'S FOREIGN INTELLIGENCE ADVISORY BOARD
 
 ## Subjects Suggested By Board Members For Discussion
 By the Director of Central Intelligence When He Meets With The Board On September 13, 1963

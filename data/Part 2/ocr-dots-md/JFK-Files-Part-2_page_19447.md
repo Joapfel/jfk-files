@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19447.png
-
-Convert to Markdown# EMMA LAZARUS FEDERATION
+# EMMA LAZARUS FEDERATION
 OF JEWISH WOMEN'S CLUBS
 
 "The Jewish Fraternalist" dated October, 1947, self-identified as the official publication of the Jewish People's Fraternal Order (JPFO) of the International Workers Order (IWO), Page 6, contained an article which reflected that the Emma Lazarus Division (ELD) of the JPFO was to hold its first national convention in New York City on November 15 and 16, 1947, after having been first established at a National Women's Conference called three years previously by the JPFO.

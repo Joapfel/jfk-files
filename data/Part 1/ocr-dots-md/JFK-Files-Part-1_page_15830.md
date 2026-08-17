@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15830.png
-
-Convert to MarkdownVery dear "Eduardo"
+Very dear "Eduardo"
 
 We were starting to asking us if you were still on this planet or on the moon.
 

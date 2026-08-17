@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21223.png
-
-Convert to MarkdownCOMMENT:
+COMMENT:
 
 On February 27, 1968, (N-147), NOSENKO said he remembered the name of [FISK] as a tourist, possibly a father and son but could recall nothing more. (It is noted that NOSENKO's notes in which the name [FISK] was included have been destroyed.)
 

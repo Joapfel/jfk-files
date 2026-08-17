@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33902.png
-
-Convert to MarkdownIn reply refer
+In reply refer
 to W-1954
 
 31 March 1952

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11874.png
-
-Convert to MarkdownASSISTANT DIRECTOR BRENNAN: I concur with the above comments.
+ASSISTANT DIRECTOR BRENNAN: I concur with the above comments.
 
 DOMESTIC INTELLIGENCE DIVISION INSPECTION
 

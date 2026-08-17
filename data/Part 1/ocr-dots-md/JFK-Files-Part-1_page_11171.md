@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11171.png
-
-Convert to MarkdownMESSAGE FORM
+MESSAGE FORM
 TOTAL COPIES:
 
 <table><tr><td>ORIG:</td><td>J STEWART</td></tr><tr><td>UNIT:</td><td>WH/1</td></tr><tr><td>EXT:</td><td></td></tr><tr><td>DATE:</td><td>3 NOV 66</td></tr></table>

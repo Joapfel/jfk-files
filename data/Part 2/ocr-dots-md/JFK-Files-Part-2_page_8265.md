@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8265.png
-
-Convert to Markdown19 April 1951
+19 April 1951
 
 According to Yani KOLOMONOS, DIMITROV's friend, stated that the latter agreed to meet PIRAY at the French Embassy between 11 and 12 o'clock on Thursday, 19 April. At this meeting DIMITROV will (1) give the French detailed accounts of all United States operations of which he is aware, with special emphasis on Radio Gorianin, and (2) receive for this information the sum of 10 to 15 million drachmae.
 

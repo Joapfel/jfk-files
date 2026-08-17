@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15255.png
-
-Convert to MarkdownW. C. Sullivan
+W. C. Sullivan
 
 DATE: May 28, 1964
 

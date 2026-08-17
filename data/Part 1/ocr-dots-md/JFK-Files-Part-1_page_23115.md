@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23115.png
-
-Convert to MarkdownProf. Millán
+Prof. Millán
 
 no y de hecho una corriente de importancia en el mundo.
 

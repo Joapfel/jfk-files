@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8506.png
-
-Convert to MarkdownSECRET
+SECRET
 
 2. The one item excepted is Item No. 57. This item relates to the Penkovskiy Papers. Marchetti and Marks wrote in their manuscript: "One of the CIA's most famous venture (sic) in book publishing was The Penkovsky Papers (sic). This chronicle of spying for the West inside the Kremlin appeared in 1965, and it was allegedly taken from the journal of the actual spy, Colonel Oleg Penkovsky." The Penkovskiy Papers are mentioned in the Final Report of the Select Committee to Study Governmental Operations with Respect to Intelligence Activities, Book I, page 194, dated 26 April 1976, as follows:
 

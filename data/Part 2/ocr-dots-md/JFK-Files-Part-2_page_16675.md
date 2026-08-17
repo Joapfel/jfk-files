@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16675.png
-
-Convert to Markdown1
+1
 
 January 16, 1973
 

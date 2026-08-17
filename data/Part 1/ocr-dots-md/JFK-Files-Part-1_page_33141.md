@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33141.png
-
-Convert to MarkdownORIG: J. MERTZ:mamd
+ORIG: J. MERTZ:mamd
 UNIT: WH/COG/OPS
 EXT: 1255
 DATE: 7 NOV 69

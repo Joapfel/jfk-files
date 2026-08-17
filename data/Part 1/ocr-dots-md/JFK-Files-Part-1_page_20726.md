@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20726.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PSC: 23 AUG -1961
 

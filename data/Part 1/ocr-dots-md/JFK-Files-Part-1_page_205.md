@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_205.png
-
-Convert to Markdown-4-
+-4-
 
 19. [English Speaking Union] - Manhattan, New York (52)
    [Arthur Houghton, Jr.] President of FYSA (SOGUESSER) was an officer.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18846.png
-
-Convert to MarkdownWFO 105-8906
+WFO 105-8906
 
 residence as 19 East 72nd Street, New York City. She listed her occupation
 as student and related she intended to depart New York City about 6/1/51

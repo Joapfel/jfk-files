@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23101.png
-
-Convert to MarkdownEn setiembre de ese mismo año(1964), un grupo de contrarrevolucionarios de las organizaciones "Ejército de Liberación Nacional"(ELN) y "Frente Interno de Liberación"(FIL), que cumplían misiones de atención de información para la CIA, comenzaron a gestionar la unificación, cumpliendo también órdenes de dicha Agencia.
+En setiembre de ese mismo año(1964), un grupo de contrarrevolucionarios de las organizaciones "Ejército de Liberación Nacional"(ELN) y "Frente Interno de Liberación"(FIL), que cumplían misiones de atención de información para la CIA, comenzaron a gestionar la unificación, cumpliendo también órdenes de dicha Agencia.
 
 Enfrascados en estas labores de unidad, el contrarrevolucionario Nemesio Cubillas Pérez, pone en conocimiento de Angel Miguel Arencibia Virán, Rolando Galdós Ranzola y otros el plan de atentado que venían fraguando contra nuestro Primer Ministro en la Calle 11, en el Vedado, orientados por la CIA.
 

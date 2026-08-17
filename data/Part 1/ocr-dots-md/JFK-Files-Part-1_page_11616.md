@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11616.png
-
-Convert to MarkdownVIA:
+VIA:
 
 TO : Chief, WMD
 

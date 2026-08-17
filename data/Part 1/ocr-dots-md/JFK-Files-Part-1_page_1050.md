@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1050.png
-
-Convert to MarkdownS - S G R E T
+S - S G R E T
 
 MAIN INDEX-SEARCH-RESPONSE
 

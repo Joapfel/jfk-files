@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6099.png
-
-Convert to Markdown26 January 1977
+26 January 1977
 
 MEMORANDUM FOR: Chairman, Information Review Committee
 ATTENTION : Mr. H. G. Bean, Assistant for Information

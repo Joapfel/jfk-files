@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23314.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 the man was not only a Fascist, but he was a murderer. He used
 to have a freezer room in the back of his house where he would

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_33.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>ORIG</td>
     <td>JACQUES FRINDIVILIE:pj.</td>

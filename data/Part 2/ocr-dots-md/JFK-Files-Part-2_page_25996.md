@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25996.png
-
-Convert to Markdownand let him do that.
+and let him do that.
 
 We have some wonderful Americans, and this
 was what I was trying to do, ~~I~~ was to find out

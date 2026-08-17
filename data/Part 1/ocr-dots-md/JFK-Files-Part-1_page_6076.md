@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6076.png
-
-Convert to MarkdownA. A. J. R., alem disso, serviu de trazermi. A 13 de março de 1962. Fiel Castro declarou que deveriaنب dar seu nome para "JU- VENTUDE COMUNISTA". Como se pode verificar, da evolução dos nomes que lhe foram dados, foi ela n秀 significativa: "Juventude Socialista — Jóvenes Rebeldes (A máscara — Juventude Comunista".
+A. A. J. R., alem disso, serviu de trazermi. A 13 de março de 1962. Fiel Castro declarou que deveriaنب dar seu nome para "JU- VENTUDE COMUNISTA". Como se pode verificar, da evolução dos nomes que lhe foram dados, foi ela n秀 significativa: "Juventude Socialista — Jóvenes Rebeldes (A máscara — Juventude Comunista".
 
 Para os centros privados, foi promulgada uma lei que permite a "intervenção" do Ministerio da Educação em caso de desordens para garantir a normalidade funcional do curso escolar. E paralelamente se foncruu a criação de grupos de "jóvenes revolucionarios", para provocar tais desordens, ou seja: o pretexto da "intervenção". O primeiro centro a sofrer intervenção por esse metodo foi a Escola Ekitromecânica Belém, em Havana, em fevereiro de 1961.
 

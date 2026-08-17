@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13617.png
-
-Convert to Markdown11 October 1961
+11 October 1961
 
 # Memorandum for the Record
 

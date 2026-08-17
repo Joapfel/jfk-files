@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19087.png
-
-Convert to Markdownthat the CG, .so not maintaining a sufficient ly independent and political attitude,
+that the CG, .so not maintaining a sufficient ly independent and political attitude,
 
 12. In discussing relations of the Socialist party with reform groups,
 J. Seldani, member of the German parliament of the party for the far left, and one of the leaders in the recent strike against the First rank trade unions in Berlin, has expressed his deep regret over the fact that the Socialistic party is now so weak, and that the best elements of the socialist party would constitute a great force representing the socialist party of the future.

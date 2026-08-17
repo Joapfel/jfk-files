@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27293.png
-
-Convert to MarkdownSECRET
+SECRET
 
 A. M/R - Subj: Defector - 18. Feb 75
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17801.png
-
-Convert to Markdowncont.
+cont.
 
 cabajador, porque son muy alegres, y le digo y le ríen el visado
 y la requieren el vino. Fracasante Adelina, eso da vergüenza.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24961.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 22OCT
 1968

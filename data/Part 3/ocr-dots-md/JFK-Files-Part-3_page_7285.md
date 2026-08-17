@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7285.png
-
-Convert to Markdownrepresentative has the authority to make the final determination
+representative has the authority to make the final determination
 as to whether information is classified and thus should be deleted
 from the material submitted.
 

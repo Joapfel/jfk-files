@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2692.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 <table><tr><td>REQUEST FOR MEDICAL EVALUATION</td></tr><tr><td>1. DATE OF REQUEST</td></tr><tr><td>25 April 1975</td></tr><tr><td>2. NAME (Last, First, Middle)</td></tr><tr><td>Kent, William M.</td></tr><tr><td>3. POSITION TITLE</td></tr><tr><td>Ops Officer</td></tr><tr><td>4. GRADE</td></tr><tr><td>G8-14</td></tr><tr><td>5. OFFICE DIVISION BRANCH</td></tr><tr><td>DRO/MOCOG</td></tr><tr><td>6. EMPLOYEE'S EXT.</td></tr><tr><td>9464</td></tr></table>

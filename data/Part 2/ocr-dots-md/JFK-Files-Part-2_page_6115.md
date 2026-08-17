@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6115.png
-
-Convert to Markdown(c) Itemize all political contributions to any individual, campaign organization, political party, political action committee, or similar entity of $50 or more for the past 5 years.
+(c) Itemize all political contributions to any individual, campaign organization, political party, political action committee, or similar entity of $50 or more for the past 5 years.
 
 These include all contributions which in aggregate total $50.00 or over to any entity over the period 1990-1993. I was unable to locate any records for 1989. I do not believe there were any significant contributions during that year.
 

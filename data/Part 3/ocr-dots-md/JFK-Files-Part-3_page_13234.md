@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13234.png
-
-Convert to Markdown"Please inform Mankel he should proceed Leopoldville as soon as shots completed. Not necessary have Congo visa. Should go Paris and take Air France flight to Brazzaville and can obtain visa for Brazzaville in Paris."
+"Please inform Mankel he should proceed Leopoldville as soon as shots completed. Not necessary have Congo visa. Should go Paris and take Air France flight to Brazzaville and can obtain visa for Brazzaville in Paris."
 
 This cable contains a handwritten note in the margin as follows: "One copy given to Mr. Bissell by IS/Duty Off. Saturday. Action to be taken by DDP. - E.B."
 

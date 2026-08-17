@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23140.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>MESSAGE FORM<br>TOTAL COPIES:</td></tr><tr><td>FILE RIO<br>(3 INDEX)<br>Mine. 8</td></tr><tr><td>SECRET</td></tr></table>
 

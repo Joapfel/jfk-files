@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3835.png
-
-Convert to Markdown20. In conclusion, Mr. HUGHES said that NOVEL is a very, very shady character who is not to be trusted. Mr. HUGHES has never met NOVEL. Based upon what he knows about NOVEL, he believes NOVEL would engage in extortion, bribery, blackmail, etc.
+20. In conclusion, Mr. HUGHES said that NOVEL is a very, very shady character who is not to be trusted. Mr. HUGHES has never met NOVEL. Based upon what he knows about NOVEL, he believes NOVEL would engage in extortion, bribery, blackmail, etc.
 
 21. Attached herewith is Exhibit 1, a Xerox Copy of the registration of one Charles BROZ, party of two, in Room 551, Ambassador East Hotel, Chicago, from 15 to 18 March 1969. BROZ was registered from Apartment C, 10069 Puttington, Affton, Missouri. (Note: There is a phonetic similarity between "ROSE" and "BROZ").
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_453.png
-
-Convert to Markdownmemory on an entry in a CCS log on a call in June 1972 between the Agency and the Mullen Company in which it was not clear either who initiated the call or who was contacted in the Mullen Company.
+memory on an entry in a CCS log on a call in June 1972 between the Agency and the Mullen Company in which it was not clear either who initiated the call or who was contacted in the Mullen Company.
 
 Follow up: Provide any extant memorandum reflecting the change in information to be covered in the CCS log.
 

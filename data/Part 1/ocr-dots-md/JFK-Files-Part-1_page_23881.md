@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23881.png
-
-Convert to MarkdownI was in Rome when there was sun.
+I was in Rome when there was sun.
 I had left Rome when the snow arrived.
 
 I had a reasonably cordial reception almost everywhere. I got some information. I didn't push too hard. Where I encountered a little bit of suspicion but not very serious, was in Brussels, and actually I think it was because Gippou was so busy there. He said if I could have stayed on a few days, but I didn't have time or money to hang around. But I can always go back and see him again.

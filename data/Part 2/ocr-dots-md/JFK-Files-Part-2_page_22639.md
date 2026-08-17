@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22639.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 back of my mind was the fact that we had problems with
 the Israelis in the nuclear field.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24125.png
-
-Convert to Markdown14-00000
+14-00000
 
 PARIS, 17 AVRIL 1967
 

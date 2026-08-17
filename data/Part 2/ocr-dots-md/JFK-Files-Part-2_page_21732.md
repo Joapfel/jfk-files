@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21732.png
-
-Convert to Markdown organization, which had been operating out of the National Press Building in Washington. We had a project in India which I visited on one occasion called Allied Pacific which we ran out of its Leesburg, Virginia office.
+organization, which had been operating out of the National Press Building in Washington. We had a project in India which I visited on one occasion called Allied Pacific which we ran out of its Leesburg, Virginia office.
 
 I had no personal media contacts with American magazines or newspapers, if that is the thrust of your question.
 

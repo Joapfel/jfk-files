@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2171.png
-
-Convert to MarkdownROBERT MORGAN, N.C.
+ROBERT MORGAN, N.C.
 GARY HART, COLO.
 
 RICHARD B. SCHWEIKER

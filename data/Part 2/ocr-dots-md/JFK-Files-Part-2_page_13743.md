@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13743.png
-
-Convert to MarkdownStaff Members of Senate Select Committee cleared, page 2
+Staff Members of Senate Select Committee cleared, page 2
 
 | NAME | DATE & PLACE OF BIRTH | SOCIAL SECURITY NO. |
 |---|---|---|

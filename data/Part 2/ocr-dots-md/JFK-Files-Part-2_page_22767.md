@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22767.png
-
-Convert to Markdown19
+19
 
 gsh 19
 

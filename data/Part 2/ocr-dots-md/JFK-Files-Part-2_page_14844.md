@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14844.png
-
-Convert to MarkdownFebruary 5, 1960
+February 5, 1960
 
 UNKNOWN SUBJECTS
 BOMBING OF KEHILATH ISRAEL SYNAGOGUE

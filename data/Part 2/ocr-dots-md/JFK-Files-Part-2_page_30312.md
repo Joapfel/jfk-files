@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30312.png
-
-Convert to MarkdownIUR OCLNI
+IUR OCLNI
 
 '69 only because I was true defector. I never raised this
 question with correspondents. I never went in press, because

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5069.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 MHFNO: 92-0694935
 

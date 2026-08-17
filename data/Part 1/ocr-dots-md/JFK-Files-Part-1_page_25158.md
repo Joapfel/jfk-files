@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25158.png
-
-Convert to MarkdownAPRUPPILZ
+APRUPPILZ
 
 PURPLE positively identified photo of 'aleriy Vlasili-ovica KOSTIKOV as Soviet who had met him in Mexico City on 9, 11 and 12 Feb 1963. KOSTIKOV gave PURPLE meeting arrangements for next meeting(s) to be in NYC. Soviet who appeared in NYC was Clag D. PRYKIN. PRYKIN has been identified as member 13th Dept of KGB's FCI.
 

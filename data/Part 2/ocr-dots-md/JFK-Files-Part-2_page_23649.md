@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23649.png
-
-Convert to MarkdownMr. Inderfurth. I think that's in relation to helping
+Mr. Inderfurth. I think that's in relation to helping
 to insulate the DCI from pressures to modify him. In the
 past, the board of national estimates insulated the DCI
 from pressures.

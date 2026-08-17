@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33211.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">MESSAGE FORM</td></tr><tr><td>TOTAL COPIES:</td><td>SECRET</td></tr></table>
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4949.png
-
-Convert to MarkdownNQ 8608 DCId:32989550 Page 34
+NQ 8608 DCId:32989550 Page 34
 
 <table>
    <tr>

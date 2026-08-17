@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7694.png
-
-Convert to Markdown104-10428-10012
+104-10428-10012
 
 ALN-72-77
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24798.png
-
-Convert to MarkdownAt the same time, Goodwin's draft raised the issue of further covert action and transfer of arms to the dissidents and advised Dearborn to hold out the arms as being available to the dissidents pending their ability to receive them.
+At the same time, Goodwin's draft raised the issue of further covert action and transfer of arms to the dissidents and advised Dearborn to hold out the arms as being available to the dissidents pending their ability to receive them.
 
 It was the twofold intent of the cable as revised by Goodwin, (1) to express the desire to remain in the good graces of the dissidents who, it was believed, would constitute the new government following Trujillo's assassination, and (2) to avoid any action which might further involve the United States in the anticipated assassination. This dual purpose is clearly evident in the cable which advised:
 

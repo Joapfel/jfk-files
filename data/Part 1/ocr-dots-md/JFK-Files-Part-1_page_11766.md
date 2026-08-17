@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11766.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 ## Project Outline Clearance Sheet
 

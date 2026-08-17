@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18896.png
-
-Convert to MarkdownForm OAS 1002
+Form OAS 1002
 
 OFFICE OF STRATEGIC SERVICES
 WASHINGTON, D. C.

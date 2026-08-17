@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24520.png
-
-Convert to Markdown2. Lansdale's Theory and Objective for Mongoose
+2. Lansdale's Theory and Objective for Mongoose
 
 In the fall of 1961, Lansdale had been asked by President Kennedy to examine the Administration's Cuba policy and to make recommen- dations. Lansdale testified that, in reporting his recommendations to President Kennedy, he emphasized that "Castro ... had aroused con- siderable affection for himself personally with the Cuban population...." (Lansdale, p. 4), and that the U.S. "should take a very different course" from the "harassment" operations that had been directed against Castro up to that time. (Lansdale, p. 3). These prior U.S. operations were conceived and led by Americans, Lansdale informed the President. (Lans- dale, p. 5). In contrast, Lansdale proposed that the U.S. work with all exiles, particularly professionals who had opposed Batista and then became disillusioned by Castro. (Lansdale, pp. 4, 10-11). Lansdale's ultimate objective was to have "the people themselves overthrow the Castro regime rather than U.S. engineered efforts from outside Cuba." (Lansdale, p. 41).
 

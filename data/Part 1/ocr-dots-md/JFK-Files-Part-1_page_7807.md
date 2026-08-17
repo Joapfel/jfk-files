@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7807.png
-
-Convert to MarkdownDESENSITIZED
+DESENSITIZED
 
 his continuing contacts with LOGINOV were at the latter's initiative and that LIREALM-1 would not make any attempt to follow up or show any unusual interest. LIREALM-1 did not report seeing LOGINOV again until 13 January 1968 (two months later), this time, as usual, on the tennis court.
 

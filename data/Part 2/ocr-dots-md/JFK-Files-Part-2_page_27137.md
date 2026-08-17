@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27137.png
-
-Convert to MarkdownSECRET SENSITIVE
+SECRET SENSITIVE
 
 young intelligence officers soon after the
 completion of their initial training, at the

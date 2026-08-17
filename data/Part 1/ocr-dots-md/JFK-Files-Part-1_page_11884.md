@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11884.png
-
-Convert to Markdown# AMOUNT/2
+# AMOUNT/2
 
 12 January 1960
 

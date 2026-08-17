@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9542.png
-
-Convert to MarkdownSECRET
+SECRET
 
 While the following is not pertinent to your request, my review of this case suggests the advisability of a re-examination of Riha's disappearance and past activities and, necessarily, the Tannenbaum case. Briefly, since 1958 we have communicated to your Bureau significant information which relates to Riha's involvement with Czech and Soviet intelligence services, when he was behind the Iron Curtain. I attach for your information and convenience copies of pertinent reports regarding this aspect of the case.
 

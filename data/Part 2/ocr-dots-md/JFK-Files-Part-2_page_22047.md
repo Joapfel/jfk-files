@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22047.png
-
-Convert to MarkdownM5 50955
+M5 50955
 
 DocId:32203771 Page 7
 

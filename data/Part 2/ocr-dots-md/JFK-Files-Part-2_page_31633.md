@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31633.png
-
-Convert to MarkdownSF 14-207
+SF 14-207
 
 PROPOSAL:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29742.png
-
-Convert to MarkdownMYKOSLAW ANDREW MARSYNEC
+MYKOSLAW ANDREW MARSYNEC
 
 APRIL 30, 1947
 

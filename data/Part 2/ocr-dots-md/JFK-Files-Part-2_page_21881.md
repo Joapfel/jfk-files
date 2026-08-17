@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21881.png
-
-Convert to Markdown5. The Question of a Connection Between the Assassination Plot and Other Actions of CIA Officers and Operatives in the Congo
+5. The Question of a Connection Between the Assassination Plot and Other Actions of CIA Officers and Operatives in the Congo
 
 (Justin O'Donnell), a senior CIA officer in the clandestine operations division in 1960, testified that during this period he had been asked by DDP Richard Bissell to go to the Congo to carry out the assassination of Lumumba (O'Donnell), 6/9/75, pp. 11-12). (O'Donnell) said that he refused to participate in an assassination operation, but proceeded to the Congo to attempt to draw Lumumba away from the protective custody of the UN guard and place him in the hands of Congolese authorities (O'Donnell), 6/9/75, pp. 13-14).
 

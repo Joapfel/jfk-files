@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2355.png
-
-Convert to MarkdownARTICLE II. Relationship of Employee to CIA. Although for all intents and purposes it will appear as though the Employee is employed by the Department of State as indicated in ARTICLE I above, he shall in fact be employed by and under the operational control of CIA. In so far as possible, he will be expected to abide by the rules, regulations, customary practices, and courtesies of the Foreign Service, but his ultimate responsibility will be to CIA. In the event of any conflict of authority in the field between the Department of State and CIA, the matter shall be referred to the ADSO for resolution.
+ARTICLE II. Relationship of Employee to CIA. Although for all intents and purposes it will appear as though the Employee is employed by the Department of State as indicated in ARTICLE I above, he shall in fact be employed by and under the operational control of CIA. In so far as possible, he will be expected to abide by the rules, regulations, customary practices, and courtesies of the Foreign Service, but his ultimate responsibility will be to CIA. In the event of any conflict of authority in the field between the Department of State and CIA, the matter shall be referred to the ADSO for resolution.
 
 1. The line of authority for the Employee shall be as follows:
 

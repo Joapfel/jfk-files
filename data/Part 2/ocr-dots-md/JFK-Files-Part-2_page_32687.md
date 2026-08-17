@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32687.png
-
-Convert to MarkdownIsland by the Soviet air defense and missile system, and the island-wide
+Island by the Soviet air defense and missile system, and the island-wide
 evidence of impressive, powerful, armored Russian troop units, all apparently
 immune from attack, has been and will be an increasing psychological damper
 to the fires of revolt. We can only expect, under present circumstances,

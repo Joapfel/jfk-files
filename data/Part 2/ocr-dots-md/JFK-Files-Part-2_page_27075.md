@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27075.png
-
-Convert to MarkdownTOP SECRET DINAR CHESS RUFF IDEALIST
+TOP SECRET DINAR CHESS RUFF IDEALIST
 
 sake of a political gain something less than vital to Soviet interests. The original contracts for Indonesia had been roughly similar to those for the UAR and Iraq. They included 14 SA-2 sites, 12 KOMARS, 26 TU-16s (12 equipped with air-to-surface missiles) and 12 submarines, all to be manned by Indonesians and to be delivered at a pace consonant with the required training of personnel. However, as the crisis over West New Guinea approached its climax of August, Soviet eagerness to embroil the Indonesians in open warfare with the Dutch led them to accelerate delivery schedules and to permit the use of Soviet personnel to operate some of the weapons being provided. Six submarines manned by Soviet crews actually conducted war patrols under nominal Indonesian command. Thus by mid-August the USSR had shown itself willing to take some risk of military engagement with an ally of the United States, albeit the degree of risk involved was far less than in the Cuban venture.
 

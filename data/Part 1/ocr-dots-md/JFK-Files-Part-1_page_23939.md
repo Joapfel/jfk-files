@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23939.png
-
-Convert to Markdownconcentration camps where they were held putting out secret clandestine tracts supporting Hasser, which was the craziest thing I've ever heard. Because how they've been liberated in fact the old Communists are now being given very high organizational posts in the new Egyptian Party, and
+concentration camps where they were held putting out secret clandestine tracts supporting Hasser, which was the craziest thing I've ever heard. Because how they've been liberated in fact the old Communists are now being given very high organizational posts in the new Egyptian Party, and
 
 Communism, Marxism is extraneous to Arab socialism but they very uselesful people so are they in there. And the group that are under Soviet influence are perfectly willing to go along with this,
 

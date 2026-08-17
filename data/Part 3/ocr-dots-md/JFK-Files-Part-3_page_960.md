@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_960.png
-
-Convert to MarkdownThe tracing of Watergate funds by Legal Attache, Mexico City, through established Mexican banking sources, is another example of the capabilities developed by our Legal Attache system.
+The tracing of Watergate funds by Legal Attache, Mexico City, through established Mexican banking sources, is another example of the capabilities developed by our Legal Attache system.
 
 2. Attempt to accomplish FBI responsibilities with foreign ramifications by having other Embassy personnel handle FBI work. This option, while removing FBI personnel from foreign embassies, would require an increase in State Department personnel to assume a work load, based on August 31, 1973, figures, of 4,283 FBI cases in the 20 FBI posts abroad, including 734 in Mexico, 527 in Hong Kong, 498 in Canada and 401 in Great Britain. Expenses involved in the returning of all FBI personnel and equipment in these 20 offices would be considerable and would be doubled by similar expenses to assign additional State Department personnel abroad to handle the work formerly handled by FBI personnel.
 

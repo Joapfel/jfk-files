@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8250.png
-
-Convert to Markdownninient members of the Gichev Agrarians and of the Democratic Party would
+ninient members of the Gichev Agrarians and of the Democratic Party would
 be assisted in escaping to Greece (presumably from Bulgaria) to join the
 organization.
 

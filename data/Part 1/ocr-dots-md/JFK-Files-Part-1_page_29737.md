@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29737.png
-
-Convert to MarkdownMYKOLAS ANDREW MANSYMIEC
+MYKOLAS ANDREW MANSYMIEC
 
 APRIL 30, 1917
 

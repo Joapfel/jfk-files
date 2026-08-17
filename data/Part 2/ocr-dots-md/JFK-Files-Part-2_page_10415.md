@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10415.png
-
-Convert to Markdown9 May 1973
+9 May 1973
 
 - **MOHAWK** - Electronic survey of Iden 63. This operation was terminated approximately two months ago. SPD/SEO personnel participated for two days.
 

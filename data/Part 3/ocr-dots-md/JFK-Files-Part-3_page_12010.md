@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12010.png
-
-Convert to MarkdownBLACK NATIONALIST MOVEMENT
+BLACK NATIONALIST MOVEMENT
 Budfile 157-8415
 
 4-H

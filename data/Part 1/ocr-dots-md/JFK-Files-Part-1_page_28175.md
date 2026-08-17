@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28175.png
-
-Convert to Markdown# TRAINING EVALUATION
+# TRAINING EVALUATION
 
 ## BASIC ORIENTATION
 

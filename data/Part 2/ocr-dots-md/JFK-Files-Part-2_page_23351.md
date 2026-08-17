@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23351.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Mr. Tweedy. That, I do not recall. I can only assume
 that Sidney Gottlieb would have discussed with the Chief of

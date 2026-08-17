@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_714.png
-
-Convert to Markdown priority MUNI
+priority MUNI
 METTING
 
 LUXEMBOURG ISLO BEIR TIZEL TONK MAHI BERT HEID PARI CAIR ACCA CHAIR WET WATERS OF

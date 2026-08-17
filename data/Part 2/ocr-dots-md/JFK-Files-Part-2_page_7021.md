@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7021.png
-
-Convert to Markdown13-00000
+13-00000
 
 Wickham seconded Pereira's assessment that we have a very good working relationship with the staff. Under the provisions of the act, the Board will be working until October 1997, dealing with CIA, FBI, DepState, as well as private individuals and even foreign governments. They are interviewing people, and as Pereira noted, "getting theories." (S)
 

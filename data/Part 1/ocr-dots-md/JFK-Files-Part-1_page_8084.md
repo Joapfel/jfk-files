@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8084.png
-
-Convert to MarkdownSTAFF
+STAFF
 
 T 320052 81462
 

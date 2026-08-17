@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24325.png
-
-Convert to Markdown<html><body>CONINUATION OF DISPATCH<br/>CLASSIFICATION<br/>SECRET/~~шифри~~ T<br/>DISPATCH SYMBOL AND NUMBER:<br/>OELW-26059</table>
+<html><body>CONINUATION OF DISPATCH<br/>CLASSIFICATION<br/>SECRET/~~шифри~~ T<br/>DISPATCH SYMBOL AND NUMBER:<br/>OELW-26059</table>
 
 constitutional problem with their responsibilities to IDEN. The idea of passing out political information on exiles is repulsive to him." It should be noted for the record that JAGUAR itself has not given such an explanation to JKLANCE, but, knowing JAGUAR's bureaucratic position and its traditionally conservative role in the SMORANGE community, it may be that JAGUAR in fact is thus inhibited.
 

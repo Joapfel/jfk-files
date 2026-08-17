@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29045.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">CALIFORNIA</td>
         <td rowspan="2" style="vertical-align: top;">TAXABLE<br>1972<br><br>YEAR</td>

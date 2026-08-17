@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6341.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NOTE FOR: J. Barry Harrelson @ DA
 FROM: Gloria M. Boyd

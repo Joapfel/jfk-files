@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35398.png
-
-Convert to Markdown-11-
+-11-
 
 like Chau Miller) a bad person and a satiater. Hiro said he had asked that Svan be stopped but, since they work directly, those people are defended. He added wryly that he wished they (the Agency) would defend him (Hiro) that way.
 

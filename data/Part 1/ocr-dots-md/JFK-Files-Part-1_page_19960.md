@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19960.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 BAR: 18 JAN '63

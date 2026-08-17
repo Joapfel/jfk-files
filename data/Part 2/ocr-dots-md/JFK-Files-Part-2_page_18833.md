@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18833.png
-
-Convert to MarkdownLetter to Director
+Letter to Director
 Central Intelligence Agency
 
 Jaffe stated that during his conversation with Fedoseev, he had remarked that his Jaffe's father was born in the Soviet Union. Fedoseev seemed to be impressed by the above statement and inquired as to whether Jaffe's father was still a citizen of the Soviet Union. Jaffe informed Fedoseev his father was an American citizen and Fedoseev was apparently very disturbed concerning this and on several occasions inquired as to whether Jaffe had any relatives currently residing in the Soviet Union. Jaffe stated Fedoseev was visibly disturbed when advised Jaffe had no relatives in the Soviet Union.

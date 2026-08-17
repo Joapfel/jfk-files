@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6157.png
-
-Convert to Markdownreleasing six of the DDO documents in segregated versions and denying the remaining 21. IPS advised Mr. Oglesby that the non-DDO documents were being referred to the originating agencies for direct response to him.
+releasing six of the DDO documents in segregated versions and denying the remaining 21. IPS advised Mr. Oglesby that the non-DDO documents were being referred to the originating agencies for direct response to him.
 
 b. Mr. Oglesby appealed on 24 February 1976 requesting full release of all withheld data, and this triggered an additional search with the following results:
 

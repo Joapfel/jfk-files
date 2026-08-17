@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34117.png
-
-Convert to MarkdownBogotá, D. E., October 17, 1966
+Bogotá, D. E., October 17, 1966
 
 Exmo. Sr.
 Subajador del Japon

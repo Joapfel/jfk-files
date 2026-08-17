@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14623.png
-
-Convert to MarkdownMay 26, 1960
+May 26, 1960
 
 VOTER REGISTRATION CASES
 UNDER CIVIL RIGHTS ACT OF 1960

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30096.png
-
-Convert to Markdown<table><thead><tr><th>1. EMP. SERIAL NO.</th><th>2. NAME</th><th>3. ASSIGNED ORGAN.</th><th>4. FUNDS</th><th>5. ALLOTMENT</th></tr></thead><tbody><tr><td>161555</td><td>KIMSEY HERMAN E</td><td>DOP/TSS</td><td>V-20</td><td></td></tr></tbody></table>
+<table><thead><tr><th>1. EMP. SERIAL NO.</th><th>2. NAME</th><th>3. ASSIGNED ORGAN.</th><th>4. FUNDS</th><th>5. ALLOTMENT</th></tr></thead><tbody><tr><td>161555</td><td>KIMSEY HERMAN E</td><td>DOP/TSS</td><td>V-20</td><td></td></tr></tbody></table>
 
 <table><caption>OLD SALARY RATE</caption><thead><tr><th rowspan="2">GRADE</th><th rowspan="2">STEP</th><th rowspan="2">SALARY</th><th colspan="3">LAST EFFECTIVE DATE</th><th rowspan="2">GRADE</th><th rowspan="2">STEP</th><th rowspan="2">SALARY</th><th colspan="3">EFFECTIVE DATE</th></tr><tr><th>NO.</th><th>DA</th><th>TO.</th><th>NO.</th><th>DA</th><th>TO.</th></tr></thead><tbody><tr><td>GS 13</td><td>2</td><td>$10,130</td><td>08</td><td>10</td><td>58</td><td>GS 13</td><td>3</td><td>$10,370</td><td>02</td><td>07</td><td>60</td></tr></tbody></table>
 

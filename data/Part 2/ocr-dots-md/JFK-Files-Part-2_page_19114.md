@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19114.png
-
-Convert to Markdown0-12 Rev.-12-14-64)
+0-12 Rev.-12-14-64)
 
 Associated Press
 

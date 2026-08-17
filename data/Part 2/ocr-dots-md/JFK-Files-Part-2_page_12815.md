@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12815.png
-
-Convert to MarkdownSECRET
+SECRET
 
 this matter will be of such magnitude that it cannot be overlooked (not further detailed or described)
 

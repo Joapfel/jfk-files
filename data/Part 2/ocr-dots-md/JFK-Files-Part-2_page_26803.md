@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26803.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. outside of that, nothing. There wasn't any problem of cooperation. There wasn't any arm-twisting. It was all voluntary.
 2.

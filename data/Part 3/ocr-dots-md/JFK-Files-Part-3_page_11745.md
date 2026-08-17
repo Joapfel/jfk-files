@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11745.png
-
-Convert to Markdown(current practice calls for reinterview two years after initial interview). This is felt desirable since the alien who has immediate family and/or relatives residing in Red China is most susceptible to a recruitment approach and is more likely to be the type who has entered the United States on an intelligence mission.
+(current practice calls for reinterview two years after initial interview). This is felt desirable since the alien who has immediate family and/or relatives residing in Red China is most susceptible to a recruitment approach and is more likely to be the type who has entered the United States on an intelligence mission.
 
 7. We should consider issuing instructions to closely examine our UN sources to determine which may be logically directed to initiate contact with the Chicom Embassy in Canada. Contacts of this type, although they may indicate no immediate interest on the part of the Chicom, may well serve as a basis for a later approach by the Chicom, either before or after Chicom entry into the UN.
 

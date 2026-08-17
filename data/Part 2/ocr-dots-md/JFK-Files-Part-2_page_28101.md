@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_28101.png
-
 . Here again, as in the Counsel, I had responsibility for a great deal of typing, but less shorthand than before. I learned how to work two kinds of automatic typewriters and was responsible for using them for large-volume mailings. Left staff after this seat turned over after election. Salary approximately $6,500 for a twenty hour week.
 
 PRIOR TO HILL EXPERIENCE:

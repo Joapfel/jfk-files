@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34454.png
-
-Convert to Markdown14-09-00
+14-09-00
 
 Nosenko's Account Disputes Charge by Soviet
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_483.png
-
-Convert to Markdown21 FEB 1978
+21 FEB 1978
 
 PERSONNEL ANNOUNCEMENTS
 

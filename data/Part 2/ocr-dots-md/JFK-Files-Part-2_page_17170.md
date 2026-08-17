@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17170.png
-
-Convert to MarkdownCopies of this memorandum are being furnished
+Copies of this memorandum are being furnished
 to the following agencies:
 
 United States Attorney, Chicago, Illinois

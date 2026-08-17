@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32226.png
-
-Convert to MarkdownCommitment to this course of action does not exclude the possibility of actively pursuing the isolation of the Castro regime from the Bloc.
+Commitment to this course of action does not exclude the possibility of actively pursuing the isolation of the Castro regime from the Bloc.
 
 ## Coordinator's Recommendation
 

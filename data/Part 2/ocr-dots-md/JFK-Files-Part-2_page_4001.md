@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4001.png
-
-Convert to Markdown13-00000
+13-00000
 
 FD-302 (Rev. 1-25-60)
 

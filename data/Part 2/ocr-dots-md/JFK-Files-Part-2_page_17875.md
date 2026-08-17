@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17875.png
-
-Convert to MarkdownRECEIVED TELETYPE UNIT
+RECEIVED TELETYPE UNIT
 
 JUN 23 75 21:0PM
 

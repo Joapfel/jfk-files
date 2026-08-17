@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_32403.png
-
-Convert to MarkdownOUTGOING TELEGRAM Department of State
+OUTGOING TELEGRAM Department of State
 
 INDICATE: ☐ COLLECT
 ☐ CHANGE TO:

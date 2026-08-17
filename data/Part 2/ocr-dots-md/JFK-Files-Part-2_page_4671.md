@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4671.png
-
-Convert to MarkdownSECRET
+SECRET
 
 possibly. But we were zeroing in what we called the hard targets and the
 intentions and plans more than anything else. And as that kind of a group we

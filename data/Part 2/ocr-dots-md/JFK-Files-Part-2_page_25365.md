@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25365.png
-
-Convert to MarkdownAccording to Roselli, the murdered mobster, Sam Giancana, never became involved in the assassination plot. He knew about it; he may even have suggested a Cuban contact; nothing more.
+According to Roselli, the murdered mobster, Sam Giancana, never became involved in the assassination plot. He knew about it; he may even have suggested a Cuban contact; nothing more.
 
 Roselli identified the CIA project officer, in charge of the Castro assassination, as "Big Jim" O'Connell. Maheu put Roselli in contact with O'Connell, as Roselli remembers it, in New York City on September 14, 1960.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22529.png
-
-Convert to MarkdownSECRET-eyes ONLY
+SECRET-eyes ONLY
 
 "FM wish to emphasize strongly that above is for contingency planning purposes only and in no way indicates higher authority at present contemplates such action. . . . . ."
 

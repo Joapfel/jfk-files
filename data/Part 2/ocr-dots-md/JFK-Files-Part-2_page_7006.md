@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7006.png
-
-Convert to Markdown13-00000
+13-00000
 
 MEMORANDUM FOR:
 

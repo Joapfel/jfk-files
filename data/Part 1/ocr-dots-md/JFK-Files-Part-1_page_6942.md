@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6942.png
-
-Convert to MarkdownHalperin Says
+Halperin Says
 Reds Not Not
 Employ Him
 

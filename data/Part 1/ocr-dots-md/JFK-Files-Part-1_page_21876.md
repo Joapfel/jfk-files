@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21876.png
-
-Convert to MarkdownE. Timing of Defection
+E. Timing of Defection
 
 After telling CIA on 24 January 1964 of his decision to defect, NOSENKO at the same meeting concurred when CIA gave operational and administrative reasons for him to stay in place until the middle of February. During the week that followed, the date of the defection was moved up to 8 February in accordance with NOSENKO's wishes and with his reports indicating that less information of value would be forthcoming than CIA had at first thought. On 4 February, however, NOSENKO reported that he was being recalled to Moscow for a conference on foreign tourism in the USSR, and he therefore placed himself in CIA custody on that date.* Details on the timing of NOSENKO's defection are given in the following paragraphs.
 

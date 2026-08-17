@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7031.png
-
-Convert to MarkdownDRAFT: Section III, ARRB Requests for Additional Information and Records
+DRAFT: Section III, ARRB Requests for Additional Information and Records
 
 1. Unlike most declassification projects, the Agency's involvement in the JFK Project was governed by the dictates of a Federal statute, the JFK Act, and the powers it vested in the Board it established -- the Assassination Records Review Board (ARRB). In particular, under Section 7, the Act armed the ARRB with the authority to dig for records and information, specifically:
 

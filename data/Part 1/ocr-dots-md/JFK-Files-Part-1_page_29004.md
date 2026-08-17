@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29004.png
-
-Convert to Markdown11 Decenbor 1953
+11 Decenbor 1953
 
 MEMORANDUM FOR: Mr. John H. Richardson
 

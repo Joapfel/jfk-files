@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2780.png
-
-Convert to MarkdownTop Secret
+Top Secret
 
 EXHIBIT 2 - Complete Train Manifest, Helsinki-Moscow
 

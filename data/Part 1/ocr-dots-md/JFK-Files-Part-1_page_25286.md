@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25286.png
-
-Convert to Markdown# V. COnTENTS
+# V. COnTENTS
 
 ## A. Communist and Pro-Communist Groups:
 

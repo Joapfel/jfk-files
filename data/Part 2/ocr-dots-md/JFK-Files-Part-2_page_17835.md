@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17835.png
-
-Convert to MarkdownNR006 AX CODE
+NR006 AX CODE
 
 6:20PM NITEL MARCH 26, 1975 VAN
 

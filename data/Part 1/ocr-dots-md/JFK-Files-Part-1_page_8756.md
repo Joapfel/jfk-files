@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8756.png
-
-Convert to Markdown4-0000
+4-0000
 
 ORIG: Charles V. Belt
 UNIT: WH/1 3E04

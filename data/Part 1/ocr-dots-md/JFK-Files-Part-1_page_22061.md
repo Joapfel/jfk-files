@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22061.png
-
-Convert to Markdownd. <u>NOSENKO's Responsibility for Coverage of ABIDIAN</u>
+d. <u>NOSENKO's Responsibility for Coverage of ABIDIAN</u>
 
 (i) **Introduction**
 

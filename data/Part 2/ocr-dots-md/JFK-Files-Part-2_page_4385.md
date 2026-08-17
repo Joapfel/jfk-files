@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4385.png
-
-Convert to MarkdownSATURDAY
+SATURDAY
 
 <table><thead><tr><th colspan="3">1961</th></tr><tr><th>T</th><th>F</th><th>S</th></tr></thead><tbody><tr><td>4</td><td>5</td><td>6</td></tr><tr><td>11</td><td>12</td><td>13</td></tr><tr><td>18</td><td>19</td><td>20</td></tr><tr><td>25</td><td>26</td><td>27</td></tr></tbody></table>
 

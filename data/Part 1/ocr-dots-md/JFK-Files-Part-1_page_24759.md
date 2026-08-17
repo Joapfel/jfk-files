@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24759.png
-
-Convert to MarkdownA particularly interesting foreign contact of LEONOV's was Carlos BONILLA Sanchez, Communist labor leader from Colombia. He and LEONOV, reportedly close friends, were in correspondence during 1966-67. BONILLA was President of the Federacion Sindical de Trabajadores de Cundinamarca (FESTRAC) until November 1964, when he was removed because of his Communist sympathies. He visited Cuba at the special invitation of Fidel CASTRO 19,20 in November 1964, transiting Mexico on the way, where LEONOV was at that time. It should also be noted that LEONOV traveled to Lima on 23 April 1969 via Bogota.
+A particularly interesting foreign contact of LEONOV's was Carlos BONILLA Sanchez, Communist labor leader from Colombia. He and LEONOV, reportedly close friends, were in correspondence during 1966-67. BONILLA was President of the Federacion Sindical de Trabajadores de Cundinamarca (FESTRAC) until November 1964, when he was removed because of his Communist sympathies. He visited Cuba at the special invitation of Fidel CASTRO 19,20 in November 1964, transiting Mexico on the way, where LEONOV was at that time. It should also be noted that LEONOV traveled to Lima on 23 April 1969 via Bogota.
 
 LEONOV's connections with Feliciano PACHON Choconta, Colombian Communist courier arrested in April 1968, have been discussed in a paper previously provided to you, and so will not be repeated here.
 

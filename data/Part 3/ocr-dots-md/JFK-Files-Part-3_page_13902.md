@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13902.png
-
-Convert to Markdown# Board Report of January 20, 1962
+# Board Report of January 20, 1962
 
 Rec. #32: That the Director of Central Intelligence, in consultation with the U. S. Intelligence Board, review the functions of the U. S. Intelligence Board's Watch Committee and National Indications Center, to determine their effectiveness in carrying out their mission of providing early warning.
 

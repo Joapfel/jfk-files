@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15136.png
-
-Convert to Markdown-18-
+-18-
 
 im Gebüsch und verbrachte dort die Nacht und den fol-
 genden Tag. Als es dunkel wurde, kletterte ich den Ab-

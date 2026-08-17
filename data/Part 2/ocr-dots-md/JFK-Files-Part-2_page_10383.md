@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10383.png
-
-Convert to Markdownsonic alarm system, entering a vault, and entering
+sonic alarm system, entering a vault, and entering
 a safe within the vault. The purpose of the opera-
 tion was to determine whether the individual had
 any unauthorized classified information in his

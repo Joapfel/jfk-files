@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18908.png
-
-Convert to MarkdownSECRET
+SECRET
 
 teacher at Foreign Languages Institute; June 10, 1961-
 September 1, 1961 with the Soviet Children's Book Exhibit at

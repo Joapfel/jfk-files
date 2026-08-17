@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16338.png
-
-Convert to MarkdownDate June 9, 1969
+Date June 9, 1969
 
 A yellow legal pad, Wilson Jones Pad number 7438, was seized from the top of the reception desk of the Illinois Black Panther Party Headquarters, 2350 West Madison Street, Chicago, Illinois, on June 4, 1969. This reception desk is located directly inside the second floor entrance to the Black Panther Party Headquarters, which is located at the above address.
 

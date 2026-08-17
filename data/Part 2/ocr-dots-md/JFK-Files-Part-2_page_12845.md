@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12845.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MM 105-1598
 

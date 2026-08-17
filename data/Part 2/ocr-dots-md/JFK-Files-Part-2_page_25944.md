@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25944.png
-
-Convert to MarkdownMr. BROWN. I have had these gangland slayings listed, with a few pertinent comments about each, and submit to the subcommittee this list as our exhibit 5.
+Mr. BROWN. I have had these gangland slayings listed, with a few pertinent comments about each, and submit to the subcommittee this list as our exhibit 5.
 
 The CHAIRMAN. It may be received and be made exhibit No. 50. (The document referred to was marked "Exhibit No. 50" for reference and may be found in the files of the subcommittee.)
 

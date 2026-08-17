@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_29093.png
-
 to the CUS she has been invaluable during the difficult and complicated transition from the old regime to the new, and the related reorganization of the Station. Her organizational abilities are unsurpassed by anyone known to the undersigned, and she certainly merits consideration for early promotion.</td>
         </tr>
 

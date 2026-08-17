@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14218.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DISPATCH</th><th>CLASSIFICATION</th><th colspan="2">PROCESSING ACTION</th></tr></thead><tbody><tr><td>TO</td><td>Chief, Western Hemisphere Division</td><td>R Y B A T / S E C R E T</td><td>MARRED FOR INDEXING<br/>X</td><td>NO INDEXING REQUIRED</td></tr><tr><td>INFO.</td><td>C/EUR Div., C/WOACRE; COB/Frankfurt MKNOVA</td><td></td><td>ONLY QUALIFIED DISK<br/>(CAN JUDGE INDEXING)</td><td></td></tr><tr><td>FROM</td><td>Chief of Station, Madrid</td><td></td><td>MICROFILM</td><td></td></tr><tr><td>SUBJECT</td><td>TYPIC/TECHS/AMA AUTO-1</td><td></td><td>ACTION REQUIRED · REFERENCES</td><td></td></tr></tbody></table>
 

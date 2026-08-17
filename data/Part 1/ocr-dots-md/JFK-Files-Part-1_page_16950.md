@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16950.png
-
-Convert to MarkdownSECRET
+SECRET
 
 through the exploitation of the LIEMPTY Principal Agent, Raymond H. GERENDE.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4271.png
-
-Convert to Markdownof all pertinent factors, to determine whether we wish to change the present policy. It was agreed that in order to provide a firm basis for judgment, we must get a clearer picture of capabilities, of the prospects of success, the extent of benefits to be gained from successful operations, the dangers of repercussions and of reprisals, etc., etc.
+of all pertinent factors, to determine whether we wish to change the present policy. It was agreed that in order to provide a firm basis for judgment, we must get a clearer picture of capabilities, of the prospects of success, the extent of benefits to be gained from successful operations, the dangers of repercussions and of reprisals, etc., etc.
 
 With respect to external operations to be mounted by exile groups, it was agreed that this sort of activity poses a real dilemma. Particularly in view of the recently-enunciated policy toward exile raids, it becomes increasingly difficult to disavow plausibly responsibility for such acts. The U.S. is thus placed in the position of either appearing to be ineffective in controlling the exiles or of bearing the onus of active involvement in the operations.
 

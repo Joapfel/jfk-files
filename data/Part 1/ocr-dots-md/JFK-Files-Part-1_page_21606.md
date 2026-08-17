@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21606.png
-
-Convert to MarkdownSECRET
+SECRET
 
 IV. COMMENTS CONCERNING PREVIOUS CONCLUSIONS
 ---

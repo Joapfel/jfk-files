@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13714.png
-
-Convert to Markdown10
+10
 
 El Ministerio de Relaciones Exteriores,
 conarme con el Consulado a favor de

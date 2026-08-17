@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8387.png
-
-Convert to MarkdownByram Warns
+Byram Warns
 Today County
 Tax Deadline
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14468.png
-
-Convert to MarkdownOrestes Guillermo RUIZ Perez.
+Orestes Guillermo RUIZ Perez.
 
 INTELLIGENCE
 CONNECTIONS:

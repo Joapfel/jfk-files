@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33833.png
-
-Convert to MarkdownSECRET
+SECRET
 
 certainly they could not be. No statement made by HUF, no line of
 policy that HUF could pursue, no suggestion or propaganda line that

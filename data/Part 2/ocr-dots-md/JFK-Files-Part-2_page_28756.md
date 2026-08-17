@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28756.png
-
-Convert to MarkdownJuly 11, 1977
+July 11, 1977
 
 Mrs. Joan Thornell
 Special Assistant to the Treasurer

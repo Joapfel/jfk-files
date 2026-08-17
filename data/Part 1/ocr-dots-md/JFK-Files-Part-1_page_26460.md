@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26460.png
-
-Convert to Markdown# Golpe contra Villeda Murales fue propinado por la Misión Militar
+# Golpe contra Villeda Murales fue propinado por la Misión Militar
 
 ## Declara en periodisía mexicano
 

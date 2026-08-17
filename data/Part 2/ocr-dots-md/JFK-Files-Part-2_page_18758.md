@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18758.png
-
-Convert to MarkdownUnited States than to pick these goods up elsewhere. He made no further request of informant for information concerning business concerns desirous of doing business with Red China.
+United States than to pick these goods up elsewhere. He made no further request of informant for information concerning business concerns desirous of doing business with Red China.
 
 During lunch, subject also asked informant what the reaction in the United States has been to the visit of Mikoyan. Informant told subject that it is too early to tell, as we do not even know why Mikoyan is here. He told subject that there was too much of a mystery surrounding Mikoyan's visit and subject then asked informant if there was not any reaction at all. Informant told Barkovsky that there was none of which he was aware.
 

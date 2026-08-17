@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27384.png
-
-Convert to MarkdownMALACANAN PALACE
+MALACANAN PALACE
 MANILA
 
 March 24, 1953

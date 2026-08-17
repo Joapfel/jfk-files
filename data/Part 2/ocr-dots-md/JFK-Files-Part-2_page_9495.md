@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9495.png
-
-Convert to Markdown# I. REVOLUTIONARY PROGRAMS AND POLICIES AS EXPRESSED BY BLACK PANTHER PARTY LEADERS
+# I. REVOLUTIONARY PROGRAMS AND POLICIES AS EXPRESSED BY BLACK PANTHER PARTY LEADERS
 
 A characterization of the Black Panther Party (BPP) is contained in the appendix pages attached hereto.
 

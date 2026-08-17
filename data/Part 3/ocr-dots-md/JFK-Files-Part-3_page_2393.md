@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2393.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Michael Lasky, a former member of the Provisional Organizing Committee for a Marxist-Leninist Communist Party. The CPUSA-ML in its initial stage proposed to conduct guerrilla warfare training, including the use of firearms; to organize cells in the South to exploit the racial situation; to agitate the population and to create situations which would require the use of Federal troops.
 

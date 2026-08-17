@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_10276.png
-
-Convert to Markdown# Prometelo rompe UNIR cadenaz
+# Prometelo rompe UNIR cadenaz
 ## Cmdte. Jorge Sergiera
 
 Cuando aquel aparato comenzó con su ruido atronador a echar paja por detrás, caña en trozos por el costado izquierdo, humo por arriba y cortaba hojas verdes y ciegolos, alunte, luvia la izquierda; alquien dijo: ¡Es batarrero! Se había realizado un sueño que tenía 100 años. Parece que le va a llegar la hora de museo al machete. Pero todavía falta; ahora hay que constituir machetes y sobre todo me, jerarca. Hay que potenciarla para que todo el mundo pueda asarla y uno solo no se enriquezca con el trabajo de todos; la patente revolucionaria.

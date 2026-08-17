@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1417.png
-
-Convert to MarkdownAmerican executed by the Cubans was a CIA NOC (p. 48). The latter point, while clearly sensitive, was not raised to Mr. Phillips as LA Division posed no specific objection.
+American executed by the Cubans was a CIA NOC (p. 48). The latter point, while clearly sensitive, was not raised to Mr. Phillips as LA Division posed no specific objection.
 
 7. Chapter four: Bay of Pigs
 

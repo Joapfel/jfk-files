@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MEMORANDUM FOR: CI Staff
 

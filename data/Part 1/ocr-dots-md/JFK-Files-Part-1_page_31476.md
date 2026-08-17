@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31476.png
-
-Convert to Markdown-2-
+-2-
 
 the countries whence the refugees flee, NCFE could also ignore
 the presence of the refugees in the West. This, however, is

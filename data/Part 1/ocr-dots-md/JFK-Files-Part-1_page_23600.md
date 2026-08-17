@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23600.png
-
-Convert to MarkdownFORM N: 35-83
+FORM N: 35-83
 NOV 19
 
 CLASSIFIED MESSAGE

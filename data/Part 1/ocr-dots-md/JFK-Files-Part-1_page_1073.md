@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1073.png
-
-Convert to Markdown14-00000
+14-00000
 
 BUTLER, E. C. (Mr.)
 

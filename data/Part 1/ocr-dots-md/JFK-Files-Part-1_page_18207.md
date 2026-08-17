@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18207.png
-
-Convert to MarkdownFBI
+FBI
 
 30 Aug. 67
 Miami

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26250.png
-
-Convert to Markdownthat knowledge of the Cuban operation, flaunted in Miami bars
+that knowledge of the Cuban operation, flaunted in Miami bars
 by any number of low-level agents in the operations branch of CIA,
 was denied to even the top officials of the intelligence branch. The
 Bureau of Intelligence and Research of the Department of State

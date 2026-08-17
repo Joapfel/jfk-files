@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23519.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Freedom to travel
 

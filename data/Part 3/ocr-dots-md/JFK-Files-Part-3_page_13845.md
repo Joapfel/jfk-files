@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13845.png
-
-Convert to Markdown# INFORMATION REPORT
+# INFORMATION REPORT
 
 ## CENTRAL INTELLIGENCE AGENCY
 

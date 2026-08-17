@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20195.png
-
-Convert to MarkdownWFO 100-55420
+WFO 100-55420
 
 F. Membership and Finances
 

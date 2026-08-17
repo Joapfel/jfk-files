@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29262.png
-
-Convert to MarkdownGary Edward Taylor Interview
+Gary Edward Taylor Interview
 
 except to say that it was a rifle. He stated that he believed
 Marina was afraid of LHO and during this visit she sensed that

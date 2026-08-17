@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17048.png
-
-Convert to Markdownstated on October 26, 1969 that Hilliard,
+stated on October 26, 1969 that Hilliard,
 Rush, Hampton, John Seale. Artie Seale, Douglas, William
 O'Neal, Chief of Staff, Illinois BPP. Ronald Stachel.
 Deputy Minister of Health, Illinois BPP, Stephanie Fisher,

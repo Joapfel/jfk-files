@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7657.png
-
-Convert to Markdown17 FEBRERO DE 1967
+17 FEBRERO DE 1967
 
 NOTAS.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25725.png
-
-Convert to Markdown**BY JACK ANDERSON**
+**BY JACK ANDERSON**
 
 with Les Whitten
 

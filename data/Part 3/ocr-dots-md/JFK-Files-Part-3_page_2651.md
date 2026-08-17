@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2651.png
-
-Convert to MarkdownWARD: GSH
+WARD: GSH
 CIA Open
 12/30/75
 

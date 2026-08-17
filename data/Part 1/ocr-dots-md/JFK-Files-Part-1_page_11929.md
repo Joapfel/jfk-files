@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11929.png
-
-Convert to Markdown14-0000
+14-0000
 
 was being made available to testify and explained that he thought Mr. Amos had already prepared a motion to dismiss if Mr. McVane was to be denied as a witness for the defense. I explained to Mr. Thaler that Mr. McVane was coming to Headquarters on Thursday, 6 November, and said that we would call him to discuss the role Mr. McVane played in receiving information from Mr. Merola.
 

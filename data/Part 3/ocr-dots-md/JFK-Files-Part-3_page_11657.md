@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11657.png
-
-Convert to MarkdownDESECO PROGRAM
+DESECO PROGRAM
 
 interviews, developments and handling of Desevo sources
 are contained in Section 105 O, pages 42-44, Manual of

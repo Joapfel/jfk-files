@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9132.png
-
-Convert to MarkdownFor us to have access in Rooney's cross-referenced list of
+For us to have access in Rooney's cross-referenced list of
 "Spain's 500 top business and society people," which was
 provided for him by the introduction of a public concierge.
 

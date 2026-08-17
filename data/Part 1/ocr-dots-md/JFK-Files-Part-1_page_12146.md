@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12146.png
-
-Convert to MarkdownSECRET
+SECRET
 (When Filled In)
 
 DOCUMENT TRANSFER AND CROSS REFERENCE

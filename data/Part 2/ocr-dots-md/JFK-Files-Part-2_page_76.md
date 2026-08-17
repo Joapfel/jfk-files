@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_76.png
-
-Convert to Markdown18. Relatives in service of any government, names and positions held.
+18. Relatives in service of any government, names and positions held.
 
 None.
 

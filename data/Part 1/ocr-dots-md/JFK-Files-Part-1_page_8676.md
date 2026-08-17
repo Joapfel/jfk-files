@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8676.png
-
-Convert to Markdown4.05 Cara:
+4.05 Cara:
 
 4.05.01 Expresividad _Expresiva_ ✓ Promedio ____________ Inexpresiva ____________
 Muy expresiva ____ Muy inexpresiva ______

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7098.png
-
-Convert to Markdown<table><thead><tr><th>DATE</th><th>TO</th><th>CC</th></tr></thead><tbody><tr><td>01-285-94</td><td>KV-S REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>101A - 2032A</td></tr><tr><td>HCS FILE NUMBER</td><td>CLASSIFICATION</td><td>MICROFILM</td></tr></tbody></table>
+<table><thead><tr><th>DATE</th><th>TO</th><th>CC</th></tr></thead><tbody><tr><td>01-285-94</td><td>KV-S REFERENCE TO</td><td>DISPATCH SYMBOL AND NUMBER<br/>101A - 2032A</td></tr><tr><td>HCS FILE NUMBER</td><td>CLASSIFICATION</td><td>MICROFILM</td></tr></tbody></table>
 
 <table><thead><tr><th>DISTRIBUTION STATEMENT</th><th>RECIPIENT</th><th>DATE</th></tr></thead><tbody><tr><td>CONFIDENTIAL</td><td>CHIEF OF STATION, NEXICE CITY</td><td>01-285-94</td></tr></tbody></table>
 

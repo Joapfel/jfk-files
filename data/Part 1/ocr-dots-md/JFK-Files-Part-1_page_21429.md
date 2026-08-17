@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21429.png
-
-Convert to MarkdownCORY
+CORY
 
 OFFA 59215
 13 June 1961

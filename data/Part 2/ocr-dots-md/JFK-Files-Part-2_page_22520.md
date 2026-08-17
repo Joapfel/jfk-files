@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22520.png
-
-Convert to MarkdownSet out below are items of particular interest which
+Set out below are items of particular interest which
 have been reported in more specific terms by Mr. Wiley
 to assist Chief, SRS and are set forth below for record:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27361.png
-
-Convert to MarkdownA - Box # 6 of 10 Misc. John McConne Papers
+A - Box # 6 of 10 Misc. John McConne Papers
 
 B - Box 4 of 10 Notes for DCI and Weekend Reading June-December
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31267.png
-
-Convert to MarkdownSECRE!
+SECRE!
 
 0002315
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7704.png
-
-Convert to MarkdownU.S.S.R.
+U.S.S.R.
 
 Report No.: 1-6444
 

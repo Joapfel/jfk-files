@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17030.png
-
-Convert to MarkdownKDFACTOR - Mexico City, Mexico -- Photographic Surveillance
+KDFACTOR - Mexico City, Mexico -- Photographic Surveillance
 Team Support -- FY 1972, Cost $19,000 and FY 1973,
 Cost $20,000
 

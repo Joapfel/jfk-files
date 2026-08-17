@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24345.png
-
-Convert to MarkdownSECRET
+SECRET
 
 **TO**: ID/1
 **FROM**: Interrogation Research Division

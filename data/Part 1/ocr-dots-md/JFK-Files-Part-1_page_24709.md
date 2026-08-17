@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24709.png
-
-Convert to Markdown19 June 1975
+19 June 1975
 
 SECRET
 

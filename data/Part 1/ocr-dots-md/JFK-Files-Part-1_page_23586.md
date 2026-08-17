@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23586.png
-
-Convert to MarkdownNºSD 29681B
+NºSD 29681B
 
 DATE
 

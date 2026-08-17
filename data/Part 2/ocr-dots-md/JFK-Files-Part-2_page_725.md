@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_725.png
-
-Convert to Markdown104-10290-10273
+104-10290-10273
 
 TO A DIRECTOR
 FROM : MEXICO CITY

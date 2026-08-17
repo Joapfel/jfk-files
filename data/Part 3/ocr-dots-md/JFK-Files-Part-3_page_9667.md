@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9667.png
-
-Convert to MarkdownDepartment
+Department
 of the Treasury
 
 To: Mr. John Clarke, Associate

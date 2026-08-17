@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23357.png
-
-Convert to Markdown1. think that would have just been too bad. But I think it is
+1. think that would have just been too bad. But I think it is
 2. perfectly clear that we would not have expedited anything at the risk of doing it unprofessionally.
 3.
 4. Mr. Baron. At the point that Gottlieb left for the Congo after talking with you, would he have been empowered to convey to the Chief of Station that an assassination of Lumumba could be carried off if he could meet the criteria you just laid out, concealment of the U.S. hand and use of these materials before their potency waned?

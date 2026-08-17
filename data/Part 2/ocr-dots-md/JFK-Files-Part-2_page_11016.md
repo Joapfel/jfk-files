@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11016.png
-
-Convert to MarkdownFebruary 27, 19
+February 27, 19
 
 MANUAL OF RULES AND REGULATIONS
 REVISION NUMBER 113

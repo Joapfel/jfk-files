@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18763.png
-
-Convert to MarkdownNY 134-new
+NY 134-new
 
 During the interview of 11/24/58, stated that he is employed by the Department of State and assigned to the US Mission to the UN in NYC as
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28309.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 <table><tr><td rowspan="2">Designation<br/>4</td><td colspan="7"></td><td>A. Payroll</td><td>A. Check No.</td><td># Ship No.</td></tr><tr><td colspan="8"></td><td></td><td></td><td></td></tr></table>
 

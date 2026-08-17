@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26652.png
-
-Convert to Markdowngarrison. Included in these tapes was one made by VRG for delivery to the guerrillas during his early October visit with them. A copy of this tape is attached. The tape consists mainly of an exhortation by VRG for unity (between the Partido Guatemalteco del Trabajo (PGT) and the 13 November Group) and a plan not to permit ideological arguments to replace action. In this speech VRG reveals himself to be a hard-headed revolutionary activist, not merely an intellectual leftist. His approach to revolution is completely practical, not theoretical,
+garrison. Included in these tapes was one made by VRG for delivery to the guerrillas during his early October visit with them. A copy of this tape is attached. The tape consists mainly of an exhortation by VRG for unity (between the Partido Guatemalteco del Trabajo (PGT) and the 13 November Group) and a plan not to permit ideological arguments to replace action. In this speech VRG reveals himself to be a hard-headed revolutionary activist, not merely an intellectual leftist. His approach to revolution is completely practical, not theoretical,
 
 To cover his mission as a Castro political action agent to Yon Sosa, VRG later published an "interview" with the latter (in Siempre No. 593, 4 November 1964).
 

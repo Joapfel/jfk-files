@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21794.png
-
-Convert to MarkdownFebruary-March 1963
+February-March 1963
 
 According to a sensitive source:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11292.png
-
-Convert to Markdownbe submitted to the Bureau and the new office of
+be submitted to the Bureau and the new office of
 origin with the pertinent data placed thereon including
 his current residence and business addresses. The
 notation "remove from Unavailable Section" shall be

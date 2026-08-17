@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24572.png
-
-Convert to MarkdownLansdale's memorandum then assigned to Harvey papers on the following subjects by the means of the following passage, which contained a deleted phrase:
+Lansdale's memorandum then assigned to Harvey papers on the following subjects by the means of the following passage, which contained a deleted phrase:
 
 "Mr. Harvey: Intelligence, Political, /words deleted/, Economic, (sabotage, limited deception), and Paramilitary." (Lansdale, Ex. 15, p. 1).
 

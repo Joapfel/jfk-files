@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6867.png
-
-Convert to Markdown-3-
+-3-
 
 categories of information exempt from release (although the clear articulation of such categories is important), but the allocation of the burden of proof to the party that seeks to exempt information from release.
 

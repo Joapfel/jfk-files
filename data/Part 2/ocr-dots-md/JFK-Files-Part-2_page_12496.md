@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12496.png
-
-Convert to Markdownn. Channeling information to case files
+n. Channeling information to case files
 
 (1) Memoranda regarding membership or activity in subversive organizations, including summaries of informant reports, should be channeled to case files of individuals involved. When information from informants or surveillances is channeled to individual case files, it should be documented.
 

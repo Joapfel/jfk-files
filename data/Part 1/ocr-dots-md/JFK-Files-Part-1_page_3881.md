@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3881.png
-
-Convert to Markdown⑥ Depósito de material informado:
+⑥ Depósito de material informado:
 
 Junto de Contactos
 

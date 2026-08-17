@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16916.png
-
-Convert to Markdown<table><tr><td colspan="2">SECRET</td></tr><tr><td>Chief/WHD</td><td>XX</td></tr><tr><td>NM</td><td>ADVANCED RECOGNITION<br/>SATELLITE INS<br/>INSTRUMENTATION</td></tr><tr><td>Chie of Station. Mexico City</td><td>MEMOER</td></tr></table>
+<table><tr><td colspan="2">SECRET</td></tr><tr><td>Chief/WHD</td><td>XX</td></tr><tr><td>NM</td><td>ADVANCED RECOGNITION<br/>SATELLITE INS<br/>INSTRUMENTATION</td></tr><tr><td>Chie of Station. Mexico City</td><td>MEMOER</td></tr></table>
 
 C. Operational LIEUTENANT
 

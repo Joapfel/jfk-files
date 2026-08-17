@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17456.png
-
-Convert to MarkdownRE: MALCOLM X BLACK HAND SOCIETY OF THE WORLD, INC.
+RE: MALCOLM X BLACK HAND SOCIETY OF THE WORLD, INC.
 
 Dick Gregory, Negro male
 Militant civil rights activist and entertainer

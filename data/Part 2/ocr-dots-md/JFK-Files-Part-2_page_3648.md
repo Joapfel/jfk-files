@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3648.png
-
-Convert to Markdown3. Turkey
+3. Turkey
 
 b. This is an earnest of the desire of moderate Baathist leaders in Damascus to preserve workable relations with Iraq, partly as a counterbalance to Cairo and partly to preserve what remains of Baathist influence in Baghdad.
 

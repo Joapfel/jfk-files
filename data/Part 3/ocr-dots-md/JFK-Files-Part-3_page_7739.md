@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_7739.png
-
-Convert to Markdownsubversive activity at home, it was imperative to use special
+subversive activity at home, it was imperative to use special
 investigative measures (wire taps) in domestic cases. Mr. Truman
 concurred with the Attorney General and authorized the special
 investigative measures.

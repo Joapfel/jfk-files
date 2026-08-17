@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10664.png
-
-Convert to Markdownwhich make the building mainly uninhabitable until such violations are rectified such as electrical wiring and plumbing. It is recognized that building code authorities will allow such deficiencies to exist for a reasonable period of time and during such time habitation on the premises is permitted. Violations such as those mentioned are known to be costly to eliminate and are of the type that cannot or should not be "do-it-yourself" projects since repairs made are subject to inspection by building authorities.
+which make the building mainly uninhabitable until such violations are rectified such as electrical wiring and plumbing. It is recognized that building code authorities will allow such deficiencies to exist for a reasonable period of time and during such time habitation on the premises is permitted. Violations such as those mentioned are known to be costly to eliminate and are of the type that cannot or should not be "do-it-yourself" projects since repairs made are subject to inspection by building authorities.
 
 In that the American Nazi Party has in the past and still levels its attacks at persons of the Jewish faith, Chicago Jewish organizations are most desirable of accumulating information which can serve to initiate an attack by these organizations against the American Nazi Party. Prominent among such organizations are the Jewish War Veterans and the Anti-Defamation League B'nai B'rith.
 

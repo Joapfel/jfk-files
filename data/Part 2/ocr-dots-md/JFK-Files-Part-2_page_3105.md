@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3105.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 Maritime Branch representatives also discussed beach gradient problems with the Marine Corps and repre- sentatives of the Navy's Hydrographic Office. It was ascertained that much work needed to be done in order to upgrade information suitable for planning the use of LST's for beaching and landing of troops and vehicles. 74/
 

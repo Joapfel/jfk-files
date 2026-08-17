@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9561.png
-
-Convert to Markdown7 February 1950
+7 February 1950
 
 MEMORANDUM OF CONFERENCE
 

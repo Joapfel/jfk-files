@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23142.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 with the FBI in regard to the FBI investigation in Florida?
 

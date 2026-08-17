@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15141.png
-
-Convert to MarkdownNATIONAL CONFERENCE ON LAW ENFORCEMENT
+NATIONAL CONFERENCE ON LAW ENFORCEMENT
 AND CRIMINAL JUSTICE
 
 By letter dated March 10, 1967, the Attorney General requested FBI participation in a national conference of local and state law enforcement administrators to be held in the State Department Auditorium on March 28-29, 1967. This conference was called by the President and has as its purpose a discussion on how to implement the proposed crime legislation. Since this conference and any new crime legislation would affect directly the long-standing FBI cooperative services to local law enforcement, Assistant to the Director DeLoach, Assistant Director Casper and Inspector Jerome J. Daunt have been designated to attend. The Attorney General is being advised by letter dated March 17, 1967.

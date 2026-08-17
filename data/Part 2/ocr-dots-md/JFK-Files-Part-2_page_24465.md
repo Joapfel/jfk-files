@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24465.png
-
-Convert to MarkdownHarvey supplied poison pills and weapons to Roselli
+Harvey supplied poison pills and weapons to Roselli
 and his Cuban associates during a trip to Miami in April, 1962.*
 At a Special Group meeting on April 26, General Taylor requested
 that Harvey "attend the next meeting and report on agent

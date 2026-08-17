@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7215.png
-
-Convert to Markdown16 August 1966
+16 August 1966
 
 There is no derogatory information on the BOSTROEM couple in the United States or Venezuela. However, we have obtained the following biographic information on them from Venezuela.
 

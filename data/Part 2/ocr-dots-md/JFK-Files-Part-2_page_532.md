@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_532.png
-
-Convert to Markdown4-05 JULY
+4-05 JULY
 
 INDEX ☐ YES ☐ NO
 CLASSIFY TO FILE NO.

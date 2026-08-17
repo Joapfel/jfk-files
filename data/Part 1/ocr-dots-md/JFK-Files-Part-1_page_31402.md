@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31402.png
-
-Convert to Markdownh. Analysis of Radio Free Europe's effectiveness, programming, political position in Germany, how RFE can be used to support CIA operations specifically, alternate broadcasting sites for RFE etc.
+h. Analysis of Radio Free Europe's effectiveness, programming, political position in Germany, how RFE can be used to support CIA operations specifically, alternate broadcasting sites for RFE etc.
 
 1. How can CIA give specific guidance to RFE? What kind of information is wanted, for example, by RFE? What studies and means of overcoming jamming can be made available to RFE? How can American and British locations in the satellites best provide guidance and information for RFE?
 

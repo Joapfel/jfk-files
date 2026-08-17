@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21346.png
-
-Convert to MarkdownIn Spain they believe that Hitler may be defeated in 1942, especially if the Second Front is started. They also say that Russia is bearing the brunt of the fight.
+In Spain they believe that Hitler may be defeated in 1942, especially if the Second Front is started. They also say that Russia is bearing the brunt of the fight.
 
 Speculation about a monarchist restoration has neither delighted nor depressed the people. The possibility does not arouse much interest.
 

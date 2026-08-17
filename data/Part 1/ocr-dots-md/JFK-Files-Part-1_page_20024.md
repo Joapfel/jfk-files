@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20024.png
-
-Convert to MarkdownSECRET
+SECRET
 
 FORM 7-60 45 ABSOLUTE PREVIOUS EDIT.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2456.png
-
-Convert to MarkdownSECRET
+SECRET
 
 considered with the detailed information NOSENKO has provided on
 Seventh Department personnel, activities, procedures, and topics of

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11313.png
-
-Convert to Markdown(c) Physical surveillances
+(c) Physical surveillances
 
 I. Intelligence information and admissible evidence obtained through the use of physical surveillances in these investigations are of extreme value. Physical surveillances should be used whenever, in the opinion of the SAC, information of sufficient value might be obtained to justify their use in light of the existing circumstances and available manpower.
 

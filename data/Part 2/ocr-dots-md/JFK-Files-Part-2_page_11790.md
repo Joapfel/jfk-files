@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11790.png
-
-Convert to Markdown# PART I
+# PART I
 
 ## A. DEFINITIONS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14768.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><tr><td>015544</td></tr><tr><td>O MODE DISSENT BT: 44</td></tr><tr><td>O NO MORE PER SOP</td></tr><tr><td>O RETURN #132</td></tr></table>
 

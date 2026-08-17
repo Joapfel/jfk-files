@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13351.png
-
-Convert to MarkdownOLSEN: Were you ever taken into custody by any police in Dallas?
+OLSEN: Were you ever taken into custody by any police in Dallas?
 
 STURGIS: No, sir. Never.
 

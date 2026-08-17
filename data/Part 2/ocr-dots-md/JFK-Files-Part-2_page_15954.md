@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15954.png
-
-Convert to MarkdownThe following article by RUFUS WALLS, appeared in recent issue of the "Phoenix" and was distributed on Crane Junior College campus on April 1 and 2, 1969:
+The following article by RUFUS WALLS, appeared in recent issue of the "Phoenix" and was distributed on Crane Junior College campus on April 1 and 2, 1969:
 
 # "PIG POLICE IN BLACK COMMUNITY
 

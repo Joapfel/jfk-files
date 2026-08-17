@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8188.png
-
-Convert to Markdown1 - Mr. J. A. Mintz
+1 - Mr. J. A. Mintz
 1 - Mr. W. R. Wannall
 
 May 2, 1975

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15655.png
-
-Convert to Markdown86. Subject has a highly developed verbal intelligence and he is able to amplify and elaborate on his ideas.
+86. Subject has a highly developed verbal intelligence and he is able to amplify and elaborate on his ideas.
 
 87. Prior to the last session on the 10th of January Subject was routinely contacted by the French police who were investigating his activities in Paris at this time. As a result of this contact, he was markedly apprehensive and pre-occupied with the seriousness of this visit by the police and was not able to freely devote himself to psychological analysis as heretofore. The important point here is that Subject is an extremely alert and vigilant person. His primary motive is, of course, self-preservation and he is likely to over-react and to become emotionally upset with provocation. He needs the guiding influence of a more mature and experienced person who is in control of the situation.
 

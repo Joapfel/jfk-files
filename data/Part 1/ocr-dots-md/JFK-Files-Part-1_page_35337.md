@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35337.png
-
-Convert to MarkdownCLANDESTINAJE.
+CLANDESTINAJE.
 
 " Annex III-A"
 

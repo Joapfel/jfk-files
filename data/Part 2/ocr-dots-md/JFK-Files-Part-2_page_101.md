@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_101.png
-
-Convert to MarkdownA. M19, June Cobb called the New York DOUG office about what to do about her CIA salary on her income tax return.
+A. M19, June Cobb called the New York DOUG office about what to do about her CIA salary on her income tax return.
 
 After discussions with CF/CAL and George Powell of the Tax Committee, I phoned DODC to tell Cobb the following:
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3221.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 It is planned to concentrate all capabilities available to the U.S. Government on the [Cuban] target. In addition, it will be necessary for CIA to create such unilateral, FRD, and third country operations as may be feasible and useful. All facets of psychological operations will be exploited through mass media means, including: radio, television, motion pictures, press and publications, books, leaflets, posters, handbills, and rumors. The major emphasis will be placed on gray materials. Liaison will be conducted as necessary with other U.S. Government agencies. Black operations will be carefully coordinated within CIA prior to implementation. All direct dealings with members of the FRD will be under unofficial cover. 5/
 

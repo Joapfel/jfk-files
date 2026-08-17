@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15166.png
-
-Convert to MarkdownGAMBLING CASES
+GAMBLING CASES
 
 In our gambling cases, we have already recorded a total of 78 convictions thus far this fiscal year, which represents 30 more convictions than at a similar time last year. In addition, we have in excess of 350 individuals arrested and/or indicted and awaiting trial for violations of these statutes. As a result of our dissemination policies of gambling information to local authorities, we have directed telling blows against La Cosa Nostra members active in this field by virtue of numerous arrests made by local authorities.
 

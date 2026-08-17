@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35626.png
-
-Convert to Markdown# Programa radial "El Medico y Ud"
+# Programa radial "El Medico y Ud"
 ## Julio, 1965
 
 Viernes      2   #   365 Influenza o Flu

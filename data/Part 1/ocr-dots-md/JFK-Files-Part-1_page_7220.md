@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7220.png
-
-Convert to Markdownvery kind and friendly. I am supposing a very bad day in Mexico, because there is an American commission to have a soft drink, since the sun goes down so slowly, but I did not see anything. I think that would be best. It has taken me a little longer than it should have, but I did not see anything. In Mexico we have a pick-up track from Servicio Publico going out with some women, about 150 cm long and 60 cm wide.
+very kind and friendly. I am supposing a very bad day in Mexico, because there is an American commission to have a soft drink, since the sun goes down so slowly, but I did not see anything. I think that would be best. It has taken me a little longer than it should have, but I did not see anything. In Mexico we have a pick-up track from Servicio Publico going out with some women, about 150 cm long and 60 cm wide.
 
 Saturday, July 30th, 1966
 

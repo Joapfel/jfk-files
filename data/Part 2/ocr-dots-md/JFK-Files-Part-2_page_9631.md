@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9631.png
-
-Convert to MarkdownThe methods of gathering intelligence are roughly divided into two groups: 1) Research and Analysis, and 2) Espionage.
+The methods of gathering intelligence are roughly divided into two groups: 1) Research and Analysis, and 2) Espionage.
 
 Espionage includes all the "illegal" means of obtaining information, such as wire-tapping, interception of mail, stealing of documents, secretly photographing records, infiltrating, spying into enemy organizations, bribing or black-mailing individuals of the enemy apparatus.
 

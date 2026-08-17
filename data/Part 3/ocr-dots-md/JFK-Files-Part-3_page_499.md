@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_499.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 During July, 1969, the Los Angeles Office sent anonymous leaflets to selected leaders and members of the Black Panther Party (BPP) and New Left organizations accusing Donald Freed of being a police informant. Freed was active in the Los Angeles area in developing a close working relationship between the BPP and New Left organizations.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35131.png
-
-Convert to Markdown<u>NUTRITA</u>
+<u>NUTRITA</u>
 
 <u>ANEXO "I-R"</u>
 Hoja No. 3

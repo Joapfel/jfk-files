@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4451.png
-
-Convert to Markdown15. A lawyer in Havana reported on Rancho Boyeros Airport in Havana where a certain airline is one of his clients.
+15. A lawyer in Havana reported on Rancho Boyeros Airport in Havana where a certain airline is one of his clients.
 
 16. A pineapple firm manager in Pinar del Rio recruited in July 1962 reported on military developments in his area.
 

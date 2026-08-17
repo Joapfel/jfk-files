@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9772.png
-
-Convert to Markdown2.
+2.
 
 calumny to Alberto Dominguez they would assassinate Crozco on the spot. If, however, it became clear that Crozco was innocent they would look for some one else who might have been the source.
 

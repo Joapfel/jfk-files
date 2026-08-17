@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24586.png
-
-Convert to Markdown12 February 1957 attended a meeting of the Bureau of the PGT in Mexico at the home of Manuel SANCHEZ. SANCHEZ discussed the regulations governing the WPG as proposed by the Partido Accion Revolucionario Unificado (PARU) (7).
+12 February 1957 attended a meeting of the Bureau of the PGT in Mexico at the home of Manuel SANCHEZ. SANCHEZ discussed the regulations governing the WPG as proposed by the Partido Accion Revolucionario Unificado (PARU) (7).
 
 14 February 1957 attended a meeting of the Bureau of the PGT in Mexico which was held at the home of Manuel SANCHEZ (7).
 

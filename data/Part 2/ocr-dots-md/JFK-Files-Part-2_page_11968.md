@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11968.png
-
-Convert to Markdown5. Listed below are of the Bureau offices and facilities [annual] letters should be submitted:
+5. Listed below are of the Bureau offices and facilities [annual] letters should be submitted:
 
 | Office | Dates |
 |---|---|

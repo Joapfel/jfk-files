@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25740.png
-
-Convert to MarkdownTHE WHITE HOUSE
+THE WHITE HOUSE
 WASHINGTON
 
 SECRET - EYES ONLY

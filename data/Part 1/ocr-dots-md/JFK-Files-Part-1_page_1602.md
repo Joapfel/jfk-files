@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1602.png
-
-Convert to MarkdownSECRET
+SECRET
 
 existence of the agreement. Any information in any form that must be given to a third party by either the Agency or the Company will be done in strict conformance to the laws safeguarding national security information, and only with full consultation between the Agency and the Company.
 

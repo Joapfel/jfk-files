@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_11983.png
-
 state's attorney out of Miami." He flashes an ID card. Branch and Rothchild can't believe it. He seems more like a condominium salesman who wishes he could be a golf pro. "Is that right, Hilda?" Branch asks.
 
 "Yeah, but he's being a bad boy tonight," she replies. "Tell him to mind his own business, whatever that is."

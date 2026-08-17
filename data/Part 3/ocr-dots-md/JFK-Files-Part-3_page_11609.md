@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11609.png
-
-Convert to Markdownpistol used in the killing, which enabled the Detroit police to arrest the BPP member, recover the pistol and determine that this weapon was used in the killing referred to above.
+pistol used in the killing, which enabled the Detroit police to arrest the BPP member, recover the pistol and determine that this weapon was used in the killing referred to above.
 
 A Tampa informant furnished information concerning identity of two Negro males who placed a fire bomb in a garage in Tampa, Florida.
 

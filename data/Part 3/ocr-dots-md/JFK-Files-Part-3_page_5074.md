@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5074.png
-
-Convert to MarkdownMichael E. Shaheen, Jr., Esq.
+Michael E. Shaheen, Jr., Esq.
 
 November 7, 1975
 

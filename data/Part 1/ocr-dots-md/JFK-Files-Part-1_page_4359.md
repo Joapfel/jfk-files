@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4359.png
-
-Convert to MarkdownMRR
+MRR
 
 Movimiento de Recuperación Revolucionaria
 

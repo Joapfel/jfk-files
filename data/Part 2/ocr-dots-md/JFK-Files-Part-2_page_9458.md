@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9458.png
-
-Convert to MarkdownLET THE
+LET THE
 MADHEN OUT!!
 
 POWERED

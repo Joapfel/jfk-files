@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16244.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO SECAROB/I'S SUGGESTION @
 VISTATIC/I THAT MOBITU

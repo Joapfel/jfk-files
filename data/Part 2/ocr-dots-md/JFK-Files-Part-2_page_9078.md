@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9078.png
-
-Convert to MarkdownSECRET
+SECRET
 
 18. [DARRELL PATRICK HAMMER]{}J
 

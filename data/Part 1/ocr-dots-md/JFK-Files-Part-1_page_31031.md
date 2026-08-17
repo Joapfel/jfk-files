@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31031.png
-
-Convert to MarkdownI-1304-R-E-T
+I-1304-R-E-T
 
 LIFE INSURANCE APPLICATION
 (CONTRACT LIFE)

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7764.png
-
-Convert to Markdown15.01.01 Is there any subject that tends to get his dander up? Yes No If so, what is it?
+15.01.01 Is there any subject that tends to get his dander up? Yes No If so, what is it?
 
 15.02
 Is he a man whose patriotism:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18385.png
-
-Convert to MarkdownSEP 9 1975
+SEP 9 1975
 
 TO: Richard L. Thornburgh
 Assistant Attorney General

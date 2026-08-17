@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5441.png
-
-Convert to Markdownmaintained confidential. I still have not given them a close
+maintained confidential. I still have not given them a close
 review. I have not done so for the very reason as I mentioned
 about my own file. I don't think it will benefit me to go over
 them. Under archival rules they must be preserved. In the

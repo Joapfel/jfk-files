@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25127.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Milting, Ambassador</td><td rowspan="4">Aug. 21, 1963</td><td rowspan="4">Diem ✓</td></tr><tr><td>Lodge, Ambassador</td></tr><tr><td>Diem</td></tr><tr><td>Thich Tri Quang</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>Milting, Ambassador</td><td rowspan="4">Aug. 21, 1963</td><td rowspan="4">Diem ✓</td></tr><tr><td>Lodge, Ambassador</td></tr><tr><td>Diem</td></tr><tr><td>Thich Tri Quang</td></tr></tbody></table>
 
 **OCCURRENCE:**
 

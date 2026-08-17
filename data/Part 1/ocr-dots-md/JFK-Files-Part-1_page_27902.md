@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27902.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Supplement to Staff Employee Personnel
 Action for Integration of Thomas J. Keenan

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6068.png
-
-Convert to Markdown"If All the World Were Philadelphia: Allen Steinberg's The Transformation of Criminal Justice," *Pennsylvania History* 27 (Summer 1992): 13-21.
+"If All the World Were Philadelphia: Allen Steinberg's The Transformation of Criminal Justice," *Pennsylvania History* 27 (Summer 1992): 13-21.
 
 "The Irony of the Federal Constitution's Genius: State Constitutional Development," in Peter Nardulli, ed., *The Constitution and American Political Development: An Institutional Perspective* (Urbana: University of Illinois Press, 1992): 235-261
 

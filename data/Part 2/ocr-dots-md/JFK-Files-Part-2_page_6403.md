@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6403.png
-
-Convert to Markdownand hope the Board members do not ask for the source of this obligation (since we cannot provide
+and hope the Board members do not ask for the source of this obligation (since we cannot provide
 them with any signed secrecy agreements). In essence we bluff the Board. (**A variation of this
 approach would be to have the Board execute an SCI debriefing statement, which includes a
 prepublication clause, although it is limited to SCI material**)

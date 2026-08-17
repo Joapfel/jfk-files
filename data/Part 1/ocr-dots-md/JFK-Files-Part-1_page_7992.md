@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7992.png
-
-Convert to Markdown<table><tr><td></td></tr></table>
+<table><tr><td></td></tr></table>
 
 R. L. Colby, MD
 

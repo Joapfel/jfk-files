@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31808.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STUDENTS FOR A DEMOCRATIC SOCIETY
 

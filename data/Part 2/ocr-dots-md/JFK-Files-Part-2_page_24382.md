@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24382.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 D. Summary of Findings and Conclusions
 

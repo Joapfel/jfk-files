@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17495.png
-
-Convert to MarkdownMEMORANDUM FOR: Assistant Deputy Director (Plans)
+MEMORANDUM FOR: Assistant Deputy Director (Plans)
 
 THROUGH: DDP/PO
 

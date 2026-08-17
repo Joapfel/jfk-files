@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5597.png
-
-Convert to MarkdownU.S. DEPARTMENT GOVERNMENT
+U.S. DEPARTMENT GOVERNMENT
 
 Memorandum
 

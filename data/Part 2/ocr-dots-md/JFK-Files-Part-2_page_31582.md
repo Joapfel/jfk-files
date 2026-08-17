@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31582.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:nb
 
 Special Agents of the FBI on December 10, 1965, observed at approximately 11:30 AM, December 10, 1965, Secretary of State RUSK addressed the 6th Biennial Convention of the AFL-CIO at the San Francisco Civic Auditorium. During Secretary of State RUSK's speech, approximately 30 individuals, who were seated in the balcony, held signs which were critical of the U.S. foreign policy in Vietnam. Following Secretary of State RUSK's speech, the demonstrators were escorted from the audience by union members.

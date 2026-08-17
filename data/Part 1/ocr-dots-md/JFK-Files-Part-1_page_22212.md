@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22212.png
-
-Convert to Markdown620.
+620.
 
 "MVD Leadership, 1953-54: Asked to name the chiefs of the directorates and separate departments of the MVD under BERIYA and KRUGLOV, NOSENKO named nine out of 28. He was unable to name the Chief of the Intelligence Directorate, saying that he remembered only SAKHAROVSKIY (PANYUSHKIN was chief until 1955). Asked to name KRUGLOV's deputies, NOSENKO named only ROMASHKOV and SEROV, and was ignorant of such prominent deputies as LUNEV and SHATALIN. Told that a Secretary of the Central Committee of the CPSU was one of KRUGLOV's deputies at this time (SHATALIN), NOSENKO flatly denied that this was possible.
 

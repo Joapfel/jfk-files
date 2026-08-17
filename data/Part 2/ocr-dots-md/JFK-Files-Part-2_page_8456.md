@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8456.png
-
-Convert to Markdown13-00000
+13-00000
 
 1. RTV
 2. SHAH (IRAN)

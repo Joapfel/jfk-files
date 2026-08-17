@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9930.png
-
-Convert to Markdownnow or hereafter mutually entered into by any of the subscribers thereto will be reduced to writing; will thereafter become supplements to the Delimitations Agreement, and distributed only to the extent agreed upon by the co-signers.
+now or hereafter mutually entered into by any of the subscribers thereto will be reduced to writing; will thereafter become supplements to the Delimitations Agreement, and distributed only to the extent agreed upon by the co-signers.
 
 (Signed) S. Leroy Irwin
 Director of Intelligence,

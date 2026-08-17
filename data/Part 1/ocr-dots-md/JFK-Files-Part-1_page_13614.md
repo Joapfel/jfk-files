@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13614.png
-
-Convert to MarkdownSOURCE: LONDON (0-2)
+SOURCE: LONDON (0-2)
 
 DATE: Friday, 20 October, 1961
 

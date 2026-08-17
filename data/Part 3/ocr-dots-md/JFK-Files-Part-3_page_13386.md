@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13386.png
-
-Convert to MarkdownSTURGIS: Well, no sir. No, sir, the whole venture was not scrapped. Because of the damage to the boat, because the rendezvous was on the second day--was late in rendezvousing with the other boat which did not show up, I proceeded off the coast of Belize, which is the capital of British Honduras; I put the men ashore, and the guns and equipment ashore in a small atoll. I proceeded with a skeleton crew to go into Belize to fix the damages of the boat. While we were in Belize two hours, the authorities there came aboard and took us to their headquarters for questioning.
+STURGIS: Well, no sir. No, sir, the whole venture was not scrapped. Because of the damage to the boat, because the rendezvous was on the second day--was late in rendezvousing with the other boat which did not show up, I proceeded off the coast of Belize, which is the capital of British Honduras; I put the men ashore, and the guns and equipment ashore in a small atoll. I proceeded with a skeleton crew to go into Belize to fix the damages of the boat. While we were in Belize two hours, the authorities there came aboard and took us to their headquarters for questioning.
 
 OLSEN: Was this Mexican authorities?
 

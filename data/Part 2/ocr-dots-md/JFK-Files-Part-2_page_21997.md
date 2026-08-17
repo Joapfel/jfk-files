@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21997.png
-
-Convert to Markdown# SSCI BOX # 437-23
+# SSCI BOX # 437-23
 SEL COM SENSITIVE
 
 MEMORANDUM

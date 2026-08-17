@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9419.png
-
-Convert to MarkdownDE 157-3075
+DE 157-3075
 
 JOHN HENRY BOWMAN, BPP Philadelphia, is scheduled to fly from Detroit to New York via United Airlines Flight 602 on September 20, 1970, at 11:27 a.m.
 

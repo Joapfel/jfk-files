@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25035.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 next week if I have your permission, sir. He wouldn't have done that. Because where I particularly remember this, or get the feeling particularly strong, is dating back to something that Senator Hart mentioned, the U-2 incident. Allen Dulles' strong desire was to take the whole responsibility for that, and resign, and be fired in disgrace, publically, in order to protect the President. But the President totally refused to accept any such way of handling it.
 

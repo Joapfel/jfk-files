@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9046.png
-
-Convert to Markdownevidenced by the favorable terms offered him. We have
+evidenced by the favorable terms offered him. We have
 done considerable staff work on his assignment and don't
 have another suitable candidate immediately available.
 Should TICHBORN not be able to go to Spain, it would be

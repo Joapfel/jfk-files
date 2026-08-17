@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14076.png
-
-Convert to Markdown# THE WHITE HOUSE
+# THE WHITE HOUSE
 WASHINGTON
 
 ## MEMORANDUM FOR THE FILE

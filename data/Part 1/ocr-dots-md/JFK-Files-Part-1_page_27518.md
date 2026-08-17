@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27518.png
-
-Convert to MarkdownARE: 12 JULY 1961
+ARE: 12 JULY 1961
 
 SECRET
 (When Filled In)

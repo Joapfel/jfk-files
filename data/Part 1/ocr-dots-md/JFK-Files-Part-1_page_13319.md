@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13319.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Y3 HAIR TINTED BLONDE
 LOCO BABRICIO WAS

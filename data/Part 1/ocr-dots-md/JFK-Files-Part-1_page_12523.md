@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12523.png
-
-Convert to Markdown<table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>PERSON UNNOTIFIED</td><td></td></tr><tr><td>ADVANCE COPY</td><td><input type="checkbox" checked disabled/> ISSUED <input type="checkbox" disabled/> SLOTTED</td></tr><tr><td>BY</td><td>AT</td></tr><tr><td>DISSED BY</td><td>8 PER</td></tr><tr><td>ACTION UNIT</td><td>(LHD 8)</td></tr><tr><td>FILE, VR</td><td>RJ/AM SECUR 4, cf. c/o/c, c/fso</td></tr><tr><td>ACTION NO</td><td>C031</td></tr></table>
+<table><tr><td colspan="2">CABLE SECRETARIAT DISSEMINATION</td></tr><tr><td>PERSON UNNOTIFIED</td><td></td></tr><tr><td>ADVANCE COPY</td><td><input type="checkbox" checked disabled/> ISSUED <input type="checkbox" disabled/> SLOTTED</td></tr><tr><td>BY</td><td>AT</td></tr><tr><td>DISSED BY</td><td>8 PER</td></tr><tr><td>ACTION UNIT</td><td>(LHD 8)</td></tr><tr><td>FILE, VR</td><td>RJ/AM SECUR 4, cf. c/o/c, c/fso</td></tr><tr><td>ACTION NO</td><td>C031</td></tr></table>
 
 ASSIFIED MESSAGE * TOTAL COPIES: 9
 

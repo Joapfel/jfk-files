@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3727.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: Chief, WH Division
 FROM : Chief of Station, Managua

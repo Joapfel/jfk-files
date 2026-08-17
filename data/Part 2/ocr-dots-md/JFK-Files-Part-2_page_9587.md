@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9587.png
-
-Convert to MarkdownSD 157-2815
+SD 157-2815
 
 All individuals referred to herein as leaders of the SAO in the San Diego area are either being actively investigated or have been so investigated in the past to determine whether they should be placed on the ADEX.
 

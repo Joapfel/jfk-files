@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26509.png
-
-Convert to Markdownthe right thing to do. Also, the movement is at a stage where what it needs is friends.
+the right thing to do. Also, the movement is at a stage where what it needs is friends.
 
 Well, I think I have talked a good deal and rather haphazardly, but— I wish you had arrived; I was clinging to that hope, although I knew it was very unlikely, since you have already delayed too long. Unfortunately it has not been that way, has it? So I wanted to leave my greeting to you and some of the impressions I have of the situation.
 

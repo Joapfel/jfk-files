@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15736.png
-
-Convert to Markdown<table><tr><td>DATE OF DEPARTMENT, FRANKFURT</td><td>11 October 1950</td></tr><tr><td>R.A. (Soviet/Aust.)</td><td>(C) - NOTES W/AS IS<br/>2649 for Frankfurt</td></tr><tr><td>ALBANIA?</td><td>X - AMENDMENTS</td></tr><tr><td colspan="2">OTHER INFORMATION</td></tr><tr><td colspan="2">PLEASE INITIALIZE TO THE LEFT OF EACH ITEM IF APPLICABLE</td></tr></table>
+<table><tr><td>DATE OF DEPARTMENT, FRANKFURT</td><td>11 October 1950</td></tr><tr><td>R.A. (Soviet/Aust.)</td><td>(C) - NOTES W/AS IS<br/>2649 for Frankfurt</td></tr><tr><td>ALBANIA?</td><td>X - AMENDMENTS</td></tr><tr><td colspan="2">OTHER INFORMATION</td></tr><tr><td colspan="2">PLEASE INITIALIZE TO THE LEFT OF EACH ITEM IF APPLICABLE</td></tr></table>
 
 1. The US Sovietresefiles on AEXEPIC 1 were destroyed this date; materials in previously forwarded files to Headquarters is transmitted under separate cabled attachment to this dispatch.
 

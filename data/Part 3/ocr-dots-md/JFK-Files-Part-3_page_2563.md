@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2563.png
-
-Convert to MarkdownMr. John T. Elliff, Director
+Mr. John T. Elliff, Director
 Domestic Intelligence Task Force
 United States Senate Select Committee
 on Intelligence Activities

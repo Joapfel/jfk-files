@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16841.png
-
-Convert to Markdown<html><body><table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td>CLASSIFICATION<br>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br>HMA-42,197</td></tr></table></body></html>
+<html><body><table><tr><td colspan="2">CONTINUATION OF<br>DISPATCH</td><td>CLASSIFICATION<br>SECRET</td><td>DISPATCH SYMBOL AND NUMBER<br>HMA-42,197</td></tr></table></body></html>
 
 5. KDFACTOR-2 will continue to reside in the KDLITERAL building, as part of his termination agreement, until probably sometime in December when he will move to new quarters of his own. The KDLITERAL building (NEXI-03, Unit 15) is part of the KDVAULT complex of buildings which will be disposed of as reported in other channels. If this occurs before December, KDFACTOR-2 will move at the time of disposal.
 

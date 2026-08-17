@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9144.png
-
-Convert to MarkdownRH 157-1558
+RH 157-1558
 
 | Contributor of Fingerprints | Name and Number | Arrested or Received | Charge | Disposition |
 |---|---|---|---|---|

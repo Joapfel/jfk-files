@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8255.png
-
-Convert to MarkdownAlan G. Sentinella
+Alan G. Sentinella
 
 May 21, 1975
 

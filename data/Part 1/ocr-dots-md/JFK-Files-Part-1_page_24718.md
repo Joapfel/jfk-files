@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24718.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SUBJECT: AESTORAGE No. 984
 Nikolay LEOBCV (201-132,139)

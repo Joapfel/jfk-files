@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15687.png
-
-Convert to MarkdownORIG: LESTER C. HOUCK
+ORIG: LESTER C. HOUCK
 UNIT: G/AF/WEST
 EXT : 3939
 DATE: 23 NOVEMBER 1960

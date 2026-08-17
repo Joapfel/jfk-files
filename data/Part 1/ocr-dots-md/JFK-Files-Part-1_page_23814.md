@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23814.png
-
-Convert to Markdown- 3 -
+- 3 -
 
 somewhat irregular, but we went ahead with it principally on the grounds
 that this was necessary to head off the security and morale problems

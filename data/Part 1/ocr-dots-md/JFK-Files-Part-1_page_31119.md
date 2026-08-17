@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31119.png
-
-Convert to Markdown10 September 1950
+10 September 1950
 
 Mr. Lee H. Wigren
 218 Belmont Avenue

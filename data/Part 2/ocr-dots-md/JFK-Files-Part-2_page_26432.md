@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26432.png
-
-Convert to MarkdownSECRET
+SECRET
 
 STATUS REPORT
 OF THE

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14388.png
-
-Convert to MarkdownMATERIAL FOR JOINT COMMITTEE
+MATERIAL FOR JOINT COMMITTEE
 ON INTERNAL REVENUE TAXATION
 
 1. TITLE/SUBJECT: FBI's Investigation of Extremist Organizations and Individuals

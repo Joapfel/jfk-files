@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18370.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 9 July 1947
 

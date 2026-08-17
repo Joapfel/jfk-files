@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8639.png
-
-Convert to MarkdownSECRET
+SECRET
 
 HR 20-54
 

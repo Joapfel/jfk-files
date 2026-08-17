@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_25269.png
-
-Convert to MarkdownA-278
+A-278
 Page 8
 
 B. Contacts with Special Interest Groups:

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11930.png
-
-Convert to Markdownthe Bureau for its invaluable assistance in contributing to its successful handling, without serious incident, of the Tito visit. Because of our extensive coverage of anti-Tito Yugoslavs in the U. S., we had been able to furnish considerable information to the Belgians on possible trouble-makers and to furnish prompt responses to specific inquiries.
+the Bureau for its invaluable assistance in contributing to its successful handling, without serious incident, of the Tito visit. Because of our extensive coverage of anti-Tito Yugoslavs in the U. S., we had been able to furnish considerable information to the Belgians on possible trouble-makers and to furnish prompt responses to specific inquiries.
 
 Returning to our more usual counterespionage work, we developed and operated as a defector-in-place from July, 1969, until November, 1970, a Soviet official assigned to a Soviet establishment in New York City. This source, although not affiliated with Soviet intelligence, was able to furnish information of counterintelligence value and to identify members of the Soviet intelligence community. The source left the United States in November, 1970, but subsequently our New York Office received a communication from the source through a special channel. The communication indicated a possibility that the source may be able to cooperate with the U. S. Government in the future. This possibility is, of course, dependent upon the source's future Soviet assignments.
 

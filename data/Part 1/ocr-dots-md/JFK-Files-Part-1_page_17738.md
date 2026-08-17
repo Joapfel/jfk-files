@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17738.png
-
-Convert to Markdown4390
+4390
 
 684- Entrada sin contestación.- 692-
 

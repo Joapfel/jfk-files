@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26889.png
-
-Convert to MarkdownMay 5,1965
+May 5,1965
 
 Comments on Helicopter Pilot evaluation and proficiency training:
 

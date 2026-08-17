@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13867.png
-
-Convert to MarkdownWH/SA 64-364
+WH/SA 64-364
 
 6 May 1964
 

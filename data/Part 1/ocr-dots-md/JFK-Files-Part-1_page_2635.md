@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2635.png
-
-Convert to Markdown(PRE-KGB BIOGRAPHY)
+(PRE-KGB BIOGRAPHY)
 
 # Attendance at the Moscow Institute of International Relations (1945 - ca. 1950)
 

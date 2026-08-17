@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22468.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DOI 50-10
 

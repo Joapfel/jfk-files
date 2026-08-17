@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11273.png
-
-Convert to MarkdownSECRET
+SECRET
 
 DATE: 29 August 1973
 

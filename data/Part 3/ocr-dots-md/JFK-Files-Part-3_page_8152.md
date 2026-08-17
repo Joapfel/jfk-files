@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_8152.png
-
-Convert to MarkdownAirtel
+Airtel
 
 Mr. W. R. Wannall
 1 - Mr. D. W. Moore

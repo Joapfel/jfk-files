@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7213.png
-
-Convert to MarkdownSECRET
+SECRET
 
 It was interesting that at 1730 Sr. Valentin "el Toro" (LOGANOV) should in fact make a telephone call. Apparently it was with someone from his department since he was quite happy (conclusion). Among other things that I was able to hear was that he wanted to see her that night, that at night he dreams that she is in the studio and that tomorrow (Sunday) they could go swimming together. They talked for quite a while and he seemed quite mollified. He told her that he would take care of everything if she wanted to go to his country (USSR). I went outside the door of the store in order to afford him more liberty. When he finished talking, he wanted to justify himself so he by saying that he is a batchelor because his wife is in Chernivaca.
 

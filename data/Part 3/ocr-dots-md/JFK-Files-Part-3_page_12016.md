@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12016.png
-
-Convert to Markdownorganization plans, funding programs, extent of control by headquarters and foreign support. In addition, evidentiary information that could support prosecution is regularly furnished to the Department.
+organization plans, funding programs, extent of control by headquarters and foreign support. In addition, evidentiary information that could support prosecution is regularly furnished to the Department.
 
 Our ultimate objective is of course the prosecution of the BPP for violations of Federal criminal, civil rights and security statutes. A secondary objective is to more completely develop details of the BPP for intelligence purposes.
 

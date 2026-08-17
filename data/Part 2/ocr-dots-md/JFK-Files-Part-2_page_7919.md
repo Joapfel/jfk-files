@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7919.png
-
-Convert to Markdown* *But we can be destroyed when we lose faith or hope and when life itself seems like a story told by a mad man, as it must seem to the members and supporters of the White Citizens Council......*
+* *But we can be destroyed when we lose faith or hope and when life itself seems like a story told by a mad man, as it must seem to the members and supporters of the White Citizens Council......*
 
 The Negro people of the South have been marking time, making excuses and accepting conditions that exist in the South. Until a few brave men in Alabama turned what seemed to be a tragedy into an opportunity by having courage enough to challenge the Jim Crow laws.""
 

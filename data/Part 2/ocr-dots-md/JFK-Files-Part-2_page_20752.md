@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20752.png
-
-Convert to MarkdownThe Women's National Abortion Action Coalition
+The Women's National Abortion Action Coalition
 
 "That the National Office of WONAAAC pledged $1,500 to the defense of the seven women arrested in Chicago because of their alleged activity in abortion counselling, referral, and procedure..."
 

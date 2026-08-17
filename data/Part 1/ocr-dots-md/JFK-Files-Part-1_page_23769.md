@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23769.png
-
-Convert to MarkdownSECRET/KAROK OFLA 2555
+SECRET/KAROK OFLA 2555
 
 4. On 14 and 15 June MODICAST again met with S/1 for further debriefings on the letter's contacts in Paris. MODICAST then briefed him on KUWENK requirements for MODICEE and passed on the requirement: AID information forwarded in DIR 16107 and DIR 18675. MODICAST's reports on these meetings are also included in Attachment B (USC). On 14 June S/1 was passed $500.00 as an advance on his per diem and travel expenses for his next meeting with MODICAST. MODICAST considers S/1 an apt student who learned the S/W system well in some two hours of instruction. Paris XURIOT Officer DONAMY noted some carelessness on S/1's part in the test messages, and this was subsequently brought to S/1's attention in the overall security briefing he received from MODICAST.
 

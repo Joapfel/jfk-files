@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8477.png
-
-Convert to Markdown013.
+013.
 
 LOGUINOV, Mrs. Valentin
 

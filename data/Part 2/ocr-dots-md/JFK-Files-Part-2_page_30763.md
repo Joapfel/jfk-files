@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30763.png
-
-Convert to Markdownunder Angleton before
+under Angleton before
 (DN)³ joined staff.
 never clear what did
 "tightly held compartment"

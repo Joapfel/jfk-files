@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29830.png
-
-Convert to MarkdownM - can think of that would be of any help to us, to aid us we would appreciate it. We would like to get to the bottom of it
+M - can think of that would be of any help to us, to aid us we would appreciate it. We would like to get to the bottom of it
 
 S - Because this has happened so quickly, it is hard for us to keep it in our mind, the garble that Tinker wrote down. Do you know the relationship there, Tinker
 

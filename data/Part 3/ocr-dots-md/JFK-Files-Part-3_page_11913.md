@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11913.png
-
-Convert to MarkdownIn addition, a timely study concerning disruptive
+In addition, a timely study concerning disruptive
 attacks on the courts was prepared and disseminated to high-
 level officials and interested agencies.
 

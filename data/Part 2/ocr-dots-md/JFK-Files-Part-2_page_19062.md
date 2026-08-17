@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19062.png
-
-Convert to MarkdownSpecial Agent in Charge
+Special Agent in Charge
 
 Approved: _________ Sent _________ M Per _________
 

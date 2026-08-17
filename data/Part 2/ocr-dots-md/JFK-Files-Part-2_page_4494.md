@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4494.png
-
-Convert to MarkdownAugust 19/61
+August 19/61
 
 Enclosed find an approximate list of expenses that (Armando Munero) gave me for consideration. However, he would like to talk it over as to the rest of his stay in the U. S.
 

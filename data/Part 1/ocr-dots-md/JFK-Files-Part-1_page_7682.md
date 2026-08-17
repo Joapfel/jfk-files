@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7682.png
-
-Convert to Markdown13-20 Feb 1966
+13-20 Feb 1966
 
 To Coatzacoalcos to attend to Soviet ships. Soviet Embassy chauffeur Anatoly Pavlovich PRASHCHIKIN went with Subject but returned to Mexico City earlier. (1).
 

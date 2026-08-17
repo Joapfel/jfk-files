@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_161.png
-
-Convert to MarkdownS-E-C-R-E-T
+S-E-C-R-E-T
 
 0012 DAVIS, H. WEIR
 

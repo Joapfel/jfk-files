@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3015.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 In view of subsequent developments, one interesting suggestion made by the Inspector General in November 1957 was the following:
 

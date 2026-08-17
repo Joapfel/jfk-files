@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3770.png
-
-Convert to MarkdownRADIO HABANA CUBA
+RADIO HABANA CUBA
 
 APARTADO 70-26. LA HABANA, CUBA
 

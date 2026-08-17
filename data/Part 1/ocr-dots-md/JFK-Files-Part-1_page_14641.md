@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14641.png
-
-Convert to MarkdownReport No. 1936
+Report No. 1936
 
 8 October 1969
 

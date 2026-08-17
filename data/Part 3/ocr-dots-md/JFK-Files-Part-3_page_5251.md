@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5251.png
-
-Convert to Markdown2. Place stop notices with the Immigration and Naturalization Service.
+2. Place stop notices with the Immigration and Naturalization Service.
 
 3. Place stop, under Subject's name, with the FBI Identification Division.
 

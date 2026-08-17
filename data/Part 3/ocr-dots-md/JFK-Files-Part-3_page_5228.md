@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5228.png
-
-Convert to Markdownfile 165-100 on Kenneth Joseph Zahnd, aka; Morris Cooper, ITWI, indicates the local office of the United States Attorney appears to be in no rush to seek Grand Jury indictments on gambling matters. If the local office of the United States Attorney will entertain prosecution under ECT and is in no rush to seek indictments under the gambling statute, you should review at squad conferences with Agents assigned to the program provisions of SAC letter 68-46 dated August 20, 1968 wherein provisions of the ECT statute are set forth.
+file 165-100 on Kenneth Joseph Zahnd, aka; Morris Cooper, ITWI, indicates the local office of the United States Attorney appears to be in no rush to seek Grand Jury indictments on gambling matters. If the local office of the United States Attorney will entertain prosecution under ECT and is in no rush to seek indictments under the gambling statute, you should review at squad conferences with Agents assigned to the program provisions of SAC letter 68-46 dated August 20, 1968 wherein provisions of the ECT statute are set forth.
 
 In relation to statistical accomplishments, prior experience has shown a direct relationship between Office of Origin cases in a particular classification and statistical accomplishments. As of September 30, 1970 your monthly administrative report reflects the following Office of Origin cases in the categories enumerated:
 

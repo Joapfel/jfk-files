@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24323.png
-
-Convert to Markdown3 February 1975
+3 February 1975
 
 MEMORANDUM OF LAW
 

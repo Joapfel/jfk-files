@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30534.png
-
-Convert to MarkdownSECRET
+SECRET
 
 There is no person in the organization who is not involved in a project.
 

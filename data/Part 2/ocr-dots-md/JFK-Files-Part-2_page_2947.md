@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2947.png
-
-Convert to MarkdownSECRET
+SECRET
 
 24 October 1962
 Soviet ships near Cuba stop or turn.

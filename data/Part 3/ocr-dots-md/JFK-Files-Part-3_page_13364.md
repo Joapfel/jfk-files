@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13364.png
-
-Convert to MarkdownROETHE: You mentioned this anti-Castro group, that you thought might have the capability to carry on an assassination, was presently still involved in certain drug smuggling activities and you also indicated that this group was in contact with CIA and was still on occasion doing some work for CIA . Is this right?
+ROETHE: You mentioned this anti-Castro group, that you thought might have the capability to carry on an assassination, was presently still involved in certain drug smuggling activities and you also indicated that this group was in contact with CIA and was still on occasion doing some work for CIA . Is this right?
 
 STURGIS: There was that possibility at that time. Because you must remember that I have picked up a lot of information by people talking with me and I have never followed through in investigating the type of information I was given by them.
 

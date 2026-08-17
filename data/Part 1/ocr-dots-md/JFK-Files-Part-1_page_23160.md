@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23160.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><thead><tr><th colspan="2">DISPATCH</th></tr></thead><tbody><tr><td>TO: Deputy Chief, WH/C</td><td>SECRET</td></tr><tr><td>FROM: Chief, EUR., Chief of Station, JIMWAVE</td><td>X</td></tr><tr><td>Subject: Chief of Station, Madrid</td><td></td></tr><tr><td>C: Psychological Studies Center</td><td></td></tr></tbody></table>
 

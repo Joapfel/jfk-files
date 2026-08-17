@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13380.png
-
-Convert to Markdownhad working out of the country as an undercover agent for the United
+had working out of the country as an undercover agent for the United
 States Government.
 
 OLSEN: Wait a minute here now -- wait a minute, you said you have had one of these people operating as an undercover agent for the United States Government ever since?

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24466.png
-
-Convert to MarkdownHarvey stated that he did not tell McCone or the Special Group
+Harvey stated that he did not tell McCone or the Special Group
 about the operation at that time because:
 
 "I did not consider either, A, that this should be in any sense in this amorphous stage, surfaced to the Special Group, nor, as I have attempted to explain before that it should be briefed to John McCone at that point in the state that it was in with as little as we knew about it, and with all of the attendant background which at that point, and I was not personally cognizant of all of this, had been going on for approximately, as I recall, two to two-and-a-half years." (Harvey, 7/11, p. 18.)

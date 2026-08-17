@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8222.png
-
-Convert to MarkdownSECRET
+SECRET
 
 TO: H. W. Davis
 FROM: FI/STD En

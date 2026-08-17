@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14287.png
-
-Convert to Markdown<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td></tr></table>
+<table><tr><td>CONTINUATION OF<br/>DISPATCH</td><td>CLASSIFICATION<br/>SECRET</td></tr></table>
 
 OSHA - 10827
 

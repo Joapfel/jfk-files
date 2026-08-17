@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20968.png
-
-Convert to MarkdownSubject to the availability of appropriations, this agreement may be renewed for successive periods of one year each upon notice from CIA accepted by you. Termination of this agreement will not release you from the obligations of any security oath you may be required to take.
+Subject to the availability of appropriations, this agreement may be renewed for successive periods of one year each upon notice from CIA accepted by you. Termination of this agreement will not release you from the obligations of any security oath you may be required to take.
 
 UNITED STATES OF AMERICA
 

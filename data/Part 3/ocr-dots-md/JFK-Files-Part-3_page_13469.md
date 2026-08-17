@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13469.png
-
-Convert to Markdownamt 32
+amt 32
 
 1 to go right in government. Is that a fair summary?
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23460.png
-
-Convert to MarkdownMr. Douglas said that in any case he would be prepared to have the Department of Defense investigate the availability of specific locations that would be suitable.
+Mr. Douglas said that in any case he would be prepared to have the Department of Defense investigate the availability of specific locations that would be suitable.
 
 Finally, Mr. Merchant asked whether any real planning has been done for taking direct positive action against Fidel, Raul and Che Guevara. He said that without these three the Cuban Government would be leaderless and probably brainless. He conceded that it would be necessary to act against all three simultaneously. Gen. Cabell pointed out that action of this kind is uncertain of results and highly dangerous in conception and execution, because the instruments must be Cubans. He felt that, particularly because of the necessity of simultaneous action, it would have to be concluded that Mr. Merchant's suggestion is beyond our capabilities.
 

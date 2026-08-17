@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28960.png
-
-Convert to Markdown# Form 1040 (1976)
+# Form 1040 (1976)
 
 ## Part I: Income other than Wages, Dividends and Interest
 

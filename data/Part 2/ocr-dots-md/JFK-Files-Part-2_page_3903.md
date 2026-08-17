@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3903.png
-
-Convert to MarkdownMAY 15 1967
+MAY 15 1967
 
 Lane and Novel Confrontation
 Produces Heat, but Little Light

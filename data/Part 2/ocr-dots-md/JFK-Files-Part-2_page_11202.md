@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_11202.png
-
-Convert to Markdown[ [i.] Dissemination of information to Secret Service regarding plots against the President
+[ [i.] Dissemination of information to Secret Service regarding plots against the President
 
 On 2-3-65, an "agreement Between the Federal Bureau of Investigation and the secret Service Concerning Presidential Protection" was signed and became effective. This agreement is set out in its entirety in section 102, volume IV, of this manual.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_21933.png
-
-Convert to MarkdownThe cable also stated that Headquarters was prepared to deliver machine guns and ammunition to the dissidents when they developed a capability to receive them, but that security considerations precluded use of U.S. facilities as a carrier.*
+The cable also stated that Headquarters was prepared to deliver machine guns and ammunition to the dissidents when they developed a capability to receive them, but that security considerations precluded use of U.S. facilities as a carrier.*
 
 Soon, thereafter, on April 6, 1961, while *Owen* was in Washington for consultation with Headquarters, he reported on events in the Dominican Republic and
 

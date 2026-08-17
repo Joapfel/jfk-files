@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5975.png
-
-Convert to MarkdownSAC, Birmingham (107-635)
+SAC, Birmingham (107-635)
 
 2/23/65
 

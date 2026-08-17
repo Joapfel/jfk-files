@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9588.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 NFI-002-76
 PAGE 2

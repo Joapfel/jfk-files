@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13053.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>FRANK CHURCH, IDAHO, CHAIRMAN<br/>JOHN O. TOWER, TEXAS, VICE CHAIRMAN</td>
     <td rowspan="3">

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21659.png
-
-Convert to Markdownimportance, and the recruitment of code clerks as a priority aim of
+importance, and the recruitment of code clerks as a priority aim of
 the KGB. KLYPIN, who was Chief of the First Department, later re-
 peated the above and a group consisting of NOSENKO, Gennadiy I.
 GRYAZNOV and Vadim V. KOSOLAPOV was formed with NOSENKO

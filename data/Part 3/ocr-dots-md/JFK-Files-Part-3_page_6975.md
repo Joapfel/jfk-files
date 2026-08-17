@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6975.png
-
-Convert to MarkdownLA T-13
+LA T-13
 INFORMANT #
 LA T-14
 

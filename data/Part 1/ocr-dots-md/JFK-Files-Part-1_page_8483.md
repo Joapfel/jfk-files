@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8483.png
-
-Convert to MarkdownCONTACT REPORT
+CONTACT REPORT
 
 SUBJECT: BESABER P-3777
 DATE OF MEETING: 28 September 1967

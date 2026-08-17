@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6106.png
-
-Convert to Markdown7 January 1976
+7 January 1976
 
 MEMORANDUM FOR: Chairman, Information Review Committee
 

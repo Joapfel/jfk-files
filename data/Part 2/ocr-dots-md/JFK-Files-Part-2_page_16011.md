@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16011.png
-
-Convert to Markdown# MEETING OF WEST SUBURBAN CIVIL WELFARE AT FIRST BAPTIST CHURCH, 2114 MAIN STREET, MELROSE PARK, ILLINOIS, OCTOBER 14, 1969
+# MEETING OF WEST SUBURBAN CIVIL WELFARE AT FIRST BAPTIST CHURCH, 2114 MAIN STREET, MELROSE PARK, ILLINOIS, OCTOBER 14, 1969
 
 He blasted the proposed family planning program, saying that the bill, 'which is not yet safe, is going to be shoved down our throats.'
 

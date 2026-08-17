@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17724.png
-
-Convert to MarkdownReel 30-841-6
+Reel 30-841-6
 
 3-June 1966
 

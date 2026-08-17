@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12836.png
-
-Convert to Markdownterrorist activities by anti-Castro groups in the US, and
+terrorist activities by anti-Castro groups in the US, and
 Ricardo never repeated the suggestion.
 
 Freddy Lugo

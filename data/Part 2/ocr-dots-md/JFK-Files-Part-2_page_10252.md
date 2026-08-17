@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10252.png
-
-Convert to MarkdownO G MAR 1972
+O G MAR 1972
 
 Foreign Support for Activities Planned to Disrupt
 Or Harass the Democratic National Convention

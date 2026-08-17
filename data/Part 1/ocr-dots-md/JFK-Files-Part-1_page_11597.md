@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11597.png
-
-Convert to Markdown18. Relatives in service of any government, names and positions held.
+18. Relatives in service of any government, names and positions held.
 (not an雇e)
 
 19. List all official identity papers held with dates, numbers, place of issue

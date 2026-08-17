@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22973.png
-
-Convert to MarkdownSECTION
+SECTION
 
 20 December 1956
 

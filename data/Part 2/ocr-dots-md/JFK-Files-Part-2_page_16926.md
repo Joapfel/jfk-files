@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16926.png
-
-Convert to MarkdownV. Seasonal Fats (in detail for each section, leaders)
+V. Seasonal Fats (in detail for each section, leaders)
 
 A. Position
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_29.png
-
-Convert to Markdownbe written in full knowledge of this what was in the morning press.
+be written in full knowledge of this what was in the morning press.
 
 As E. Drexel Godfrey commented, the schedule put "the highest premium on making the publication up to the minute." 15/
 

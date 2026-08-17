@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4962.png
-
-Convert to Markdown NW 88608 DocId:32989550 Page 47
+NW 88608 DocId:32989550 Page 47
 
 <table><tr><td colspan="2">CLASSIFY AS APPROPRIATE</td></tr><tr><td>NOTE: SEE INSTRUCTIONS ON REVERSE BEFORE COMPLETING.</td><td></td></tr></table>
 

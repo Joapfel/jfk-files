@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8245.png
-
-Convert to MarkdownOctober 1946
+October 1946
 
 DIMITROV arrested by the police. He believes the reason he was not executed was that the communists wanted to use him as a witness against Nikola PETKOV.
 

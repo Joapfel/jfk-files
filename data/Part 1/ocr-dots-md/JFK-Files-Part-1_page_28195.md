@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28195.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><caption>QUALIFICATIONS SYSTEM RECORD CHANGE</caption><thead><tr><th colspan="10">APPLICANT CODING DATA</th></tr><tr><td>1 ID</td><td>2. APPL. NO.</td><td>3 NAME</td><td colspan="7"></td></tr></thead><tbody><tr><td>&lt;•2</td><td></td><td>MUST CONTAIN 20-DIGITS</td><td colspan="7"></td></tr></tbody><thead><tr><th colspan="3">4 DATE OF BIRTH</th><th colspan="3">5 DATE CODED</th><th colspan="6"></th></tr><tr><th>MO</th><th>DA</th><th>YR</th><th>MO</th><th>DA</th><th>YR</th><th colspan="6"></th></tr></thead><tbody><tr><td>*</td><td></td><td></td><td>*</td><td></td><td></td><td></td><td colspan="6">THE DATA ABOVE (ITEMS 2 THROUGH 5) WILL BE FILLED IN WHEN CODING AN APPLICANT FOR THE FIRST TIME. THIS FORM IS THEN ATTACHED TO FORM 1362. MASTER QUALIFICATIONS CODING RECORD.</td></tr></tbody></table>
 

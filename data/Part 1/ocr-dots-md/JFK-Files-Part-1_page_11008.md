@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11008.png
-
-Convert to MarkdownCLASSIFIED MESSAGE TOTAL COPIES 19
+CLASSIFIED MESSAGE TOTAL COPIES 19
 
 <table><tr><td>3. SECRET</td></tr><tr><td>PERSONAL UNIT NOTIFIED</td></tr><tr><td>MAR '65 7 AM</td></tr><tr><td>ADVANCE COPY</td></tr><tr><td>☐ ISSUES</td><td>☑ SLIPPED</td><td>☐ TUBE</td><td>SIT W/ TIME 1745 DD</td></tr></table>
 

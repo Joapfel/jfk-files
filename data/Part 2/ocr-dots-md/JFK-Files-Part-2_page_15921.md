@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15921.png
-
-Convert to MarkdownOne copy of "The Black Panther" newspaper dated May 4, 1969.
+One copy of "The Black Panther" newspaper dated May 4, 1969.
 
 One copy of a flyer "Honor of Political Prisoners" dated May 9, 1969.
 

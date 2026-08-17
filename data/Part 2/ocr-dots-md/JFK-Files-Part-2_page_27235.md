@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27235.png
-
-Convert to MarkdownA-Ltr from Knoche to Belin - 6 Mar 75 w/attachments.
+A-Ltr from Knoche to Belin - 6 Mar 75 w/attachments.
 
 B - Memo to The Staff from Belin - Subj: Colby Statement - 3 Apr 75 w/attachment
 SECRET

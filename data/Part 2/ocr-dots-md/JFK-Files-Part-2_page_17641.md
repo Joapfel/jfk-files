@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17641.png
-
-Convert to Markdown**AUTHORITY**
+**AUTHORITY**
 
 All FBI investigations and intelligence collection functions in the internal security field are based on authorizations in Congressional enactments, Presidential directives, policy instructions of the Attorney General, National Security Council directives and interagency agreements as set forth below.
 

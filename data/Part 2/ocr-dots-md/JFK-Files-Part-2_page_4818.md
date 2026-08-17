@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4818.png
-
-Convert to MarkdownSECRET
+SECRET
 
 computations as a result of the cost of living allowances that
 were then growing along every six months or so made it so that

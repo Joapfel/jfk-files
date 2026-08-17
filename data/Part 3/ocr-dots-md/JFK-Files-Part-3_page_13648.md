@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13648.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 1 gsh 2 Phone (Area Code) 349-0000
 

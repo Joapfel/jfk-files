@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2407.png
-
-Convert to MarkdownG. Contact Between Leaders of United States Protest Groups and Representatives of Foreign Communist Groups
+G. Contact Between Leaders of United States Protest Groups and Representatives of Foreign Communist Groups
 
 1. New Left Movement
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_13210.png
-
-Convert to MarkdownNR 011 NK CODE
+NR 011 NK CODE
 
 4:00PM 6/5/75 IMMEDIATE RXG
 

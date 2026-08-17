@@ -1,5 +1,3 @@
-# JFK-Files-Part-2_page_27891.png
-
 carrying out assigned duties in the
 supply office of the center. Light typing and filing were involved.
 

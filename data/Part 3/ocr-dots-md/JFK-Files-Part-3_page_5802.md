@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5802.png
-
-Convert to MarkdownThe Attorney General.
+The Attorney General.
 
 contact by the FBI with those individuals be insisted upon
 as a condition to such interviews to insure their oreneability

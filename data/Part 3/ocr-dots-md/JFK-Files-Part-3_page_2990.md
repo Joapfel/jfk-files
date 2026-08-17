@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2990.png
-
-Convert to Markdown1928
+1928
 
 help can be sought instantly as opposed to waiting until it gets to a Boston state?
 

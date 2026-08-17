@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10891.png
-
-Convert to Markdown(g) President Roosevelt publicly designated the FBI to investigate matters relating to espionage, sabotage and violations of the neutrality regulations by Presidential Directive dated September 6, 1939.
+(g) President Roosevelt publicly designated the FBI to investigate matters relating to espionage, sabotage and violations of the neutrality regulations by Presidential Directive dated September 6, 1939.
 
 (h) On May 21, 1940, President Roosevelt in a memorandum to the then Attorney General, Robert H. Jackson, authorized and directed the Attorney General in such cases as he might approve to authorize the use of listening devices directed to the conversations or other communications of persons suspected of subversive activity against the Government of the United States, including suspected spies.
 

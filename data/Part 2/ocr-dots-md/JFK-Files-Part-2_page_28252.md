@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28252.png
-
-Convert to MarkdownCHARDAK, B.A.
+CHARDAK, B.A.
 
 Name of Employee
 

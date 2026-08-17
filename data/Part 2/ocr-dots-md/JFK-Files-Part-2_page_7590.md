@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7590.png
-
-Convert to MarkdownInt'l Conf on Diagnosis and Treatment of Radioactive Poisoning
+Int'l Conf on Diagnosis and Treatment of Radioactive Poisoning
 Vienna 15-18 Oct 62
 
 Source US national; physicist on staff of US institution of higher learning.

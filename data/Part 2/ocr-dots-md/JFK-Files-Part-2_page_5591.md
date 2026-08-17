@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5591.png
-
-Convert to Markdown20/20 (ABC), August 27, 1993
+20/20 (ABC), August 27, 1993
 
 table with some of its key henchman, and discussed killing President Kennedy. They did hate him. They might have even had a conspiracy afoot. There is no tie between Lee Harvey Oswald and organized crime. There's not opportunity for him to have been their assassin. In essence, he beat the Mafia to Kennedy.
 

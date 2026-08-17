@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31100.png
-
-Convert to MarkdownSECRET
+SECRET
 
 © 8/21/78
 

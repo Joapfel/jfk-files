@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13868.png
-
-Convert to MarkdownEXCERPTS
+EXCERPTS
 
 PRIORITY: DER
 DIVOUR: AMONG

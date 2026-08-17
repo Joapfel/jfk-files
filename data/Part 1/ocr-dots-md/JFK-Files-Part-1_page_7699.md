@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7699.png
-
-Convert to MarkdownNov. 1966 Carlos BLANCO invited Subject to a party and said they would first go to the church near Graclela's house on Tamaullpas. (1). (One Alfredo SOTO, no traces, is listed at Tamaullpas 115.)
+Nov. 1966 Carlos BLANCO invited Subject to a party and said they would first go to the church near Graclela's house on Tamaullpas. (1). (One Alfredo SOTO, no traces, is listed at Tamaullpas 115.)
 
 51). Jiri SVESTKA (P-7111, 201-285441). Czech Second Secretary and Consul, suspect Intelligence officer,
 

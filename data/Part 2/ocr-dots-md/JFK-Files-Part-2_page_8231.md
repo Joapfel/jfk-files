@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8231.png
-
-Convert to Markdown191342 MAY 71 CITE
+191342 MAY 71 CITE
 
 HEADQUARTERS
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7587.png
-
-Convert to Markdown27 June 1967
+27 June 1967
 
 # MEMO OF CONVERSATION
 

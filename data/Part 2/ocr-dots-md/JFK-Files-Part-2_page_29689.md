@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29689.png
-
-Convert to MarkdownClassification: ____
+Classification: ____
 
 (This form must be filled out by all employees) [ ] Extracted
 from CIA-controlled documents)

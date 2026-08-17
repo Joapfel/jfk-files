@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14926.png
-
-Convert to MarkdownFBI BUDGET REQUEST - FISCAL YEAR 1968
+FBI BUDGET REQUEST - FISCAL YEAR 1968
 
 The Bureau's request for 1968 totals $186,574,000. It will provide for a personnel staff totaling 15,780 (6,638 agents and 9,142 clerks). The request makes provision for an increase of 569 full-year employees (106 agents and 463 clerks) when compared to 1967.
 

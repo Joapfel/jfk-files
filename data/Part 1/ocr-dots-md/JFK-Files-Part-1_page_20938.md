@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20938.png
-
-Convert to MarkdownSECRET
+SECRET
 
 c. Office of Finance/C&TD: Please post the above information to subject's retirement records.
 

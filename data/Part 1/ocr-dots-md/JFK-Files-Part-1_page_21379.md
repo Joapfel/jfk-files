@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21379.png
-
-Convert to MarkdownFBI doc.
+FBI doc.
 
 18 April 1967 (Wash.)
 RE: Helen Mary Winter

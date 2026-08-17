@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7394.png
-
-Convert to Markdown2 August 1976
+2 August 1976
 
 MEMORANDUM FOR THE RECORD
 

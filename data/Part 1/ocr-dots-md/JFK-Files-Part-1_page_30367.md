@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30367.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">VERIFIED RECORD OF OVERSEAS SERVICE<br/>TO:<br/>Office of Personnel, Statistical Reporting Branch, R.O.W. 193, Carle Hall</td>
     <td colspan="6"></td>

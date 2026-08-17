@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13320.png
-
-Convert to Markdown# Section C (Continued)
+# Section C (Continued)
 
 Special mention should be made of Subject's objectivity and integrity in carrying out his responsibilities. These were best demonstrated when he promptly and swiftly terminated a large and effective radio broadcasting project, to establish which he and his subordinates had labored hard, immediately upon belated discovery that insuperable, practical obstacles precluded realization of the project's theoretical potential.
 

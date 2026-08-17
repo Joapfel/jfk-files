@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7297.png
-
-Convert to Markdown28 July 1975
+28 July 1975
 
 MEMORANDUM FOR: Mr. Seymour Bolten
 Review Staff

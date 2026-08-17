@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_418.png
-
-Convert to Markdown14-00000
+14-00000
 
 1. HALL, Harvey aka Harry Haller, Harry Helfgett
 2. HANES, Arthur

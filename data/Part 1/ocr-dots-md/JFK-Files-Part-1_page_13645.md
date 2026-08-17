@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13645.png
-
-Convert to Markdown11 de Sept. de 1961
+11 de Sept. de 1961
 
 INFORME #48
 

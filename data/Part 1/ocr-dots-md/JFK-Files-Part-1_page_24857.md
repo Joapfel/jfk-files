@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24857.png
-
-Convert to Markdown4) See attached memorandum.
+4) See attached memorandum.
 
 5) See attached memorandum.
 

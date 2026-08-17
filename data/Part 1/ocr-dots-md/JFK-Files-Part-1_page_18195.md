@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18195.png
-
-Convert to Markdown20 October 1958
+20 October 1958
 
 MEMORANDUM FOR: WH/Personnel
 SUBJECT : Request for staff Agent to fill BAP-8100 Slot in Mexico City

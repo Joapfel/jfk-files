@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28009.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 # DEPT OF INDUSTRIAL
 

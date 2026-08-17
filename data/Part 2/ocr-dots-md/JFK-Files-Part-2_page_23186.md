@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23186.png
-
-Convert to Markdown1 or of receiving that information?
+1 or of receiving that information?
 
 Mr. Halley, I would have to say because of the indicator on here, the communication system was very reliable, that this message was received, because that's what it shows, but I personally have no recollection of this message.
 

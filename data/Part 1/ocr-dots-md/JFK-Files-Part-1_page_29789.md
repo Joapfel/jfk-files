@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29789.png
-
-Convert to Markdown# ADMINISTRATIVE
+# ADMINISTRATIVE
 INTERNAL USE ONLY
 
 10 JUL 1975

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8713.png
-
-Convert to Markdown12. Actitudes corrientes
+12. Actitudes corrientes
 
 12.01 Generales:
 

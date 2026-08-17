@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_28319.png
-
-Convert to MarkdownDAY, Clarence
+DAY, Clarence
 
 OFFICE OF THE CLERK
 U.S. HOUSE OF REPRESENTATIVES

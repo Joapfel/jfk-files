@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26231.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td colspan="2">DISPATCH</td><td>QAPUATON</td><td>S. SECRET</td></tr><tr><td>TO</td><td>Chief of Station, Mexico City</td><td>XX</td><td>TRANSMITTING ACTION<br/>CHIEF OF STATION</td></tr><tr><td>INFO</td><td>FROM: Chief, Western Hemisphere Division</td><td></td><td>NO INFORMATION REQUIRED</td></tr><tr><td>SUBJECT:</td><td>Operational/JMROD</td><td></td><td>ONLY QUALIFIED INFO</td></tr><tr><td></td><td>Transmittal of Letter for Rico Galan</td><td></td><td>CAB ROLL RECEIVING</td></tr></table>
 

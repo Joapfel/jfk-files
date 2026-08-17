@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6567.png
-
-Convert to MarkdownThe Attorney General
+The Attorney General
 
 relationship with the FBI has been protected. However, as a condition precedent to such interviews, the FBI was to be allowed to contact such individuals to inform them of the proposed interview and to determine whether they would be receptive to such an interview. Senator Church concurred in this arrangement; however, subsequently on August 15, 1975, Mr. Hilliff advised that Senator Church had reconsidered his agreement to the aforementioned procedures as a result of persuasion by the BCG Staff. Hilliff, at that time, indicated a letter recording Senator Church's change of attitude had been drafted. To date, no such formal acknowledgement has been received by this Bureau and no interviews have been attempted in the interim.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_5242.png
-
-Convert to Markdown-11996
+-11996
 -11994
 -11953
 -11925

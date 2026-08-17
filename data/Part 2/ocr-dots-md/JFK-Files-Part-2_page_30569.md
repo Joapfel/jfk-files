@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30569.png
-
-Convert to MarkdownSECRET
+SECRET
 
 6/4/64 Memo: Mother's address + quote from Wise & Ross passed to FBI. SECRET
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_29464.png
-
-Convert to Markdown# Classification:
+# Classification:
 
 216
 

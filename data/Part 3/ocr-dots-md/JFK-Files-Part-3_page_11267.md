@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11267.png
-
-Convert to MarkdownNR 002 BH CODE
+NR 002 BH CODE
 
 241 PM -NITEL MARCH 25, 1975 DGS
 

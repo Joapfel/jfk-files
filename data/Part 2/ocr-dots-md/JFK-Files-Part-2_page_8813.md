@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8813.png
-
-Convert to Markdown13-00000
+13-00000
 
 TOP SECRET CUBA
 SC-01755-77A

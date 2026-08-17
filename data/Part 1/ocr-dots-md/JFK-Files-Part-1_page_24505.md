@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24505.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Chief, S & S
 C/VHD, Chiefs of Stations Bogota, Caracas,

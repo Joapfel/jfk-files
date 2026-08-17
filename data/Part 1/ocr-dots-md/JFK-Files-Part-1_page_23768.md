@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23768.png
-
-Convert to MarkdownSECRET / KAPOK
+SECRET / KAPOK
 
 OPLA 2555
 

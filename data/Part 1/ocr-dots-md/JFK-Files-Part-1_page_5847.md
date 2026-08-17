@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_5847.png
-
-Convert to Markdown<table>
+<table>
     <tr>
         <td colspan="2">CONTO OBRAS CTA</td>
         <td>APOK<br/>SECRET</td>

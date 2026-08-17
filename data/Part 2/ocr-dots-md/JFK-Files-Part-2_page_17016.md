@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17016.png
-
-Convert to Markdown# BLACK PANTHER PARTY (BPP)
+# BLACK PANTHER PARTY (BPP)
 
 ADVERTISEMENT
 

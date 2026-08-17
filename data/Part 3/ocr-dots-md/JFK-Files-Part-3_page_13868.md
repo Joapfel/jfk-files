@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13868.png
-
-Convert to MarkdownSECRET NO FOREIGN DISSEM
+SECRET NO FOREIGN DISSEM
 
 Two top Peruvian Communists (PCP officials) said on 18 December that Fidelis ta activities in Peru are being carried on largely through the Movement of the Revolutionary Left (MIR), according to a usually reliable clandestine source. The MIR was reported to have been given the task of helping guerrillas enter Peru clandestinely from Chile.
 

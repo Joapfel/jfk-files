@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10618.png
-
-Convert to Markdownby from one to five members of each of the three klaverns and are well covered by informants. The State Grand-Dragon-BILL-WILLIAMS has continually cautioned members against violence and any type of illegal activities.
+by from one to five members of each of the three klaverns and are well covered by informants. The State Grand-Dragon-BILL-WILLIAMS has continually cautioned members against violence and any type of illegal activities.
 
 None of the klaverns have engaged in violence.
 

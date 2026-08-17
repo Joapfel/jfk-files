@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16005.png
-
-Convert to MarkdownBLACK PANTHER PARTY (BPP)
+BLACK PANTHER PARTY (BPP)
 
 As reported by public news media, Bobby Seale, along with seven other defendants, is currently standing trial for alleged violation of the federal antiriot law statute on charges stemming from the Democratic National Convention meeting in Chicago, in August, 1968.
 

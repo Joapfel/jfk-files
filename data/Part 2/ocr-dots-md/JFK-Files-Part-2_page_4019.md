@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4019.png
-
-Convert to MarkdownEP 65-951
+EP 65-951
 
 "I hereby withdraw my appeal of the punitive action taken against me for dismissal by the Department of Alcoholic Beverage Control. I withdraw my request for a hearing in this matter by the State Personnel Board.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6617.png
-
-Convert to MarkdownSECRET
+SECRET
 
 ARRB Request for the Historical Review Group, Central
 Intelligence Agency, May 30, 1995

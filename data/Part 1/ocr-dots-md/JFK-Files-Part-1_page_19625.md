@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19625.png
-
-Convert to MarkdownMEMORANDUM FOR: James P. O'Connell
+MEMORANDUM FOR: James P. O'Connell
 
 SUBJECT : Frank G. Wisner Dedication Ceremony
 

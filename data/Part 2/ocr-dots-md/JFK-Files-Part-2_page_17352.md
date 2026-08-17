@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17352.png
-
-Convert to MarkdownRE: BERRY LEWIN
+RE: BERRY LEWIN
 
 were taken for use in showing to various white groups
 which are unknown to source.

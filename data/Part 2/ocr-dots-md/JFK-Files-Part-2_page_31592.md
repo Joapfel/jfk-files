@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_31592.png
-
-Convert to MarkdownSF 100-55462
+SF 100-55462
 FSP:mb
 
 I. Demonstration Against UN Ambassador ARTHUR J. GOLDBERG, Greek Theater, UCB, March 25, 1966

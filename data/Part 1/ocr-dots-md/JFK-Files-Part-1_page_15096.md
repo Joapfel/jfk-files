@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15096.png
-
-Convert to Markdown-13-
+-13-
 
 noises in the courtyard. I saw several women and two men. I approached them and tried to make them understand by sign language that I had come from Russia. Meanwhile, some persons carrying sticks and axes came into the courtyard. I again tried to explain that I came from Russia and wanted to remain in Turkey. The men took me to the military authorities in Kemal-Pasha.
 

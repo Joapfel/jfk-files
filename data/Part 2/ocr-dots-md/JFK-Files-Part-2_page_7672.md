@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_7672.png
-
-Convert to MarkdownBut, anyway, that was in the book that was later found, and which contained many other things that Oswald had entered in the book.
+But, anyway, that was in the book that was later found, and which contained many other things that Oswald had entered in the book.
 
 Now, as I say, up to that time, there had been no information that would have warranted our reporting him as a potential danger or hazard to the security or the safety of the President or the Vice President, so his name was not furnished at the time to Secret Service.
 

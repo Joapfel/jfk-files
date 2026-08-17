@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13180.png
-
-Convert to MarkdownIN 97611
+IN 97611
 
 TDCS DB-315/01471-68
 

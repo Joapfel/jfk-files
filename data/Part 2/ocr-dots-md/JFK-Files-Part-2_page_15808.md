@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15808.png
-
-Convert to MarkdownSource further advised that Orr High School, 1040 North Keele Avenue, which has a sixty-four per cent white enrollment, was the scene of fist fights on December 10, 1969, between Negro and white students. The school closed at 12:20 PM, following the arrival of the Chicago PD at the school. The PD calmed down the situation at Orr High School and it remained calm. No serious injuries or property damage was reported. At least six students were arrested.
+Source further advised that Orr High School, 1040 North Keele Avenue, which has a sixty-four per cent white enrollment, was the scene of fist fights on December 10, 1969, between Negro and white students. The school closed at 12:20 PM, following the arrival of the Chicago PD at the school. The PD calmed down the situation at Orr High School and it remained calm. No serious injuries or property damage was reported. At least six students were arrested.
 
 12/9/69)
 

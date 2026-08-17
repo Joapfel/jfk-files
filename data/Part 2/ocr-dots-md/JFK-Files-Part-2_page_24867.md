@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24867.png
-
-Convert to Markdown"I have approved all the messages you are receiving from others today, and I emphasize that everything in these messages has my full support. We will do all that we can to help you conclude this operations successfully . . . Until the very moment of the go signal for the operation by the Generals, I must reserve a contingent right to change course and reverse previous instructions. While fully aware of your assessment of the consequences of such a reversal, I know from experience that failure is more destructive than an appearance of indecision. I would, of course, accept full responsibility for any such change as I must also bear the full responsibility for this operation and its consequences." (Cable, 8/29/63).
+"I have approved all the messages you are receiving from others today, and I emphasize that everything in these messages has my full support. We will do all that we can to help you conclude this operations successfully . . . Until the very moment of the go signal for the operation by the Generals, I must reserve a contingent right to change course and reverse previous instructions. While fully aware of your assessment of the consequences of such a reversal, I know from experience that failure is more destructive than an appearance of indecision. I would, of course, accept full responsibility for any such change as I must also bear the full responsibility for this operation and its consequences." (Cable, 8/29/63).
 
 In a reply cable, Lodge stated:
 

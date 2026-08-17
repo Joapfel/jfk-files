@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26654.png
-
-Convert to MarkdownSECRET
+SECRET
 
 1. A Well, let's see. I would say that was probably around 20,500.
 2. 1965 because Fitzgerald then became Chief, W.H., and then

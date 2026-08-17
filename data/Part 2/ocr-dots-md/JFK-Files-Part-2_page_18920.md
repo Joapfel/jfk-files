@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18920.png
-
-Convert to MarkdownRE: SECRET
+RE: SECRET
 
 After his return from the USSR, Jeff Jaffe told source that during a portion of the tour of the "Young Presidents of America" in the USSR, they were escorted by Mikhail Bruk. Source was told that "at one point in an elevator in the Ukraine," Bruk mentioned source's name to Jeff Jaffe and asked if source was a relative or friend of his. When Jeff Jaffe informed Bruk that they were close friends, but not related, Bruk asked Jeff Jaffe if he would mind taking a letter or note to source. Jeff Jaffe indicated he would be glad to do so, however, they parted that day and he did not see Bruk again for a couple of weeks. Just prior to his departure from the USSR, Jeff Jaffe met Bruk again and reminded Bruk of the letter to source, pointing out that he would be leaving the USSR very shortly, however, Jeff Jaffe got the impression he "was talking to a dummy." Bruk gave absolutely no indication that he recalled ever requesting him to deliver a letter or note to source.
 

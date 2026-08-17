@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4322.png
-
-Convert to MarkdownEYES ONLY
+EYES ONLY
 
 December 1963
 

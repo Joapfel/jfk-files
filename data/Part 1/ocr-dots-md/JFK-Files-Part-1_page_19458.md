@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_19458.png
-
-Convert to Markdown10 February 1977
+10 February 1977
 
 MEMORANDUM IN LIEU OF FITNESS REPORT
 

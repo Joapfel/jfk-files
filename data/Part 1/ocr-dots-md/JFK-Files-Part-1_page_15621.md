@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15621.png
-
-Convert to MarkdownS-E-C-F-E-T
+S-E-C-F-E-T
 
 DATE 12 Dec 1964
 RID/201 C.F.

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27026.png
-
-Convert to Markdownand all other files or unfiled documentary materials in the office, or storage repositories, of the organizational unit which managed the program or project in question.
+and all other files or unfiled documentary materials in the office, or storage repositories, of the organizational unit which managed the program or project in question.
 
 The requests also include all such files in the offices or storage repositories of the responsible Division Director, Office Director, and Directorate Deputy Director, in the DCI office, and in any other part of the Agency which had significant involvement or connection with the program.
 

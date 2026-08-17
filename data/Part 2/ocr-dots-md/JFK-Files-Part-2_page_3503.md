@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_3503.png
-
-Convert to Markdown8.
+8.
 
 allowed in the estimates to take into account missile sites that might not have been seen. The DCI said that NIE 11-8 had just been reviewed and that an amending memorandum would be issued shortly. He said obviously it was impossible to say precisely what was going on in the Soviet Union.
 

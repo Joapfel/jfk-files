@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7482.png
-
-Convert to MarkdownACSI - Lt. Whipple via Jane Roman
+ACSI - Lt. Whipple via Jane Roman
 
 DATE 14 Oct 63
 

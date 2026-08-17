@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8284.png
-
-Convert to Markdown4 APR 1967
+4 APR 1967
 
 MEMORANDUM FOR: Director of Central Intelligence
 SUBJECT : DIMITROFF, Dimitar Adamoff

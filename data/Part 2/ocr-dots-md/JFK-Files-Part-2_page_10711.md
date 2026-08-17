@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10711.png
-
-Convert to MarkdownPH 62-5268
+PH 62-5268
 
 8. One letter from WILLIAM TACOURT, Director, Public Safety, Camden, New Jersey, dated August 21, 1971.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_3219.png
-
-Convert to MarkdownThe Chairman. What I worry about is this. You say there's
+The Chairman. What I worry about is this. You say there's
 no way to know when to close a file. These were surveillance
 files, or originally opened up to determine whether organizations
 might have subversive connections.

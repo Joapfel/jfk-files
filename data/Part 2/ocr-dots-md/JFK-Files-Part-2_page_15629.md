@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15629.png
-
-Convert to MarkdownDETAILS:
+DETAILS:
 
 The following characterizations are set forth in the appendix section of this report:
 

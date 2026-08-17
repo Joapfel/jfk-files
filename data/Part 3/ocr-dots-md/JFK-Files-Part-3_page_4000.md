@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_4000.png
-
-Convert to Markdownhave expressed public support for, an organization which has as its objective activities which may involve violence. The purpose of the preliminary investigation is to verify or refute the allegations or information. However, the vagueness of the standard is obvious. Therefore, to be consistent with the criteria for full investigations, the FBI should be authorized:
+have expressed public support for, an organization which has as its objective activities which may involve violence. The purpose of the preliminary investigation is to verify or refute the allegations or information. However, the vagueness of the standard is obvious. Therefore, to be consistent with the criteria for full investigations, the FBI should be authorized:
 
 4. to conduct preliminary domestic intelligence investigations on the basis of allegations or other information that an individual, or individuals acting in concert,
 

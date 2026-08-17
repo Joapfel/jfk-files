@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23871.png
-
-Convert to Markdown<table><tr><td>ORIG.</td></tr><tr><td>UNIT.</td></tr><tr><td>EXT.:</td></tr><tr><td>DATE:</td></tr></table>
+<table><tr><td>ORIG.</td></tr><tr><td>UNIT.</td></tr><tr><td>EXT.:</td></tr><tr><td>DATE:</td></tr></table>
 
 MESSAGE FORM 34
 

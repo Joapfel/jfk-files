@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10702.png
-
-Convert to MarkdownAnd, in fact, the current program of the Mobile Office is to intensify and make more extensive the informant coverage of pertinent organizations. These informants will be particularly alert for personal information of the kind which might be suitable for the institution of CI action in the future, and such information will be diligently sought by Agents conducting investigation concerning these organizations and individuals. Mobile will also continue to be alert for any opportunity to utilize the system which has been effective in the past, that of cooperating with local law enforcement to take the kind of action which discourages unlawful action on the part of the Klan groups.
+And, in fact, the current program of the Mobile Office is to intensify and make more extensive the informant coverage of pertinent organizations. These informants will be particularly alert for personal information of the kind which might be suitable for the institution of CI action in the future, and such information will be diligently sought by Agents conducting investigation concerning these organizations and individuals. Mobile will also continue to be alert for any opportunity to utilize the system which has been effective in the past, that of cooperating with local law enforcement to take the kind of action which discourages unlawful action on the part of the Klan groups.
 
 ## Recommendation
 

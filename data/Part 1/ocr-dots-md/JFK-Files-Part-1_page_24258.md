@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_24258.png
-
-Convert to MarkdownLenin, and Mao. This must be discussed with people so that many are aware of it. These conversations will be later used when he explains how and why and when he became interested.
+Lenin, and Mao. This must be discussed with people so that many are aware of it. These conversations will be later used when he explains how and why and when he became interested.
 
 5. Diffuse Nature of Op: In beginning op has a diffuse nature. It is necessary to make many contacts. Some will be more useful than others, but all have potential for use in one circumstance or another. Since we have no way of knowing how or from whom the Chinese collect their intelligence, seek out, or otherwise spot budding revolutionaries we can assume that some one of his acquaintances will report his interest in Mao, etc. We can assume that through some of his activities Chinese will build up his dossier so that at a later date when we go directly to the Chinese for help they can look in their dossier and see that x number of months ago, etc., various things were reported. Etc.
 

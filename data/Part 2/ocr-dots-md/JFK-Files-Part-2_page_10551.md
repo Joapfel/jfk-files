@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10551.png
-
-Convert to MarkdownSenator Robert Morgan
+Senator Robert Morgan
 
 If you wish to have any of the material reconsidered it would be appropriate to discuss this matter with the Attorney General.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4956.png
-
-Convert to MarkdownSECRET
+SECRET
 
 MHFNO: 96-4016553
 

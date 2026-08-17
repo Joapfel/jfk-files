@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10413.png
-
-Convert to Markdown1) Clarify CIA's mission and charter by
+1) Clarify CIA's mission and charter by
 amending the National Security Act of 1947 to
 reflect:
 

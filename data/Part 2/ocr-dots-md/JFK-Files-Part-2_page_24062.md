@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24062.png
-
-Convert to Markdownattention of the DCI, he directed that the United States would have no part in such activity, and this information was relayed to the coup leaders.
+attention of the DCI, he directed that the United States would have no part in such activity, and this information was relayed to the coup leaders.
 
 b. Schneider
 

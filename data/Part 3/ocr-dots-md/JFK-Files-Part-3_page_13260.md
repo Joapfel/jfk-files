@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13260.png
-
-Convert to Markdown1
+1
 
 But the thing is, would you be interested?
 

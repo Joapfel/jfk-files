@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_15559.png
-
-Convert to Markdown14-00000
+14-00000
 
 <table><tr><td>CLASSIFIED: MUSAF 36</td></tr><tr><th>DATE:</th><th colspan="2">ROUTING</th></tr><tr><td></td><th>1</th><td>4</td></tr><tr><td>TO:</td><th>2</th><td>5</td></tr><tr><td>FROM:</td><th>3</th><td>6</td></tr><tr><td>ACTION:</td><td colspan="2"></td></tr><tr><td>INFO:</td><td colspan="2">LEOP 1128 IN 30953</td></tr></table>
 

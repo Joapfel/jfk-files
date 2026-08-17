@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_16555.png
-
-Convert to MarkdownKEEN declined to further discuss his activities within the BPP or activities of the BPP itself.
+KEEN declined to further discuss his activities within the BPP or activities of the BPP itself.
 
 The following description was obtained by interview and observation:
 

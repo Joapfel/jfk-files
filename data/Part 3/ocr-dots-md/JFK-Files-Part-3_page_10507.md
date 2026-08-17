@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10507.png
-
-Convert to MarkdownMAR 25 10 14 PM 75
+MAR 25 10 14 PM 75
 
 RECEIVED
 TELETYPE UNIT

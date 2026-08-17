@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18184.png
-
-Convert to Markdown316 RLF/SW/ DFT W
+316 RLF/SW/ DFT W
 
 CLASSIFIED MESSAGE
 

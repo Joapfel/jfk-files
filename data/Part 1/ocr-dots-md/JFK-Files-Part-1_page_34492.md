@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34492.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 THIS ONLY
 
 CENTRAL INTELLIGENCE AGENCY

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_18682.png
-
-Convert to MarkdownII. Materials to which the SSC staff has been given access;
+II. Materials to which the SSC staff has been given access;
 delivery requested by Friday, August 15, 1975:
 
 A. The following materials maintained in the so-

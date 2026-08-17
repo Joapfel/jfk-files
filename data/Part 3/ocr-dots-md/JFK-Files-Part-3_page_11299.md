@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11299.png
-
-Convert to MarkdownEND
+END
 
 INTERMEDIATE SECURITY MATTERS, e.g. CENT TO COMMUNICATION SECURITY.
 

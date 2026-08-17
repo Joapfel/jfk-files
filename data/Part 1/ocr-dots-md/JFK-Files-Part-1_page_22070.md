@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22070.png
-
-Convert to Markdownhe walked by a post box on the street and was checking it. Two or three times he was followed by this post box, but the surveillance never saw him mail a letter. Still, the KGB would remove the contents of the letter box and send it in. On the second or third time SUMIN round the letter he mailed with metka. He had also mailed a cover letter to his parents. Of course, SUMIN also knew the address of the agent, since it was a 'game'."
+he walked by a post box on the street and was checking it. Two or three times he was followed by this post box, but the surveillance never saw him mail a letter. Still, the KGB would remove the contents of the letter box and send it in. On the second or third time SUMIN round the letter he mailed with metka. He had also mailed a cover letter to his parents. Of course, SUMIN also knew the address of the agent, since it was a 'game'."
 
 Under interrogation in January 1965 NOSENKO described how metka had been applied to ABIDIAN's clothing by his maid and how, in particular: this led to the discovery of the letters ABIDIAN mailed to the agent ARKHANGELSKIY in Odessa and to his parents in the United States The following is taken from the protocol of these interrogations which NOSENKO signed as being accurate on 4 March 1965:
 

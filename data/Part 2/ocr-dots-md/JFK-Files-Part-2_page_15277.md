@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15277.png
-
-Convert to Markdown# Memorandum for Mr. W. C. Sullivan
+# Memorandum for Mr. W. C. Sullivan
 
 RE: INTELLIGENCE COVERAGE OF
 NON-SOVIET-BLOC COUNTRIES

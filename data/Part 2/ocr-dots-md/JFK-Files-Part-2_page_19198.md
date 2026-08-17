@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_19198.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date: 12/14/67
 

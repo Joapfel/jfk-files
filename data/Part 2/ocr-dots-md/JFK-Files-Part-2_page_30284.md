@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_30284.png
-
-Convert to MarkdownTOP SECRET
+TOP SECRET
 
 for quite a big period of time, quite a few years, interrogated,
 by hours, and in different types of conditions, including

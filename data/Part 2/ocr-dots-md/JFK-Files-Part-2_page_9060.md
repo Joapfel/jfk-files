@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9060.png
-
-Convert to MarkdownSECRET
+SECRET
 
 analysis, for FBI personnel. In soliciting your views on the desirability of this type of training, I wish to reiterate our willingness to provide such instruction. It would be designed to expose the needs of the Intelligence Community in depth, thus making the Current Intelligence Reporting List (CIRL) more meaningful to your personnel.
 

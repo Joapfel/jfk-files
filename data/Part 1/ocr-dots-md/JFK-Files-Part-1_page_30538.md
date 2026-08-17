@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30538.png
-
-Convert to MarkdownRESTRICTED
+RESTRICTED
 
 U. S. ARMY
 42-00000

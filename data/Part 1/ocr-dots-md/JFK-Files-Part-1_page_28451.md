@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_28451.png
-
-Convert to MarkdownSR/CI to absorb this workload stems not only from Mr. Bagley's capacity for professional guidance but his effectiveness in leading and inspiring those under him.
+SR/CI to absorb this workload stems not only from Mr. Bagley's capacity for professional guidance but his effectiveness in leading and inspiring those under him.
 
 3. Mr. Bagley's record to date reveals a high degree of specialization in counterespionage yet it would be misleading indeed to conclude that his professional interests and potential are confined to this field. His contributions to the broader problems of Soviet operations have been invaluable particularly in the way in which he has suggested new techniques for attacking the Soviet target abroad.
 

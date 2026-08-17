@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9695.png
-
-Convert to MarkdownNK 157-2011
+NK 157-2011
 
 On June 11, 1974, NK T-2 advised he developed information that would indicate a meeting was held at the residence of AL LENTZ, Grand Dragon of the National Knights of the Ku Klux Klan, in the York, Pennsylvania area. In attendance, were numerous members of the Ku Klux Klan and Minutemen organization.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35542.png
-
-Convert to Markdown# RADIO NEW YORK WORLDWIDE
+# RADIO NEW YORK WORLDWIDE
 
 Worldwide Communications Center
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9260.png
-
-Convert to Markdown18 Oct. 1950
+18 Oct. 1950
 
 Air-mail to SHUB
 

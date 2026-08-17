@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8650.png
-
-Convert to Markdown# PRODUCT SALES REPORT
+# PRODUCT SALES REPORT
 
 1. Salesman
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_11701.png
-
-Convert to Markdown[14-0000]
+[14-0000]
 
 FORM 610 USE PREVIOUS
 1 DEC 55 EDITIONS

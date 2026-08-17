@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24617.png
-
-Convert to MarkdownDRAFT: OCTOBER 6, 1975
+DRAFT: OCTOBER 6, 1975
 
 Frederick D. Baron
 

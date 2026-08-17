@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_2920.png
-
-Convert to Markdown13-00000
+13-00000
 
  political, guerrilla or insurgent activities designed to overthrow Castro. McCone added, however, that many individuals felt that more dynamic actions were called for, including mass landings and military activity. McCone did not agree. Our intelligence, he said, did not support this point of view, and any such attempts would face disaster unless the United States was prepared to commit large military forces to support them.
 

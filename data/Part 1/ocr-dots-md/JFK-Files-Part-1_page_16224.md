@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16224.png
-
-Convert to Markdownthere are a couple of folks. Hall is publishing a minagraphed newsletter under the name of the Abaco Independent Movement.
+there are a couple of folks. Hall is publishing a minagraphed newsletter under the name of the Abaco Independent Movement.
 
 Hall indicated that, "the whites cannot do anything in Abaco without everyone knowing about it."
 

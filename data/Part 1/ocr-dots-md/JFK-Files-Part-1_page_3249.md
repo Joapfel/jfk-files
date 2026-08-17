@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3249.png
-
-Convert to MarkdownIrving Aaron
+Irving Aaron
 260 Marshall Court
 Long Branch, New Jersey
 

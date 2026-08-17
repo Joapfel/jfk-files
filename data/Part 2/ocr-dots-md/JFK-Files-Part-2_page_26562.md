@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26562.png
-
-Convert to Markdownpoint to a change in the disposition
+point to a change in the disposition
 or strength of Communist forces.
 Other enemy nets are normal.
 

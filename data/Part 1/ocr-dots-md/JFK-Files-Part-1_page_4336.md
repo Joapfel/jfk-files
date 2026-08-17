@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4336.png
-
-Convert to MarkdownFerninos de Palms Soriano, Jr. and San Diego
+Ferninos de Palms Soriano, Jr. and San Diego
 
 Javier Bosaab
 

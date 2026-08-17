@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6407.png
-
-Convert to MarkdownSILSON devotes the greater part of his activity, however,
+SILSON devotes the greater part of his activity, however,
 to journalism. He is a correspondent of various French and
 foreign newspapers, notably the Swiss paper "Der Bund." He
 is accredited officially to the French Ministry of Information.

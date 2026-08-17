@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2553.png
-
-Convert to MarkdownANNEX B
+ANNEX B
 
 SUMMARIES OF CASES NOT EXAMINED IN TEXT
 

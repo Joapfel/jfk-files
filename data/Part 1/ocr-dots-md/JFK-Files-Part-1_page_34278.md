@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34278.png
-
-Convert to MarkdownSECRET
+SECRET
 
 BCLARING GALBE AS PERSONA NON GRATA.
 

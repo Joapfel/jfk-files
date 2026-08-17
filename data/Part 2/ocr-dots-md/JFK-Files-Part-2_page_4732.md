@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4732.png
-
-Convert to MarkdownSECRET
+SECRET
 
 single executive session up on the Hill, including the one I was at, he had a
 television show right after the meeting broke up. They were waiting for him

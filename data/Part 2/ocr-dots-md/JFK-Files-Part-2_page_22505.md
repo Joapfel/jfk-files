@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22505.png
-
-Convert to MarkdownWiley was sent his first check covering the index project on 9 April 1956. By 22 May 1956, he had met Morse Allen.
+Wiley was sent his first check covering the index project on 9 April 1956. By 22 May 1956, he had met Morse Allen.
 
 McCord further reported on 1 May 1956 that during discussion with Wiley he told Wiley that there are three areas in which he could work during the coming year (1956-57) which would be of interest and would enhance his value to CIA. One would be the continuation of the index project, another would be the continuation of regular contact with his sources of information in New York City, keeping CIA advised of anything that may be pertinent to our areas of interest. The third would be the building for him a cover story which would enable him to contact and interview various ex-Communists and ex-Soviet agents in the New York area.
 

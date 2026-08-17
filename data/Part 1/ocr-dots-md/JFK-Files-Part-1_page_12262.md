@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12262.png
-
-Convert to MarkdownUFAX 4436, 2 Oct 72, 200-11-11/7
+UFAX 4436, 2 Oct 72, 200-11-11/7
 
 Document gives list of names of 7 BNDD sources.
 

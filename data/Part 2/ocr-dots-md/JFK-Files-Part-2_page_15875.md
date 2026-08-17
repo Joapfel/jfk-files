@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15875.png
-
-Convert to Markdown**Eldridge, Jeldean**
+**Eldridge, Jeldean**
 
 Arrested: 2/9/69
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5846.png
-
-Convert to Markdown# Records Relating to Oswald or the Assassination known to have been destroyed or removed.
+# Records Relating to Oswald or the Assassination known to have been destroyed or removed.
 
 In November 1997, the Information Management Officer of the Office of the Inspector General (OIG) advised that he had discovered a record which indicated a file that referred to the Kennedy assassination had been destroyed on "5/1/95". A search for information on this document revealed that the document had been created in 1977 and was described as "allegations regarding the Lee Harvey Oswald file." It was included with other documents grouped under the description:
 

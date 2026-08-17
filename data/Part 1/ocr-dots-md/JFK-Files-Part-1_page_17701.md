@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17701.png
-
-Convert to Markdownthe best such operation. From Mexico, COS Mexico has, it is known that (unless something has developed very recently), LINA is the best operation of its kind which KUBARK has.
+the best such operation. From Mexico, COS Mexico has, it is known that (unless something has developed very recently), LINA is the best operation of its kind which KUBARK has.
 
 b. Headquarters has stated:
 

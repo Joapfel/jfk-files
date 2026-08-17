@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_25884.png
-
-Convert to MarkdownRECEIVED FROM
+RECEIVED FROM
 
 HW 50955 DocId:32423630 JAN 28 1978
 

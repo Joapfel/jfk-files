@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_18136.png
-
-Convert to Markdown<table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES: 16</td></tr><tr><td>ORIG:<br>H. Feverill/jt</td><td></td></tr><tr><td>UNIT:<br>NL/Logistics</td><td></td></tr><tr><td>EXT:<br>0282</td><td></td></tr><tr><td>DATE:<br>15 March 1969</td><td></td></tr></table>
+<table><tr><td colspan="2">MESSAGE FORM<br>TOTAL COPIES: 16</td></tr><tr><td>ORIG:<br>H. Feverill/jt</td><td></td></tr><tr><td>UNIT:<br>NL/Logistics</td><td></td></tr><tr><td>EXT:<br>0282</td><td></td></tr><tr><td>DATE:<br>15 March 1969</td><td></td></tr></table>
 
 <table><tbody><tr><td>TO</td><td>CASE SECRETARIAL DISSEMINATION</td><td>BY</td><td>A PER</td><td>COMPL</td><td>BID COPY</td></tr></tbody></table>
 

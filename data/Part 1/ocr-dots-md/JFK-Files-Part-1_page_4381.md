@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_4381.png
-
-Convert to Markdownde abuelo... Yo creo que es fundameste! para el futuro de los que se están luchando por el continente de la guerra.
+de abuelo... Yo creo que es fundameste! para el futuro de los que se están luchando por el continente de la guerra.
 
 Y porque esta organización está integrada por hombres de todas las proyecciones, por hombres de todas las edades y por hombres de todas las clases morales, además tenemos fuerza moral para lanzar un mensaje de repensanza al futuro de Cuba.
 

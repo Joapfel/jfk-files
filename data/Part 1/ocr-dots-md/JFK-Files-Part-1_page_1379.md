@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1379.png
-
-Convert to MarkdownSECRET
+SECRET
 
 class, had little sense of security. It is obvious that he
 trusted SZULC and VOLSKY far beyond what normal prudence

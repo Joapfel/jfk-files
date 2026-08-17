@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27353.png
-
-Convert to MarkdownRecommendation for Honor or Merit Award
+Recommendation for Honor or Merit Award
 William V. Broe, Distinguished Intelligence Medal
 
 After an active and successful career as a Special Agent in the FBI, Mr. Broe entered the Agency in June 1948 and was assigned as the Southeast Asia Branch Chief in the Far East Division. His ability to make decisions, work effectively with both supervisors and subordinates, plus his dependability, initiative and attention to the broader aspects of his work were soon noted and have continued to characterize his long and productive career in the CIA.

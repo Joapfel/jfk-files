@@ -1,5 +1,3 @@
-# JFK-Files-Part-1_page_6475.png
-
-Convert to MarkdownText of January 20, 1953, cables: (Confidential)
+Text of January 20, 1953, cables: (Confidential)
 
 "Soviet defectors referred to in Frankfurt tel sent Vienna 83, Rome 87, Athens 102, Trieste 59, Istanbul 43, Geneva 21 for Carson child be generally interpreted as those Sov citizens or Sov Ukrainians who left Military or Govt service since Jan 1945, or their dependents (para 6 of Prev Guide #1). Local Units may also extend assistance to such other post Jan 1945. Sov escapees who qualify under Para 7 of Guide #1, excepting hard core DP's or persons who have been in refugee status prior to World War II."

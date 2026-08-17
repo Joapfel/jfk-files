@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_29262.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td rowspan="2">
      SECTION I - CONTINUED FROM PAGE 8

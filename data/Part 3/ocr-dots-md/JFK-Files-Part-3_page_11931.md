@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11931.png
-
-Convert to Markdown4-E
+4-E
 
 sophisticated laboratory technical equipment enabled the
 National Security Agency (NSA) to determine Soviets were

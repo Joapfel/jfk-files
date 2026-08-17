@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16042.png
-
-Convert to MarkdownSOD...0-057
+SOD...0-057
 15 JAN 1970
 
 MEMORANDUM FOR: Chief, WH/7

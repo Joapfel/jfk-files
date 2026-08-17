@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4394.png
-
-Convert to MarkdownTHURSDAY
+THURSDAY
 20
 
 JULY

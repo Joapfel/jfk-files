@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13793.png
-
-Convert to Markdownel teléfono en 352110, que si gusta puede pedirlas a nombre de Silvia. Raúl toma nota y acepta.- 213.-
+el teléfono en 352110, que si gusta puede pedirlas a nombre de Silvia. Raúl toma nota y acepta.- 213.-
 
 228. Salida al 352110.- Raúl después de enterarse del pre- cio de las Intas con galletas y de que están en José María- Iglesias 51, indica que a MP que pasará el lunes.- 241.-
 

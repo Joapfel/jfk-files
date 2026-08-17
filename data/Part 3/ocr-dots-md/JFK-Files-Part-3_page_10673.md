@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_10673.png
-
-Convert to Markdownsuch an approach appropriate at this time due to the small
+such an approach appropriate at this time due to the small
 membership which at this time consists of three established
 informants of long standing. Activity to bring public
 pressure to bear at this particular time could jeopardize

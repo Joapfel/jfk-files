@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33801.png
-
-Convert to Markdown10 May 1952
+10 May 1952
 
 MEMORANDUM FOR: IO/OMIC - Miss Stern
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5577.png
-
-Convert to Markdownone, or I am not aware of anyone
+one, or I am not aware of anyone
 those officers concerned with this
 of any former Soviet intelligence
 from they spoke about this matter

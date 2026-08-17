@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_31568.png
-
-Convert to MarkdownSECRET
+SECRET
 SECURITY: Top Secret
 
 THE WHITE HOUSE

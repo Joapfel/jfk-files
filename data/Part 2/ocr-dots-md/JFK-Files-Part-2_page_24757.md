@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_24757.png
-
-Convert to MarkdownDearborn could be trusted. Then on June 16, 1960, CIA Headquarters* cabled a request that Dearborn become the "communications link" between the dissidents and CIA. The cable /stated/ that Dearborn's role had the "unofficial approval of /Assistant Secretary of State for Inter-American Affairs, Roy R./ Rubottom" (Emphasis in original.) (HQS to Station cable 6/16/60).
+Dearborn could be trusted. Then on June 16, 1960, CIA Headquarters* cabled a request that Dearborn become the "communications link" between the dissidents and CIA. The cable /stated/ that Dearborn's role had the "unofficial approval of /Assistant Secretary of State for Inter-American Affairs, Roy R./ Rubottom" (Emphasis in original.) (HQS to Station cable 6/16/60).
 
 Dearborn agreed. He requested, however, that the CIA confirm the arrangement with the dissidents as being that the U.S. would "clandestinely" assist the opposition to "develop effective force to accomplish Trujillo overthrow," but would not "undertake any overt action itself against Trujillo government while it is in full control of Dominican Republic" (Station to HQS cable 6/17/60). CIA Headqaurters confirmed Dearborn's understanding of the arrangement (HQS to Station cable 6/19/60).
 

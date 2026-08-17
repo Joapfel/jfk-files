@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_26607.png
-
-Convert to MarkdownCONFIDENTIAL NO FOREIGN DISSEM
+CONFIDENTIAL NO FOREIGN DISSEM
 
 **CONFIDENTIAL**
 **(Classification) (dorms control)**

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7655.png
-
-Convert to Markdown# SECRET
+# SECRET
 
 3. Subject went to the party on 16 February 1967 with his secretary and his friend, Sinai Rome, First Secretary and Consul at the Israeli Embassy. He saw PRIKHODKO briefly and PRIKHODKO's wife attached herself to him and took care of him for the evening. He noted that YATSKOV wasn't at the party.
 

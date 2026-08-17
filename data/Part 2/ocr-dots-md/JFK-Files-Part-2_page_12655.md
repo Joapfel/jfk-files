@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_12655.png
-
-Convert to Markdown# SEC. N 87. SECURITY INVESTIGATION
+# SEC. N 87. SECURITY INVESTIGATION
 
 ## A. STATUTES
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33528.png
-
-Convert to MarkdownOUTGOING MESSAGE
+OUTGOING MESSAGE
 
 <table><thead><tr><td>CLASS</td><td>AGE</td><td>CODE</td><td>ALF</td><td>TOG</td><td>LIF</td><td>WHO</td></tr></thead><tbody><tr><td>D</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td><td>0</td></tr></tbody></table>
 

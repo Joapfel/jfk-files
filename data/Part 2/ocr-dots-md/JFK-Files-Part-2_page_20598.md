@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20598.png
-
-Convert to MarkdownBOSTON WOMEN'S ABORTION
+BOSTON WOMEN'S ABORTION
 ACTION COALITION
 
 "The Militant," a weekly newspaper of the SWP, in its November 14, 1971, edition carried the following announcement: "Abortion Conference - The Second National Conference of the Women's National Abortion Action Coalition will be held February 11-13, 1972, at Boston University. For further information, contact WONAAC, 150 Fifth Avenue, Suite 843, New York, New York 10011. Phone (212) 741-0450."

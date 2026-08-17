@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_13068.png
-
-Convert to MarkdownSECRET
+SECRET
 
 30 Jun 67 #02284
 

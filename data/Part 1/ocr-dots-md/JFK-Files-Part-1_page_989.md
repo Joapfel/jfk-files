@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_989.png
-
-Convert to Markdown14-00000 COBRA (Operation)
+14-00000 COBRA (Operation)
 
 1. Blakey Request, 12 Sept 77 (OLC #77-3890)
 

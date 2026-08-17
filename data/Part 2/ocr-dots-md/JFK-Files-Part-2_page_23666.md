@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23666.png
-
-Convert to MarkdownMr. Lombard, We have come from the DIA.
+Mr. Lombard, We have come from the DIA.
 
 Senator Huddleston. The DIA would favor separating the two.
 

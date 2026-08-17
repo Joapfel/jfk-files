@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22217.png
-
-Convert to Markdown<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>WALT ELDER<br>GENERAL LANSDALE✓ RFK<br>MCGEORGE BUNDY<br>BROOCE CHEEVER (CIA)</td><td>9/14/62</td><td>MONGODB<br>Special Group Augmented</td></tr></tbody></table>
+<table><thead><tr><th>PERSONS/ENTITIES:</th><th>DATES:</th><th>CATEGORIES:</th></tr></thead><tbody><tr><td>WALT ELDER<br>GENERAL LANSDALE✓ RFK<br>MCGEORGE BUNDY<br>BROOCE CHEEVER (CIA)</td><td>9/14/62</td><td>MONGODB<br>Special Group Augmented</td></tr></tbody></table>
 
 ## OCCURRENCE:
 

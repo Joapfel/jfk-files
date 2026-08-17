@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_30464.png
-
-Convert to Markdown6 MAY 1975
+6 MAY 1975
 
 Mr. Newton S. Miler
 4314 Birchlake Court

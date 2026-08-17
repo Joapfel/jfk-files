@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12046.png
-
-Convert to MarkdownSECRET
+SECRET
 
 <table><thead><tr><th>TO</th><th>TUBE</th><th>ROOM</th><th>DATE</th><th>INITIALS</th></tr></thead><tbody><tr><td>RID/INDEX</td><td>DT-5</td><td>184003</td><td>4/24/72</td><td>Mla</td></tr><tr><td>REQUESTER</td><td></td><td></td><td></td><td></td></tr><tr><td>P.O./FILES</td><td>DT-8</td><td>GCS2</td><td></td><td></td></tr><tr><td>REQUESTER</td><td></td><td></td><td></td><td></td></tr><tr><td>RID/ANALYSIS</td><td>GT-7</td><td>GASO</td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td><td></td></tr><tr><td>RID/INDEX</td><td>DT-5</td><td>184003</td><td></td><td></td></tr></tbody></table>
 

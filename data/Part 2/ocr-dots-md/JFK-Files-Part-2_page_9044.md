@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_9044.png
-
-Convert to MarkdownDirector, FBI (62-109090)
+Director, FBI (62-109090)
 
 Legat, Paris (62-148) (P.)
 

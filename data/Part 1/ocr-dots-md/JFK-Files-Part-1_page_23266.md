@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23266.png
-
-Convert to Markdown13 November 1966
+13 November 1966
 
 MEMORANDUM FOR: Chief, FI
 

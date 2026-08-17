@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_34532.png
-
-Convert to Markdownthe Maurice Three Embankment (formerly State Square, Red Square, Novgorod Square, along Gorky Street, Sadovaya Kolossova, Komsomoletsky Prospect, Leningradsky Prospekt, past Moscow University on the Lome Hills back to the National.
+the Maurice Three Embankment (formerly State Square, Red Square, Novgorod Square, along Gorky Street, Sadovaya Kolossova, Komsomoletsky Prospect, Leningradsky Prospekt, past Moscow University on the Lome Hills back to the National.
 
 To see all the Krements and Red Square A visit to the Krements is a must for all tourists. The four hours there will give you another day in Moscow; he's sure to see the Exhibition of Economic Development of the USSR (see p. 60), which will give you a good idea of contemporary Soviet life and the culture and economic achievements of Moscow and the rest of the Soviet Union. The exhibition takes four hours. In the afternoon, pay a visit to the famous列evTropei Art Gallery (see p. 150); the treasure trove of Russian art it's sure to have something like three hours.
 

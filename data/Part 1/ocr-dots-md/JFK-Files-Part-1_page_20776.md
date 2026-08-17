@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_20776.png
-
-Convert to MarkdownSECRET
+SECRET
 
 CHIEF OF MISSION'S EVALUATION OF PERFORMANCE
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_14160.png
-
-Convert to Markdown65. 8/29/62 - SAM sites in Cuba were "first observed" as the result of the U-2 photographic mission flown on this date. On this date 8 SA-2 sites were identified. (Three more were observed on 9/5 -- one on 9/26 -- one on 9/29 -- 1 on 10/5 -- 6 on 10/7 -- 2 on 10/14 -- 1 on 10/15 -- 1 on 10/17 -- Total 24 sites). (Source: Joint Evaluation Report, 10/20/62, Table 3)
+65. 8/29/62 - SAM sites in Cuba were "first observed" as the result of the U-2 photographic mission flown on this date. On this date 8 SA-2 sites were identified. (Three more were observed on 9/5 -- one on 9/26 -- one on 9/29 -- 1 on 10/5 -- 6 on 10/7 -- 2 on 10/14 -- 1 on 10/15 -- 1 on 10/17 -- Total 24 sites). (Source: Joint Evaluation Report, 10/20/62, Table 3)
 
 66. 8/29/62 - Referring to results of the 8/29 U-2 mission, the CIA Chronology states "Read out of the 29 August coverage showed an SA-2 site near Sagua La Grande which apparently was the basis for the reported activity there" (i.e., the pinpointing of four farms in the Sagua La Grande area as "suspect missile sites," referred to in Item No. 63 above). ... "the target card was changed to show a confirmed SA-2 site. It should be noted that knowledge that this site was in the area could have lead analysts to misinterpret any subsequent reports of MRBM activity as part of the SAM development, but in fact no such reports were received." (Source: CIA Chronology, 11/14/62)
 

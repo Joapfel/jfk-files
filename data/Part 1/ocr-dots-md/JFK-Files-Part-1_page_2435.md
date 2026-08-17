@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2435.png
-
-Convert to MarkdownSECRET
+SECRET
 
 B. NOSENKO did not enter the KGB in the manner or at the time claimed. (Previous conclusion)
 

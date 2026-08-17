@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22381.png
-
-Convert to MarkdownSECRET
+SECRET
 
 I guess, and he was in our maritime activities. He was a boat captain eventually. And he did participate in infiltrations and exfiltrations and perhaps one or two raids, hit and run, sabotage-type actions against Cuba. Sturgis never engaged in any of these things. He never did it for us nor did he ever do it on any of our boats, planes, or -- anything that belongs to the Agency.
 

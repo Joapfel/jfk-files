@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3618.png
-
-Convert to Markdown14-00000
+14-00000
 
 T 458695 E1A212 PAGE 01
 

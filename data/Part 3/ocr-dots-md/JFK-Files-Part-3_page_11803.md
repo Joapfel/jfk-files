@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_11803.png
-
-Convert to MarkdownSPECIFIC COMMENTS
+SPECIFIC COMMENTS
 
 1. None
 

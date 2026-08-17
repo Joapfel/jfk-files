@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8276.png
-
-Convert to Markdownhigh school she went to a school for mechanical tech-
+high school she went to a school for mechanical tech-
 nicians where she studied about a year and gave it up
 because she did not like it. She competed to enter the
 school of modern languages at the university but she

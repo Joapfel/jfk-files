@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_5245.png
-
-Convert to MarkdownSECRET
+SECRET
 
 * As a result of such flaps, CIA has little recourse but to accede to direct demands that we cease using a given country's documentation, which narrows our range of options for providing officers with operational aliases.
 

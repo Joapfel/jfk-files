@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_8725.png
-
-Convert to Markdownban on travel of Cuban exiles outside Dade County, Fla.
+ban on travel of Cuban exiles outside Dade County, Fla.
 
 DGI (GENERAL DIRECTORATE OF INTELLIGENCE) Organization,
 Functions, Policies, Standards (Soft File)

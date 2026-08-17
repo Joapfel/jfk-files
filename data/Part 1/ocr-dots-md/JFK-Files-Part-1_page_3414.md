@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3414.png
-
-Convert to Markdown# PARA PI NO HAY
+# PARA PI NO HAY
 
 —El célebre Castro hay totalizado, templanos los ríos de suero
 

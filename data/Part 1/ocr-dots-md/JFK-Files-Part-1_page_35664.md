@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35664.png
-
-Convert to MarkdownNueva York "El Medico y Ciudad"
+Nueva York "El Medico y Ciudad"
 Diciembre, 1964
 
 Lunes 2 # 370 Varices, Flebectromosis y Tromboleitis

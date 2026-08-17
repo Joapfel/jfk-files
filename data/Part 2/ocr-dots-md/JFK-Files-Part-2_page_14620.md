@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_14620.png
-
-Convert to MarkdownROBERT CAREY CLARK, a resident of Raytown, Missouri,
+ROBERT CAREY CLARK, a resident of Raytown, Missouri,
 employed as an engineer at Teletype Corporation, who on April 14,
 1960, advised an airlines clerk at the Midway Airport, Chicago,
 Illinois, that he had a bomb in his luggage, was arrested on

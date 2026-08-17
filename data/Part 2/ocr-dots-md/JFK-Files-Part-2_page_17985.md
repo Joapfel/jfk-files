@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_17985.png
-
-Convert to MarkdownTrotskyist Unit
+Trotskyist Unit
 George J. Lex, Jr.
 Three Special Agents
 

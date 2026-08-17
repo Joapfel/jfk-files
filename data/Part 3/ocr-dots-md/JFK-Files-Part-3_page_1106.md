@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_1106.png
-
-Convert to Markdown# Counterintelligence Programs
+# Counterintelligence Programs
 
 In February and March, 1967, informants disclosed that certain members of the security guard, Belmont, North Carolina, Klavern of the United Klans of America (UKA), had joined or were joining the National Rifle Association (NRA). An informant advised that, under certain circumstances, the Director of Civilian Marksmanship, U. S. Army, would supply NRA-affiliated clubs with rifles and ammunition, and that the UKA was joining for this purpose. An anonymous letter was mailed to the NRA on May 2, 1967.
 

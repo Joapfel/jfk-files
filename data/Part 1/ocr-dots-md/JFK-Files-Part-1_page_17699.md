@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_17699.png
-
-Convert to Markdownt. Planning for the Future
+t. Planning for the Future
 
 Current planning calls for the continuation of about 24 lines of coverage with bases and personnel being assembled to permit an increase to about 30 lines, local circumstances permitting. Basic coverage will be continued to the fullest extent possible on the Soviets, Poles and Czechs, which coverage of individual and targets of opportunity will be shifted so as to produce the greatest possible amounts of important information. At present it is believed that 30 lines is about the maximum the technical agents on this one operation can mount and protect properly. In order to get more coverage, the Station will likely establish (in headquarters approves) a separate, independent LIFAT-type operation, with new principals.
 

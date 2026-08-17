@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_21674.png
-
-Convert to Markdownnot an adequate reason to transfer responsibility for the agent and it
+not an adequate reason to transfer responsibility for the agent and it
 appears the KGB considers that the continuation of an established
 handler-agent relationship has considerable merit.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2727.png
-
-Convert to MarkdownWe don't have probable cause for him to target against that organization, but yet we should be able to receive information from him that he as a Communist Party member, even though in an informant status, is going to that organization and don't worry about it. We're making no headway on it. It's just from our standpoint the possibility of informants, the Supreme Court has held that informants per se do not violate the First, Fourth, or Fifth Amendments. They have recognized the necessity that the government has to have individuals who will assist them in carrying out their governmental duties.
+We don't have probable cause for him to target against that organization, but yet we should be able to receive information from him that he as a Communist Party member, even though in an informant status, is going to that organization and don't worry about it. We're making no headway on it. It's just from our standpoint the possibility of informants, the Supreme Court has held that informants per se do not violate the First, Fourth, or Fifth Amendments. They have recognized the necessity that the government has to have individuals who will assist them in carrying out their governmental duties.
 
 Senator Hart of Michigan. I'm not sure I've heard anything yet in response to the constitutional question, the very practical question that you addressed.
 

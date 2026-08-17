@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13214.png
-
-Convert to Markdown1961 Edward J. Hamilton pseudonym used by Hunt in re Cubon project in Fla.
+1961 Edward J. Hamilton pseudonym used by Hunt in re Cubon project in Fla.
 
 Hunt's the travelled to India 1 or 2 times per year, 2 or 3 times to Paris & 1-2 time(s) per year in London, & 1 or less time(s) per yr in Rome. Only domestic travel in '63 would have been to NY. All travel done in this own name. A.B. Edgell
 

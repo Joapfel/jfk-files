@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_9648.png
-
-Convert to Markdown<table>
+<table>
    <tr>
     <td>DEJ/IC</td>
    </tr>

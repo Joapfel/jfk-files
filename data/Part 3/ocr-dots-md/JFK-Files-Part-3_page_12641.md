@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_12641.png
-
-Convert to Markdownto constitute a grand jury and in the absence of any charges or allegations of a violation of law on his part, he did not insist on the presence of counsel.
+to constitute a grand jury and in the absence of any charges or allegations of a violation of law on his part, he did not insist on the presence of counsel.
 
 Seidel was advised that as a former Special Agent the writer had contacted the Bureau's Legal Counsel Division and as of this date had been advised by Mr. Paul Daly thereof that he had been cleared by the Attorney General (AG) to testify to matters relating to investigation of Martin Luther King, Jr., Southern Christian Leadership Conference (SCLC), and Stanley Levison.
 

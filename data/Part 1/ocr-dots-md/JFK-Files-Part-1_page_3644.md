@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_3644.png
-
-Convert to MarkdownBased on: UFAA 4436,2 Oct
+Based on: UFAA 4436,2 Oct
 1972
 
 200-11-11/7

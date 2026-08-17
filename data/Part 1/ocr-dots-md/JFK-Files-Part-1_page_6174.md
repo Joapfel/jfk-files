@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_6174.png
-
-Convert to MarkdownChief, New Orleans Office
+Chief, New Orleans Office
 
 22 September 1954
 

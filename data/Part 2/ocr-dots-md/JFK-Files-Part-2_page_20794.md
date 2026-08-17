@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_20794.png
-
-Convert to MarkdownNY 100-174481
+NY 100-174481
 
 After the independent women publicly resigned in front of the plenary session, two other coordinators announced they were staying on. One was BARBARA ROBERTS, the other's name is unknown.
 

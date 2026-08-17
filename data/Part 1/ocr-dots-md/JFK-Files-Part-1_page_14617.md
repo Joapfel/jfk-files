@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_14617.png
-
-Convert to Markdown9 January 1970
+9 January 1970
 
 Report No. 2274
 

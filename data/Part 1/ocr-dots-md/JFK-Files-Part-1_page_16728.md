@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_16728.png
-
-Convert to MarkdownCLASSIFIED MESSAGE
+CLASSIFIED MESSAGE
 
 <table><tr><td>ORIG: B. Nolichardt:rg</td></tr><tr><td>UNIT: WH/3/Mexico ☐ INDEX ☑</td></tr><tr><td>EXT : 5940 ☐ NO INDEX ☑</td></tr><tr><td>DATE : 12 Dec 63 ☐ FILE IN CS FILE NO. Destroy</td></tr></table>
 

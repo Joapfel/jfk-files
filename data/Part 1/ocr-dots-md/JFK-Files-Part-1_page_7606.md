@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_7606.png
-
-Convert to Markdown# VALENTIN S. LOGUTNOV
+# VALENTIN S. LOGUTNOV
 
 1. **Contact.** First not April 22, 1967. He asked my wife and D if he and an American born Mexican friend could join us at Tontanos. Saturdays the tennis courts are filled. I was reluctant at first until I recognized his accent and suspected that he was one of two persons for whom I have pictures on file.
 

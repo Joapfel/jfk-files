@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22297.png
-
-Convert to Markdown704.
+704.
 
 YEFREMOV because they were too well known is incompatible with his other reporting to the effect that neither took part in an operation between 1959 and early 1962.
 

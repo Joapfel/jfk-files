@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15820.png
-
-Convert to MarkdownG CAN BY CHAIRMAN FR
+G CAN BY CHAIRMAN FR
 S SEND CHECKS OR M OI
 ORDERS
 

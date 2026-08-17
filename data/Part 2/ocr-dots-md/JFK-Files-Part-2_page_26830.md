@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26830.png
-
-Convert to Markdownor overt publications. We subscribed -- well, the proprietary
+or overt publications. We subscribed -- well, the proprietary
 subscribed to a number, a great many newspapers, periodicals,
 Spanish language type things.
 

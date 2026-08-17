@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_1766.png
-
-Convert to Markdown14-0000
+14-0000
 
 HOOBY Foundation. On 22 October 1965 a PCSA was issued to HARRY for the same use in WJ/Cuba activities as that outlined for his mother.
 

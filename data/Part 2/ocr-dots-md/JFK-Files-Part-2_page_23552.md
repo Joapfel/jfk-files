@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23552.png
-
-Convert to MarkdownDRAFT
+DRAFT
 
 3. U. S. POLICY TOWARD CUBA (Continued)
 

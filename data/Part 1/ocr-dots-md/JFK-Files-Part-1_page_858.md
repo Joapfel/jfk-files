@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_858.png
-
-Convert to MarkdownAlbanian Cryptographic Material
+Albanian Cryptographic Material
 
 03
 [Jon French]

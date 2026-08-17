@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_8692.png
-
-Convert to Markdown9.01.03 Diga si usa su propio Encendedor Paquete de fósforos
+9.01.03 Diga si usa su propio Encendedor Paquete de fósforos
 
 9.01.04 Diga si es el tipo de persona que
 Siempre pide lumbre

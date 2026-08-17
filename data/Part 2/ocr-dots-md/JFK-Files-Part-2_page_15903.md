@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_15903.png
-
-Convert to MarkdownThere will be a BPP meeting at BRUCE's house tonight. Members of the BPP are going around Maywood today telling youths not to go to school on today or tomorrow, May 20, in honor of MALCOLM X's birthday. NEAL THOMAS, GREGORY PERKINS and JAMES SIKES had shopping bags full of flyers telling the youths to stay home from school.
+There will be a BPP meeting at BRUCE's house tonight. Members of the BPP are going around Maywood today telling youths not to go to school on today or tomorrow, May 20, in honor of MALCOLM X's birthday. NEAL THOMAS, GREGORY PERKINS and JAMES SIKES had shopping bags full of flyers telling the youths to stay home from school.
 
 Informant subsequently advised on May 19 that the meeting was held at BRUCE's house on May 19.
 

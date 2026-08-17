@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_35631.png
-
-Convert to Markdown# Programa Radial "El Medico y Usted"
+# Programa Radial "El Medico y Usted"
 ## Febrero 1965
 
 1 Lunes # 301 Fiebre Escarlatina

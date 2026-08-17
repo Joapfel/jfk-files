@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_606.png
-
-Convert to MarkdownSECRET
+SECRET
 
 PASSPORT AS MEANS IDENTIFICATION.
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_23942.png
-
-Convert to MarkdownPresident of Mali,
+President of Mali,
 
 Belgica Keita, xuxa Married to a French woman. Leftist.
 

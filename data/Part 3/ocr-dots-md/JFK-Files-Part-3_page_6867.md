@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_6867.png
-
-Convert to MarkdownMANUAL OF INSTRUCTIONS
+MANUAL OF INSTRUCTIONS
 
 VOLUME IV
 

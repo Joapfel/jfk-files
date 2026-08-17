@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_22585.png
-
-Convert to MarkdownSECRET
+SECRET
 
 Honor America Week (1969)
 Support Our POW's and MIA's (1970)

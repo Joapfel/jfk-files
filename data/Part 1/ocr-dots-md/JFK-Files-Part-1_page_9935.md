@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_9935.png
-
-Convert to MarkdownSECRET
+SECRET
 
 SECURITY: PROVOCATION BASED ON FOLLOWING POINTS:
 

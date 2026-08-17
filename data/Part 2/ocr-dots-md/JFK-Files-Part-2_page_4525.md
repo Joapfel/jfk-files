@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_4525.png
-
-Convert to Markdown4. Communism:
+4. Communism:
 
 a. Secret existence of PSP
 

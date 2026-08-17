@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_33320.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 Incumbent University of Chile Rector Edgardo Boeninger, an independent with Christian Democratic sympathies, gained 51.9 per cent of the vote for rector in April against three other contenders representing the UP coalition and leftist splinter groups, including the MIR. An independent-PDC state also gained control of the previously Marxist-controlled Superior Normanative Council. The victory was billed by the opposition media as another victory for democracy and pluralism over 'Marxist totalitarianism.' In the process Rector Boeninger became a hero of the opposition media and a symbol of "democratic" defiance of Government efforts to impose its will on an independent university. The opposition's rallying cry became "Defend a democratic and pluralist university." Translated into media terms it became "'We want a democratic and pluralistic university TV channel."
 

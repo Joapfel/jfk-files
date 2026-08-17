@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_2267.png
-
-Convert to MarkdownEdwin Warren Bishop
+Edwin Warren Bishop
 
 (037252)
 

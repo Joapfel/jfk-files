@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_2449.png
-
-Convert to Markdown# FBI
+# FBI
 
 Date:
 

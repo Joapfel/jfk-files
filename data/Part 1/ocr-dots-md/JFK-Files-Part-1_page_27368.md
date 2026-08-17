@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27368.png
-
-Convert to MarkdownLtr, 6499th Support Group (CR), 11 Jun 65, Letter of Commendation
+Ltr, 6499th Support Group (CR), 11 Jun 65, Letter of Commendation
 
 1st Ind (DI)
 

@@ -1,6 +1,4 @@
-# JFK-Files-Part-3_page_13884.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 In a report dated 15 November, Canadian Ambassador Kidd in Havana submitted the following analysis of the "Foreign Legion" in Cuba.
 

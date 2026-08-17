@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_12742.png
-
-Convert to Markdown14-0000
+14-0000
 
 <table><tr><td>CABLE SEC DISSEMS BY:</td><td>9 PER</td></tr><tr><td>TOTAL COPY</td><td>16</td></tr><tr><td colspan="2">SECRET</td></tr><tr><td>PERSON/UNIT NOTIFIED</td><td></td></tr></table>
 

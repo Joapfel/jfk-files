@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6716.png
-
-Convert to Markdown13-00000
+13-00000
 
 Mr. Barry Harrelson
 October 27, 1996

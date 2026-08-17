@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_22901.png
-
-Convert to MarkdownCONFIDENTIAL
+CONFIDENTIAL
 
 BARNES, Winfred Clark
 

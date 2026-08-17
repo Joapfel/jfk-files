@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_27161.png
-
-Convert to MarkdownADVICE AND WAIVER
+ADVICE AND WAIVER
 
 Place: Lasley, Va.
 Date: 3/15/74

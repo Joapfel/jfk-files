@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_26521.png
-
-Convert to MarkdownSECRET
+SECRET
 
 E. We also have considerable evidence of involved bank transfers by which Cuban money eventually reaches Latin American front groups to pay for political and propaganda activity. In some countries where the Cubans still have diplomatic missions, we have obtained photostats showing that Cuban diplomats paid for printing of front-group propaganda.
 

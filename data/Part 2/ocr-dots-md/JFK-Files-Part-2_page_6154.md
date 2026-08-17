@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_6154.png
-
-Convert to Markdown56 Md. L. Rev. 1, *23
+56 Md. L. Rev. 1, *23
 
 n153. See Holland, supra note 18, at 54, 56.
 

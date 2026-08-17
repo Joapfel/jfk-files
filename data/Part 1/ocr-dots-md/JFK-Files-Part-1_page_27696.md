@@ -1,6 +1,4 @@
-# JFK-Files-Part-1_page_27696.png
-
-Convert to Markdown# Report to SUPERINTENDENT of Public Schools - Date: 5/58
+# Report to SUPERINTENDENT of Public Schools - Date: 5/58
 
 Department Reporting: WH/EXICO
 

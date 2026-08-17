@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_10467.png
-
-Convert to MarkdownORD-2274-73
+ORD-2274-73
 
 7 May 1973
 

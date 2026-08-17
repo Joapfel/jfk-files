@@ -1,6 +1,4 @@
-# JFK-Files-Part-2_page_23755.png
-
-Convert to MarkdownIndonesian reference?
+Indonesian reference?
 
 Mr. Bader. Yes, we have a major study to support that.
 
